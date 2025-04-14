@@ -6,9 +6,9 @@ https://lemm.ee/post/61330661/19697464
 
 True, from year 2014 to year 2023... but starting in year 2024 the cult of *hate Trump* and *hate Musk* grew even more potent. Since January 2024, the entire USA in inside the 5,000 Kremlin ***alternate reality screen games*** on Lemmy, Bluesky, Reddit, Facebook, Instagram, Twitter (Elon Musk X), Newsmax, Fox News, TikTok, *you name it*, people hate Americans.
 
-It's all about who **hates the hardest** of Americans hating Americans and self-destructing the USA in media cult behaviors.
+It's all about who **hates the hardest** of Americans hating Americans and self-destructing the USA in media cult behaviors. ***Jerry Springer Audiences LOVE mocking the fools on stage!!!!!!***
 
-Surkov won, Russia won. Do Americans hate North Americans, oh yha, April 2025!! ANYTHING but use intelligence, teaching, education, study, comprehension and thinking to resist Russia!
+Surkov won, Russia won. Do Americans hate North Americans, oh yha, April 2025!! Jerry Springer EVERYHERE! ANYTHING but use intelligence, teaching, education, study, comprehension and thinking to resist Russia!
 
 &nbsp;
 
@@ -42,4 +42,3 @@ Russia is [trolling the entire world via media systems](https://www.foxnews.com/
 
 :::: _____________             
 *"At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare". It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare.* ***It reinvents reality, creating mass hallucinations*** *that then translate into political action."* - ["Russia and the Menace of Unreality", "How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev (currently working for Johns Hopkins University) September 9, 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)
-
