@@ -1,3 +1,7 @@
+https://lemm.ee/post/64384477/20650188
+
+&nbsp;
+
 Friday, May 23, 2025
 
 Without study, people do not see it.
