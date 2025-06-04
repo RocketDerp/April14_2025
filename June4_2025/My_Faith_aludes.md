@@ -12,11 +12,11 @@ https://www.youtube.com/watch?v=J7GY1Xg6X20
 
 =====
 
-And when I see people in Russia, Israel and other places die from house fires, earthquakes, floods, car accidents, airplane accidents, preventable diseases, food preparation accidents - I think humanity has failed to solve #The1954Equation from Dr. Martin Luther King Jr about ALL hate in ALL places is bad and needs to be eliminated using education. Hate is bad.
+And when I see people in Russia, Israel and other places die from house fires, earthquakes, floods, car accidents, airplane accidents, preventable diseases, food preparation accidents - I think humanity has failed to solve # The1954Equation from Dr. Martin Luther King Jr about ALL hate in ALL places is bad and needs to be eliminated using education. Hate is bad.
 
 Humanity is spending far too much effort in hate and anti-goodness, war, bombing, terrorism. 
 
 We need to deal with the "mass mind" and # MassPsychosis problems.
 
-It is also my faith that many individual and family mental health problems, domestic violence are the result of the society itself not taking seriously the role of "Mass Psychosis" of the group. People living in war zones, PTSD, etc People who #PrizeHate prize hate as a tool to harm others, cause brain damage.
+It is also my faith that many individual and family mental health problems, domestic violence are the result of the society itself not taking seriously the role of "Mass Psychosis" of the group. People living in war zones, PTSD, etc People who # PrizeHate prize hate as a tool to harm others, cause brain damage.
 
