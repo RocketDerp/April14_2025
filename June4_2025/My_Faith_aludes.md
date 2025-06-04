@@ -1,7 +1,7 @@
 https://autistics.life/@RoundSparrow/114626363494175612
 
 
-hashtag # DiaryOfRoundSparrow Wednesday June 4, 2024
+hashtag # DiaryOfRoundSparrow Wednesday June 4, 2024   
 hashtag # FWakeMyFaith 
 
 hashtag # MyFaith my faith system is alluded to in the 1940 film "The Great Dictator" about where technology is discussed.
