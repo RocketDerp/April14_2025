@@ -54,3 +54,18 @@ We praise those who die in the name of war and hate as heroes. We often ridicule
 Fighting hate in the mind is not easy. Living in a war zone and resisting hate is not easy. It is painful. It is suffering. Instead of being drawn to death to end the suffering, to die in honor, it is often more painful to stand up to hate itself. Even those who do so peacefully, like Malala in Swat Valley Pakistan - who was writing on the Internet about how hate wa bad, got shot on her school bus. Shot in the head.
 
 
+&nbsp;
+
+# 1954 Equation population
+
+Another aspect of having airports and world travel, we also have now in year 2025 over 8 billion people. How many hate cheerleaders can we get away with? How many Vladimire Putin leaders can we have before weapon systems and techology to kill and wreck the world start killing hundreds of millions of people?
+
+How does living under the stress of new hate outbreaks impact our lives? How much great art, music, friendships are lost because we can not travel and share plates of food with each other, because of war zones, hate-based values, hate between people?
+
+Even online, blocking and firewalling out person to person contact, how much are good ideas being lost in the wrong side of the hate equation? Digital media block button are the modern book burning, they did not have Unicode text and digital images in Nazi Germany 1933.
+
+In fiction we can express murder, genocide, warfare. Popular films like Star Wars 1977 depict an entire planet being destroyed by a weapon platform. So we can not eliminate the worst expressions of hate ideas, hate concepts, hate techniques, weapon systems plans. Fiction storytelling allows hate to be expressed, as the "bad guys" who are in the story.
+
+We must distinguish fiction from non-fiction and assert in the real world reality we desire to end hate, to solve hate, to help each other when suffering hate in our minds.
+
+Electing Donald Trump, electing Vladimir Putin - these are aggregations of hate (and hate values), accumulations of hate. We must help each other with morality lessons, moral teaching, we must convince each other that love and compassion are values worth laboring on. We orginate love and compassion, and we must do so when hate breaks out.
