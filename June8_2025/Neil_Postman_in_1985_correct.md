@@ -35,10 +35,11 @@ Day 100 of drawing badly every day until Civ 7 is released](https://old.reddit.c
 
 What I did not see:
 
-1. Until all abortion rights are returned to women after Row vs. Wade reversal
+1. Until all abortion rights are returned to women after Roe vs. Wade reversal. Until the Equal Rights Act is approved and in place.
 2. Until Donald Trump is in prison for these specific crimes list
 3. Until MAGA in USA understands fully they were mannipulted by Russia / Kremlin in an electric media information war.
 4. Until Hate, Domination, Dehumanization by the wealthy stops being motivation to promote this list of political parties / candidates. Moral reform.
+5. Until Right to Repair and Copyright are reformed so consumers / The Little Guy, has ability to repair and and more power of what they purchase. Less power to extremely wealthy, powerful, music cartels, film cartels, corporations.
 
 
 
