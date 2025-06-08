@@ -18,3 +18,27 @@ Eventually it reached a point where 500 people commenting the same reaction-comm
 
 It became a constant focus on desired trees and many similar messages and ideas about those same trees, with resulting context bewilderment when discussions about the "Big Picture" and "Forest for the Trees".
 
+&nbsp;
+
+# Public filabuster
+
+Standing up in sustained focus did not become a recognized need. A type of "filabuster protest" of "Day 7 of 800 days of begging for world peace".  Intellectual stands, morality stands, for goodness itself were not seen as needed in the general population.
+
+I have seen it done on the Internet, and get attention, for sports teams and video games:
+
+1. Every day a drawing until a Wonder Woman game comes out, [example of day 100](https://old.reddit.com/r/WonderWoman/comments/1enhi92/everyday_a_wonder_woman_drawing_until_her_game/)
+
+2. Another game release: [
+Day 100 of drawing badly every day until Civ 7 is released](https://old.reddit.com/r/civ/comments/15zc2by/day_100_of_drawing_badly_every_day_until_civ_7_is/)
+
+&nbsp;
+
+What I did not see:
+
+1. Until all abortion rights are returned to women after Row vs. Wade reversal
+2. Until Donald Trump is in prison for these specific crimes list
+3. Until MAGA in USA understands fully they were mannipulted by Russia / Kremlin in an electric media information war.
+4. Until Hate, Domination, Dehumanization by the wealthy stops being motivation to promote this list of political parties / candidates. Moral reform.
+
+
+
