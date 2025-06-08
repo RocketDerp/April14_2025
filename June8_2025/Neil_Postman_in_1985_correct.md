@@ -47,5 +47,17 @@ What I did not see:
 
 But also an underlying education, teaching, learning, FAQ / Wiki style system of organized and accumulated knowledge developes. Using these "day 100 of" attenton campaigns to refine ideas, grow mutual society-wide understnding, comrpehension on complex problems.
 
+&nbsp;
 
+# Desired Changes in Society Lists
+
+Organized lists of what people desire and discusison on practicallity, proposals of how it would work out economically, etc.
+
+Second Bill of Rights from January 1944 I find has been consistently ignored when the topics of housing / rent prices, health care, monopoly corporate power, etc come up. People seem "Amused to Death" and in "Recency Bias" to see that this January 1944 statement had an introduciton that practially spelled out the future outcome of Project 2025 / Donald Trump dictatorship.
+
+Saying "Occupy Wall Street was correct in 2011", "we should have stood up and supproted this even stronger"      
+Saying "January 1944 Sevond Bill of Rights was correct"  
+Saying "Neil Postman in 1985 was correct"  
+
+As a lessons-learned, we are not keeping our eye on the common-cause, tragedy of the commons, problems.
 
