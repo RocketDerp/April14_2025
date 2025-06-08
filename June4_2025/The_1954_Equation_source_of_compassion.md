@@ -34,3 +34,23 @@ More from Dr. Martin Luther King Jr on hate: "We usually think of what hate does
 
 Hate is a mental state that favors more hate. When a person holds hate in their brain, they prize hate, they value hate, they organize and form groups and organizations with hate in mind.
 
+&nbsp;
+
+# We Teach Each Other, Influencers 
+
+We teach hate to each other. 
+We teach revenge to each other.  
+We teach "payback" to each other.  
+We teach and influence each other.  
+
+When we prize hate, when we people wield hate as a weapon and cultivate hate, we are teaching each other more hate. We are teaching *hate harder* asa value. We are networking hate, peer to peer, and it reflects in our collective mindsets and collective outcomes. Hate aggregates to become street gangs of hate, virtual clubs of hate, and war between religions, war between nations, war between races, war between genders.
+
+We accept war between nations, war between groups of people, we accept hate.
+
+We have not developed "fire drills", "disaster drills" when hate starts to network or there are outbreaks of hate. We don't think of it as an infection or disease that spreads. We don't treat it with education and teaching, we actually do worse things like elect hate leaders to wage war and violence. In a mental state of hate, we become attracted to more and more hate to a point of world-wide self-destructiion.
+
+We praise those who die in the name of war and hate as heroes. We often ridicule and insult those who die in the name of trying to teach hate is bad, we mock and ridicule those as nieve and gullable who try to walk up to angry weapon systems and armed people with books, words, ideas. Dean in the name of absurd goodness we insult, death in the name of killing "the enemy" (other human beings we hate, who hate us back) we call brave and heroic. 
+
+Fighting hate in the mind is not easy. Living in a war zone and resisting hate is not easy. It is painful. It is suffering. Instead of being drawn to death to end the suffering, to die in honor, it is often more painful to stand up to hate itself. Even those who do so peacefully, like Malala in Swat Valley Pakistan - who was writing on the Internet about how hate wa bad, got shot on her school bus. Shot in the head.
+
+
