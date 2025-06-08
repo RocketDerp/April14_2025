@@ -41,5 +41,11 @@ What I did not see:
 4. Until Hate, Domination, Dehumanization by the wealthy stops being motivation to promote this list of political parties / candidates. Moral reform.
 5. Until Right to Repair and Copyright are reformed so consumers / The Little Guy, has ability to repair and and more power of what they purchase. Less power to extremely wealthy, powerful, music cartels, film cartels, corporations.
 
+&nbsp;
+
+# Not just publicity stunts
+
+But also an underlying education, teaching, learning, FAQ / Wiki style system of organized and accumulated knowledge developes. Using these "day 100 of" attenton campaigns to refine ideas, grow mutual society-wide understnding, comrpehension on complex problems.
+
 
 
