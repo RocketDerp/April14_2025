@@ -25,4 +25,19 @@ Several Names:
 6. Not being able to discuss Media Ecology (again Neil Postman and Marshall McLuhan) on why this isn't just normal Republican / GOP politics - and in reality induced by media itself (and amplified by Kremlin unreality). Trying to say this is "Southern Strategy" or older techniques that pre-date November 2012 agreemeent, Cambridge Analytica, Internet Research Agency.
 7. Not being able to cite / associate / quote Adam Curtis about Surkov. Descrive Surkov's methods of governing and public relations.
 
+&nbsp;
+
+# Traps List 1
+
+1. Caling others stupid, idiot, dumb wihtout taking into account the history of what Marshall McLuhan is saying about "the new medium". It is critical to think in terms of: trivalizing, complexity, understanding, comprehending. And not just delcaring people hoplessly stupid idiots. Abandon insulting, and face up to common ground needs and the huge amount of labor. Think like Malala.
+2. Context Blindness induced by exhaustion, avoidance, one-upmanship, egoism, competittion of learning, complexity. Rick Roderick talks about banalization of complexity, dismissal, deflationary.
+
+# Essential understandings
+
+1. Neil Postman's 1985 "Amusing Ourselves To Death" and how that pre-dates Fox News October 7, 1996 by more than a decade. Postman builds upon McLuhan, knew McLuhan.
+2. Rick Roderick's 1993 "Self Under Siege" lectures, 7 hours, multiple viewings. Validates Neil Postman without reference to Postman or McLuhan.
+3. Peter P's body of work
+4. Adam Curtis on Edward Bernays, Adam Curtis on Surkov (December 31, 2014 "Contradictory Vaudeville" memoorized if at all possible)
+5. Power of Myth by George Lucas, Bill Moyers, Joseph Campbell from 1986 and 1987, published in 1988. Great Seal of USA teachings in book. Statements about the 3 major Middle East religions being disqualified for the future.
+
 
