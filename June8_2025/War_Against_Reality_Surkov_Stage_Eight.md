@@ -22,6 +22,8 @@ September 9 2014, 3:42 PM ET
 
 In the USA, the press is not controlled directly like year 2012 Russia. And there is much more world press coverage, from New Zealand, Austrlia, etc, etc.
 
+## Lauren Tomasi
+
 [Australian reporter hit by nonlethal munition during LA protests: A riot police officer has been caught on camera opening fire on an Australian reporter covering violent demonstrations in the US"](https://www.news.com.au/world/north-america/australian-reporter-hit-by-nonlethal-munition-during-la-protests/news-story/50e3c0be6661e7bb0c935bf055d22441)
 
 Compuslive crowd reactions, mass man reactions. Directing the audience.
@@ -32,6 +34,13 @@ https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-
 
 Popularity itself, trending, measured click-through, audience tracking feedback loops. Instead of "through his total control of television" year 2012 domestic Russia, it is runaway monomyth compulsive behavior. Surkov dug so deep into ficton and public relations (Edward Bernays), that he has reached the depths of Bible, Quran, Torah compuslive. The clergy can rise up anywhere, the Mosques / Church / Synagogue / Temple / Fox News wealth televagelism venue is compuslively built and funded by the audience itself. Social media and classic news media hybrid interaction. And then came ChatGPT in year 2022.
 
+## This is compuslive MassMan audience-driven
+
+"Nine has today confirmed the launch of a new international bureau in Washington D.C., marking a major expansion of its news-gathering operations in North America." "Positioned just 300 metres from the White House, the move will provide Aussies with closer on-the-ground coverage of U.S. politics and global affairs."
+
+https://tvblackbox.com.au/page/2025/06/02/lauren-tomasi-appointed-to-lead-channel-9s-new-washington-d-c-bureau/
+
+Just one week before her becoming world famous for being shot on the streets, Lauren Tomasi was hired to work 0.3 kilometers from President Donald Trump, the eye of the symbolism monomyth thunderstorms.
 
 &nbsp;
 
