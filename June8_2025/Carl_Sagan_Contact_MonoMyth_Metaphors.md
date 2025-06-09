@@ -24,7 +24,7 @@ Fiction from a non-fiction science teacher. He understood metaphors, the Joseph 
 
 [Creative Mythology is Volume IV of the comparative mythologist Joseph Campbell's The Masks of God. The book concerns "creative mythology", Campbell's term for the efforts by an individual to communicate his experience through signs, an attempt that can become "living myth".](https://en.wikipedia.org/wiki/Creative_Mythology)
 
-# The Metaphor Crisis Equation
+## The Metaphor Crisis Equation
 
 https://lemm.ee/post/59340405
 
