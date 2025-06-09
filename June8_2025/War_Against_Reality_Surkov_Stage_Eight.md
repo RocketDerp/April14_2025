@@ -30,7 +30,7 @@ https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-
 
 "Someone sold the thought that Western media, which specifically have to align their interests with their audience, won't be able to ignore saturated pro-Russian campaigns and will have to change the tone of their Russia coverage to placate their angry readers."
 
-Popularity itself, trending, measured click-through, audience tracking feedback loops.
+Popularity itself, trending, measured click-through, audience tracking feedback loops. Instead of "through his total control of television" year 2012 domestic Russia, it is runaway monomyth compulsive behavior. Surkov dug so deep into ficton and public relations (Edward Bernays), that he has reached the depths of Bible, Quran, Torah compuslive. The clergy can rise up anywhere, the Mosques / Church / Synagogue / Temple / Fox News wealth televagelism venue is compuslively built and funded by the audience itself. Social media and classic news media hybrid interaction. And then came ChatGPT in year 2022.
 
 
 &nbsp;
