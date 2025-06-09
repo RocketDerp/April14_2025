@@ -16,3 +16,18 @@ Drunk driving deaths, avoidable, but slower to get home with a Taxi and get your
 
 Musing all over on this page I'm authoring ;)
 
+&nbsp;
+
+## What is Contact Story
+
+Fiction from a non-fiction science teacher. He understood metaphors, the Joseph Campbell Fiction / Non-Fiction atheist equation.
+
+[Creative Mythology is Volume IV of the comparative mythologist Joseph Campbell's The Masks of God. The book concerns "creative mythology", Campbell's term for the efforts by an individual to communicate his experience through signs, an attempt that can become "living myth".](https://en.wikipedia.org/wiki/Creative_Mythology)
+
+# The Metaphor Crisis Equation
+
+https://lemm.ee/post/59340405
+
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+Carl Sagan expresed this equation comprehension with Contact story.
