@@ -1,5 +1,6 @@
 War Against Reality without resitance   
 War Against Reality welcomed and embraced, no resistance from population   
+War Against Reality - when did we ever escape the last Anti-Reality MonoMyth patterns?   
 
 # Surkov Stage Eight 
 
@@ -68,5 +69,13 @@ Neil Postman's 1985 "Amusing Ourseles To Death", after Ronald Regan elected twic
 
 Trump and Putin do not realize what they have unleashed, they are compusively amplyfing it.
 
+## The Ultimate Troll, verse Matthew 4:19
+
 As an aside within multiple asides: There is only one outcome worth screaming and standing up for. Pale Blue Dot comprehension, heaven itself, willing to die for heaven on Earth as a realized public dream. Heaven is a public dream. Utopia is a public dream. So, too, are wars in space - lots of science fiction violence. Which is worth killing and death for?
+
+When did we every fully escape the heaven metaphor? How can someone raise children, birth children, without that agenda and objective?
+
+Is endless war a fantasy objective serial killers of humanity all agree on?
+
+
 
