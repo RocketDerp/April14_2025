@@ -24,3 +24,47 @@ Rick Roderick in 1993 was worried about the same trajectory.
 "In any case, ah, if Baudrillard is even onto something, what the postmodern trajectory means is that the self is not under siege, it’s lost. It’s just lost. And if that’s true then all of the strategies by which ordinary people try to live decent good lives are lost along with it. I am not necessarily going to buy that **right away, I am really not**. I do think that the new, ah, technologies are going to call forth… I mean this is why the title of this course has been “The Self Under Siege”. If I didn’t think it was a real, virulent technological siege and just some thought up philosopher’s dream, which would not have interested me. I mean, I have no interest in that. I mean, what I am interested in is what is changing the **lives of my children and your children** (from 1993) and so on." - 1993
 
 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
+
+.
+
+&nbsp;
+
+# What to Do
+
+I think we have to admit how badly we fucked up ignoring Neil Postman in 1985 and 1992 - his observations about New York City modern (wealthy) live and his wealthy New York University students. They were ahead of the curve, just as Donald Trump was living that lifestyle in 1985.
+
+Neil Postman was correct in 1985.  
+Neil Postamn was correct in 1992.   
+
+## What To Do: Admit it
+
+Repeat it, repeat it, repeat it, admit it, declare it, admit we have a common ground problem. Media ecology education. Media ecology crisis. Understanding media. That Neil Postman and Marshall McLuhan were correct. And the problem runs deep, back into the realizations of Finnegans Wake, understandings of James Joyce in Dublin Ireland.
+
+## What To Do: Label
+
+Label Fiction vs. non-fiction   
+Label source / author for point by point criticism and speculation   
+Label mistakes, errors, errata    
+Label Future vs. Past   
+
+## What To Do: Everything Wiki Values 
+
+Wiki systems have edit history, progress history      
+Wiki systems link topics and assocations   
+Wiki systems favor public domain knowledge / common understanding    
+Wiki systems favor translation to all world languages   
+
+Anything said in public by any person, we should desire to link it together.
+
+### The Time Has Come: Tower of Babel Climbing
+
+https://www.GreatSealUSA.com/
+
+"no less than six apexes, one above, one below, and four (so to say) to the four quarters. The sense of this, it seemed to me, might be that from above or below, or from **any point of the compass, the creative Word might be heard**, which is the **great thesis of democracy. Democracy assumes that anybody from any quarter can speak, and speak truth**, because his mind is not cut off from the truth. All he has to do is clear out his passions and then speak."
+
+"So what you have here on the dollar bill is the eagle representing this wonderful image of the way in which the transcendent manifests itself in the world. That's what the United States is founded on. If you're going to govern properly, you've got to govern from the apex of the triangle, in the sense of the world eye at the top."
+
+### The Time Has Come: Tree of Knowledge Metaphor here all along
+
