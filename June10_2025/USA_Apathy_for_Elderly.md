@@ -77,4 +77,4 @@ Why did the entire world not make education on how to prevent this? Why doesn't 
 
 https://en.wikipedia.org/wiki/1990_Mecca_tunnel_tragedy
 
-This is Malala's point - what fucking good is the religon when we can't actually use organized religion to promote compassion, love goodness itself?
+This is Malala's point - what fucking good is the religon when we can't actually use organized religion to promote compassion, love, **goodness itself**?
