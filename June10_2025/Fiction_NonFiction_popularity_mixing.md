@@ -79,3 +79,9 @@ We have already gone too far. Jokes vs. serious, fiction vs. nonfiction.
 https://old.reddit.com/r/shittymoviedetails/comments/1l7y9r8/despite_claims_that_john_travolta_didnt_actually/mx0tg5e/
 
 "We did it Reddit. We shaped reality lol"
+
+&nbsp;
+
+There needs to be a world-wide convention for sarcasm / fiction quotes / mocking quotes. Such as this use of quotation marks: https://old.reddit.com/r/PublicFreakout/comments/1l80kdh/i_dont_want_a_civil_war_civil_war_would_happen_if/mx162ee/
+
+
