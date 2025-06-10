@@ -1,6 +1,7 @@
 
 See posting for starting seed context:
 
+https://mastodon.social/@RoundSparrow/114659592673191026    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lrb4uhykzs27
 
 Symptoms and signs since March 2013 start of "Operation Matthew 4:19"
@@ -78,3 +79,14 @@ Why did the entire world not make education on how to prevent this? Why doesn't 
 https://en.wikipedia.org/wiki/1990_Mecca_tunnel_tragedy
 
 This is Malala's point - what fucking good is the religon when we can't actually use organized religion to promote compassion, love, **goodness itself**?
+
+
+
+&nbsp;
+
+## Misc 00
+
+Found message on Reddit with good language, and of course, 25 day fresh Reddit user... How can anyone tell reality of unreality without extensive decades of study and real-world travel...
+
+"I work in end user tech support for a lot of elderly people. Everyday they outdo themselves by saying crazier and crazier things. From chem trails to a lady telling me yesterday the LA Riots were because Trump already took over Mexico making it a US state and now they are fighting back hence all the Mexican flags. All I could do was nod in agreement. They are all so broken and delusional and this is the age group driving this country off a cliff because they can't actually see reality."    
+https://old.reddit.com/r/Futurology/comments/1l81t0j/people_are_becoming_obsessed_with_chatgpt_and/mx196f0/
