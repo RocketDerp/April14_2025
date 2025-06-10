@@ -68,3 +68,6 @@ https://www.GreatSealUSA.com/
 
 ### The Time Has Come: Tree of Knowledge Metaphor here all along
 
+"Google AI Overview is simply not reliable. After all, it pulls random info from the internet. It doesn’t know the difference between a joke and seriousness." https://old.reddit.com/r/shittymoviedetails/comments/1l7y9r8/despite_claims_that_john_travolta_didnt_actually/mx0nwfp/
+
+We have already gone too far. Jokes vs. serious, fiction vs. nonfiction.
