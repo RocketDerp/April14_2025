@@ -5,3 +5,9 @@ Twitter / Bluesky / Reddit / meme streaming. Every 2 hours different topics, no 
 
 “It is not necessary to conceal anything from a public insensible to contradiction and narcotized by technological diversions.”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+&nbsp;
+
+1985:   
+“But it is much later in the game now, and ignorance of the score is inexcusable. To be **unaware that a technology** [Reddit / Bluesky] comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
