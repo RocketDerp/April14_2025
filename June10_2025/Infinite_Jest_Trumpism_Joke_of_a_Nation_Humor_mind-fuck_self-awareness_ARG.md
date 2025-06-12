@@ -10,7 +10,7 @@ Mastodon
 https://mastodon.social/@RoundSparrow/114671450179555275
 
 Bluesky  
-https://bsky.app/profile/roundsparrow.bsky.social
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lrgfemdsqs2b
 
 &nbsp;
 
