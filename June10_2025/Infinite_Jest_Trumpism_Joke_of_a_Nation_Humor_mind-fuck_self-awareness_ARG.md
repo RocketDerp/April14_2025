@@ -21,7 +21,7 @@ https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
 
 &nbsp;
 
-RoundSparrow as here.   
+RoundSparrow was here.   
 Operas by RoundSparrow.   
 Wake Indra.   
 Public Domain license, copyright Stephen Alfred Gutknecht.
