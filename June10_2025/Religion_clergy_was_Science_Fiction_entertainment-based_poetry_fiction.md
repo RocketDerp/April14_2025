@@ -1,4 +1,4 @@
-# Relgiion Clergy was using Science Fiction
+# Religion Clergy was using Science Fiction
 
 Entertainment based poetry was core to religion and clergy presentaiton.
 
