@@ -64,6 +64,16 @@ The motivation to hate. The motivation to war. The motivation to terrorism comes
 
 ## Actions / What to Do?
 
+### Make Peter P a household name in USA
+
+Admit we lost an information war. Admit faith in Twitter was a mistake. Sharon Stone was correct in 2024. Admit we made a mistake and don't be hateful and chalk it up to electric media growing pain. If we had focused on Neil Postman and Marshall McLuhan more, we could have prevented it, but we did not prevent it. Operation Matthew 4:19 since March 2013 wrecked us, our own smartphone media addictions / iPad addictions wrecked us. And we went on an electric media binge until black out drunk for 15 years. Admit we failed and start rebuilding.
+
+### Make "Amusing Ourselves To Death" a memoried book, 192 pages
+
+
+
+&nbsp;
+
 ## Outcomes: World Peace
 
 We are overdue on facing up to the bad side of our brains and minds. If we don't take world peace seriously, we will not get world peace.
