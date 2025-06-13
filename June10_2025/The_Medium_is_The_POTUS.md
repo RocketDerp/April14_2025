@@ -60,4 +60,20 @@ The motivation to hate. The motivation to war. The motivation to terrorism comes
 ― Neil Postman, The End of Education: Redefining the Value of School, September 1995 (Eternal September)
 
 
+&nbsp;
+
+## Actions / What to Do?
+
+## Outcomes: World Peace
+
+We are overdue on facing up to the bad side of our brains and minds. If we don't take world peace seriously, we will not get world peace.
+
+We have the ability to entertain ourselves with computer systems, sports, games. But we continue to wage wars, promote hate, teach warfare, build webapon systems, orginate hate, glorify violence and glorify hate.
+
+Like climate change science and other long-term damage from a population of 8 billion people, if we don't actually take seriously the limits of freedom and limits of liberty on a world of 10 billion people future - then we are going to run into large systemic planet-wide stress factors caused by the aggregated behavior of 10 billion people!
+
+Lifestyles change because 10 billion people, the Earth is still the same size! The number of fish the ocean produces hasn't grown, but the number of humans consuming fish has grown. Lifestyles of freedom and liberty and cutting down trees and mining only last so long with 10 billion people all wanting to gather up what is very often one-time resources... that used to be spread among 1 billion people or 2 billion people.
+
+Hating other people, out-group hate, has been foundation of our socialigialy oriented religions. Joseph Campbell in Power of Myth summerizes this pretty well. Out-group hate, love only for the in-group, is foundation to our past concepts of brotherhood. And we have outgrown this in a world of 10 billion people capable of rockets and ICBM mutually assured destruction and remote-controlled weapon systems.
+
 
