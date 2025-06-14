@@ -25,3 +25,7 @@ Is it enjoyable that people suffer on the *bad side of town*, the *bad side of t
 
 Is sharing not rewarding to people? Is sharing not fun? 
 
+&nbsp;
+
+Neil Postman: "Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens?" - September 1995, already into Eternal September
+
