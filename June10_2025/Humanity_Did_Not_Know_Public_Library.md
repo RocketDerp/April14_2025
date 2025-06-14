@@ -5,7 +5,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3lrl6w474ps2j
 
 # Humanity Did Not Know 
 
-Humanity did not know this was a world-wide common problem, that hate and other isues were problems not only in some religions, some cultures, some societies, but kept re-appearing throuout the world.
+Humanity did not know this was a world-wide common problem, that hate and other isues were problems not only in some religions, some cultures, some societies, but kept re-appearing throughout the world.
 
 James Joyce articulated this crisis in his body of work, his ficiton writings and commentary / lectures.
 
