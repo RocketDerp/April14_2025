@@ -3,11 +3,21 @@ https://mastodon.social/@RoundSparrow/114682255206558304
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lrl6w474ps2j
 
-# Humanity Did Not Know - Public Library / Education
+# Humanity Did Not Know 
+
+Humanity did not know this was a world-wide common problem, that hate and other isues were problems not only in some religions, some cultures, some societies, but kept re-appearing throuout the world.
+
+James Joyce articulated this crisis in his body of work, his ficiton writings and commentary / lectures.
+
+&nbsp;
+
+## Public Library / Education
 
 MLK Jr's # The1954Equation required vast public library. # NotGoodEnoughMLKjr
 
-&mbsp;
+Until better printing machines, powered shipping, book transfers, radio communications, airports - it was not easy to recognize and understand the scope of the problem was global and all time periods. MLK Jr articulated both geography and **time periods** this was a common human brain problem, a common education probelms, a common 'History is a nightmare" (James Joyce) passed-down value that we msut stop with the the technological changes and understandings we had demonstrated with World War Two (ten years before 1954).
+
+&nbsp;
 
 # "The 1954 Equation"
 
