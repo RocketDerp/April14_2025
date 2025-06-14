@@ -13,9 +13,9 @@ James Joyce articulated this crisis in his body of work, his ficiton writings an
 
 ## Public Library / Education
 
-MLK Jr's # The1954Equation required vast public library. # NotGoodEnoughMLKjr
+MLK Jr's [# The1954Equation](https://mastodon.social/tags/The1954Equation) required vast public library. [# NotGoodEnoughMLKjr](https://mastodon.social/tags/NotGoodEnoughMLKjr)
 
-Until better printing machines, powered shipping, book transfers, radio communications, airports - it was not easy to recognize and understand the scope of the problem was global and all time periods. MLK Jr articulated both geography and **time periods** this was a common human brain problem, a common education probelms, a common 'History is a nightmare" (James Joyce) passed-down value that we msut stop with the the technological changes and understandings we had demonstrated with World War Two (ten years before 1954).
+Until better printing machines, powered shipping, book transfers, radio communications, airports - it was not easy to recognize and understand the scope of the problem was global and all time periods. MLK Jr articulated both geography and **time periods** this was a common human brain problem, a common education probelms, a common 'History is a nightmare" (James Joyce) passed-down value that we all together must stop with the the technological changes and understandings we had demonstrated with World War Two (ten years before 1954).
 
 &nbsp;
 
