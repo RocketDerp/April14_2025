@@ -28,3 +28,16 @@ And it was a total shitshow.  And that wasn't dealing with much subjectivity! Th
 
 I saw very little educaitonal focus on 1918 pandemic. Very little of how vacinnactions are made, what a factory looked like, what it looked like under microscope and animation models. I saw very little university-style education, and a lot of "talking heads" debating with each other who were more about sounding good on media systems than it was about cram-session of science and network effects of how computer virus (Internet Research Agency) or a biological virus (COVID-19) spreads peer to peer, person to person.
 
+&nbsp;
+
+## Harsh to realize
+
+Just how bad this was, we had 10 months before the vacinne was made and started to be available in December 2020, and there was little *response of education* to teach about what was to come, and anticipating, and providing excellent high-quality education material to predcitable resistance (conditioned by Russia via social media since March 2013).
+
+Military biological warfare, NSA - they have to grasp meme warfare and just didn't take mind-fucking as a problem.
+
+Now since January 2024 it's gotten so much worse and into *subejective* complex things about Donald Trump's mental health. Very hard to debate.  But SCIENCE of a virus and the negative side-effects of prevention - that isn't subjective, it is all the scientists of the world - all science thinking systems of humanity - against a microscopic virus that has evolved on our Earth. A predator that spreads by living creatures, including humans, getting on airplanes and on ships.
+
+What I'm saying is that I hvaen't fully processed all this realization in June 2025 and I'm just now becoming self aware of just how bad a "less spirtual" war against a virus debates went in USA - and how there has been no positive spirtual follow up (a world wide funeral service for all those we lost, common bond, thank-you parties for all the workers and medical people who served during the war against disease)...
+
+
