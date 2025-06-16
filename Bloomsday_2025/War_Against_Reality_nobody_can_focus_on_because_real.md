@@ -26,7 +26,7 @@ Ideally anyone who would spend 100 hours or more reading my Mastodon postings I 
 2. Neil Postman 1985 Amusing Ourselves about social media, humor self mind-fuck, comedy mass mind crisis. Out-group mocking being our highest faith along with hate.
 3. Peter P + Enter Shakari (including their documentary videos on meaning beyond Nothing Is True)
 
-The election of 2016 Donald Trump and the 2019 Pandemic pre-date ChatGPT introduction as a source of fiction *sounds so con vincible like The Bible and Quran fiction*. 
+The election of 2016 Donald Trump and the 2019 Pandemic pre-date ChatGPT introduction as a source of fiction *sounds so convincible like The Bible and Quran fiction*. 
 
 &nbsp;
 
