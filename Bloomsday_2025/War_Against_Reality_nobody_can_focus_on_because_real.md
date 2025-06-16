@@ -40,3 +40,12 @@ We can't keep acting like religions are in a unique category outside science fic
 
 Humanity wasn't really escaping 1930 USA Church-driven society (fiction) as it was until 1962 or so... and here by 2013 we were trending very hard at the hands of Surkov + Cambridge Analytica Operation Matthew 4:19. … back into fiction.
 
+&nbsp;
+
+# War Against Reality shallowness outcomes
+
+The War Against Reality, War Against Science non-instrumental reason thinking, is a war that favors fiction. Where style, fashion, mannerisms, voice, cadence, media presence drives almost everything. Not deep understanding & comprehension, but shallowness, speed, electric media speed.
+
+https://mastodon.social/@RoundSparrow/114694691935815196
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lrqpnusmxc2b
