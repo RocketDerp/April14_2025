@@ -44,7 +44,7 @@ Humanity wasn't really escaping 1930 USA Church-driven society (fiction) as it w
 
 # War Against Reality shallowness outcomes
 
-The War Against Reality, War Against Science non-instrumental reason thinking, is a war that favors fiction. Where style, fashion, mannerisms, voice, cadence, media presence drives almost everything. Not deep understanding & comprehension, but shallowness, speed, electric media speed.
+The War Against Reality, War Against Science non-instrumental reason thinking, is a war that favors fiction. Where style, fashion, mannerisms, voice, cadence, media presence drives almost everything. Using the right memes, social media slang, even when no-identity Twitter and Reddit - the right length, the right banality, the right button-pusshing words and memes. Not deep understanding & comprehension, but shallowness, speed, electric media speed. Absence of sustained focus on *important and serious* topics unless they are reactions (react to news of war events, pandemic events, etc).
 
 https://mastodon.social/@RoundSparrow/114694691935815196
 
