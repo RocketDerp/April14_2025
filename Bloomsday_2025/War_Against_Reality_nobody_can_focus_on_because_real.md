@@ -1,4 +1,4 @@
-# War Agaisnt Reality That
+# War Against Reality That
 
 War Against Reality that nobody can focus on or sustain self-awareness on because it is reality itself.
 
@@ -16,3 +16,26 @@ People can not even see this contrast. Reformer of fiction is what I view Malala
 
 Yet, Donald Trump is the template and role model since 2013 - people adopt and copy his success and even was they mock and insult him - adopt his values of mocking, insuting, hate.
 
+&nbsp;
+
+## Topc of Reality 
+
+Ideally anyone who would spend 100 hours or more reading my Mastodon postings I hope would get a focus on shift away from reality to fiction:
+
+1. Rick Roderick 1993 lectures
+2. Neil Postman 1985 Amusing Ourselves about social media, humor self mind-fuck, comedy mass mind crisis. Out-grop mocking being our highest faith along with hate.
+3. Peter P + Enter Shakari (including theirdocumentary videos on meaning beyond Nothing Is True)
+
+The election of 2016 Donald Trump and the 2019 Pandemic pre-date ChatGPT introduction as a source of fiction *sounds so convincible like The BIble and Quran fiction*. 
+
+&nbsp;
+
+## Irresistable Fiction
+
+Attraction to fiction. ChatGPT makes fiction so good people accept it. Fox News / Rupert Murdoch level of fiction that changes lives.
+
+## Humanity Religions
+
+We can't keep actig like religions are in a unique category outside science fiction. Surkov has turned politics into art / fiction. People have lost all self-awareness they are liing inside a religion-style fiction. Like real societies based on religion, it is science fiction. But the people don't grasp it is fiction. And that's where we are with MAGA and hate-MAGA ... 
+
+Humanity wasn't raelly escaping 1930 USA Church-drivne society as it was until 1962 or so... and hwere by 2013 we trending very hard at the hands of Surkov + Cambridge Analytica Operation Matthew 4:19.
