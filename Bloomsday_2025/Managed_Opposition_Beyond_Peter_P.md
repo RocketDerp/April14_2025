@@ -108,7 +108,7 @@ We basically KNOW what is inside the subconsious now, we can drug people and the
 
 The **message is not in the drug pill itself**, the message is in the human brain, *dreams*.
 
-That's where FInnegans Wake comes in.
+That's where Finnegans Wake comes in.
 
 And again: https://www.wnyc.org/story/dr-joseph-campbell-inward-journey-schizophrenia-and-mythology/
 
@@ -147,6 +147,10 @@ Religon people, monomyth believers, have a very stubborn
 The map of all the falsehoods people believe. Fake moon landing, flat earth, disease theories (without a microscope), evolution of life on Earth (without DNA microscopes evidence)... even when you SHOW people with a microscope, they still stick to their denial. Even when you fly people around the Earth or into space to see the earth - they still stick with their denial. Which is what religion science ficiton does, what religion patterns (monomyth patterns) can do.
 
 This is what Russia and CA seeded since 2013. They seeded artificail religions.
+
+Do we not see this anti-science stubbrn, anti-reality behavior with pandemic. But I argue that we, we society, did not take it serious. We should have seriously produced and funded dozens of YouTube / TV shows about how vacinations are made, how the virus looks under microscopes, why it is novel / the difference. And FAQ style education. There was very very little of this. We had 11 months between escape of Wuhan and the vacinnation, all that could have been ready by August 2020 - 3 to 5 months of video production. And books about 1918 pandemic turned into 
+
+"We were lucky" it wasn't more deadly message in late 2020 - we did not KNOW how deadly in March 2020 - it could have been MORE deadly and people forget that *we humans learn as we go*, more people had seem the outcome of the virus but in the early months February 2020 - we didn't know it wasn't that deadly. (reduant writing intentional, needs editing as all this does)
 
 ### Then Came ChatGPT
 
