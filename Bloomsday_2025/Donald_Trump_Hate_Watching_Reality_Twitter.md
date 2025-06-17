@@ -34,6 +34,16 @@ Age 83, Skywalker Ranch California, Joycean Joseph Campbell in 1987:
 
 &nbsp;
 
+### Deep Cambridge Anltyica + Kremlin
+
+"Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа. Затем.. положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+### 5,000 artificail religions
+
+Religions that have no compassion development, are only the horror film side of religion, only the out-group hate side of Levant monomyth meme patterns.
+
+&nbsp;
+
 ## Reactions back to MAGA
 
 Hate-watching MAGA, hating up on Donald Trump, mocking and insulting Donald Trump. Donald Trump is the Ultimate Tony Clifton. Donald Trump is a magnet for hate media consumers. Donald Trump is tabloid media mythology. Donald Trump creates egomania in  the audience because it makes everyday people feel superior to his life. He is such a low bar of measure, a sinking tide sinks all boats. That is the reactions back to MAGA and Donald Trump since March 2013.
