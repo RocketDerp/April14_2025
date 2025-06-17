@@ -106,3 +106,31 @@ Phillip K Dick and L Ron Hubbard are modern science fiction example writers. Abl
 
 https://www.bbc.com/culture/article/20220301-philip-k-dick-the-writer-who-witnessed-the-future
 
+&nbsp;
+
+Rick Roderick discusses Gulf War and Jean B in 1993, so simulacra and emerging non-reality was already being described by someone entirley outsie of Neil Postman / Marshall McLuhan sphere of media ecology.
+
+What Russia was doing, waht Peter P was doing, was seeding monomyth patterns. They thought they could contorl it.
+
+Nowmore than ever, with all Internet Research Agency (and who knows what other organizations) working with Cambridge Analytica - the year 2013 explosion of exporting this on the Internet. https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/
+
+Even if that story is fiction, proves to be false that Trump and Kremlin worked together with Cambridge Analytica - they were working itn he same time periods.
+
+### Before ChatGPT 2022, the Pandemic 2019
+
+https://www.bbc.com/news/world-us-canada-45294192
+
+Augusst 24, 2018 - documented monomyth patterns in the wild. Devil vs. God fiction, arguing back and forth, disagreeing with each other, forming the same mental patterns as monomyth.
+
+### The stubbrn denial of fiction
+
+Religon people, monomyth believers, have a very stubborn 
+
+The map of all the falsehoods people believe. Fake moon landing, flat earth, disease theories (without a microscope), evolution of life on Earth (without DNA microscopes evidence)... even when you SHOW people with a microscope, they still stick to their denial. Even when you fly people around the Earth or into space to see the earth - they still stick with their denial. Which is what religion science ficiton does, what religion patterns (monomyth patterns) can do.
+
+This is what Russia and CA seeded since 2013. They seeded artificail religions.
+
+### Then Came ChatGPT
+
+Then in 2022 put on the public Internet was large langauge mdoels *trained on* that weaponized Cambridge Analytica and Russian Internet Research Agency since 2013 message content that has become embded in human minds and output in original (each person's writing) forms.
+
