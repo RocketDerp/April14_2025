@@ -12,7 +12,7 @@ Mark Turnbull said the method was to play on fears, often using front companies 
 
 &nbsp;
 
-## Dug Deepest into the Subconsious 
+## Dug Deepest into the Subconscious 
 
 Cambridge Analytica dug deeper into mass mind than [Edward Bernays and Dr. Abraham Brill](https://en.wikipedia.org/wiki/Torches_of_Freedom) Easter Sunday 1929.
 
@@ -34,11 +34,14 @@ Age 83, Skywalker Ranch California, Joycean Joseph Campbell in 1987:
 
 &nbsp;
 
-### Deep Cambridge Anltyica + Kremlin
+### Deep Cambridge Analytica + Kremlin
 
 "Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа. Затем.. положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
-### 5,000 artificail religions
+&nbsp;
+
+
+### 5,000 artificial religions
 
 Religions that have no compassion development, are only the horror film side of religion, only the out-group hate side of Levant monomyth meme patterns.
 
@@ -71,3 +74,4 @@ This Github page is linked from:
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lrspqkjgqk2o
 
 https://mastodon.social/@RoundSparrow/114699201534168270
+
