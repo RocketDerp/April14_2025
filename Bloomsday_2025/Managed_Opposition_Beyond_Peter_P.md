@@ -1,3 +1,16 @@
+# Beyond Peter Pomerantsev
+
+Augmenting the writingsof Peter Pomerantsev
+
+* 2019 book Peter Pomerantsev, "This Is Not Propaganda: Adventures in the War Against Reality"
+* 2019 book Christopher Wylie, Mindf*ck: Inside Cambridge Analytica’s Plot to Break the World
+* 2019 book Christopher Wylie, Mindf*ck: Cambridge Analytica and the Plot to Break America
+* 2014 book Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia
+
+&nbsp;
+
+Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia book readingreference, 334 seconds into video
+
 https://youtu.be/5Au332OG-M4?t=334
 
 "imagine if it was all controled by the Ppentagon"
@@ -10,7 +23,12 @@ It it worse now. Monomyth stories take on a life of their own. The "War Against 
 
 1. Does not need a diretor
 2. Can be seeded like a virus disease outbreak, but does not need "active measures" to spread it, but it can be accelerated.
-3. "For the Lulz" - humor, gallows humor, is self-exploiting.
+3. "For the Lulz" - humor, gallows humor, is self-exploiting, self motivation runaway. https://en.wikipedia.org/wiki/LulzSec
+4. Runaway self-exploiting humor is 1985 Neil Postamn's social theory of media ecology. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+
+&nbsp;
+
+Back to Peter P:
 
 https://youtu.be/5Au332OG-M4?t=481
 
