@@ -47,3 +47,17 @@ https://bsky.app/hashtag/FWakeTonyClifton
 ## Feedback loops
 
 ChatGPT, trending social media, the classic magazine / newspaper media doing trend chasing for advertising and subscribers.
+
+&nbsp;
+
+.
+
+&nbsp;
+
+# More
+
+This Github page is linked from:
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lrspqkjgqk2o
+
+https://mastodon.social/@RoundSparrow/114699201534168270
