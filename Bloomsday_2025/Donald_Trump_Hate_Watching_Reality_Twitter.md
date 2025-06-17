@@ -63,6 +63,15 @@ ChatGPT, trending social media, the classic magazine / newspaper media doing tre
 
 &nbsp;
 
+# The Entertainment Motive 
+
+Mocking the out-group, mocking and insulting Donald Trump, mocking and insulting JD Vance, mocking and insulting Rudy G - that has been the motivation. Entertainment at Tony Clifton performance. That's what Surkov / Surkovian information warfare invokes. Out-group mockery, out-group hate. With Internet deployment of 5,000 seed patterns that take on a life of their own.
+
+https://mastodon.social/tags/EverythingTrumpDoesEntertaining   
+https://bsky.app/hashtag/EverythingTrumpDoesEntertaining
+
+&nbsp;
+
 .
 
 &nbsp;
