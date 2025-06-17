@@ -1,6 +1,6 @@
 # Beyond Peter Pomerantsev
 
-Augmenting the writingsof Peter Pomerantsev
+Augmenting the writings of Peter Pomerantsev
 
 * 2019 book Peter Pomerantsev, "This Is Not Propaganda: Adventures in the War Against Reality"
 * 2019 book Christopher Wylie, Mindf*ck: Inside Cambridge Analytica’s Plot to Break the World
