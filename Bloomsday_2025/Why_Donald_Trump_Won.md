@@ -10,6 +10,8 @@ https://bsky.app/hashtag/WhyTrumpA
 
 Typical June 2025 narative:
 
+https://old.reddit.com/r/goodnews/comments/1ldkhu4/donald_trump_approval_rating_suffers_worst_polls/my9iwl0/
+
 "He won because of apathetic voters, terrible optics for the Democrats, and lackluster candidates. The only way anything gets better is if people care and vote. I also believe that if the DNC hadn't forced Hilary as the candidate in 2016, Trump would have lost to Bernie and faded back into obscurity."
 
 &nbsp;
