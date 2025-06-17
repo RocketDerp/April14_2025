@@ -1,18 +1,20 @@
 # Donald Trump is "hate watching"
 
-Donald Trump is "hate watching" of "reality Twitter" show.
+Donald Trump audience is electric media "hate watching" of "reality Twitter" show.
+
+The foundation of power for Russia / Putin is that people are attracted to hate of Donald Trump. People are thrilled at mocking, insulting Donald Trump and MAGA.
 
 &nbsp;
 
 ## What was Unleashed 2013 onward
 
-Mark Turnbull said the method was to play on fears, often using front companies to disguise involvement. “You didn’t know that was a fear until you saw something that just evoked that reaction from you,” he was recorded saying. “And our job is to drop the bucket further down the well than anybody else, to understand what are those really, deep-seated underlying fears, concerns.”
+Mark Turnbull said the method was to play on fears, often using front companies to disguise involvement. “You didn’t know that was a fear until you saw something that just evoked that reaction from you,” he was recorded saying. “And our job is to **drop the bucket further down the well than anybody else, to understand what are those really, deep-seated** underlying fears, concerns.”
 
 &nbsp;
 
 ## Dug Deepest into the Subconsious 
 
-Far deeper than Edward Bernays.
+Cambridge Analytica dar deeper than [Edward Bernays and Dr. Abraham Brill](https://en.wikipedia.org/wiki/Torches_of_Freedom) Easter Sunday 1929.
 
 Out-group hate at the core of Levant religions.
 
