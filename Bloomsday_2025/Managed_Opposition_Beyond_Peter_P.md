@@ -156,3 +156,16 @@ Do we not see this anti-science stubbrn, anti-reality behavior with pandemic. Bu
 
 Then in 2022 put on the public Internet was large langauge mdoels *trained on* that weaponized Cambridge Analytica and Russian Internet Research Agency since 2013 message content that has become embded in human minds and output in original (each person's writing) forms.
 
+&nbsp;
+
+.
+
+# Runaway MonoMyth
+
+https://mastodon.social/tags/RunawayMonoMyth
+
+## Runaway Simulacras
+
+https://mastodon.social/tags/RunawaySimulacra
+
+Trumpism is a runaway MonoMyth (Fox News "x" marks the spot of a wealth lord / land lord, that Donald Trump stepped into the "x" placeholder that had been built-up in the entertainment amusement (Neil Postamn) mythology of Rupert Murdoch) AND a runaway Internet Research Agency simulacra combined.
