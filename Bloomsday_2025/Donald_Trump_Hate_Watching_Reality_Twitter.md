@@ -14,7 +14,7 @@ Mark Turnbull said the method was to play on fears, often using front companies 
 
 ## Dug Deepest into the Subconsious 
 
-Cambridge Analytica dar deeper than [Edward Bernays and Dr. Abraham Brill](https://en.wikipedia.org/wiki/Torches_of_Freedom) Easter Sunday 1929.
+Cambridge Analytica dug deeper into mass mind than [Edward Bernays and Dr. Abraham Brill](https://en.wikipedia.org/wiki/Torches_of_Freedom) Easter Sunday 1929.
 
 Out-group hate at the core of Levant religions.
 
