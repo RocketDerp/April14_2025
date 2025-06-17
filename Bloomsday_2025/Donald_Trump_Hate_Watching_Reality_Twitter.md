@@ -26,11 +26,24 @@ Age 83, Skywalker Ranch California, Joycean Joseph Campbell in 1987:
 
 ... "Now brotherhood in most of the myths I know of is confined to a bounded community. In **bounded communities, aggression is projected outward**. For example, the ten commandments say, “Thou shalt not kill.” Then the next chapter says, “Go into Canaan and kill everybody in it.” That is a bounded field. The myths of participation and love pertain only to the in-group, and the out-group is totally other. This is the sense of the word “gentile”—the person is not of the same order." (Same with Islam, "Infidel" word)
 
+&nbsp;
+
 ## Those Are MAGA values
 
 1987, filmed by George Lucas: "Now brotherhood in most of the myths I know of is confined to a bounded community. In **bounded communities, aggression is projected outward**. For example, the ten commandments say, “Thou shalt not kill.” Then the next chapter says, “Go into Canaan and kill everybody in it.” That is a bounded field. The myths of participation and love pertain only to the in-group, and the out-group is totally other. This is the sense of the word “gentile”—the person is not of the same order." (Same with Islam, "Infidel" word)
 
+&nbsp;
 
 ## Reactions back to MAGA
 
+Hate-watching MAGA, hating up on Donald Trump, mocking and insulting Donald Trump. Donald Trump is the Ultimate Tony Clifton. Donald Trump is a magnet for hate media consumers. Donald Trump is tabloid media mythology. Donald Trump creates egomania in  the audience because it makes everyday people feel superior to his life. He is such a low bar of measure, a sinking tide sinks all boats. That is the reactions back to MAGA and Donald Trump since March 2013.
+
+Donald Trump is Tony Clifton:   
+https://mastodon.social/tags/FWakeTonyClifton  
+https://bsky.app/hashtag/FWakeTonyClifton   
+
+&nbsp;
+
 ## Feedback loops
+
+ChatGPT, trending social media, the classic magazine / newspaper media doing trend chasing for advertising and subscribers.
