@@ -4,9 +4,13 @@ https://mastodon.social/@RoundSparrow/114706023166693422
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lrvqoytms22m
 
+&nbsp;
+
 # Operation Matthew 4:19 
 
-Again, "Opoeration Matthew 4:19" was agreed in November 2012 between 3 organizations: Donald Trump election, Russia Kremlin, Cambridge Analytica. SOURCE: https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/
+Again: "Operation Matthew 4:19" was agreed in November 2012 between three organizations: Donald Trump election, Russia Kremlin, Cambridge Analytica. SOURCE: https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/
+
+&nbsp;
 
 # August 24, 2018
 
