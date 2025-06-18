@@ -70,3 +70,6 @@ It would be ignorant and stupid to deny the mass mind risks we are cultivating a
 
 Unedited, raw, poorly written
 
+https://mastodon.social/@RoundSparrow/114704736838379351
+
+
