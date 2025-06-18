@@ -79,3 +79,17 @@ https://mastodon.social/tags/LaughterTheBestMindfuck
 https://bsky.app/hashtag/LaughterTheBestMindFuck
 
 Surkovian techniques, Surkov Students, mastered every way they could find. Because it resets the brain. That's the whole point of "Laughter is the best medicine" handed down all over the world. But it has been exploited by military warfare firm and the KGB / FSB / Putin!
+
+&nbsp;
+
+# Donald Trump is Tony Clifton 
+
+The mental exploit that the Kremlin had landed upon in their dreams is Donald J. Trump behaving like Tony Clifton. Donald Does NOT CARE, he is a Weeble Wooble that always gets up. No matter how many times ypu punch up at Donald Trump, he gets back up and stands up for himself and says what is in his brain. Often what he consuemed overnight reading on his social media machines.
+
+Donald Trump has **the best comedic timing sense** of anyone, he knows how to see when an idea or phrase or concept **gets under the skin of people**, he has intuition about the Mass Mind / Hive Mind / Mass Man (McLuhan terminology) around him. He can SENSE the movement of crowds and people. He can *feel the music* of what resets minds and brains.
+
+Donald J Trump plays right into the Surkov ([Surkov students](https://mastodon.social/tags/SurkovStudents)) screenplay. He does not care what is fiction or nonfiction. He does not care what is true or false. He is driven by the emotion of the dancing.  
+
+Quadrophenia Donald Trump 3 inches taller height... 
+https://www.youtube.com/watch?v=I0fGxujeJbY
+
