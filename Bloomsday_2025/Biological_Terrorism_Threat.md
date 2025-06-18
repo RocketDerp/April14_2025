@@ -2,7 +2,7 @@
 
 The egomania runaway social media and political culture of Russia, USA, Israel.   
 The conspicuous consumption politics of Donald Trump.   
-The Middle East Royalty and Donald Trump Middle East Jet set gift values.    
+The Middle East Royalty and [Donald Trump Middle East Jet set gift](https://abcnews.go.com/Politics/trump-administration-poised-accept-palace-sky-gift-trump/story?id=121680511) values.    
 
 &nbsp;
 
