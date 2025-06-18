@@ -23,7 +23,9 @@ I think we have to go beyond Conservative vs. Liberal, Right vs. Left.
 5. Who owns lands already, newborns not having any place to live, rent-culture / landlord culture. Domination of newly born people.
 6. Conserving WHAT exactly?
 7. Protecting children from sex abuse, marriage abuse, underage.
-8. Protectiong ALL people, WE the PEOPLE of the entire world, from mind-fuck. Predatory clergy, predatory advertising, predatory Cambridge Analytica, predator artificail religions, predatory Edward Bernays students, predatory military mind-fucking, predatory scieence fiction monomyth, predatory fiction, bamboozle, manipulation.
+8. Protectiong ALL people, WE the PEOPLE of the entire world, from mind-fuck. Predatory clergy, predatory advertising, predatory Cambridge Analytica, predatory artificail religions, predatory Edward Bernays students, predatory military mind-fucking, predatory science fiction monomyth, predatory fiction, bamboozle, manipulation, clickbait, advertising, marketing. All these are used by dictators / clergy throughout history.
+9. War, violence, siege, guns pointed at, military weapons pointed at.
+10. Climate change, building collapses, forest fires, pandemics, poison food, preventable disasters.
 
 &nbsp;
 
