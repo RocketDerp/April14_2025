@@ -69,7 +69,7 @@ https://mastodon.social/tags/BigFallA
 
 There you go, the Malala *not good enough*, MLK Jr. *not good enough*, Recency Bias articulation summed up in one social media screen shot. Time-based news reporting.
 
-We can go to a job and serve coffee day after day, but we can not serve the same media topic day after day. Newspapers have different front page every day, not like menu on coffee. But humans DO go to work and do the same repetitive jobs, even paperwork, even making a film or recording a song creative has a lot of repetitive punishing and technology steps. And the new medium, Bluesky from Twitter November 2024, changes things - but we don't see it until much later.
+We can go to a job and serve coffee day after day, but we can not serve the same media topic day after day. Newspapers have different front page every day, not like menu on coffee. But humans DO go to work and do the same repetitive jobs, even paperwork, even making a film or recording a song creative has a lot of repetitive publishing and technology steps (beyond just the songwriting and recording stage). And the new medium, Bluesky from Twitter November 2024, changes things - but we don't see it until much later.
 
 "Give Peace a Chance" was in Beatles, Yes, other bands. And it's so soft. MLK Jr was doing the harder - act now, it's already too late, Malala too on Jon Stewart show saying WW3 was already here.
 
