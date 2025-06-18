@@ -22,7 +22,7 @@ https://www.bbc.com/news/world-us-canada-45294192
 
 ### Russia mind-fucked about disease LOL
 
-Russia mind-fucked with people to make it amusing, entertaining, funny, hilarious to LOL at suffering of sick people you disagree with. That was the Operation Matthew 4:19 mental *payload*, to turn dehumanizaiton into gallow humors common everyday social media bullshit. This was **15 months before the Wuhan China airport spreading of COVID-19 in December 2019**.
+Russia mind-fucked with people to make it amusing, entertaining, funny, hilarious to LOL at suffering of sick people you disagree with. That was the Operation Matthew 4:19 mental *payload*, to turn dehumanization into gallow humors common everyday social media bullshit. This was **15 months before the Wuhan China airport spreading of COVID-19 in December 2019**.
 
 And people on Reddit June 18, 2025 are finding it HILLARIOUS and FUNNY - inside the 5,000 Russian simualcra meme patters, to see people diseased and sick and having medical problems.
 
