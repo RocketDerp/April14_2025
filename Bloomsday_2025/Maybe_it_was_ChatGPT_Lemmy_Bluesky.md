@@ -57,3 +57,25 @@ I can't write anything, I can't come back and edit this and finish anything.
 
 I know what I want - Malala to solve these problems for me, that people listen to Malala - she sees context of human information systems better than almost anyone. Of course, the sreious context she speaks in and audience she draws - still hasn't changed things that much. So that's a huge frustraiton to witness.
 
+&nbsp;
+
+# Hashtag BigFallA 
+
+https://bsky.app/hashtag/BigFallA
+
+https://mastodon.social/tags/BigFallA
+
+&nbsp;
+
+There you go, the Malala *not good enough*, MLK Jr. *not good enough*, Recency Bias articulation summed up in one social media screen shot. Time-based news reporting.
+
+We can go to a job and serve coffee day after day, but we can not serve the same media tpic day after day. Newspapers have diffeernt front page every day, not like menu on coffee. But humans DO go to work and do the same reptitive jobs, even paperwork, even making a film or recording a song creative has a lot of reptitive pubishing and technology steps. And the new medium, Bluesky from Twitter November 2024, changes things - but we don't see it until much later.
+
+"Give Peace a Chance" was in Beatles, Yes, other bands. And it's so soft. MLK Jr was doing the harder - act now, it's already too late, Malala too on Jon Stewart show saying WW3 was already here.
+
+We need a "NO KINGS" kind of seriousness about same page goodness.
+
+The antics protests who lay down on streets to stop traffic, who deface public art displays. I disagree with their approach. I'm standing on a street corner every day begging for people to take seriously like "End of world is coming" sign holder. That's the bleeding out torture in this world of apathy. Malala has gone Film Bollywood / Hollywood / TV / fashion fame to balance that. But that's her, a queen of fame from bullet shooting fame. The rest of us who had freedom just get to hold our sign somewhere and say "please understand Neil Postman" 1985.
+
+Mass mind mental breakdowns abound. Pepeople are findking this Iran Israel war exciting news. I see it as a massive failure to have Malala win. Leaders need to renounce their old ways, we have to be able to change minds towards goodness. Goodness isn't popular nor convincing.
+
