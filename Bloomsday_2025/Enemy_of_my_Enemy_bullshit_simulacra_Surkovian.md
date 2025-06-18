@@ -14,7 +14,7 @@ Again: "Operation Matthew 4:19" was agreed in November 2012 between three organi
 
 # August 24, 2018
 
-**Johns Hopkis University** validated
+**Johns Hopkis University** validated   
 **George Washington University** validated  
 Covered by press all over the world, you will find in late August 2018 that even Fox News covered this story, I have found it all over the world.  
 
