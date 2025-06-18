@@ -58,7 +58,7 @@ We were warned about this crisis by highly intelligent mass mind observers: http
 
 Mind-fucking and mentally manipulating the poor to worship the wealthy and powerful game has been going on for a very long time. And insulting and mocking "stupid dumb people" all the time has become the outcome of Cambridge Analytica Internet manipulation of minds.
 
-We are siting on a mass mind powder keg of hate values, hate preaching, "hate harder" messages. Which have even now been programmed into ChatGPT feeding them in private sessions back to people who think that ChatGPT is the new voice of God (John 1:1 large language model) form cloud computing sky speaking to them.
+We are siting on a mass mind powder keg of hate values, hate preaching, "hate harder" messages. Which have even now been programmed into ChatGPT feeding them in private sessions back to people who think that ChatGPT is the new voice of God (John 1:1 large language model) from *cloud computing sky* speaking to them in charming langauge.
 
 It would be ignorant and stupid to deny the mass mind risks we are cultivating and how the 2019 pandemic has created a self-teaching of biological terrorism situation.
 
