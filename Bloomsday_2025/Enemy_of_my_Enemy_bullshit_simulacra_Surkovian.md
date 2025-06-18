@@ -44,7 +44,7 @@ https://old.reddit.com/r/PoliticalHumor/comments/1lehn7w/kristi_noems_hospitalis
 
 Enmey of my ENEMY in an information war is falsehoods, lies, manipulation. Your enemy is an interpretation of a monomyth story, your enemy is the line between a Sunni Muslim interpreation and a Sufi Muslim interpreation of the *same reading material, the same Quran, the same Hadith materials*.  Our world-wide enemy is fiction vs. metaphor vs. non-fiction... misunderstanding / comprehension.
 
-Your ENEMY of your ENEMY is self-harm to the ENTIRE WORLD. Misunderstandings are yuour enemy. You **do stop your enemy when they are self-inflicting problems**, because this shit all ends up coming around in a big fucking Tower of Babel misunderstanding like the wealther of the Planet Earth is all interconnected. All the pollution and problems we cause in the comprehension and understanding ecology end up mind-fucking us in the end one way or another. 
+Our ENEMY of al our ENEMY is self-harm to the ENTIRE WORLD. Misunderstandings are your and my common enemy. You / We **do stop your enemy when they are self-inflicting comprehension problems**, because this shit all ends up coming around in big waves of mind-fucking Tower of Babel misunderstanding like the wealther of the Planet Earth is all interconnected. All the pollution and problems we cause in the comprehension and understanding ecology end up mind-fucking us in the end one way or another. 
 
 Year 922 Mansur al-Hallaj   
 Mohammad died June 8, 632  
