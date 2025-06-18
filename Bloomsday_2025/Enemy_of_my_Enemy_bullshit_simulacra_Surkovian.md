@@ -112,6 +112,8 @@ Donald Trump has **the best comedic timing sense** of anyone, he knows how to se
 
 Donald J Trump plays right into the Surkov ([Surkov students](https://mastodon.social/tags/SurkovStudents)) screenplay. He does not care what is fiction or nonfiction. He does not care what is true or false. He is driven by the emotion of the dancing.  
 
-Quadrophenia Donald Trump 3 inches taller height...   
+&nbsp;
+
+Quadrophenia Opera: Donald Trump 3 inches taller height...   
 https://www.youtube.com/watch?v=I0fGxujeJbY
 
