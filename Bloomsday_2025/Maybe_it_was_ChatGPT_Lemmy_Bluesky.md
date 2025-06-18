@@ -78,3 +78,26 @@ We need a "NO KINGS" kind of seriousness about same page goodness.
 The antics protests who lay down on streets to stop traffic, who deface public art displays. I disagree with their approach. I'm standing on a street corner every day begging for people to take seriously like "End of world is coming" sign holder. That's the bleeding out torture in this world of apathy. Malala has gone Film Bollywood / Hollywood / TV / fashion fame to balance that. But that's her, a queen of fame from bullet shooting fame. The rest of us who had freedom just get to hold our sign somewhere and say "please understand Neil Postman" 1985.
 
 Mass mind mental breakdowns abound. People are flocking / finding this Iran Israel war exciting news. I see it as a massive failure to have Malala win. Leaders need to renounce their old ways, we have to be able to change minds towards goodness. Goodness isn't popular nor convincing.
+
+&nbsp;
+
+# Incohrent 
+
+Of course this page and most of what I publish is incoherent. 
+
+There are only so many ways to say:
+
+1. Listen to this opera, Tommy and Quadrophenia
+2. Listen to Marshall McLuhan and Joseph Campbell and converge on James Joyce
+3. Listen to Malala
+4. Listen to MLK Jr
+5. Is hate fun and enjoyabele? https://mastodon.social/@RoundSparrow/114659863393014148
+6. Mass Mind Brain Damage / People are enjoying mocking and insulting Donald Trump ppop diapers, orange skin, communications style. Insult mocking Tony Clifton.
+
+### Third-world man
+
+It's like that attitude people have towards "undeveloped" or "third-world places" that it is as if people actually desire to die from preventable disease or preventable car accidents or airplane disasters that come with shoddy hardware, poor comprehension of maitenance, not good enogh education or pay for properly sourced parts.
+
+True Detective Season One, one big gutter in outer space. How many ways can I say listen to MLK Jr and Malala? Listen to Neil Postman. Oh how many repeating repaters.
+
+
