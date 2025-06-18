@@ -18,7 +18,7 @@ I think we have to go beyond Conservative vs. Liberal, Right vs. Left.
 
 1. Thinking system. Religion vs. science
 2. Thinking system. All religions are equal, science fiction, metaphors.
-3. Reason thinking, evidence, facts.
+3. Reason thinking, evidence, facts. Non-fiction.
 4. Compassion for ALL humans, love for ALL humans.
 5. Who owns lands already, newborns not having any place to live, rent-culture / landlord culture. Domination of newly born people.
 6. Conserving WHAT exactly?
