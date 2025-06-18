@@ -46,3 +46,24 @@ Specific disagreements, lists, details.
 ### What is wrong with MLK Jr?
 
 Specific disagreements, lists, details.
+
+&nbsp;
+
+.
+
+.
+
+# Misc A
+
+It is as if any nation or religion founded on revolution war / violence / killing the non-believer or conquest of native peoples thinks it is their religion tradition, the god-given right to repeat those traditions. This is a GLOBAL problem.
+
+.
+
+During the pandemic, people claimed it was their tradition to allow diseases to spread from airport to airport because of their "belief" in a religion. This is what we are up against, disease spread via airplanes that a religion never had.
+
+.
+
+It is noteworthy that some creative mythology, creative science fiction, has actually brought up these kind of concerns. Like the Klingons in Star Trek  - and their right to be aggressive warriors / murder people they disagree with. "Cultural tradition"
+
+We need to **be serious** about this global.
+
