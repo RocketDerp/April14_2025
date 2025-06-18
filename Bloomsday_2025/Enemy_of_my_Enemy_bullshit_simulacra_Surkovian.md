@@ -55,3 +55,27 @@ Almost 300 years AFTER Mohammad's Death they are killing people for different in
 ### The 1954 Equation
 
 ...
+
+.
+
+&nbsp;
+
+# Surkovian Governing exploits
+
+Back to repeating the opening title, my central point of this document.
+
+Surkovian governing exploits what I describe as "comeding timing".
+
+It's all about setting up situations that are absurd, predictable, unreal, surreal, irreal, mind-fuck. Religions do it, Surkov based his work on monomyth patterns, and wreaponized them.
+
+It's about building up the timing of A and B and C symbolism and having them all fall into patterns of entertainment / amusement / comedy timing mind-fuck.
+
+### Laughter The Best Mind Fuck
+
+Neil Postman's 1985 book. Andrew Postman's February 2017 CONFIRMATION of his father's book.
+
+https://mastodon.social/tags/LaughterTheBestMindfuck
+
+https://bsky.app/hashtag/LaughterTheBestMindFuck
+
+Surkovian techniques, Surkov Students, mastered every way they could find. Because it resets the brain. That's the whole point of "Laughter is the best medicine" handed down all over the world. But it has been exploited by military warfare firm and the KGB / FSB / Putin!
