@@ -28,3 +28,11 @@ https://mastodon.social/tags/FWakeHighRoads
 
 https://mastodon.social/tags/WhatHighRoad
 
+https://mastodon.social/tags/TheHighRoadIsEducation    
+https://mastodon.social/tags/TeachingIsTheHighRoad   
+
+https://mastodon.social/tags/YouNeverStayedOn
+
+
+
+
