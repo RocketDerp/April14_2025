@@ -3,7 +3,7 @@ Those with the free time on social media, those with the spare time on social me
 There is no censorship or arrests for standing up on social media and repeating:
 
 1. Neil Postman's 1985 book "Amusing Ourselves To Death"
-2. Peter Pomerantsev, "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia" book fronm 2014
+2. Peter Pomerantsev, "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia" book from 2014
 3. Peter Pomerantsev's articles
 4. What happened to QAnon messages? Are we in USA going to behave like QAnon wasn't all around during January 6, 2021 and act like it is only Fox News and Newsmax and Truth Social? QAnon was nothing but Internet messages, this is pure information warfare that people swallow. Neil Postman 1985 realized.
 
@@ -22,9 +22,9 @@ People go on and on about election day every 4 years, and how 30% voted for MAGA
 
 ## Iran isn't enough
 
-June 19, 2025 as I write this, people talk about Iran being a broken and bad nation with bad leaders. What exactly to USA people think it is like living under a fiction Quran and Mohammad stories from year 640 is like? When a government of people supressed women and then everyone in the socity plays along with the fiction Quran storyelling of Mohamamd.  That is now what the USA is doing in year 2025, people are so engaged in living under the fiction storytelling and insulting the Jewish / Israel - and chanting "Death to America" (that being the MAGA like group) - and then insulting the Muslims / Islamic faith by the other groups in the society. It's a total network of out-group hate. It is group of humans hating on other gorups of humans and never able to actually adopt a society based on authentic science reality and compassion for all pepole, because people are perpetually *reacting* to the gorups they hate. It is a hate-based insult and mocking society dragging down everyone over fiction news (Quran prayers / clergy lessons) and bullshit.
+June 19, 2025 as I write this, people talk about Iran being a broken and bad nation with bad leaders. What exactly to USA people think it is like living under a fiction Quran and Mohammad stories from year 640 is like? When a government of people suppressed women and then everyone in the society plays along with the fiction Quran poetic storytelling of Mohammad.  That is now what the USA is doing in year 2025, people are so engaged in living under the fiction storytelling and insulting the Jewish / Israel - and chanting "Death to America" (that being the MAGA like group) - and then insulting the Muslims / Islamic faith by the other groups in the society. It's a total network of out-group hate. It is group of humans hating on other groups of humans and never able to actually adopt a society based on authentic science reality and compassion for all people, because people are perpetually *reacting* to the groups they hate. It is a hate-based insult and mocking society dragging down everyone over fiction news (Quran prayers / clergy lessons) and bullshit.
 
-Iran isn't enough for Americans to "wake up" to what is going on in USA. Every person in their own media consumption channels mocking and insulting the *other people* in thier media consumption channels. Bullshit media vs. Bullshit media, every flavor of insult and mocking possible. Commercialized and profitable media of insult the other Americans. Feedback loop upon feeback loop, sports team upon sports team, all having in common insulting / name-calling stimulation.
+Iran isn't enough for Americans to "wake up" to what is going on in USA. Every person in their own media consumption channels mocking and insulting the *other people* in their media consumption channels. Bullshit media vs. Bullshit media, every flavor of insult and mocking possible. Commercialized and profitable media of insult the other Americans. Feedback loop upon feeback loop, sports team upon sports team, all having in common insulting / name-calling stimulation.
 
 &nbsp;
 
@@ -34,7 +34,7 @@ Houses on fire, an earthquake, people would discuss how important it was to resc
 
 But instead, since it is Russian mind-fuck, Putin / Internet Research Agency / Cambridge Analytica mind-fuck operations...
 
-People go into egoism contests. "I am smarter tahn MAGA", we punch down on rural Americans and those who do not grasp Peter Pomerantsev teachings and understandings.
+People go into egoism contests. "I am smarter than MAGA", we punch down on rural Americans and those who do not grasp Peter Pomerantsev teachings and understandings.
 
 Since it is mind-based, a mental mind-fuck, people go into a anti-compassion pro-sickness reaction. 
 
@@ -42,7 +42,7 @@ Since it is mind-based, a mental mind-fuck, people go into a anti-compassion pro
 
 People behaved this way during the pandemic. "they deserve it", "let them get sick", the "sickness itself will teach those ignorant people a lesson"
 
-But it doesn't. Just like in Islamic nations the ingorance and lack of goodness that comes from free society and women's power growing never yeilds frit. The society is constantly self-poisoned and dragged down by the faith in hate itself, the faith in mocking and insulting the various factions of fiction. Media (Quran book media) fiction vs. media fiction.
+But it doesn't. Just like in Islamic nations the ignorance and lack of goodness that comes from free society and women's power growing never yields fruit. The society is constantly self-poisoned and dragged down by the faith in hate itself, the faith in mocking and insulting the various factions of fiction. Media (Quran book media) fiction vs. media fiction.
 
 ## Hands dirty rescuing minds
 
@@ -50,15 +50,15 @@ Hands dirty making the case for compassion like Malala gets her hands dirty.
 
 ## Blood on hands from adding hate
 
-Addint mocking, adding hate, adding more insults and jokes at the suffering at the hands of anti-science anti-reality fiction Fox News, fiction MAGA, fiction Donald Trump, fiction JD Vance, fiction content from Elon Musk Twitter, fiction from Rupert Murdoch media empires.
+Adding mocking, adding hate, adding more insults and jokes at the suffering at the hands of anti-science anti-reality fiction Fox News, fiction MAGA, fiction Donald Trump, fiction JD Vance, fiction content from Elon Musk Twitter, fiction from Rupert Murdoch media empires.
 
-People only care about insutling and mocking those addled by fiction information warfare. Instead of asserting Neil Postman's multiple books on education, technology addiction / technology worship, media ecology self-awareness and breaking this pattern for all humanity.
+People only care about insulting and mocking those addled by fiction information warfare. Instead of asserting Neil Postman's multiple books on education, technology addiction / technology worship, media ecology self-awareness and breaking this pattern for all humanity.
 
-Fiction can drag down entire nations, entire world, and it has done so for a very long time. Bible is "The Media", science fiction, that enteratins people so much taht they do not engage in science thinking. Quran is "The Media", Mecca is a "Disney Theme Park", Scientology is "The Media", L Ron Hubbard a science fiction storyteller like Mohammad and Jesus and Moses. Like Rupert Murdoch, like Fox News, like the New York Post.
+Fiction can drag down entire nations, entire world, and it has done so for a very long time. Bible is "The Media", science fiction, that entertains people so much that they do not engage in science thinking. Quran is "The Media", Mecca is a "Disney Theme Park", Scientology is "The Media", L Ron Hubbard a science fiction storyteller like Mohammad and Jesus and Moses. Like Rupert Murdoch, like Fox News, like the New York Post.
 
-But all We The People are doing is one-upmanship of personal egoism competititon, unwilling to die for and rescue our fellow human beings from our own mockery and mocking of science fiction vs. Fox News fictoin vs. social media fiction - the sports game of mocking those deemed stupid / idiot / ignorant / "libtards" / "MAGA insults" / over and over.
+But all We The People are doing is one-upmanship of personal egoism competition, unwilling to die for and rescue our fellow human beings from our own mockery and mocking of science fiction vs. Fox News fiction vs. social media fiction - the sports game of mocking those deemed stupid / idiot / ignorant / "libtards" / "MAGA insults" / over and over.
 
-Humanity will hate humanity so much that we will continue to wage wars, block each other's passports, while wealthy sports stars / singers / comedians / clergy / famous / politicans travel aroudn the world leading this fiction vs. fiction hate game. The whole planet is sinking.
+Humanity will hate humanity so much that we will continue to wage wars, block each other's passports, while wealthy sports stars / singers / comedians / clergy / famous / politicians travel around the world leading this fiction vs. fiction hate game. The whole planet is sinking.
 
 Carl Sagan warned us in year 1995:   
 
