@@ -44,9 +44,15 @@ People behaved this way during the pandemic. "they deserve it", "let them get si
 
 But it doesn't. Just like in Islamic nations the ignorance and lack of goodness that comes from free society and women's power growing never yields fruit. The society is constantly self-poisoned and dragged down by the faith in hate itself, the faith in mocking and insulting the various factions of fiction. Media (Quran book media) fiction vs. media fiction.
 
+&nbsp;
+
 ## Hands dirty rescuing minds
 
 Hands dirty making the case for compassion like Malala gets her hands dirty.
+
+https://www.goodreads.com/work/quotes/24987300-i-am-malala-the-girl-who-stood-up-for-education-and-was-shot-by-the-tal
+
+&nbsp;
 
 ## Blood on hands from adding hate
 
