@@ -60,14 +60,24 @@ But all We The People are doing is one-upmanship of personal egoism competition,
 
 Humanity will hate humanity so much that we will continue to wage wars, block each other's passports, while wealthy sports stars / singers / comedians / clergy / famous / politicians travel around the world leading this fiction vs. fiction hate game. The whole planet is sinking.
 
-Carl Sagan warned us in year 1995:   
+&nbsp;
+
+## Whole planet sinking
+
+Whole planet sinking to religion vs. religion, nation vs. nation, sports team vs. sports team mocking and insulting. It isn't just MAGA vs left / lberals. It isn't just Bluesky and Reddit vs. MAGA. It's been going on for thousands of years. Insulting and mocking culture to culture, society to to society, mythology to mythology. James Joyce Finengans Wake in year 1924 held down the problem, Marshall McLuhan at University of Toronto used James Joyce's Dublin / Irish stories to build his lifetime's work of educating the public on media ecology. Neil Postman build upon Marshall McLuhan.
+
+## We All Were Warned
+
+Once the crisis was realized, we were warned.
+
+Carl Sagan warned us in **year 1995**:   
 
 https://www.goodreads.com/work/quotes/252618-the-demon-haunted-world
 
-Carl Sagan warned the entire We The People in January 1994:
+Carl Sagan warned the entire We The People in **January 1994**:
 
 https://www.washingtonpost.com/archive/entertainment/books/1994/01/09/with-science-on-our-side/9e5d2141-9d53-4b4b-aa0f-7a6a0faff845/
 
-Neil Postman warned us a decade earlier in 1985:
+Neil Postman warned us a decade earlier **in year 1985**:
 
 https://www.goodreads.com/author/quotes/41963.Neil_Postman
