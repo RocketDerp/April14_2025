@@ -26,3 +26,48 @@ June 19, 2025 as I write this, people talk about Iran being a broken and bad nat
 
 Iran isn't enough for Americans to "wake up" to what is going on in USA. Every person in their own media consumption channels mocking and insulting the *other people* in thier media consumption channels. Bullshit media vs. Bullshit media, every flavor of insult and mocking possible. Commercialized and profitable media of insult the other Americans. Feedback loop upon feeback loop, sports team upon sports team, all having in common insulting / name-calling stimulation.
 
+&nbsp;
+
+## If it were houses on fire
+
+Houses on fire, an earthquake, people would discuss how important it was to rescue Americans.
+
+But instead, since it is Russian mind-fuck, Putin / Internet Research Agency / Cambridge Analytica mind-fuck operations...
+
+People go into egoism contests. "I am smarter tahn MAGA", we punch down on rural Americans and those who do not grasp Peter Pomerantsev teachings and understandings.
+
+Since it is mind-based, a mental mind-fuck, people go into a anti-compassion pro-sickness reaction. 
+
+# Anti-compassp pro-sickness
+
+People behaved this way during the pandemic. "they deserve it", "let them get sick", the "sickness itself will teach those ignorant people a lesson"
+
+But it doesn't. Just like in Islamic nations the ingorance and lack of goodness that comes from free society and women's power growing never yeilds frit. The society is constantly self-poisoned and dragged down by the faith in hate itself, the faith in mocking and insulting the various factions of fiction. Media (Quran book media) fiction vs. media fiction.
+
+## Hands dirty rescuing minds
+
+Hands dirty making the case for compassion like Malala gets her hands dirty.
+
+## Blood on hands from adding hate
+
+Addint mocking, adding hate, adding more insults and jokes at the suffering at the hands of anti-science anti-reality fiction Fox News, fiction MAGA, fiction Donald Trump, fiction JD Vance, fiction content from Elon Musk Twitter, fiction from Rupert Murdoch media empires.
+
+People only care about insutling and mocking those addled by fiction information warfare. Instead of asserting Neil Postman's multiple books on education, technology addiction / technology worship, media ecology self-awareness and breaking this pattern for all humanity.
+
+Fiction can drag down entire nations, entire world, and it has done so for a very long time. Bible is "The Media", science fiction, that enteratins people so much taht they do not engage in science thinking. Quran is "The Media", Mecca is a "Disney Theme Park", Scientology is "The Media", L Ron Hubbard a science fiction storyteller like Mohammad and Jesus and Moses. Like Rupert Murdoch, like Fox News, like the New York Post.
+
+But all We The People are doing is one-upmanship of personal egoism competititon, unwilling to die for and rescue our fellow human beings from our own mockery and mocking of science fiction vs. Fox News fictoin vs. social media fiction - the sports game of mocking those deemed stupid / idiot / ignorant / "libtards" / "MAGA insults" / over and over.
+
+Humanity will hate humanity so much that we will continue to wage wars, block each other's passports, while wealthy sports stars / singers / comedians / clergy / famous / politicans travel aroudn the world leading this fiction vs. fiction hate game. The whole planet is sinking.
+
+Carl Sagan warned us in year 1995:   
+
+https://www.goodreads.com/work/quotes/252618-the-demon-haunted-world
+
+Carl Sagan warned the entire We The People in January 1994:
+
+https://www.washingtonpost.com/archive/entertainment/books/1994/01/09/with-science-on-our-side/9e5d2141-9d53-4b4b-aa0f-7a6a0faff845/
+
+Neil Postman warned us a decade earlier in 1985:
+
+https://www.goodreads.com/author/quotes/41963.Neil_Postman
