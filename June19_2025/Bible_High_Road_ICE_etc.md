@@ -43,3 +43,17 @@ All this bragging about wealth and greatness of USA has made USA attractive. Go 
 Did we get to ride the exploitation of a continent that was technologically undeveloped in year 1720. And Did we ride peotroem and automobile lifestyle to a point of such extreme pride and "identity politics" with our cars, that we can't see that our lifestyle is not sustaintable for the rest of the world - and we are marketing / advertising it to children everywhere.  We have painted a picture of Heaven Itself to people.
 
 People want to immigrate to the USA because it was better. To deny this appeal is to deny our own history of immigration from year 1720 onward.
+
+### Back to Love Thy Enemy
+
+We are BEYOND The Bible. And Carl Sagan's books should all be added to The Bible. He is a great humanist, even an American to boot. Like Thomas Jefferson (Founding Father) in year 1820, we can delete parts of The Bible we disagree with.
+
+In Pale Blue Dot perspective, we have to actually elevate every person on Earth's life. That's also part of the Great Seal USA vision (and why a pyramid in Africa, "out of Africa" has deep metaphor meanings too).
+
+How can we respect ourselves as human beings if there are people starving for $2 a day food when we are living a $170 a day USA lifestyle?
+
+We have to try, and fail, just like trial and failure has been for all technology development. We have to try and learn from mistakes and progresss. Iteratively.
+
+We must also convince people just because we help educate (Wiki open style) how to grow food, shelter, technology out - to not have 15 cchildren per family and self-regulate / help with the hate and other human conflict problems. 
+
+"There are no passengers on Spaceship Earth. We are all crew." - Marshall McLuhan, 1965, in reference to Operating Manual for Spaceship Earth (1963) by Buckminster Fuller
