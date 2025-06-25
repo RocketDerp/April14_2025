@@ -72,5 +72,15 @@ We Could have. We could have elimminated a lot of faults, crashes, exploits, the
 
 We could have OpenBSD .. but we didn't.
 
-We favored rapid growth and expansion over security
+We favored rapid growth and expansion over security and correctness.
+
+&nbsp;
+
+"The trouble isn't so much that we don't know enough, but it's as if we aren't good enough. The trouble isn't so much that our scientific genius lags behind, but **our moral genius lags behind. The great problem facing modern man is that, that the means by which we live have outdistanced the spiritual ends** for which we live. So we find ourselves caught in a messed-up world." -- MLK Jr.
+
+&nbsp;
+
+#### 2014 Interstellar
+
+We don't have an OPTION with 8 billion plus people. We will end up like the 2014 film Interstellar. Climate Change plus World Wars wrecking what remains of Earth. We do not have an OPTION to solve our hate and compassion global problem, integrating all our religions into world peace. WE HAVE TO FACE UP to the technology mosnsters we keep creating.
 
