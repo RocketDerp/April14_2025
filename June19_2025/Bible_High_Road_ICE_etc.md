@@ -84,3 +84,20 @@ We favored rapid growth and expansion over security and correctness.
 
 We don't have an OPTION with 8 billion plus people. We will end up like the 2014 film Interstellar. Climate Change plus World Wars wrecking what remains of Earth. We do not have an OPTION to solve our hate and compassion global problem, integrating all our religions into world peace. WE HAVE TO FACE UP to the technology mosnsters we keep creating.
 
+&nbsp;
+
+&nbsp;
+
+#### High Road against Fox News / Clickbait
+
+Nothing has prevented people from creating a non-clickbait subreddit / link aggreagtor / Lemmy site or Wikinews (WikiTribune?) except addiction to the whole marketing advertising complex. Sure it takes labor, but 10 people doing it would save millions of people having headaches of the whole clickbait news business.
+
+&nbsp;
+
+&nbsp;
+
+# Edits Yes
+
+This is very poorly written, I'm very sick and brain damaged this week, and the spell checker of browser isn't even getting frist-past fixes like I normally have on Lemmy and Mastodon when I compose on GitHub.
+
+This needs extreme editing, rewriting, I may not even be able to deal with all the context issues in my brain to get back to it. These are incredibly painful topics.
