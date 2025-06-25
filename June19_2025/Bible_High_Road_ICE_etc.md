@@ -57,3 +57,20 @@ We have to try, and fail, just like trial and failure has been for all technolog
 We must also convince people just because we help educate (Wiki open style) how to grow food, shelter, technology out - to not have 15 cchildren per family and self-regulate / help with the hate and other human conflict problems. 
 
 "There are no passengers on Spaceship Earth. We are all crew." - Marshall McLuhan, 1965, in reference to Operating Manual for Spaceship Earth (1963) by Buckminster Fuller
+
+&nbsp;
+
+### Real Risk
+
+We are sitting on a technology bomb. We **did not take OpenBSD** path, we went with Linux / Apple / Windows. We did not become serious about computer security like OpenBSD Canada project. There is no quick fix, we have decades of a mess.
+
+Peace, love, compassion ae not options. And what the fuck is life when they are only secondary concerns? When we make war, hate, dehumanization our default behaivor. (James Joyce: History is a Nightmare to wake from).
+
+### We Could have OpenBSD
+
+We Could have. We could have elimminated a lot of faults, crashes, exploits, thefts - and BSD Unix / Berkely *hippies* had all the idealism. 1995 - but we went with Linux. Why - device drivers, hardware support - as much as anything. Microsoft ALWAYS had multi-hardware, Apple was closed hardware (their few attempts to open to other hardware makers all ended in dead-end paths).
+
+We could have OpenBSD .. but we didn't.
+
+We favored rapid growth and expansion over security
+
