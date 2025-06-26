@@ -34,7 +34,7 @@ Understanding and comprehension is the MAGA Donald Trump / Russian Information W
 
 &nbsp;
 
-MAGA clams to be super Christian, the Trump Bible, the 10 commandments in school. Hove it up their ass, that's the high road.
+MAGA claims to be super Christian, the Trump Bible, the 10 commandments in school. Shove it (better interpretaton) up their ass, that's the high road.
 
 ## Love thy Enemy 
 
