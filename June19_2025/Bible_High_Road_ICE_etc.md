@@ -1,6 +1,6 @@
 # High Road Not Taken
 
-Wedneday, June 25, 2025   
+Wednesday, June 25, 2025   
 Again, I do not see "High Roads" being taken at all.
 
 Against MAGA.   
@@ -9,6 +9,10 @@ Against Truth Social.
 Against Fox News. Against Rupert Murdoch.   
 Against Donald Trump (Trump Bible).  
 Against JD Vance (Proud Visible Catholic, Pope).  
+Against Putin influence.   
+Against Russian media invasion since March 2013.   
+Against Elon Musk.   
+
 
 
 ### Metaphors All
@@ -22,25 +26,25 @@ Regardless of believer or non-believer (there are three states: atheists are wro
 
 # The High Roads!!
 
-Malala and MLK Jr's high roads are nost just non-violent sit-in protests. They *preach*, they criticize interpretaiton of Bible and Quran and Torah! They HEAL the literacy, comprehension, understanding problems. They PREACH!!
+Malala and MLK Jr's high roads are not just non-violent sit-in protests. They *preach*, they criticize interpretation of Bible and Quran and Torah! They HEAL the literacy, comprehension, understanding problems. They PREACH!!
 
-People are so concerend with folloiwng MLK Jr protests that they forget his writing themselves, his teachings, his *lessons* behind the protests. Much like the Great Seal USA is forgotten behind the Consitution. What does that pyramid mean on the dollar bill?
+People are so concerned with following MLK Jr protests that they forget his writing themselves, his teachings, his *lessons* behind the protests. Much like the Great Seal USA is forgotten behind the Constitution. What does that pyramid mean on the dollar bill?
 
 Understanding and comprehension is the MAGA Donald Trump / Russian Information Warfare crisis since March 2013!
 
 &nbsp;
 
-MAGA clames to be super Christian, the Trump Bible, the 10 commandments in school. Hove it up their ass, that's the high road.
+MAGA clams to be super Christian, the Trump Bible, the 10 commandments in school. Hove it up their ass, that's the high road.
 
 ## Love thy Enemy 
 
-Love the immigrant enemy. Stop making such a show of how much you hate and distrust them, make a show of how much you want to love and take care of them and get them back peacefully home or integreated in USA society. Emphasize all the positive ideals of "Love Thy Enemy" in the Bible.  Repeating that CORRECT INTERPRETATION of The Bible *is the High Roads*. Constantly insutling, mocking ICE - is just adding more hate fuel to the MAGA hate bonfire that has been burning in Levant out-group patterns that were dragged over from the Middle East. Gentile / non-believer / infidel. 
+Love the immigrant enemy. Stop making such a show of how much you hate and distrust them, make a show of how much you want to love and take care of them and get them back peacefully home or integrated in USA society. Emphasize all the positive ideals of "Love Thy Enemy" in the Bible.  Repeating that CORRECT INTERPRETATION of The Bible *is the High Roads*. Constantly insulting, mocking ICE - is just adding more hate fuel to the MAGA hate bonfire that has been burning in Levant out-group patterns that were dragged over from the Middle East. Gentile / non-believer / infidel. 
 
 ## Marketing attracts
 
-All this bragging about wealth and greatness of USA has made USA attractive. Go beyond reactionary responses like "victum blaming" and "being raped because of how you dressed" - the rality is that the USA is in the business of selling Hollywood lifestyle in our enteratinment exports to the rest of the world. We are braggards. Maybe we should re-think about that... the fall of huberous that Russia seems to have explotied in our own praising of egomania leadership!
+All this bragging about wealth and greatness of USA has made USA attractive. Go beyond reactionary responses like "victim blaming" and "being raped because of how you dressed" - the reality is that the USA is in the business of selling Hollywood lifestyle in our entertainment exports to the rest of the world. We are braggarts. Maybe we should re-think about that... the fall of hubris that Russia seems to have exploited in our own praising of egomania leadership!
 
-Did we get to ride the exploitation of a continent that was technologically undeveloped in year 1720. And Did we ride peotroem and automobile lifestyle to a point of such extreme pride and "identity politics" with our cars, that we can't see that our lifestyle is not sustaintable for the rest of the world - and we are marketing / advertising it to children everywhere.  We have painted a picture of Heaven Itself to people.
+Did we get to ride the exploitation of a continent that was technologically undeveloped in year 1720. And did we ride petrol and automobile lifestyle to a point of such extreme pride and "identity politics" with our cars, that we can't see that our lifestyle is not sustainable for the rest of the world - and we are marketing / advertising it to children everywhere.  We have painted a picture of Heaven Itself to people.
 
 People want to immigrate to the USA because it was better. To deny this appeal is to deny our own history of immigration from year 1720 onward.
 
@@ -52,9 +56,9 @@ In Pale Blue Dot perspective, we have to actually elevate every person on Earth'
 
 How can we respect ourselves as human beings if there are people starving for $2 a day food when we are living a $170 a day USA lifestyle?
 
-We have to try, and fail, just like trial and failure has been for all technology development. We have to try and learn from mistakes and progresss. Iteratively.
+We have to try, and fail, just like trial and failure has been for all technology development. We have to try and learn from mistakes and progress. Iteratively.
 
-We must also convince people just because we help educate (Wiki open style) how to grow food, shelter, technology out - to not have 15 cchildren per family and self-regulate / help with the hate and other human conflict problems. 
+We must also convince people just because we help educate (Wiki open style) how to grow food, shelter, technology out - to not have 15 children per family and self-regulate / help with the hate and other human conflict problems. 
 
 "There are no passengers on Spaceship Earth. We are all crew." - Marshall McLuhan, 1965, in reference to Operating Manual for Spaceship Earth (1963) by Buckminster Fuller
 
@@ -64,11 +68,11 @@ We must also convince people just because we help educate (Wiki open style) how 
 
 We are sitting on a technology bomb. We **did not take OpenBSD** path, we went with Linux / Apple / Windows. We did not become serious about computer security like OpenBSD Canada project. There is no quick fix, we have decades of a mess.
 
-Peace, love, compassion ae not options. And what the fuck is life when they are only secondary concerns? When we make war, hate, dehumanization our default behaivor. (James Joyce: History is a Nightmare to wake from).
+Peace, love, compassion ae not options. And what the fuck is life when they are only secondary concerns? When we make war, hate, dehumanization our default behavior. (James Joyce: History is a Nightmare to wake from).
 
 ### We Could have OpenBSD
 
-We Could have. We could have elimminated a lot of faults, crashes, exploits, thefts - and BSD Unix / Berkely *hippies* had all the idealism. 1995 - but we went with Linux. Why - device drivers, hardware support - as much as anything. Microsoft ALWAYS had multi-hardware, Apple was closed hardware (their few attempts to open to other hardware makers all ended in dead-end paths).
+We Could have. We could have eliminated a lot of faults, crashes, exploits, thefts - and BSD Unix / Berkeley *hippies* had all the idealism. 1995 - but we went with Linux. Why - device drivers, hardware support - as much as anything. Microsoft ALWAYS had multi-hardware, Apple was closed hardware (their few attempts to open to other hardware makers all ended in dead-end paths).
 
 We could have OpenBSD .. but we didn't.
 
@@ -82,7 +86,7 @@ We favored rapid growth and expansion over security and correctness.
 
 #### 2014 Interstellar
 
-We don't have an OPTION with 8 billion plus people. We will end up like the 2014 film Interstellar. Climate Change plus World Wars wrecking what remains of Earth. We do not have an OPTION to solve our hate and compassion global problem, integrating all our religions into world peace. WE HAVE TO FACE UP to the technology mosnsters we keep creating.
+We don't have an OPTION with 8 billion plus people. We will end up like the 2014 film Interstellar. Climate Change plus World Wars wrecking what remains of Earth. We do not have an OPTION to solve our hate and compassion global problem, integrating all our religions into world peace. WE HAVE TO FACE UP to the technology monsters (systems) we keep creating.
 
 &nbsp;
 
@@ -90,7 +94,7 @@ We don't have an OPTION with 8 billion plus people. We will end up like the 2014
 
 #### High Road against Fox News / Clickbait
 
-Nothing has prevented people from creating a non-clickbait subreddit / link aggreagtor / Lemmy site or Wikinews (WikiTribune?) except addiction to the whole marketing advertising complex. Sure it takes labor, but 10 people doing it would save millions of people having headaches of the whole clickbait news business.
+Nothing has prevented people from creating a non-clickbait subreddit / link aggregator / Lemmy site or Wikinews (WikiTribune?) except addiction to the whole marketing advertising complex. Sure it takes labor, but 10 people doing it would save millions of people having headaches of the whole clickbait news business.
 
 &nbsp;
 
@@ -98,6 +102,6 @@ Nothing has prevented people from creating a non-clickbait subreddit / link aggr
 
 # Edits Yes
 
-This is very poorly written, I'm very sick and brain damaged this week, and the spell checker of browser isn't even getting frist-past fixes like I normally have on Lemmy and Mastodon when I compose on GitHub.
+This is very poorly written, I'm very sick and brain damaged this week, and the spell checker of browser isn't even getting first-pass fixes like I normally have on Lemmy and Mastodon when I compose on GitHub.
 
 This needs extreme editing, rewriting, I may not even be able to deal with all the context issues in my brain to get back to it. These are incredibly painful topics.
