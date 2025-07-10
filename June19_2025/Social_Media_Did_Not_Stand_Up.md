@@ -44,9 +44,9 @@ THere is no excuse, there is no good reason, to not quote Neil Postamns' 1985 bo
 
 &nbsp;
 
-### Social mdia is We People
+### Social media is We People
 
-We The Peopel is social media. You can't keep blaming "the media' when every person is shaering kitten photos and anime and sports scores - it only takes 20 seconds or 90 seconds to REPEAT DAILY the exact same quote from Malala. To deal with the mind-virus of billionares head-on by doing what paid advertising does - REPEAT. Have you not noticed advertising is repeatitive? And you aren't selling a book, you are selling an idea, a quote. This isn't about money, this is about egomania and self-centered values. Malala is not self centeered!
+**We The Peopel** is social media. You can't keep blaming *"the media'* when every person is shaering kitten photos and anime and sports scores since year 2013 - it only takes 20 seconds or 90 seconds to REPEAT DAILY the exact same quote from Malala. To deal with the mind-virus of billionares head-on by doing what paid advertising does - REPEAT. Have you not noticed advertising is repeatitive? And you aren't selling a book, you are selling an idea, a quote. This isn't about money, this is about egomania and self-centered values. Malala is not self centeered!
 
 Neil Postman is not self centered. Carl Sagan is not self centered. Repeating and quoting books - you can publish the tnire book one line at a time every 4 hours on social media. But it is not attractive, that's the egoism problem, that is why Donald Trump **IS ATTRACTIVE AND CHARMING** that is why Elon Musk is attractive. We have to face up to the egomania in democracy, that absence of compassion and lvoe in democracy, does not work! People are in deep love with Donald Trump, face up to reality!
 
@@ -56,3 +56,24 @@ Neil Postman is not self centered. Carl Sagan is not self centered. Repeating an
 
 Why oh why do social media users complain about MAGA since March 2013 believing falsehods and not repeat every 12 hours the name of Peter P?
 
+&nbsp;
+
+# It Can Happen
+
+**We The People of the World is Social Media, The World Wide Web**.
+
+https://mastodon.social/@RoundSparrow/114829410659726804   
+https://bsky.app/profile/roundsparrow.bsky.social/post/3ltmk6jsb3s2s
+
+&nbsp;
+
+## Recency Bias
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3ltmjwkbwjc2s  
+https://mastodon.social/@RoundSparrow/114829390145529580 
+
+&nbsp;
+
+## Please Help
+
+"The trouble isn't so much that we don't know enough, but it's as if we aren't good enough. The trouble isn't so much that our scientific genius lags behind, but our moral genius lags behind. The great problem facing modern man is that, that the means by which we live have outdistanced the spiritual ends for which we live. So we find ourselves caught in a messed-up world." - Dr. Martin Luther King Jr
