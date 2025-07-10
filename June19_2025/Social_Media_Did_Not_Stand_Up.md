@@ -1,3 +1,9 @@
+#### Status of Document
+
+Incomplete, raw, unedited, unfinished, brain damaged author.
+
+&nbsp;
+
 # Social Media Users
 
 Social media users / social media society / social media community did not stand up.
