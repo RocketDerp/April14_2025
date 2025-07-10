@@ -28,6 +28,8 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3ltmhsad6os2s
 
 ## The Quran Audience Swat Valley
 
+It is a very important perspective that SWat Valley Pakistan is very long distance away from the Levant, away from Mecca. Just as it is very important perspective that Dallas, Texas United States of America is *very far* away from Levant, from Jerusalem and Bethlehem. The trail of blood and murder and killings between Matthew / Mark / Luke / John / etc storytelling of The Bible to reach Dallas, Texas. The trail of blood and murder and conquest and killing between Mohammad's Quran and Swat Valley, Pakstian. The centuries, the distance, the clergy in-between, the progress of transportation technology and education / learning (MAlala topics) / information systems.
+
 &nbsp;
 
 ## The "media" Audience
