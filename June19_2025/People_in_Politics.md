@@ -36,6 +36,18 @@ Malala has so many excellent words and ideas to share related to women's rights 
 
 &nbsp;
 
+##### Trolling Works, Operation Matthew 4:19
+
+USA people with faith in competiition at any cost, the thrill of defeating other human persons, eat it up.
+
+July 12, 2025 headline
+
+https://www.rollingstone.com/politics/politics-features/ice-secret-police-horrifying-team-trump-laughing-1235384250/
+
+In July 2025, people are thrilled to have a chance to be violent and hate-filled at ICE. People are not cheering on peaceful intelligence protesters teaching morality lessons of American Dr. Martin Luther King Jr on the problem of hate (including hate of blocking on social media, hate via deporting people you disagree with instead of assisting immigrants in good ways). Competitive oriented people live and die for competitition, not for MLK Jr's morality reform of year 1954.
+
+&nbsp;
+
 #### unedited, raw, unfinished
 
 Like all my writing with brain damage, incomplete.
