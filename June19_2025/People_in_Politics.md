@@ -20,6 +20,16 @@ The need to stay focused on not a team but the entire world, what Malala is addr
 
 People who seem to be on the topics of politics seem to have so much faith in groups and out-group hate (political party groups, corporate groups, lobby groups, author of politics groups)... so INGRAINED in the idea of misunderstanding and the personality of politicians (liars, deceivers, manipulators, TV game show hosts) and corporate lobby people (and the consumers of political-oriented media), the obsession with elections and not Tower of Babel world peace...
 
+#### MLK jr stripped of hate teachings
+
+MLK Jr has been stripped by people "into" politics as voter rights, black skin. Not the ***preventative*** preaching morality lessons of hate, dehumanization! You do not see people on social media in response to MAGA quoting MLK Jr on the topic of hate. MAGA is founded upon out-group hate, and so it seems the Democrats vs. Republicans is a out-group *hate hate hate hate-harder* faith fuled by Russian + Cambridge Analytica mind-fuck.
+
+&nbsp;
+
+##### Same with Malala
+
+Malala has so many excellent words and ideas to share related to women's rights on abortion, transgender - but people on social media (Bluesky, Reddit, Mastodon) grey-rocker her since her Octobe 8, 2013 book - more than a FULL DECADE of avoiding repeating her in the face of MAGA / USA deport-happy block-happy. It seems like people "into" video game competition and sports competititon and politics compettition do not want to address ending competitition of hate vs. hate, out-group hate. It sure seems that way.
+
 &nbsp;
 
 #### unedited, raw, unfinished
