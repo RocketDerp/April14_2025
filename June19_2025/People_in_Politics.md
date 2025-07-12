@@ -74,6 +74,16 @@ I witness that social media users engage in deporting humans, blocking humans, c
 
 &nbsp;
 
+# Donald Trump Attraction
+
+USA people do not resist the hate of Donald Trump because the deepest faith in USA is that hate and weapons will save the day. Hate is the very foundation of faith and religion in USA society. People hate upon Donald Trump and MAGA and people are motivated by how #successful hate and dehumanization has worked in popularity, power, wealth.
+
+Maybe before computers, people in USA were too busy working and keeping up with essentials in life. But now that computers are the USA, **people have the free time** to do what they truly desire: Hate, Dehuman
+
+It is not hard to witness that people are not attracted to MLK Jr's 1954 words on hate in all places, all time periods. Nor have people been attracted to Malala's book from October 8, 2013 or her other writings and crticisim of terrorism, hate, dehumanization, greed. People "into" politics, seem far more concerned with competititon (team out-group hate) than solving problems.
+
+&nbsp;
+
 #### unedited, raw, unfinished
 
 Like all my writing with brain damage, incomplete.
