@@ -61,6 +61,19 @@ https://www.newsweek.com/donald-trump-threatens-take-away-rosie-odonnells-citize
 
 &nbsp;
 
+## "Joe Biden is a Bot" - Donald Trump
+
+At age 79, Donald Trump has the latest Internet meme culture down. Calling human persons "bot machines". That a role model of compassion and goodness is “robotic engineered soulless mindless entities.” That is exactly the values of social media society, calling the competititon machine robots without a soul - which in the **Donald Trump Bible** is considered the one unforgiable sin - to declare that Joe Biden is soulless (Bible verse Luke 12:10).
+
+June 1, 2025 story   
+https://www.nbcnews.com/politics/donald-trump/trump-shares-unfounded-conspiracy-theory-claiming-biden-was-executed-2-rcna210244
+
+I have seen almost no Bluesky, Reddit, Mastodon, Twitter, YouTube concern that Donald Trump is dehumanizing (in blatent black and white terms, saying that Joe Biden died in year 2020) using social media methods - Luke 12:10 being broken as a source of Trump Bible holy religion authority. People in USA do not stand up to this style of information warfare, mental manipulation, mind-fucking - people *eat it up* and do not invoke MLK Jr / Malala reformations and repeat over and over how calling a compassion role model a non-person is bad morals, bad morality leadership.
+
+I witness that social media users engage in deporting humans, blocking humans, calling humans "bots", promoting the hiding and concealing of real humanism and real identity - to create an evniornment of fiction, deception, manipulation, unreality. Americans are concerned aobut defeating the out-group, not creating a society of compassion and love for human persons.
+
+&nbsp;
+
 #### unedited, raw, unfinished
 
 Like all my writing with brain damage, incomplete.
