@@ -50,7 +50,7 @@ In July 2025, people are thrilled to have a chance to be violent and hate-filled
 
 ##### Less about name-fame
 
-People "into" poltiics seem extremely concerned with the names of people and groups. Not in the thinking system, not in the moral values, not in progress towards goodness - but winning a competititon and any price. And that is why repeating MLK Jr's / Malala's ideas on *hate is bad* is not done in the face of Donald Trump supporters / MAGA / Putin media invasion / Russian information warfare. People are attracted to the hate, not to meeting strangers and non-famous (no name-fame) all over the world. My living in North Africa, Middle East, South America I enjoyed *nature and everyday people* at crossings, I was not seeking out "holy lands spots", and name-fame like people "into" politics seem to crave and want to die for.
+People "into" poltiics seem extremely concerned with the names of people and groups. Not in the thinking system, not in the moral values, not in progress towards goodness - but winning a competititon for in-groups at any price. And that is why repeating MLK Jr's / Malala's ideas on *hate is bad* is not done in the face of Donald Trump supporters / MAGA / Putin media invasion / Russian information warfare. People are attracted to the hate, not to meeting strangers and non-famous (no name-fame) all over the world. My living in North Africa, Middle East, South America I enjoyed *nature and everyday people* at crossings, I was not seeking out "holy lands spots", and name-fame like people "into" politics seem to crave and want to die for.
 
 &nbsp;
 
