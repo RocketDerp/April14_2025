@@ -24,6 +24,10 @@ People who seem to be on the topics of politics seem to have so much faith in gr
 
 MLK Jr has been stripped by people "into" politics as voter rights, black skin. Not the ***preventative*** preaching morality lessons of hate, dehumanization! You do not see people on social media in response to MAGA quoting MLK Jr on the topic of hate. MAGA is founded upon out-group hate, and so it seems the Democrats vs. Republicans is a out-group *hate hate hate hate-harder* faith fuled by Russian + Cambridge Analytica mind-fuck.
 
+Martin Luther King Jr. emphasized *systems vs. humans*, and people "into" Politics (Democrats vs. Republicans, etc) are *into* competition systems. People believe in having an enemy to hate upon. And that's exactly the topics of Donald Trump and MAGA that Democrats and other Trump haters have avoided. That's the heart of my alarm, concern, crisis - is that people don't want to grasp what Peter Pomerantsev is saying about Putin / Russia methods - because people adore and flock to the hate aspect of competitive politics. Even Peter Pomerantsev himself seems avoidant of Neil Postman, Marshall McLuhan, Joseph Campbell and James Joyce's relevance to fiction vs. nonfiction - religion vs. nonfiction - which is at the very heard of "War Against Reality" (title of Peter Pomerantsev's 2019 book). 
+
+Dr. Martin Luther King Jr felt it was critical that ALL hate in all places (The 1954 Equation) be phased out, left behind in history before we can have peaceful competittion and progress. And I think too many people into sports competittion, political party competition, brand vs. brand cometitition, nation vs. nation comptetition and "trade wars" and such - revel in the out-group hate that Malala and MLK Jr both address.
+
 &nbsp;
 
 ##### Same with Malala
