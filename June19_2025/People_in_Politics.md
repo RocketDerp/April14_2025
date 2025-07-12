@@ -32,7 +32,7 @@ Dr. Martin Luther King Jr felt it was critical that ALL hate in all places (The 
 
 ##### Same with Malala
 
-Malala has so many excellent words and ideas to share related to women's rights on abortion, transgender - but people on social media (Bluesky, Reddit, Mastodon) grey-rocker her since her Octobe 8, 2013 book - more than a FULL DECADE of avoiding repeating her in the face of MAGA / USA deport-happy block-happy. It seems like people "into" video game competition and sports competititon and politics compettition do not want to address ending competitition of hate vs. hate, out-group hate. It sure seems that way.
+Malala has so many excellent words and ideas to share related to women's rights on abortion, transgender - but people on social media (Bluesky, Reddit, Mastodon) grey-rocked her since her Octobe 8, 2013 book - more than a FULL DECADE of avoiding repeating her in the face of MAGA / USA deport-happy block-happy. It seems like people "into" video game competition and sports competititon and politics compettition do not want to address ending competitition of hate vs. hate, out-group hate. It sure seems that way.
 
 &nbsp;
 
