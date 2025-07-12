@@ -14,6 +14,10 @@ A lot of people who are politicial organizers, political writers, seem to have f
 
 ### Repeat Malala, Repeat MLKjr
 
+The next election, the next candidate, deporting happy, hate happy, thrilled with the "horse race" and "sports mentality" of voting. The idea of being able to deport polotical opponets, starve and take away health care. Seems to drive Democrats and Republicans both in USA since year 2013. They have WELCOMED the Putin Media Invasion of hate on ANY topic, the merging of EVERY topic into this "horse race" win win win elections into every social media encounter. 
+
+The need to stay focused on not a team but the entire world, what Malala is addressing (and I do not mean just what she says about gender of girls and child education, she says much more than that on terrorism and reason thinking) - same with MLK Jr. People are unwilling to repeat MLK Jr's content on hate (The 1954 Equation) - and only wnat to make it about voting and skin color. The Putin Media Invasion and MAGA was all about hate, but people concerned with politics their whole lives seemed to *revel in* the increased hate and *competition* and there *was no high road* of saying: WE ALL need World Wide Peace, we ALL need to repeat Malala every day, we all need to make one day a week to discuss Malala and world peace / traditional religions being reformed.
+
 People who seem to be on the topics of politics seem to have so much faith in groups and out-group hate (poltiical party groups, corporate groups, lobby groups, author of politics groups)... so INGRANED in the idea of misunderstanding and the personality of politicians (liars, deceivers, manipulators, TV game show hosts) and corporte lobby people (and the consumers of political-oriented media), the obssession with elections and not Tower of Babel world peace...
 
 &nbsp;
