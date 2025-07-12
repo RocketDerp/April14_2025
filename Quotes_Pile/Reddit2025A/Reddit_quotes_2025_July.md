@@ -15,3 +15,15 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ly0yyu/trump_threatens_ros
 shitkabob September 13, 2015
 
 "Let's be honest: their brains were rotted by propaganda on TV because they lack sophistication and are some of the most gullible folks out there."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1lyaots/it_be_more_surprising_if_he_werent_a_hypocrite/n2sx65h/
+
+crumbummmmm 2021-02-10
+
+"John Stewart has compilations of hypocrisy going back like 30 years now... it's never going to work.
+
+they're never going to notice or care about their hypocrisy. In fact, it helps them grow.
+
+it's like how when a cult leaders predictions don't come true, the cult just deepens their belief. Each new lie is a loyalty test, that you pass by denying the evidence of your own eyes and ears for the party interpretation of events."
