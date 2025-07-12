@@ -25,3 +25,7 @@ People who seem to be on the topics of politics seem to have so much faith in gr
 #### unedited, raw, unfnished
 
 Like all my writing with brain damage, incomplete.
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3ltrqku6ot22k   
+https://autistics.life/@RoundSparrow/114841122681177666
+
