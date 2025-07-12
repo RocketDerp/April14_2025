@@ -54,7 +54,7 @@ People "into" poltiics seem extremely concerned with the names of people and gro
 
 &nbsp;
 
-People "into" politics competittion, sports competition, war competittion, terrorism competittion, religion competittion, out-group hate, in-group love (as described in 1987 by Joseph Campbell) just don't want to support MLK Jr and Malala reforms of religion / society / hate. Block-happy on social medi athat they can use power of computers to block persons, use power of ICE to deport humans.
+People "into" politics competittion, sports competition, war competittion, terrorism competittion, religion competittion, out-group hate, in-group love (as described in 1987 by Joseph Campbell) just don't want to support MLK Jr and Malala reforms of religion / society / hate. Block-happy on social media systems that they can use power of computers to block persons, use power of ICE systems to deport humans. Like people who use power of SWAT attacks to dehumanize those they disagree with, terrorism. People who are avoidant of MLK Jr's 1954 words on hate do not want to eliminate hate everywehre in the world, they are motivated (often wihtout self-awareness, subconsious) to wield hate as power against human persons.
 
 July 12, 2025:   
 https://www.newsweek.com/donald-trump-threatens-take-away-rosie-odonnells-citizenship-2098159
