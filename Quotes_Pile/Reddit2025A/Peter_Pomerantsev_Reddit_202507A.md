@@ -12,7 +12,7 @@ these comments make sense if you have spent since year 2014 ignoring:
 
 #### Ate The Surkovian Onion
 
-In reference to The Onion magazine / website
+In reference to The Onion magazine / website founded August 29, 1988.
 
 #### Surkovian Onion Breath
 
@@ -29,4 +29,15 @@ PostMerryDM 2021-07-21
 HE’S IN THEM.
 
 This is as obvious as it gets and only someone with dementia would give a tell as big as this."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1lyuaal/trump_in_full_panic_claims_all_epstein_files_are/n2wmv0o/
+
+MamiTrueLove 2020-11-09
+
+
+"It’s CRAZY how many people are so easily baffled by narcissistic sociopathic DARVO tactics. His behavior is 101."
+
+
 
