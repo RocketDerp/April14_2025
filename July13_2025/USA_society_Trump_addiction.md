@@ -1,0 +1,11 @@
+The hole USA society has dug is so deep, the media content addiction people have to antics politics, shock Donald Trump behavior, insulting and hate inspired by Donald Trump is over 10 years. Even if Donald Trump is removed, people are so addicted to mocking and hate, setting direction will be incredibly painful because the core issue of addiction to mocking and hate is unlikely to be addressed. So much resentment, bewilderment, confusion, misunderstandings from the 10 years of nonstop contradictions. This is a new situation, only possible with advanced media systems.
+
+Saturday July 12, 2025 night
+
+I was burned out by this in 2015, the rise of MAGA and the Internet Research Agency delivering their payloads since March 2013. I telephoned the Pentagon in 2015 before the IRA and Cambridge Analytica got widespread attention. It took two years for people to become addicted to the style of insult, dismisall, mocking (even reading it fromothers, strictly passive particiation as a spectator).
+
+None of these media addiction problems went away with the November 2020 election loss by Donald Trump. January 6, 2021 buidl up most people were blnd to, in pschlogical denial of group behavior / cult behavior. Or an attitude of insult and mocking that people are in a cult or under the influence of Fox News - and no sustained serious effort to defend / educate about cult programming as rescue.
+
+All of year 2024 was obvious things had gotten even worse. That computer media systems had advanced from year 2016 and the now practiced style of mimicing Donald Trump social media interaction was joined by Elon Musk.
+
+
