@@ -12,7 +12,9 @@ https://old.reddit.com/r/PublicFreakout/comments/1lz16pq/fans_in_the_stadium_boo
 
 Zero concept of Surkovian government year 2012 Russia techniques. No ability to mention 2013 onward publications by Peter Pomerantsev. Booing and hate are engagement, content power, hate is central core focus of Kremlin / MAGA / Donald Trump power. [Donald Trump is playing Tony Clifton](https://en.wikipedia.org/wiki/Tony_Clifton) (Andy Kaufman) and Reddit community **eats the Surkovian Onions** without associating that it is a form of Reality TV to be Tony Clifton. Tony Clifton style character in the Russian Surkovian screenplay of year 2012 techniques.
 
+https://old.reddit.com/r/sports/comments/1lz585z/trump_forces_himself_into_chelseas_trophy_lift/
 
+Trump inserting himself into international event. Zero self-awareness of Reddit community that this is Russian Surkovian *Tony Clifton* behavior, that drawing hate, mocking, insulting and self-harm to USA and Trump himself is part of the Kremlin reality performance / war against reality.
 
 &nbsp;
 
