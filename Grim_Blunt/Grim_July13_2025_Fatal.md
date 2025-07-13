@@ -35,9 +35,14 @@ So the dreams in Palestine is largely *heaven after death*.
 * Carl Sagan in [1995 expounded on the topic of media](https://www.goodreads.com/quotes/11337601-science-is-more-than-a-body-of-knowledge-it-is), confirming Postman. Sagan was an experienced [media creator](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage), school teacher, presenter - much like Postman.    
 * Rick Roderick in 1993 didn't make a reference to Marshall McLuhan and Neil Postman and went an entirely different path to many of the same media reality conclusions.
 
- &nbsp;
+&nbsp;
 
- # Fatal Strategies
+“It is not necessary to conceal anything from a public insensible to contradiction and narcotized by technological diversions.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 (more than decade before 1996 Fox News launched on Putin's Birthday 1996)
+
+&nbsp;
+
+# Fatal Strategies
 
 The grim blunt *Fatal Strategies* is that Jean B was correct. We can't stop this, especially not USA of my lifetime / before climate change 2045 becomes more seriously realized.
 
