@@ -238,3 +238,21 @@ https://old.reddit.com/r/sports/comments/1lz585z/trump_forces_himself_into_chels
 _coolranch 2015-08-29
 
 "God. I hate that he was right: “When you’re star, they just let you do it. You can do anything.”"
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1lz585z/trump_forces_himself_into_chelseas_trophy_lift/n2z5i18/
+
+Kuntheman 2018-03-09
+
+"I can’t stand him but this is so fucking funny
+
+I also don’t buy that he’s unaware. The dude loves a photo op. In my mind he’s 100% forcing himself into the shot"
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1lz585z/trump_forces_himself_into_chelseas_trophy_lift/n2z5cfe/
+
+TheRocksFleshLight 2024-04-13
+
+"No he's definitely aware. He and his goons know people will talk about this and distract from the Epstein pedo shit...its the ol any publicity is good publicity BS"
