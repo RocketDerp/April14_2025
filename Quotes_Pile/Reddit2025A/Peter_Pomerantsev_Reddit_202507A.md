@@ -29,7 +29,7 @@ Why haven't these social media companies (Reddit and Bluesky) pinned educational
 
 &nbsp;
 
-Streisand effect isn't being *avoided*, it is being actively *exploited*. People keep thinking they are *winning* when all this is scriped Surkovian screenplay for social media consumers.
+Streisand effect isn't being *avoided*, it is being actively *exploited*. People keep thinking they are *winning* when all this is scriped Surkovian screenplay for social media consumers. Thinking it is funny, entertaining, amusing, hillarious, ironic - without breaking outside the out-gorup oreintation and citing Neil Postman or Adam Curtis or Peter Pomerantsev. Not connecting it to how Russia has convcinced domestic Russian people to keep him in power for decades and die for a war against Ukraine since February 2014 using these techniques (again,not seeing the NATO forest since November 2012 for the Donald Trump and MAGA July 2025 trees).
 
 &nbsp;
 
@@ -86,3 +86,27 @@ Mike-ggg 2020-04-28
 At some points in the past, Trump could have distanced himself from this mess, but pointing fingers and telling people not to look and just forget about it had created a vortex that he obviously is involved in and will only get stronger and not just fade away. Guilty people and liars give too much detail to try and throw investigators off the track, but that’s what usually tips them off that things don’t match up and for seasoned investigators gives them clues more about what’s not being said than what is. And, because Trump can’t keep his mouth shut or thinks that obvious lies will get him off the hook is the one giving that vortex more strength that will eventually pull him and others down onto it. That’s why he’s panicking. He is strongly implying that he has a lot to hide and can’t retract what’s already known or he’s already said about it. It only raises more questions instead of answers that have any consistency. This could take him down and it won’t be anybody’s fault but his own.
 
 In retrospect, if you have secrets that could destroy you and others very close to you, then getting in the spotlight like running for office instead of staying under the radar isn’t a great idea. Did he honestly think that he could keep everything he’s ever done hidden forever? His ego got him into this and it won’t help him out of it. At some point everything comes out if you’re always wanting to be in the limelight."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1lyuaal/trump_in_full_panic_claims_all_epstein_files_are/n2wklot/
+
+Murky_Relative5693 **05-27-2025** (new account)
+
+"His followers are brainwashed. We’re about to find out which ones are also brain dead"
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1lyuaal/trump_in_full_panic_claims_all_epstein_files_are/n2wqzvv/
+
+hanaboushi **2025-03-06** (new account)
+
+"It's funny in a way. You got people killing themselves working 60 to 70 hours a week to get by, because of the economic model they "support", who come home too exhausted from living their "beliefs".
+
+So they turn on the TV and the rich people tell them what their other beliefs are.
+
+Its pretty ironic, they are so exhausted from the dog shit society they made and defend that it also makes them too tired to think.
+
+Just put on the TV and keep believing the dog shit that downgraded your life into needing that 60 to 70 hours to survive. 
+
+It's self propelling slavery and honestly sad."
