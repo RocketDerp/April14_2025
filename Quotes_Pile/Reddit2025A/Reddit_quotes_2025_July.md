@@ -120,3 +120,17 @@ Front page of Reddit social media on Sunday (Church Day) calling MAGA people "su
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1lyli5v/the_stupidest_subhumans_in_the_world_have_now/
 
+&nbsp;
+
+.
+
+&nbsp;
+
+https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2w7bb6/
+
+JadedAnx **2025-02-25** (new account)
+
+"I really wish we could find out the mods true identities. Pretty sure they have to be high ranking members of GOP or people working directly with Trump. It’s a blatant concerted effort to manipulate the public. The mods over there need to be arrested and sent to prison for life."
+
+
+
