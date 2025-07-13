@@ -190,3 +190,23 @@ https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more
 CletusCanuck 2013-10-27
 
 "Honestly, if you could convince MAGA land that Trump was not only on Epstein's 'client list' but that he raped multiple children on the island, they would defend it and maybe even become pro-\[the act\]"
+
+&nbsp;
+
+https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2vmbng/
+
+guiltyofnothing 2013-08-02
+
+"Funny thing about feeding your followers bullshit — eventually they become addicted to it."
+
+&nbsp;
+
+https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2vs087/
+
+Thesmuz 2012-09-08
+
+"Does anyone else feel like we're being gaslit on a mass scale?
+
+No wonder US has such a high rate of mental illness everyone is either an abuser or a victim. Its like living in one big abusive home :("
+
+
