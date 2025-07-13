@@ -182,3 +182,20 @@ https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychol
 joshul 2008-09-02
 
 "You can use the targeting capabilities of Meta, Google and TikTok to run whatever you want to the specific group of people you want non-stop. Stories of Gaza and Israel to people under 25? Stories of immigrants causing crime to white folks over 55? You can make any specific group of people feel like the world is always ending. The sky is the limit because the platforms are happy to keep collecting your money for these ads, they love it."
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychological_toll_of_the/n2ykxvl/
+
+roguespectre67 2015-09-28
+
+"The first and only time I've ever turned to alcohol to prepare for and cope with adverse circumstances. As much as I didn't want it to happen, the past decade has absolutely absolved me of the delusion that the American public is capable of making rational, intelligent, long-term decisions for the good of the country, and so something deep in my subconscious knew he was going to win. So I went and stocked up with tons of beer, and by the time the polls closed in my state I was the most intoxicated I've ever been, before or since. The first time he won I was panicking. I spent last November laughing, but the kind of laughing Russell Casse does right before he dies in Independence Day."
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychological_toll_of_the/n2y0zqo/
+
+barontaint 2013-11-19
+
+"I knew it was going to be bad, but damn I didn't prepare myself for the speed and efficiency they moved with so little push back, I guess granted there wasn't much one could do individually by design. Not sure what I was expecting after the Supreme Court ruling presidents are exempt from laws. Stocking up on weed and shrooms and fancy booze and cheese, scared they might take away foreign booze and cheese, just hedging my bets."
+
