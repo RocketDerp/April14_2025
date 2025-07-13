@@ -157,3 +157,11 @@ https://old.reddit.com/r/NoShitSherlock/comments/1lyzex6/maga_rips_into_trump_af
 arothmanmusic 2012-12-14
 
 "The funny thing about harping on a conspiracy for political points is that the conspiracy doesn't magicallystop when you're the one in power."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1lyzex6/maga_rips_into_trump_after_claims_obama_and/n2y24tr/
+
+EarEquivalent3929 2021-08-09
+
+"It'd be great if these MAGAs that are suddenly waking up would go through the last 10 years and reevaluate all the claims they believed at face value that  Trump made about Hilary, Obama, Biden, Jan 6, Floyd, caravans, Kamala, etc"
