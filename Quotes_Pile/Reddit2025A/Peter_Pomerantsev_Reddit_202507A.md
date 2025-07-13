@@ -12,7 +12,7 @@ these comments make sense if you have spent since year 2014 ignoring:
 
 &nbsp;
 
-Supposed [super-patriots of the United States of America](https://billmoyers.com/story/trump-the-american-fascist/) don't ever seem to want to stay focused on dicussions related to dates and details of evidence of year 2014 onward measles and anti-vacination and year 2017 QAnon evidence of ties to Russian military social media invasion to manipulate executive function mental of everyday Americans.
+Supposed [super-patriots of the United States of America](https://billmoyers.com/story/trump-the-american-fascist/) don't ever seem to want to stay focused on dicussions related to dates and details of evidence of Putin [year 2014 onward measles and anti-vacination](https://www.bbc.com/news/world-us-canada-45294192) and year 2017 QAnon evidence of ties to Russian military social media invasion to manipulate executive function mental of everyday Americans.
 
 &nbsp;
 
