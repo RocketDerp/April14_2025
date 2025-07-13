@@ -76,3 +76,37 @@ BrainRhythm 2016-09-05
 
 "It's a club they can join. It's isolating to be crazy by yourself, so they focus their crazy on Fox talking points because there's a built-in community who will back them up when others call them out for being crazy."
 
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1lyd9g0/to_give_federal_aid_to_kerr_county/n2t4nef/
+
+derek4reals1 2021-10-17
+
+"The husband of the woman in the video was an antivaxxer and guess what......he died from COVID. So yeah I would agree that they're brainwashed. Todd Snyder, 53, Kerrville, TX, Self-employed, anti-vaxx, dead from COVID."
+
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1lyd9g0/to_give_federal_aid_to_kerr_county/n2tda21/
+
+-113points 2020-07-05
+
+"I think that from some time from now this will be recognized as a form of dementia; that starts with a cognitive dissociation that only gets worse as they develop and reinforce this schizophrenic worldview detached from their reality, that the brain is unable to maintain a consistent model of themselves and the world.
+
+In layman terms, they are growing mad."
+
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1lyd9g0/to_give_federal_aid_to_kerr_county/n2t1lqe/
+
+StonkaDonkDonk 2021-01-27
+
+"Fox News has fucked these people up beyond repair."
+
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1lyd9g0/to_give_federal_aid_to_kerr_county/n2t4kie/
+
+CrAzYmEtAlHeAd1 2012-07-16
+
+"It’s so funny to me to hear how well the propaganda works on some people. Biden was a wet blanket of a president, and yet they talk about him like he was some powerful God sent from the heavens to destroy the earth. People can barely even remember what he did, but yeah Biden was totally the most tyrannical leader we’ve ever had 🙄"
+
