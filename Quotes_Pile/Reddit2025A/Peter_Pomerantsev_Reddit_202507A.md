@@ -199,3 +199,10 @@ barontaint 2013-11-19
 
 "I knew it was going to be bad, but damn I didn't prepare myself for the speed and efficiency they moved with so little push back, I guess granted there wasn't much one could do individually by design. Not sure what I was expecting after the Supreme Court ruling presidents are exempt from laws. Stocking up on weed and shrooms and fancy booze and cheese, scared they might take away foreign booze and cheese, just hedging my bets."
 
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychological_toll_of_the/n2yg1zr/
+
+Gamiac 2010-08-29
+
+"Less that for me and more that I realized that the fundamentalist Christians were *right* about morality. It doesn't matter how morally good, skilled, or smart you are as a person. All that matters is *what you can get away with*. Lie, cheat, steal, do as much evil as you can get away with. It doesn't matter if nobody will punish you. There *is* no moral arc of the universe."
