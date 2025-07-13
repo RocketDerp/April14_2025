@@ -16,7 +16,7 @@ In reference to The Onion magazine / website founded August 29, 1988.
 
 #### Surkovian Onion Breath
 
-Enjoyed and thrilled by the bamboozle and speaking of how great and exciting it is to be able to mock the Kremlin and White House and Rupert Murdoch for being dumb, idiots, stupid when egomania kicks in (the egomania being the onion breath). An Americans everyday person on social media declaring how incredibly stupid idiots demented others are without citing Peter Pomerantsev (or how [entertaining all this is, Neil Postman 1985](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) - written at the time of entertainer Ronald Reagan being POTUS).
+Enjoyed and thrilled by the bamboozle and speaking of how great and exciting it is to be able to mock the Kremlin and White House and Rupert Murdoch for being dumb, idiots, stupid when egomania kicks in (the egomania being the onion breath). An everyday media consumer person on social media declaring how incredibly stupid idiots demented others are without citing Peter Pomerantsev (or how [entertaining all this is, Neil Postman 1985](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) - written at the time of entertainer Ronald Reagan being POTUS).
 
 &nbsp;
 
