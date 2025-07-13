@@ -78,7 +78,9 @@ I've been upset about it since December 2009 and even more so since March 2013 w
 
 The way profesisonal jouralists / reporters / writers / analysis analyzed this. The way social media voters (likes), repeated / shared, reacted to all this. Reality is gone. People in USA are indeed willing to die for hyper reality as Rick Roderick worried about the future in 1993.
 
-Empahsis on him not buying yet into it in 1993 (nor would I have in 1993, Eternal September), his children's time:
+&nbsp;
+
+Emphasis on the skeptical Texan not buying yet into it in 1993 (nor would I have in 1993, Eternal September), his children's time:
 
 "In any case, ah, if Baudrillard is even onto something, what the postmodern trajectory means is that the self is not under siege, it’s lost. It’s just lost. And if that’s true then all of the strategies by which ordinary people try to live decent good lives are lost along with it. **I am not necessarily going to buy that right away, I am really not.** I do think that the new, ah, technologies are going to call forth… I mean this is why the title of this course has been “The Self Under Siege”. If I didn’t think it was **a real, virulent technological siege** and just some thought up philosopher’s dream, which would not have interested me. I mean, I have no interest in that. I mean, what I am interested in is what is changing the lives **of my children and your children** and so on. What will shape culture and… what we used to call society and culture and history. That’s what I am interested in. If it is the end of the world, I want to know, so that my kids and I can enjoy the apocalypse together." - Rick Roderick, 1993
 
