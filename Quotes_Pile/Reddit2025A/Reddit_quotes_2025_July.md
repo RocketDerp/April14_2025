@@ -114,7 +114,9 @@ CrAzYmEtAlHeAd1 2012-07-16
 
 OutGroup: Subhuman OutGroup: Stupid    
 
-Front page of Reddit social media on Sunday (Church Day) calling MAGA people "subhuman". - Very **Nazi values** (that the enemy is non-human, non-person, animals / sub-human) in USA 2025.
+Front page of Reddit social media on Sunday (Church Day) calling MAGA people "subhuman". - Very **Nazi values** (that the enemy is non-human, non-person, animals / sub-human) in USA 2025. This is what Donald Trump / MAGA values are: subhuman / dehumanization, out-group hate, hate motivation. A symbol of self-dehumanization of American We The People.
+
+"The stupidest subhumans in the world have now taken to burning their MAGA hats after realizing that their favourite rapist doesn't care about rape island"
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1lyli5v/the_stupidest_subhumans_in_the_world_have_now/
 
