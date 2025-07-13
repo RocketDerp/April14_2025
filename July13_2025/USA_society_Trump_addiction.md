@@ -31,4 +31,13 @@ That is the crisis we have in July 2025. If Donald Trump is completely removed, 
 
 On the world stage,people are already accustomed to USA films and music / Hollywood culture, video games, etc.And now USA population is entirely addicted to the techniques and styles of Surkovian White House / Donald Trump antics politics. People who hate the USA and want to see wealthy rich nation fail, arrogant fat Americans, are thrilled to watch our nation self-harm with anti-realty fiction bullshit media content addictions.
 
+&nbsp;
+
+#### One Date
+
+Marshall McLuhan and Neil Postman were not yet to the point of Cambridge Analytica and Elon Musk Grok 4 weaponization
+
+https://old.reddit.com/r/interestingasfuck/comments/1lyjipr/woman_arrested_after_texting_a_man_159000_times/
+
+What does this community comments say about Donald Trump MAGA hate, both for and against Trump. And this man who owned the house does not desire the media message obsession, Donald Trump desires hate with and against him.
 
