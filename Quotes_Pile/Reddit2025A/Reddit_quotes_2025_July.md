@@ -110,3 +110,11 @@ CrAzYmEtAlHeAd1 2012-07-16
 
 "It’s so funny to me to hear how well the propaganda works on some people. Biden was a wet blanket of a president, and yet they talk about him like he was some powerful God sent from the heavens to destroy the earth. People can barely even remember what he did, but yeah Biden was totally the most tyrannical leader we’ve ever had 🙄"
 
+&nbsp;
+
+OutGroup: Subhuman OutGroup: Stupid    
+
+Front page of Reddit social media on Sunday (Church Day) calling MAGA people "subhuman". - Very **Nazi values** (that the enemy is non-human, non-person, animals / sub-human) in USA 2025.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1lyli5v/the_stupidest_subhumans_in_the_world_have_now/
+
