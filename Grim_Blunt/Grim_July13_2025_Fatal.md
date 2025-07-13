@@ -2,7 +2,9 @@
 
 The grim reality real of it all.   
 The war against reality is lost.  
-Russia may win or lose against Ukraine, but this went on since Operation Matthew 4:19 was initiated in November 2008, since Surkov went to London for his speech May 1, 2013 - and the Internet Research Agency spooled up in March 2013. The Ukraine wwar of February 2014 onward was active measures.
+Russia may win or lose against Ukraine, but this went on since Operation Matthew 4:19 was initiated in November 2008, since [Surkov went to London for his speech May 1, 2013](https://www.themoscowtimes.com/2013/05/14/after-surkov-a24031) - and the Internet Research Agency spooled up in March 2013. The Ukraine wwar of February 2014 onward was active measures.
+
+&nbsp;
 
 ### Palestine dreams
 
