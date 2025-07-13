@@ -123,3 +123,29 @@ https://old.reddit.com/r/politics/comments/1lywjgl/trump_gets_ratioed_on_truth_s
 costcoikea 05-05-2023
 
 "Insanity and the fact that MAGA Republicans created pizzagate back in 2016 during Trump’s first election cycle as a precursor against the impending backlash from his involvement with the underaged and trafficked. It’s all preemptive and accusations in a mirror."
+
+&nbsp;
+
+Gold_Satisfaction201 10-27-2024 (recent account)
+
+https://old.reddit.com/r/NoShitSherlock/comments/1lyzex6/maga_rips_into_trump_after_claims_obama_and/n2xtw78/
+
+"Wait, so after 10 years of constant lying, we finally discovered a lie they wouldn't go for? Holy shit. Never thought this day would come"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1lyzex6/maga_rips_into_trump_after_claims_obama_and/n2yc8o5/
+
+sunkskunkstunk 2024-06-05
+
+"I find it amazing how so many people keep finding things they think will for sure ruin Trump. The same people, or type of person if too young to remember, who posted constantly about how the Mueller's report was for sure to bring an end to Trump. Or a 100 other things.
+
+All y’all need to get some reality. Nobody is backing out of maga. They might hem and haw a bit, but almost none of them are going to vote democrat no matter what. So they will fall in line soon enough when there is no other option but Trump or a crazy lib."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1lyzex6/maga_rips_into_trump_after_claims_obama_and/n2y32ji/
+
+big_money_p **2025-02-03** (Recent account)
+
+"Funny that this is the thing that is changing their minds. Destroying our economy, waging war against immigrants and minorities, weaponizing the entire justice system and law enforcement agencies, selling out working Americans to fund tax breaks for the rich, abandoning our allies overseas and emboldening our enemies, already being a convicted rapist……but not releasing the list from the guy he had been documented to be close with for over two decades. Fucking clowns."
