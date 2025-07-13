@@ -165,3 +165,19 @@ https://old.reddit.com/r/NoShitSherlock/comments/1lyzex6/maga_rips_into_trump_af
 EarEquivalent3929 2021-08-09
 
 "It'd be great if these MAGAs that are suddenly waking up would go through the last 10 years and reevaluate all the claims they believed at face value that  Trump made about Hilary, Obama, Biden, Jan 6, Floyd, caravans, Kamala, etc"
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychological_toll_of_the/n2y95c6/
+
+Adorable_Raccoon 2018-06-11
+
+"We are living through such intense accelerationism right now (or hypernormalization). I recently listened to a podcast about left shark dancing during the super bowl half time show in 2015. Hearing that it happened in 2015 made my head spin. I couldn't compute that Trump was elected the following year. I feel like I've lived 30 lives in the last 10 years. Sometimes I mistakenly think that there was an extra president in between Obama and Trump because it feels like the change was so extreme."
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychological_toll_of_the/n2y1z6n/
+
+joshul 2008-09-02
+
+"You can use the targeting capabilities of Meta, Google and TikTok to run whatever you want to the specific group of people you want non-stop. Stories of Gaza and Israel to people under 25? Stories of immigrants causing crime to white folks over 55? You can make any specific group of people feel like the world is always ending. The sky is the limit because the platforms are happy to keep collecting your money for these ads, they love it."
