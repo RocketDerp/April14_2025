@@ -32,7 +32,7 @@ So the dreams in Palestine is largely *heaven after death*.
 * Neil Postman 1992 had many great points.  
 * Neil Postman September 1995 was spot on about learning.  
 * Carl Sagan in [January 1994 brought up media](https://www.washingtonpost.com/archive/entertainment/books/1994/01/09/with-science-on-our-side/9e5d2141-9d53-4b4b-aa0f-7a6a0faff845/).  
-* Carl Sagan in [1995 expounded on the topic ofmedia](https://www.goodreads.com/quotes/11337601-science-is-more-than-a-body-of-knowledge-it-is), confirming Postman. Sagan was an experienced media creator, school teacher, presenter - much like Postman.    
+* Carl Sagan in [1995 expounded on the topic of media](https://www.goodreads.com/quotes/11337601-science-is-more-than-a-body-of-knowledge-it-is), confirming Postman. Sagan was an experienced [media creator](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage), school teacher, presenter - much like Postman.    
 * Rick Roderick in 1993 didn't make a reference to Marshall McLuhan and Neil Postman and went an entirely different path to many of the same media reality conclusions.
 
  &nbsp;
