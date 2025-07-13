@@ -222,3 +222,12 @@ https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychol
 Environmental_Pie400 **2025-05-27** (New Account)
 
 "What drained me wasn't the 24/hr news cycle on cable tv/newspapers it was the social media. I couldn't really escape, still cant, without it turning political or seeing constant waves of politics. Reddit was particularly bad because it gave me a false sense of hope in the leadup to the actual election."
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychological_toll_of_the/n2xm106/
+
+ThePotMonster 2013-10-23
+
+"Definitely. And I'd argue that it's not exclusive to 2024. This has long been the case. The 24 hr news cycle has made for endless campaigning and beating stories to death (although some are more valid than others). It's not wonder everything is so gridlocked and partisansed when you have news outlets basically fear mongering and politicians feeding into that. It's like a weird feedback loop that only makes the problems worse."
+
