@@ -6,5 +6,7 @@ Reddit community created title: out-group dementia. No vocabulary of Andrew Post
 
 https://old.reddit.com/r/clevercomebacks/comments/1lz36zs/four_years_of_boring_old_joe_biden_competently/
 
-Call out that Joe Biden is boring, but complete avoidance of Andrew Postman February 2017, Neil Postman 1985.
+Call out that Joe Biden is boring, but complete avoidance of Andrew Postman February 2017, Neil Postman 1985. Zero self-awareness that being angry and hate-filled towards July 2025 sitatuion is itself popular social media / electric news media engagement.
+
+
 
