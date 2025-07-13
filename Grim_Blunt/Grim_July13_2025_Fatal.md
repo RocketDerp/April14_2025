@@ -48,7 +48,9 @@ The grim blunt *Fatal Strategies* is that Jean B was correct. We can't stop this
 
 Americans will die for their fiction. To me, this is about fiction vs. nonfiction, and what has happened in July 2025 alone has shown how addicted social media consumers (electric media users, people who "read the news" and read social media content, which are entertangled).. will die for and harm others for entertainment.
 
-That's why I mentioned Palestine before, Mecca is a Quran theme park as Disney has content theme parks. There is no supernatural. Quran and Mecca are the *newest*, at year 630, of the Levant entertainment *heaven awaits* science fiction storytelling media empires. And Rupert Murdoch was building one close to, that complemented Disney (and George Lucas and Fox / The Simpsons / etc converged on Disney)...
+That's why I mentioned Palestine before, Mecca is a Quran theme park as Disney has content theme parks. There is no supernatural. Quran and Mecca are the *newest*, at year 630, of the Levant entertainment *heaven awaits* science fiction storytelling media empires. And Rupert Murdoch was building one close to, that complemented Disney (and George Lucas and Fox / The Simpsons / etc converged on Disney fiction content theme parks like Mecca)...
+
+&nbsp;
 
 ### Pandemic 2019 not Hypothetical 
 
