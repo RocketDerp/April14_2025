@@ -42,6 +42,30 @@ Why is Jen Sanko's book since March 2016 not constantly asserted by social media
 
 &nbsp;
 
+##### Neil Postman Correct in 1985
+
+I don't believe people who joke and insult and mock are in on this. Again, the Levant religion dynamics of Quran vs. Torah vs. Bible, all three are science fiction, and people insult and mock *the out-group others*, without Neil Postman / Marshal McLuhan / Joseph Campbell / James Joyce level of grasping the crisis.
+
+Inspired comments of this document:
+
+https://old.reddit.com/r/politics/comments/1lymjtz/trumps_bonkers_response_to_texas_flood_tragedy_in/n2v2w61/
+
+"Solution for COVID - Inject bleach into yourself
+
+Solution for wildfires- Sweep the forest floors
+
+Solution for floods - Ring bells
+
+Is there no end to this guys genius?
+
+Nuke the hurricanes"
+
+&nbsp;
+
+These are all *fiction* answers to problems. They are mythological, monomyth, they are the fiction religion is composed of. And you do not see that level of awareness in those joking / insulting / mocking. People are not rescuing the emotinally abused, mentually abused, by status symbols (billionare) Donaald Trump / Rupert Murdoch / etc.
+
+&nbsp;
+
 ##### Bad written
 
 Like all my writing these years, brain damage from information warfare interacting with my autism is extreme and this is incomplete, not edited, unfinished, mistakes, errors.
