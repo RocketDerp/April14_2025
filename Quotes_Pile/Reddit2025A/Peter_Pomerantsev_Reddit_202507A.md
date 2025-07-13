@@ -265,3 +265,11 @@ https://old.reddit.com/r/sports/comments/1lz585z/trump_forces_himself_into_chels
 
 "This is like watching a child at another kids birthday party trying to blow out the candles because they’re selfish and haven’t learned the day isn’t about them. This is who millions voted for. I’ll never understand it."
 
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1lz585z/trump_forces_himself_into_chelseas_trophy_lift/n2z4awy/
+
+JDHURF 2014-01-08
+
+"Someone said somewhere that Trump’s the kind of egomaniac that he needs presents and his own cake at someone else’s birthday."
+
