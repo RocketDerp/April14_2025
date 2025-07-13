@@ -12,3 +12,11 @@ I was burned out by this in 2015, the rise of MAGA and the Internet Research Age
 None of these media addiction problems went away with the November 2020 election loss by Donald Trump. January 6, 2021 build up most people were blind to, in psychological denial of group behavior / cult behavior. Or an attitude of insult and mocking that people are in a cult or under the influence of Fox News - and no sustained serious effort to defend / educate about cult programming as rescue. Jen Senko's [The Brainwashing of My Dad](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad) had been published since March 2016, but people did not rally behind it, did not consider it good enough to repeat and repeat on social media.
 
 All of year 2024 it was obvious things were even worse. That computer media systems had advanced from year 2016 and the now practiced style of mimicking Donald Trump social media interaction was joined by Elon Musk.
+
+&nbsp;
+
+#### Systems, Systemic, Addiction
+
+At heart is people's attraction to the power of social media computer systems to dehumanize and hate upon the out-group. This mockery is not about fixing problems, it is content addiction to the problems. Using government systems and processes to hate and dehumanize the out-groups is core to MAGA values and attraction. And Fox News is a weaponzied out-group hate televagelism system.
+
+
