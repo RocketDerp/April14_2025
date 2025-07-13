@@ -29,7 +29,7 @@ Why haven't these social media companies (Reddit and Bluesky) pinned educational
 
 &nbsp;
 
-Streisand effect isn't being *avoided*, it is being actively *exploited*. People keep thinking they are *winning* when all this is scriped Surkovian screenplay for social media consumers. Thinking it is funny, entertaining, amusing, hillarious, ironic - without breaking outside the out-gorup oreintation and citing Neil Postman or Adam Curtis or Peter Pomerantsev. Not connecting it to how Russia has convcinced domestic Russian people to keep him in power for decades and die for a war against Ukraine since February 2014 using these techniques (again,not seeing the NATO forest since November 2012 for the Donald Trump and MAGA July 2025 trees).
+Streisand effect isn't being *avoided*, it is being actively *exploited*. People keep thinking they are *winning* when all this is scriped Surkovian screenplay for social media consumers. Thinking it is funny, entertaining, amusing, hillarious, ironic - without breaking outside the out-gorup oreintation and citing Neil Postman or Adam Curtis or Peter Pomerantsev. Not connecting it to how Russia has convcinced domestic Russian people to keep Putin in power for decades and die for a war against Ukraine since February 2014 using these manipulation techniques (again,social media users not seeing the NATO forest since November 2012 for the Donald Trump and MAGA July 2025 trees).
 
 &nbsp;
 
