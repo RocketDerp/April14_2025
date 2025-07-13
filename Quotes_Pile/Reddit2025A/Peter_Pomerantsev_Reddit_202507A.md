@@ -214,3 +214,11 @@ https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychol
 hemlock_hangover 2013-03-02
 
 "I'd argue that the problem wasn't "the election" but the coverage itself, and the entire relationship between news/media outlets (including "the good ones") and an audience whose attention, interest, and engagement is profitable for those outlets and that industry."
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychological_toll_of_the/n2xlv0a/
+
+Environmental_Pie400 **2025-05-27** (New Account)
+
+"What drained me wasn't the 24/hr news cycle on cable tv/newspapers it was the social media. I couldn't really escape, still cant, without it turning political or seeing constant waves of politics. Reddit was particularly bad because it gave me a false sense of hope in the leadup to the actual election."
