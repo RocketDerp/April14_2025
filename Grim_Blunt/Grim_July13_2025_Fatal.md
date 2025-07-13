@@ -1,4 +1,4 @@
-# Grim Blunt July 2025
+# Grim Blunt July 13, 2025
 
 The grim reality real of it all.   
 The war against reality is lost.  
