@@ -159,6 +159,8 @@ moldivore 2018-07-27
 
 "I actually wonder if the Russian propaganda machine isn't in full-on glaze Trump mode anymore. I know that Putin is upset with Trump because they did stop the weapon shipments and then they got them back going again. Trump has been taking a harder line on Putin publicly. Not giving these thoughts a full-throated endorsement because who really knows what the fuck is going on. I do know I haven't seen the trumpers break rank this definitively since this whole thing started."
 
+&nbsp;
+
 https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2w4e9o/
 
 stevez_86 2018-09-13
@@ -169,3 +171,22 @@ Just watch them when someone asks if Trump should have said whatever offensive r
 
 And their individual ego has been surrendered to Trump's. They put HIS NAME on all THEIR property. My dad didn't give me much masculine insight. But he said that doing that is basically saying you are his slave and is the opposite of American Masculinity."
 
+&nbsp;
+
+https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2w8yo7/
+
+typhoidtimmy 2011-08-27
+
+"Happened with Nixon. My pop said hardline conservative types denied violently supporting him (and yea they did - they literally waded into anti Nixon protests and beat the shit outta people) as soon as he left in disgrace.
+
+Gave em a year and they denied ever supporting him.
+
+We will get the same for Trump. 10 years from now, we will get sub reddits of people appalled finding a bunch of Trump shit up in the dead parents attic. It will be like finding KKK shit (and like that, more than a few closet shitbags will have it in a place of honor like the bunch of hicks they are)"
+
+&nbsp;
+
+https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2vta1m/
+
+CletusCanuck 2013-10-27
+
+"Honestly, if you could convince MAGA land that Trump was not only on Epstein's 'client list' but that he raped multiple children on the island, they would defend it and maybe even become pro-\[the act\]"
