@@ -76,6 +76,18 @@ That is the crisis, people don't want to address this with Neil Postman's 1985 a
 
 &nbsp;
 
+#### July 13, 2025
+
+https://www.washingtonpost.com/politics/2025/07/13/trump-butler-shooting-religion/
+
+"How the Trump shooting supercharged beliefs in a divine right of MAGA"
+
+How the gun assasination attempt on Donald Trump a year ago, shortly after the introduction of the $59.99 Donald Trump Bible, supercharged divine right to those who believe and do not grasp religion stories are science fiction (mythology).
+
+This is exactly the problems people are not rescuing citizens from, emotonal rescue, intellectual rescue. Even if Donald Trump dies from a travel accident or heart attack and is no longer POTUS, dead people does not stop religion science fiction followers (Mohammad and Jesus are both long dead for thousands of years, but the crisis of people needing rescued from emotional fiction storytelling, intellctual rescue still persists. See Also L Ron Hubbard and Scientology).
+
+&nbsp;
+
 ##### Bad written
 
 Like all my writing these years, brain damage from information warfare interacting with my autism is extreme and this is incomplete, not edited, unfinished, mistakes, errors.
