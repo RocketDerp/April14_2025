@@ -85,6 +85,7 @@ I've been upset about it since December 2009 and even more so since March 2013 w
 1. June 22, 2025 "Operation Midnight Hammer" https://en.wikipedia.org/wiki/United_States_strikes_on_Iranian_nuclear_sites
 2. July 4, 2025 Camp Mysic / Texas Hill Country flood (I lived in Canyon Lake, Texas and RV traveled full time, know the area extensively).
 3. July 6, 2025 FBI memo, the social media society behavior in response to the [FBI topic: Jeffrey Epstein blackmailed powerful figures, kept a "client list"](https://www.axios.com/2025/07/07/jeffrey-epstein-suicide-client-list-trump-administration)
+4. Julu 13, 2025 - science analysis. ["research shows the psychological toll of the 2024 presidential election" by Eric W. Dolan](https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychological_toll_of_the/)
 
 The way profesisonal jouralists / reporters / writers / analysis analyzed this. The way social media voters (likes), repeated / shared, reacted to all this. Reality is gone. People in USA are indeed willing to die for hyper reality as Rick Roderick worried about the future in 1993.
 
