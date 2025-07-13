@@ -51,7 +51,7 @@ The [August 24, 2018 Johns Hopkins University and George Washington University](
 
 ### October 7 2023 Terrorism not Hypothetical
 
-An innteligence faiure on the scale of September 11, 2001 was not hypothetical, it really happened on Putin's birthday in year 2023.
+An inteligence faiure on the scale of September 11, 2001 was not hypothetical, it really happened on Putin's birthday in year 2023.
 
 &nbsp;
 
@@ -64,4 +64,4 @@ https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 &nbsp;
 
-I've been upset about it since December 2009 and even more so since March 2013 when Reddit started to change and by 2015 I was fully alarmed that it was a huge deal (and I contacted Samantha at the Pentagon).
+I've been upset about it since December 2009 and even more so since March 2013 when Reddit started to change and by 2015 I was fully alarmed that it was a huge deal (and I contacted Samantha at the Pentagon; Monday, August 17, 2015 afternoon).
