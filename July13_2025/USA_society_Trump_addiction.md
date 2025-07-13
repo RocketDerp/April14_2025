@@ -3,7 +3,7 @@
 https://bsky.app/profile/roundsparrow.bsky.social/post/3ltspw5o4ik2i   
 https://autistics.life/@RoundSparrow/114843325564597748
 
-The hole USA society has dug is so deep, the media content addiction people have to antics politics, shock Donald Trump behavior, insulting and hate inspired by Donald Trump is over 10 years. Even if Donald Trump is removed, people are so addicted to mocking and hate, setting direction will be incredibly painful because the core issue of addiction to mocking and hate is unlikely to be addressed. So much resentment, bewilderment, confusion, misunderstandings from the 10 years of nonstop contradictions. This is a new situation, only possible with advanced media systems.
+The hole USA society has dug is so deep, the media content addiction people have to antics politics, shock Donald Trump behavior, insulting and hate inspired by Donald Trump is over 10 years. Even if Donald Trump is removed, people are so addicted to mocking and hate, setting direction will be incredibly painful because the core issue of addiction to mocking and hate is unlikely to be addressed. So much resentment, bewilderment, confusion, misunderstandings from the 10+ years of [nonstop contradictions](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). This is a new situation, only possible with advanced media systems.
 
 Saturday July 12, 2025 night
 
