@@ -149,3 +149,11 @@ https://old.reddit.com/r/NoShitSherlock/comments/1lyzex6/maga_rips_into_trump_af
 big_money_p **2025-02-03** (Recent account)
 
 "Funny that this is the thing that is changing their minds. Destroying our economy, waging war against immigrants and minorities, weaponizing the entire justice system and law enforcement agencies, selling out working Americans to fund tax breaks for the rich, abandoning our allies overseas and emboldening our enemies, already being a convicted rapist……but not releasing the list from the guy he had been documented to be close with for over two decades. Fucking clowns."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1lyzex6/maga_rips_into_trump_after_claims_obama_and/n2xzvk6/
+
+arothmanmusic 2012-12-14
+
+"The funny thing about harping on a conspiracy for political points is that the conspiracy doesn't magicallystop when you're the one in power."
