@@ -7,7 +7,7 @@ these comments make sense if you have spent since year 2014 ignoring:
 1. Peter Pomerantsev [2014: "Menace of Unreality", "Information Warfare"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)
 2. Adam Curtis [2014: "Contradictory Vaudeville"](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
 3. Anything written about techniques of media enagement from goverment to people around Vladislav Surkov
-4. Cambridge Analytica - [military psycological doctorates, organied manipulation organization](https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy) - and that there could possibly be permananent aftermath and side-effects in the general population. Further, [that Russia worked with Cambridge Analytica since November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
+4. Cambridge Analytica - [military psycological doctorates, organized manipulation firm](https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy) - and that there could possibly be permananent aftermath and side-effects in the general population. Further, [that Russia worked with Cambridge Analytica since November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
 
 &nbsp;
 
