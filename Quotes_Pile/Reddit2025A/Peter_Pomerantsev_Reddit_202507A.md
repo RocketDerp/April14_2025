@@ -29,7 +29,7 @@ Why haven't these social media companies (Reddit and Bluesky) pinned educational
 
 &nbsp;
 
-Streisand effect isn't being *avoided*, it is being actively *exploited*.
+Streisand effect isn't being *avoided*, it is being actively *exploited*. People keep thinking they are *winning* when all this is scriped Surkovian screenplay for social media consumers.
 
 &nbsp;
 
