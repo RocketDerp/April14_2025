@@ -19,9 +19,20 @@ In reference to The Onion magazine / website founded August 29, 1988.
 
 Enjoyed and thrilled by the bamboozle and speaking of how great and exciting it is to be able to mock the Kremlin and White House and Rupert Murdoch for being dumb, idiots, stupid when egomania kicks in (the egomania being the onion breath). An everyday media consumer person on social media declaring how incredibly stupid idiots demented others are without citing Peter Pomerantsev (or how [entertaining all this is, Neil Postman 1985](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) - written at the time of entertainer Ronald Reagan being POTUS).
 
+Thinking that **ONLY MAGA**, only the Republicans, ONLY the White House has been manipulated by the Internet Research Agency and Cambridge Analytica and social media organizations profiting off concealing Peter Pomerantsev's published writing since year 2014. Why haven't these social media companies (Reddit and Bluesky) pinned educationalposts to people and informed their users to see the *forest for the trees* of how:
+
+1. "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - [Adam Cutis, year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+
+2. "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd." - [Peter Pomerantsev, 2014](https://www.goodreads.com/author/quotes/8035579.Peter_Pomerantsev)
+
 &nbsp;
 
-====================================
+Streisand effect isn't being *avoided*, it is being actively *exploited*.
+
+&nbsp;
+
+======================
+======================
 
 &nbsp;
 
@@ -52,3 +63,12 @@ Shamanized 2014-01-09
 
 "This whole journey has me constantly being amazed at how dumb people are. Like fine, get duped by a conman—shame on him—but THIS conman? And for this long?? Really???"
 
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1lyuaal/trump_in_full_panic_claims_all_epstein_files_are/n2wnlni/
+
+AdEmotional9991 2022-01-25
+
+"It's hilarious how differently Bidens have treated Hunter's laptop thing.   
+"Yeah, he's an addict, here's some pictures of his massive dong and some hookers".    
+Meanwhile Trump is determined to have the republican party implode due to the Streisand effect."
