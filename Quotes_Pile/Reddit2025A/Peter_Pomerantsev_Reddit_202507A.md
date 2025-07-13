@@ -46,5 +46,9 @@ MamiTrueLove 2020-11-09
 
 &nbsp;
 
+https://old.reddit.com/r/goodnews/comments/1lyuaal/trump_in_full_panic_claims_all_epstein_files_are/n2wn1hr/
+
+Shamanized 2014-01-09
+
 "This whole journey has me constantly being amazed at how dumb people are. Like fine, get duped by a conman—shame on him—but THIS conman? And for this long?? Really???"
 
