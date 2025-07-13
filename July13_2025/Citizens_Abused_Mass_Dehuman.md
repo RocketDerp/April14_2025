@@ -66,6 +66,16 @@ These are all *fiction* answers to problems. They are mythological, monomyth, th
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1lymjtz/trumps_bonkers_response_to_texas_flood_tragedy_in/n2v3m3d/
+
+"For the life of me, I will never fucking understand how some people swear he’s a genius."
+
+&nbsp;
+
+That is the crisis, people don't want to address this with Neil Postman's 1985 and the fiction faith of religions as science fiction, nor invoke [The Brainwashing of My Dad is a 2015 American documentary film directed by Jen Senko](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad) in year 2025.
+
+&nbsp;
+
 ##### Bad written
 
 Like all my writing these years, brain damage from information warfare interacting with my autism is extreme and this is incomplete, not edited, unfinished, mistakes, errors.
