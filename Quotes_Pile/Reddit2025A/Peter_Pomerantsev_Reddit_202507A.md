@@ -8,6 +8,7 @@ these comments make sense if you have spent since year 2014 ignoring:
 2. Adam Curtis [2014: "Contradictory Vaudeville"](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
 3. Anything written about techniques of media enagement from goverment to people around Vladislav Surkov
 4. Cambridge Analytica - [military psycological doctorates, organized manipulation firm](https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy) - and that there could possibly be permananent aftermath and side-effects in the general population. Further, [that Russia worked with Cambridge Analytica since November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
+5. Pizzagate, QAnon topics - without zero reference to ["War Against Reality" information warfare topics from **year 2014** Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). - Also avoiding any of the public notices of **factual evidence* that [QAnon was promoted by Russia](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html).
 
 &nbsp;
 
@@ -110,3 +111,11 @@ Its pretty ironic, they are so exhausted from the dog shit society they made and
 Just put on the TV and keep believing the dog shit that downgraded your life into needing that 60 to 70 hours to survive. 
 
 It's self propelling slavery and honestly sad."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1lywjgl/trump_gets_ratioed_on_truth_social_for_first_time/n2xcnv3/
+
+costcoikea 05-05-2023
+
+"Insanity and the fact that MAGA Republicans created pizzagate back in 2016 during Trump’s first election cycle as a precursor against the impending backlash from his involvement with the underaged and trafficked. It’s all preemptive and accusations in a mirror."
