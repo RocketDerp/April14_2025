@@ -209,4 +209,17 @@ Thesmuz 2012-09-08
 
 No wonder US has such a high rate of mental illness everyone is either an abuser or a victim. Its like living in one big abusive home :("
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1lysx0y/this_is_the_man_who_has_been_nominated_as/n2w9gmj/
+
+jpsreddit85 2017-08-21
+
+"Maybe the whole administration is just taking satire too far and they can't stop themselves."
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3ltuaizumzs2e   
+https://autistics.life/@RoundSparrow/114846760735678831   
+
+&nbsp;
+
 
