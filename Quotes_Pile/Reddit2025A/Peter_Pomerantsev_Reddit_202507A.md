@@ -206,3 +206,11 @@ https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychol
 Gamiac 2010-08-29
 
 "Less that for me and more that I realized that the fundamentalist Christians were *right* about morality. It doesn't matter how morally good, skilled, or smart you are as a person. All that matters is *what you can get away with*. Lie, cheat, steal, do as much evil as you can get away with. It doesn't matter if nobody will punish you. There *is* no moral arc of the universe."
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1lyxnnl/new_research_shows_the_psychological_toll_of_the/n2xf4co/
+
+hemlock_hangover 2013-03-02
+
+"I'd argue that the problem wasn't "the election" but the coverage itself, and the entire relationship between news/media outlets (including "the good ones") and an audience whose attention, interest, and engagement is profitable for those outlets and that industry."
