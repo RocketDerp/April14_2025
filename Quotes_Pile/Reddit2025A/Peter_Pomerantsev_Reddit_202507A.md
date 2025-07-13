@@ -256,3 +256,12 @@ https://old.reddit.com/r/sports/comments/1lz585z/trump_forces_himself_into_chels
 TheRocksFleshLight 2024-04-13
 
 "No he's definitely aware. He and his goons know people will talk about this and distract from the Epstein pedo shit...its the ol any publicity is good publicity BS"
+
+&nbsp;
+
+Ven117 2014-01-05
+
+https://old.reddit.com/r/sports/comments/1lz585z/trump_forces_himself_into_chelseas_trophy_lift/n2z3r30/
+
+"This is like watching a child at another kids birthday party trying to blow out the candles because they’re selfish and haven’t learned the day isn’t about them. This is who millions voted for. I’ll never understand it."
+
