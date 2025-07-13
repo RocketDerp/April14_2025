@@ -133,4 +133,28 @@ JadedAnx **2025-02-25** (new account)
 "I really wish we could find out the mods true identities. Pretty sure they have to be high ranking members of GOP or people working directly with Trump. It’s a blatant concerted effort to manipulate the public. The mods over there need to be arrested and sent to prison for life."
 
 
+&nbsp;
 
+antilittlepink **2025-01-30** (new account*
+
+https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2vlj1p/
+
+"MAGA is a movement of imbeciles, traitors and pedos by the looks of it, would you expect anything different?"
+
+&nbsp;
+
+https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2vr754/
+
+vale_fallacia 2018-09-26
+
+"Exactly. 72 hours of griping, then whatever russian troll farms find that distracts them will have them in lockstep again.
+
+Those people have been led by the nose around and around the paddock. They're not going to suddenly realise they're cattle."
+
+&nbsp;
+
+https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2vvmua/
+
+moldivore 2018-07-27
+
+"I actually wonder if the Russian propaganda machine isn't in full-on glaze Trump mode anymore. I know that Putin is upset with Trump because they did stop the weapon shipments and then they got them back going again. Trump has been taking a harder line on Putin publicly. Not giving these thoughts a full-throated endorsement because who really knows what the fuck is going on. I do know I haven't seen the trumpers break rank this definitively since this whole thing started."
