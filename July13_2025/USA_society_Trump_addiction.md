@@ -9,8 +9,8 @@ Saturday July 12, 2025 night
 
 I was burned out by this in 2015, the rise of MAGA and the Internet Research Agency delivering their payloads since March 2013. I telephoned the Pentagon in 2015 before the IRA and Cambridge Analytica got widespread attention. It took two years for people to become addicted to the style of insult, dismisall, mocking (even reading it from others, strictly passive particiation as a spectator was addicting people, attracting audiences).
 
-None of these media addiction problems went away with the November 2020 election loss by Donald Trump. January 6, 2021 buidl up most people were blnd to, in pschlogical denial of group behavior / cult behavior. Or an attitude of insult and mocking that people are in a cult or under the influence of Fox News - and no sustained serious effort to defend / educate about cult programming as rescue.
+None of these media addiction problems went away with the November 2020 election loss by Donald Trump. January 6, 2021 buidl up most people were blnd to, in pschlogical denial of group behavior / cult behavior. Or an attitude of insult and mocking that people are in a cult or under the influence of Fox News - and no sustained serious effort to defend / educate about cult programming as rescue. Jen Senko's [The Brainwashing of My Dad](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad) had been avialble since March 2016, but people did not rally behind it, did not consider it good enough to repeat and repeat on social media.
 
-All of year 2024 was obvious things had gotten even worse. That computer media systems had advanced from year 2016 and the now practiced style of mimicing Donald Trump social media interaction was joined by Elon Musk.
+All of year 2024 it was obvious things were even worse. That computer media systems had advanced from year 2016 and the now practiced style of mimicking Donald Trump social media interaction was joined by Elon Musk.
 
 
