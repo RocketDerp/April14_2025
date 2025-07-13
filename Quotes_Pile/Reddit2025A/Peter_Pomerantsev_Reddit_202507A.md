@@ -231,3 +231,10 @@ ThePotMonster 2013-10-23
 
 "Definitely. And I'd argue that it's not exclusive to 2024. This has long been the case. The 24 hr news cycle has made for endless campaigning and beating stories to death (although some are more valid than others). It's not wonder everything is so gridlocked and partisansed when you have news outlets basically fear mongering and politicians feeding into that. It's like a weird feedback loop that only makes the problems worse."
 
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1lz585z/trump_forces_himself_into_chelseas_trophy_lift/n2z3bvt/
+
+_coolranch 2015-08-29
+
+"God. I hate that he was right: “When you’re star, they just let you do it. You can do anything.”"
