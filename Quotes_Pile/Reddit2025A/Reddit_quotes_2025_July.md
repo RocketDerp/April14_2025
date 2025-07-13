@@ -135,7 +135,7 @@ JadedAnx **2025-02-25** (new account)
 
 &nbsp;
 
-antilittlepink **2025-01-30** (new account*
+antilittlepink **2025-01-30** (new account)
 
 https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2vlj1p/
 
@@ -158,3 +158,14 @@ https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more
 moldivore 2018-07-27
 
 "I actually wonder if the Russian propaganda machine isn't in full-on glaze Trump mode anymore. I know that Putin is upset with Trump because they did stop the weapon shipments and then they got them back going again. Trump has been taking a harder line on Putin publicly. Not giving these thoughts a full-throated endorsement because who really knows what the fuck is going on. I do know I haven't seen the trumpers break rank this definitively since this whole thing started."
+
+https://old.reddit.com/r/SubredditDrama/comments/1lypq1t/rtrump_mods_say_no_more_epstein_bs_users_are_not/n2w4e9o/
+
+stevez_86 2018-09-13
+
+"Trump tickled their Id and corrupted their ego .
+
+Just watch them when someone asks if Trump should have said whatever offensive remark he made and you can see them go into introspection before basically saying, 'No I shouldn't say that, I mean he shouldn't say that.'
+
+And their individual ego has been surrendered to Trump's. They put HIS NAME on all THEIR property. My dad didn't give me much masculine insight. But he said that doing that is basically saying you are his slave and is the opposite of American Masculinity."
+
