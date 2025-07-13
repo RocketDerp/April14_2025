@@ -7,7 +7,7 @@ these comments make sense if you have spent since year 2014 ignoring:
 1. Peter Pomerantsev [2014: "Menace of Unreality", "Information Warfare"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)
 2. Adam Curtis [2014: "Contradictory Vaudeville"](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
 3. Anything written about techniques of media enagement from goverment to people around Vladislav Surkov
-4. Cambridge Analytica - military psycological doctorates, organied manipulation organization - and that there could possibly be permananent aftermath and side-effects in the general population. Further, [that Russia worked with Cambridge Analytica since November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
+4. Cambridge Analytica - [military psycological doctorates, organied manipulation organization](https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy) - and that there could possibly be permananent aftermath and side-effects in the general population. Further, [that Russia worked with Cambridge Analytica since November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
 
 &nbsp;
 
@@ -74,3 +74,15 @@ AdEmotional9991 2022-01-25
 "It's hilarious how differently Bidens have treated Hunter's laptop thing.   
 "Yeah, he's an addict, here's some pictures of his massive dong and some hookers".    
 Meanwhile Trump is determined to have the republican party implode due to the Streisand effect."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1lyuaal/trump_in_full_panic_claims_all_epstein_files_are/n2wtzsf/
+
+Mike-ggg 2020-04-28
+
+"Epstein predates Obama by decades and the accusations of the victims had nothing to do with him or Biden. Blaming your predecessors for what you did is a cheap shot and cheap shots are Trump’s main way to avoid responsibility for things that have nothing to do with them. Look at the timeframes and the facts and that finger pointing often doesn’t match either of them.
+
+At some points in the past, Trump could have distanced himself from this mess, but pointing fingers and telling people not to look and just forget about it had created a vortex that he obviously is involved in and will only get stronger and not just fade away. Guilty people and liars give too much detail to try and throw investigators off the track, but that’s what usually tips them off that things don’t match up and for seasoned investigators gives them clues more about what’s not being said than what is. And, because Trump can’t keep his mouth shut or thinks that obvious lies will get him off the hook is the one giving that vortex more strength that will eventually pull him and others down onto it. That’s why he’s panicking. He is strongly implying that he has a lot to hide and can’t retract what’s already known or he’s already said about it. It only raises more questions instead of answers that have any consistency. This could take him down and it won’t be anybody’s fault but his own.
+
+In retrospect, if you have secrets that could destroy you and others very close to you, then getting in the spotlight like running for office instead of staying under the radar isn’t a great idea. Did he honestly think that he could keep everything he’s ever done hidden forever? His ego got him into this and it won’t help him out of it. At some point everything comes out if you’re always wanting to be in the limelight."
