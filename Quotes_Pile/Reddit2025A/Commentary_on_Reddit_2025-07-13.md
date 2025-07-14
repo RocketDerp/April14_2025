@@ -24,7 +24,7 @@ Trump inserting himself into international event. Zero self-awareness of Reddit 
 
 https://old.reddit.com/r/MurderedByWords/comments/1lzjf08/pam_should_just_go_dark_at_this_point/
 
-Mock Mock Mockery. People on Reddit do notassert that this is year 2012 Surkovian tehcniques of Russia. Say something absurd / surreal / against reality at the right timing of the topic, get the population (including those too young or otherwise not legal to vote) to react back. Reddit community is *eating the Surkoviain Onions* of this technique. "Stephen Miller's Cuck Chair" in the screenshot reaction comment. Sexual fetish for July 14 Epstine rich powerful wealthy lords cultivating in the social media consumers society.
+Mock Mock Mockery. People on Reddit do not assert that this White House content is year 2012 Surkovian techniques of Russia. Kremlin / White House / Billionaires something absurd / surreal / against reality at the right timing of the topic, get the population (including those too young or otherwise not legal to vote) to react back. Reddit community is *eating the Surkoviain Onions* of this technique. "Stephen Miller's Cuck Chair" in the screenshot reaction comment. Sexual fetish for July 14 Epstein rich powerful wealthy lords cultivating in the social media consumers society.
 
 &nbsp;
 
@@ -37,4 +37,3 @@ Context from the content of this parallel document may help:
 https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Peter_Pomerantsev_Reddit_202507A.md
 
 alternate link: [Peter_Pomerantsev_Reddit_202507A](Peter_Pomerantsev_Reddit_202507A.md)
-
