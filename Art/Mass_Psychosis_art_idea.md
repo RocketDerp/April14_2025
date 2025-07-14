@@ -67,6 +67,8 @@ To listen to what Carl Jung had to say, why do we not have mob mentality fire dr
 Scientology   
 The Rise of Donald Trump    
 Billionaires Rupert Murodch world influence    
+Diary of Anne Frank family experience   
+Malala family experience   
 
 &nbsp;
 
