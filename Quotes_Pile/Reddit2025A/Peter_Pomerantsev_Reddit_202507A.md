@@ -297,3 +297,10 @@ https://old.reddit.com/r/AskReddit/comments/1lyze56/what_do_you_think_of_donld_t
 billypaul 2013-05-27
 
 "The shiny object has served its purpose. Today, the top story is whether it's okay to revoke citizenship of native-born American celebrities, which is a perfect distraction from the latest round of "because I'm angry" tariffs and those images of shackled children being herded off to concentration camps."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1lzurxp/newsom_71_of_the_us_gdp_comes_from_blue_counties/n34s7of/
+
+Sniflix 2019-10-08
+"California needs to prepare for the coming full military invasion. These interviews are a waste of time. Legislation is a waste of time. CA must ally with America's former friends and plan for the coming attack."
