@@ -10,6 +10,7 @@ these comments make sense if you have spent since year 2014 ignoring:
 4. Cambridge Analytica - [military psycological doctorates, organized manipulation firm](https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy) - and that there could possibly be permananent aftermath and side-effects in the general population. Further, [that Russia worked with Cambridge Analytica since November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
 5. Pizzagate, QAnon topics - without reference to ["War Against Reality" information warfare topics from **year 2014** Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). - Also avoiding any of the public notices of **factual evidence* that [QAnon was promoted by Russia since year 2017](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html) - and that [QAnon symbols were promenent at January 6, 2021 insurection](https://time.com/5928627/symbols-capitol/).
 6. Thinking it is only *paid advertisement with money to follow* when the Internet Research Agency clearly is described as using [*free* upvoting / likes / comments back since year 2014](https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/).... which is *validated* by discovery of free commenting messages (not paid advertisement) by [scrunity from George Washington Uniersity and Johns Hopkins University going back to year 2014](https://www.theguardian.com/society/2018/aug/23/russian-trolls-spread-vaccine-misinformation-on-twitter).
+7. Constant *distraction theory*, *shiny object* theory - without being able to cite Neil Postman / Andrew Postman, Peter P that this is entertainment. This isn't distraction, this is engagement, Donald Trump is a social media / mainstream media content creator of fiction to wreck reality. This is the War Against Reality center stange, the "distraction" is authentic science reality, nonfiction. Just like Mecca and Quran, it is a religion, people aren't *distracted* by the religion, it is their choice of fiction (religion) over reality. This is a much deeper and more complex problem of humanity going back thousands of years. This is the "old world order" of mythology, not the science perspective of 1776 Great Seal of the United States of American symbolism "new world order".
 
 &nbsp;
 
@@ -288,3 +289,11 @@ https://old.reddit.com/r/AskReddit/comments/1lyze56/what_do_you_think_of_donld_t
 jpainphx 2018-06-18
 
 "I would say "people" rather than "conservatives". I know too many people who went from being a non-conservative straight to MAGA. It's a down right shame how stupid/nieve the general public is."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1lyze56/what_do_you_think_of_donld_trump_backtracking_on/n2y2chy/
+
+billypaul 2013-05-27
+
+"The shiny object has served its purpose. Today, the top story is whether it's okay to revoke citizenship of native-born American celebrities, which is a perfect distraction from the latest round of "because I'm angry" tariffs and those images of shackled children being herded off to concentration camps."
