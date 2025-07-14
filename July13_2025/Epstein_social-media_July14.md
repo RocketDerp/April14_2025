@@ -65,5 +65,9 @@ That is the emotional drive that seems people show the most care and concern abo
 
 #### Impossible to Describe
 
-The sewer of shit, the fetish USA population of social media users have demonstratein July 2025 over rich men is impossible to describe. The fetsh people have to bow down to a King of 79 year old man for sex topics and Drake content in year 2024 can't be described. What a fucked-up population of addicts to rich men worship,rich "Daddy" 79 year old fetishment.
+The sewer of shit, the fetish USA population of social media users have demonstratein July 2025 over rich men is impossible to describe. The fetsh people have to bow down to a King of 79 year old man for sex topics and Drake content in year 2024 can't be described. What a fucked-up population of addicts to rich men worship, rich "Daddy" 79 year old fetishment.
+
+Children have been given Donald Trump as a role model of behavior and leadership since year 2014. For over a decade, children age 8 and older have been told that Donald Trump is the aspiration of human achievement and goodness. What a fucked-up set of social media users who flock to shit and liars that make up the United States of America. This has been Hell itself since year 2015. And it gets worse every single day, every single week, every single month, every single year. Social media users, computer users, in USA have raised the children of society to worship Donald Trump values and thinking.
+
+This shit is so bad, impossible to describe the ocean of toxic shit the United States of America social media nation has become.
 
