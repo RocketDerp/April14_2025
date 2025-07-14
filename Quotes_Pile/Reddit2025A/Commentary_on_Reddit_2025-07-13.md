@@ -18,6 +18,16 @@ Trump inserting himself into international event. Zero self-awareness of Reddit 
 
 &nbsp;
 
+# Monday July 14, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1lzjf08/pam_should_just_go_dark_at_this_point/
+
+Mock Mock Mockery. People on Reddit do notassert that this is year 2012 Surkovian tehcniques of Russia. Say something absurd / surreal / against reality at the right timing of the topic, get the population (including those too young or otherwise not legal to vote) to react back. Reddit community is *eating the Surkoviain Onions* of this technique. "Stephen Miller's Cuck Chair" in the screenshot reaction comment. Sexual fetish for July 14 Epstine rich powerful wealthy lords cultivating in the social media consumers society.
+
+&nbsp;
+
 . 
 
 ### Notes
