@@ -2,9 +2,11 @@
 
 July 14, 2025 Epstein social media frenzy
 
-Every social media platform is in a frezy since July 6, 2025 - as I write this July 14, 2025 - it has been non-stop.
+Every social media platform is in a frenzy [since July 6, 2025](https://www.axios.com/2025/07/07/jeffrey-epstein-suicide-client-list-trump-administration) - as I write this July 14, 2025 - it has been non-stop social media orgy of lust for Epstein content.
 
 The central sustained focused desires of the social media society shows all signs to be sexual fetishment of wealthy and media famous people. This seems to be the deepest most emotional motivation that USA people have in why they have abandoned democracy and goodness itself. The attraction to pimps of famous rich men sexual domination.
+
+Promise made in early September 2024 seems to have been the one promsie that Donald Trump made that trutly motivates and concerns social media society. The lust for pinping details of rich / wealthy men's sexual fetishment content.
 
 &nbsp;
 
