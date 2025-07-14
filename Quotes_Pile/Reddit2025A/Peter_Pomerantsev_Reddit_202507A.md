@@ -12,6 +12,7 @@ these comments make sense if you have spent since year 2014 ignoring:
 6. Thinking it is only *paid advertisement with money to follow* when the Internet Research Agency clearly is described as using [*free* upvoting / likes / comments back since year 2014](https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/).... which is *validated* by discovery of free commenting messages (not paid advertisement) by [scrunity from George Washington Uniersity and Johns Hopkins University going back to year 2014](https://www.theguardian.com/society/2018/aug/23/russian-trolls-spread-vaccine-misinformation-on-twitter).
 7. Constant *distraction theory*, *shiny object* theory - without being able to cite Neil Postman / Andrew Postman, Peter P that this is entertainment. This isn't distraction, this is engagement, Donald Trump is a social media / mainstream media content creator of fiction to wreck reality. This is the War Against Reality center stange, the "distraction" is authentic science reality, nonfiction. Just like Mecca and Quran, it is a religion, people aren't *distracted* by the religion, it is their choice of fiction (religion) over reality. This is a much deeper and more complex problem of humanity going back thousands of years. This is the "old world order" of mythology, not the science perspective of 1776 Great Seal of the United States of American symbolism "new world order".
 8. Comments about how nothing makes sense and nobody bothers to discuss Peter P's writings since year 2013, Andrew Postman 2017 / Neil Postman 1985, etc.
+9. "Flooding the Zone", "Gish Gallop" references without EVER referencing Surkov / Peter P / Internet Research Agency / Cambridge Analytica / Neil Postman.
 
 &nbsp;
 
@@ -333,3 +334,12 @@ Tangled349 2013-04-19
 
 Edit: I read through the rest of the article and the title is misleading. It seems like Trump is saying he was given the trophy to keep in the oval and they made a replica for the event. I don't understand why that would even need to happen? I swear nothing in this timeline makes sense at times."
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1lzulxb/us_government_announces_200_million_grok_contract/n34kzdm/
+
+airduster_9000 2015-01-03
+
+"They are juggling Epstein, Nazism, removing Medicare, handing out money to rich friends/companies, growing racism, arresting Americans, threatening 75+ year old allies, turning back any progress on climate-progress, cutting of help to the third world etc.
+
+Its like they are trying to see how much awful shit you can do and still the republican and Christian base/donors will support them. If it wasn't so sad and hurting so many - its actually quite impressive the amount of just evil shit they can pursue with very little consequence."
