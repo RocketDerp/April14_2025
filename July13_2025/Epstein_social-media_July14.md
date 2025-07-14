@@ -97,6 +97,41 @@ https://old.reddit.com/r/goodnews/comments/1lzkinl/ghislaine_maxwell_says_shes_r
 
 .
 
+### USA audiences wealth attraction
+
+https://old.reddit.com/r/WorldMediaMania/comments/1lzr0hm/july_14_2025_the_mania_of_usa_society_over/
+
+July 14, 2025 - The mania of USA society over Jeffrey Epstein, Private Jets, Private Islands, Status Symbols of Wealth, Real Estate Kings, Land Lords, Golf Courses, Donald Trump
+
+It is not hard to witness social machine users all over the USA who are in mania over excitement of lusting for the wealth and power of Donald Trump / Epstein private island admiration. People driven by topics of: Private jets, fantasy islands, servants, private chefs, rich and famous, land lords, real estate kings. Nobody cares to let Malala put *actual young girls* on the popular Internet stage and listen to this as a GLOBAL COMMON PROBLEM of age 12 girls being abused by elders. Taliban are the elders, Donald Trump the elders who rule over little girls.
+
+Year 2024 you saw the same with lust for Drake's power and control of young girls. Now in year 2025 it is Donald Trump power, Epstein private jet and island power. Rich people, powerful people, wealth status symbols is what draws social media sustained focus and attention, audience attention.
+
+&nbsp;
+
+“When the whole world is silent, even one voice becomes powerful.”
+― Malala Yousafzai, [I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.](https://en.wikipedia.org/wiki/I_Am_Malala)
+
+&nbsp;
+
+https://www.bbc.com/news/magazine-19899540
+
+
+Malala Yousafzai started blogging anonymously for BBC Urdu at **the age of 11.** She wrote about her life under Taliban rule in Pakistan's Swat Valley.
+
+How the elder men of society ruled over little girls, their sex life, their marriage, and how older men could use little girls. How girls are only for sexual pleasure of men, breeding babies, to be status symbols of older men. Malala gives voice to young girls: it isn't social media content about Drake, Trump, Epstein having wealth / private jets / fantasy islands / golf couches / servants and staff. Malala is about the actual girls who are being abused given a voice to stand up to Elder men who rule.
+
+&nbsp;
+
+“I was a girl in a land where rifles are fired in celebration of a son, while daughters are hidden away behind a curtain, their role in life simply to prepare food and give birth to children.”
+― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013.
+
+.
+
+&nbsp;
+
+.
+
 #### Impossible to Describe
 
 The sewer of shit, the fetish USA population of social media users have demonstratein July 2025 over rich men is impossible to describe. The fetsh people have to bow down to a King of 79 year old man for sex topics and Drake content in year 2024 can't be described. What a fucked-up population of addicts to rich men worship, rich "Daddy" 79 year old fetishment.
