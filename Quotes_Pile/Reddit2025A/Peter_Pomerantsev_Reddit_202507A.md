@@ -273,3 +273,10 @@ JDHURF 2014-01-08
 
 "Someone said somewhere that Trump’s the kind of egomaniac that he needs presents and his own cake at someone else’s birthday."
 
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1lyze56/what_do_you_think_of_donld_trump_backtracking_on/n2xqqil/
+
+CampusTour 05-04-2007
+
+"I think it's absolutely adorable that all these MAGA people really did think he was gonna release it. Like, you can see the shock and how long it's taken to get them back to their approved talking points. Bless their little hearts, they actually thought he'd do it."
