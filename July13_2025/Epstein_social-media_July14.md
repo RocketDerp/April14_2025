@@ -80,6 +80,23 @@ That is the emotional drive that seems people show the most care and concern abo
 
 .
 
+&nbsp;
+
+# Ticking mass mind timebomb
+
+July 14, 2025 - the ticking mass mind time bomb:
+
+https://old.reddit.com/r/goodnews/comments/1lzkinl/ghislaine_maxwell_says_shes_ready_to_reveal/
+
+1. If this testimony does not happen
+2. She dies by suicide
+3. She becomes unable to speak / coma / communicate
+4. Dies by any other reason.
+
+&nbsp;
+
+.
+
 #### Impossible to Describe
 
 The sewer of shit, the fetish USA population of social media users have demonstratein July 2025 over rich men is impossible to describe. The fetsh people have to bow down to a King of 79 year old man for sex topics and Drake content in year 2024 can't be described. What a fucked-up population of addicts to rich men worship, rich "Daddy" 79 year old fetishment.
