@@ -303,4 +303,5 @@ billypaul 2013-05-27
 https://old.reddit.com/r/PublicFreakout/comments/1lzurxp/newsom_71_of_the_us_gdp_comes_from_blue_counties/n34s7of/
 
 Sniflix 2019-10-08
+
 "California needs to prepare for the coming full military invasion. These interviews are a waste of time. Legislation is a waste of time. CA must ally with America's former friends and plan for the coming attack."
