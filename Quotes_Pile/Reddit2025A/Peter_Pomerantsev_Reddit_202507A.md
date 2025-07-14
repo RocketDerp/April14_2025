@@ -11,6 +11,7 @@ these comments make sense if you have spent since year 2014 ignoring:
 5. Pizzagate, QAnon topics - without reference to ["War Against Reality" information warfare topics from **year 2014** Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). - Also avoiding any of the public notices of **factual evidence* that [QAnon was promoted by Russia since year 2017](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html) - and that [QAnon symbols were promenent at January 6, 2021 insurection](https://time.com/5928627/symbols-capitol/).
 6. Thinking it is only *paid advertisement with money to follow* when the Internet Research Agency clearly is described as using [*free* upvoting / likes / comments back since year 2014](https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/).... which is *validated* by discovery of free commenting messages (not paid advertisement) by [scrunity from George Washington Uniersity and Johns Hopkins University going back to year 2014](https://www.theguardian.com/society/2018/aug/23/russian-trolls-spread-vaccine-misinformation-on-twitter).
 7. Constant *distraction theory*, *shiny object* theory - without being able to cite Neil Postman / Andrew Postman, Peter P that this is entertainment. This isn't distraction, this is engagement, Donald Trump is a social media / mainstream media content creator of fiction to wreck reality. This is the War Against Reality center stange, the "distraction" is authentic science reality, nonfiction. Just like Mecca and Quran, it is a religion, people aren't *distracted* by the religion, it is their choice of fiction (religion) over reality. This is a much deeper and more complex problem of humanity going back thousands of years. This is the "old world order" of mythology, not the science perspective of 1776 Great Seal of the United States of American symbolism "new world order".
+8. Comments about how nothing makes sense and nobody bothers to discuss Peter P's writings since year 2013, Andrew Postman 2017 / Neil Postman 1985, etc.
 
 &nbsp;
 
@@ -321,4 +322,14 @@ https://old.reddit.com/r/AlJazeera/comments/1lzr4si/palestinians_seeking_aid_in_
 Highestpope 2021-06-07
 
 "Especially the Muslim world. I get western countries being able to turn a blind eye to this atrocity, but if it’s happening in you backyard to people with similar culture and you do nothing. That’s wild"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1lzup5j/trump_kept_fifa_club_world_cup_trophy_for_himself/n34u5xm/
+
+Tangled349 2013-04-19
+
+"The medal was offered to him but this shit head actually took the trophy back to the Oval office.
+
+Edit: I read through the rest of the article and the title is misleading. It seems like Trump is saying he was given the trophy to keep in the oval and they made a replica for the event. I don't understand why that would even need to happen? I swear nothing in this timeline makes sense at times."
 
