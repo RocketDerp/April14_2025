@@ -55,8 +55,10 @@ Darkest purpose is to show lives interrupted and changed:
 23. Marketing and pushing of corporate drugs, snake oil, advertising and manipulation.
 24. Technology exploitation of those who do not know the technology.
 25. People not deending from technology and wealth predators.
+26. Handicaps and accesibility issues.
+27. Convience stores vs. grocery stores and profit on canned food, soap, toothpaste and other essentials.
 
-...
+.
 
 ### Campaigns
 
