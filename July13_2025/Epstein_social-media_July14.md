@@ -1,0 +1,67 @@
+# Epstein Social Media Society
+
+July 14, 2025 Epstein social media frenzy
+
+Every social media platform is in a frezy since July 6, 2025 - as I write this July 14, 2025 - it has been non-stop.
+
+The central sustained focused desires of the social media society shows all signs to be sexual fetishment of wealthy and media famous people. This seems to be the deepest most emotional motivation that USA people have in why they have abandoned democracy and goodness itself. The attraction to pimps of famous rich men sexual domination.
+
+&nbsp;
+
+# Telegraph UK news source
+
+This is not domestic USA news like CNN or New York Times. This is UK news.
+
+September 9, 2024   
+**"Trump promises to release Epstein ‘client list’ if he wins the election"**   
+"Convicted sex trafficker was a ‘good salesman’, says former president"   
+By Susie Coen
+
+https://www.telegraph.co.uk/us/politics/2024/09/03/donald-trump-jeffrey-epstein-release-list-us-election/
+
+&nbsp;
+
+From a July 14, 2025 perspective of mob mentality of USA society on social media, this is why people elected Donald Trump.
+
+People are behaving as if this is the lie that they care about most in their life. That this is the motivation that is the most important.
+
+&nbsp;
+
+# Rich Men Sex Lives
+
+The power of being the most famous star on television, radio, social media. The **Tony Clifton** content cravings the audience of social media keeps showing for over a decade regarding Donald Trump. The attraction to terrible, attraction to badness, attraction to ugly and fat and anti-intellectual.
+
+This is it, this is the taste and cravings of a population. Attraction to lies, shit, bullshit.
+
+&nbsp;
+
+## Kendrick Lamar on Drake
+
+All year 2024 the socil media society was showing the lust for rich men sex content about Drake.
+
+https://www.bbc.com/news/articles/c0rgl497k59o
+
+&nbsp;
+
+# Attraction To Donald Trump
+
+I think We The People of USA social media show an attraction to media superstars to self-harm.
+
+"Grab Them By the Pussy" when you are a star. A media star.  
+
+that is what Donald Trump did with the 2024 Election to the population of people who have sexual dreams and fantasy for a **"Daddy"** to sexually abuse them.
+
+That is how fucked-up the United States of America users of Internet and social media are behaving on every possible platform currently.
+
+That people sold out democracy and future of children (climate change, pollution in water, air, protection of food supply, etc) so billions of media comments could be made on dozens of social media platforms about rich powerful famous 79 year old men fucking over the world with sexual agression.
+
+That is the emotional drive that seems people show the most care and concern about, that Donald Trump would release sexual information that he already had in his first term as President of the United States of Amererica back in year 2017.
+
+&nbsp;
+
+.
+
+#### Impossible to Describe
+
+The sewer of shit, the fetish USA population of social media users have demonstratein July 2025 over rich men is impossible to describe. The fetsh people have to bow down to a King of 79 year old man for sex topics and Drake content in year 2024 can't be described. What a fucked-up population of addicts to rich men worship,rich "Daddy" 79 year old fetishment.
+
