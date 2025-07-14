@@ -57,7 +57,7 @@ That is how fucked-up the United States of America users of Internet and social 
 
 That people sold out democracy and future of children (climate change, pollution in water, air, protection of food supply, etc) so billions of media comments could be made on dozens of social media platforms about rich powerful famous 79 year old men fucking over the world with sexual agression.
 
-That is the emotional drive that seems people show the most care and concern about, that Donald Trump would release sexual information that he already had in his first term as President of the United States of Amererica back in year 2017.
+That is the emotional drive that seems people show the most care and concern about, that Donald Trump would release [sexual information that Donald Trump already had in his first term as President of the United States of Amererica back in year 2017](https://en.wikipedia.org/wiki/Death_of_Jeffrey_Epstein).
 
 &nbsp;
 
