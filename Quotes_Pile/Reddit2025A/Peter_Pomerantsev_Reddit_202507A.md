@@ -280,3 +280,11 @@ https://old.reddit.com/r/AskReddit/comments/1lyze56/what_do_you_think_of_donld_t
 CampusTour 2007-05-04
 
 "I think it's absolutely adorable that all these MAGA people really did think he was gonna release it. Like, you can see the shock and how long it's taken to get them back to their approved talking points. Bless their little hearts, they actually thought he'd do it."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1lyze56/what_do_you_think_of_donld_trump_backtracking_on/n2y27c8/
+
+jpainphx 2018-06-18
+
+"I would say "people" rather than "conservatives". I know too many people who went from being a non-conservative straight to MAGA. It's a down right shame how stupid/nieve the general public is."
