@@ -32,7 +32,7 @@ https://old.reddit.com/r/BlueskySkeets/comments/1lzm3qr/the_year_is_2025/
 
 "The Year is 2025" as if a fiction story opening. Anti-reality.
 
-Constant emphasiz of 1938 Nazi Germany. Which had no social media. Almost all of White House and Kremlin power comes from media machines, which are mentioned in the posting - but not a peep about informaiton warfare and Kremlin "War Against Reality" since March 2013 / Operation Matthew 4:19 since November 2018. People are so engaged in mocking back, describing Hell, they do not want to *remove the Hell*... it's content enagement. Neil Postman was correct in [1985 book "Amusing Ourselves To Death"](https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death).
+Constanst social media society emphasizing of 1938 Nazi Germany. Which had no computerized social media. Almost all of White House and Kremlin power comes from media machines, which are mentioned in the posting - but not a peep about information warfare and Kremlin "War Against Reality" since March 2013 / Operation Matthew 4:19 since November 2018. People are so engaged in mocking back at the symbols deep in their mind, describing Hell, they do not want to *remove the Hell*... it is symbolism content enagement. Neil Postman was correct in [1985 book "Amusing Ourselves To Death"](https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death).
 
 &nbsp;
 
