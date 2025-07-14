@@ -305,3 +305,20 @@ https://old.reddit.com/r/PublicFreakout/comments/1lzurxp/newsom_71_of_the_us_gdp
 Sniflix 2019-10-08
 
 "California needs to prepare for the coming full military invasion. These interviews are a waste of time. Legislation is a waste of time. CA must ally with America's former friends and plan for the coming attack."
+
+&nbsp;
+
+https://old.reddit.com/r/AlJazeera/comments/1lzr4si/palestinians_seeking_aid_in_rafah_come_under_fire/n34e5ym/
+
+Careless-Pin-2852 2020-08-23
+
+"Hay man you got new account. Can I ask how you found Reddit? What made you decide to join this very American tech platform after the Recent election?"
+
+&nbsp;
+
+https://old.reddit.com/r/AlJazeera/comments/1lzr4si/palestinians_seeking_aid_in_rafah_come_under_fire/n34lb8j/
+
+Highestpope 2021-06-07
+
+"Especially the Muslim world. I get western countries being able to turn a blind eye to this atrocity, but if it’s happening in you backyard to people with similar culture and you do nothing. That’s wild"
+
