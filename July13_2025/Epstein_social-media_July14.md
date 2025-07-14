@@ -43,6 +43,10 @@ All year 2024 the socil media society was showing the lust for rich men sex cont
 
 https://www.bbc.com/news/articles/c0rgl497k59o
 
+This goes very deep, since September 2013, in the Mass Mind / Mob Mentality of social media audiences.
+
+https://en.wikipedia.org/wiki/Drake%E2%80%93Kendrick_Lamar_feud
+
 &nbsp;
 
 # Attraction To Donald Trump
