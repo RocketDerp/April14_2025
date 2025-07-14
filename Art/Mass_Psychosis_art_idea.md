@@ -10,6 +10,7 @@
 
 A video game that depicts geographic and era changes.
 
+0. Fiction vs. nonfiction mode. Focus on nonfiction experience.
 1. Ability to fast-travel by having all highways and public places emptied out. No lines at airport, no traffic on roads.
 2. Realistic world locations for ship ports, airports, rocket launch sites, roads.
 3. Unlock "ships of the imagination" Carl Sagan style to go to difficult places in time periods when helicopters and
