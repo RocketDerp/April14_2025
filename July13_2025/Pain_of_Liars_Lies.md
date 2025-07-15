@@ -28,6 +28,10 @@ Intelligent and creative people manipulate the elderly with all kinds of confide
 
 Pandemic horse dewormer killing people, snake oil manipulation pain due to death and family loss of income.
 
+# Organized Lies
+
+Rupert Murdoch networks of organized manipulation and deception.
+
 # Trickle Down Military Information Warfare
 
 Putin and Operation Matthew 4:19
@@ -54,3 +58,6 @@ Massive suffering and pain caused by the bewilderment of promises made but being
 
 Egoism / Egomania is a primary symptom of mass mind deception and mob mentality manipulation. A high energy of being in a street gang, terrorism group, the confidence and winning that the Taliban shows against the Untied States Government and USSR both.
 
+### Chain of Trust Broken
+
+People who trust Donald Trump, JD Vance, Elon Musk, Rupert Murdoch as reliable sources then pass this on in second-hand-smoke fashion to family and friends - and then carry the guilt and pain of the starvation, suicides, medical deaths, and other outcomes from being manipulated and abused by billionare networks that thrive off organized lies.
