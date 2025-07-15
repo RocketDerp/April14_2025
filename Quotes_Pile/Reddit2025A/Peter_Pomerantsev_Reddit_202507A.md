@@ -379,4 +379,20 @@ Domestiicated-Batman **2024-09-23** (Recent Account)
 
 "Man, if Dems have any type of even a semblance of decent political instincts, they won't let up on this. Dude is having mental breakdowns over this, never let this topic go away."
 
+&nbsp;
 
+https://old.reddit.com/r/Fauxmoi/comments/1m0oib6/trump_claims_the_epstein_files_were_made_up_by/n3b2sxz/
+
+earlyviolet 2017-12-31
+
+"This has historically been the assumption, but at this point in history, I genuinely believe the idea that Dem voters are more intellectual than Repubs is simply wrong. And it's largely what gains Dems the reputation as out of touch elitist bastards.
+
+This is what I'm talking about. Look how gracefully Mamdani interacts with simple people on the street.
+
+https://youtu.be/tcauW791Q9E?si=bxrUklFNqJjlSj_-
+
+https://www.tiktok.com/@zohran_k_mamdani/video/7524525601084984606
+
+These are Dem voters! Not just college educated suburbanites. I think the failure to speak to people like this is why so much of the Latino vote was lost.
+
+Dems need to learn that they are capable of controlling the narrative. Pick ONE subject and repeat it ad nauseum until Republicans respond. Put THEM on the back foot for once. Ignore their bait the same way Mamdani has been doing and stay focused on just one or two things."
