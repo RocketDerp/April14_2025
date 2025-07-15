@@ -9,7 +9,7 @@ All metaphors not of fixing egoism and egomania, but of traveling and taking ove
 Hardwware = biloogy  
 Microcode = monomhyth 
 Firmware = society  
-Software OS = corporationa nd family   
+Software OS = corporation and family   
 Software userland, applications, apps 
 
 Goography is relocation. The Promised Land, Heaven far away ad unreachable, Eden planet
