@@ -10,7 +10,7 @@ The central sustained focused desires of the social media society shows all sign
 
 Promise made in early September 2024 seems to have been the one promsie that Donald Trump made that trutly motivates and concerns social media society. The lust for pinping details of rich / wealthy men's sexual fetishment content.
 
-2021-09-04 JD Vance information trip tease. https://old.reddit.com/r/agedlikemilk/comments/1m0fgwj/oh_we_are_talking_about_it/
+2021-09-04 JD Vance information sex tipic strip tease. https://old.reddit.com/r/agedlikemilk/comments/1m0fgwj/oh_we_are_talking_about_it/
 
 
 
