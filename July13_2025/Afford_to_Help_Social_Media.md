@@ -26,7 +26,7 @@ I do not see Palestine supporters, IDF Israel criticis, asserting and repeating 
 
 ## Martin Luther King Jr
 
-MLK Jr had more to say than just black skin color. He talked about poverty, long-term asserting of reformation of interpretation of The Bible, hate and violence.
+MLK Jr had more to say than just black skin color. He talked about poverty, long-term asserting of reformation of interpretation of The Bible, [hate](../Quotes_Pile/Martin_Luther_King_Jr_quotes0.md) and violence.
 
 This costs nothing to repeat and assert on social media. You can afford to criticize with well-articulated and deep thinking of MLK Jr.
 
