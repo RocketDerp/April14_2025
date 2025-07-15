@@ -38,6 +38,16 @@ Constanst social media society emphasizing of 1938 Nazi Germany. Which had no co
 
 . 
 
+# Tuesday July 15
+
+https://old.reddit.com/r/MurderedByWords/comments/1m0bn71/silly_kate/
+
+Very simplistic anti-information clickbait Reddit title makes it to front page. Portraies USA situation as "silly", as in entertaining and amusing. USA social media users have Surkovian onion breath and do not care to learn of Neil Postman / Peter P of how this *eating out of the hands of antics politicians* is the bais of Russian power for Putin / information warfare. Insulting and mocking MAGA / Trump White House is not resisting, it is the very basis of Surkovian governing. "Murdere By Words" framing implies some sports game mentality of scoring huge points, screen game simulacra of resistance.
+
+&nbsp;
+
+.
+
 ### Notes
 
 Context from the content of this parallel document may help: 
