@@ -73,6 +73,14 @@ Broken families, such as the boomer Jen Senko's documented family: https://en.wi
 
 The courage it takes for the Senko family as just a few people to stand up in public, Truth to Power, that billionaires are manipulating everyday people into hate, falsehood, anger, dehumanization - with lies and manipulation.
 
+## Film "2000 Mules"
+
+Films require many people to create and publish. This is organized manipuation and lies. Films claiming to be factual nonfiction that are fiction. Cashing in on the **popularity of fiction** mythology storytelling over nonfiction. LIke Mecca does with Mohammad's Quran science fiction storytelling. Audience manipulation, media consumer exploitation.
+
+"MAGA Filmmaker Trump Praised Admits 2020 Election Fraud Doc Was B.S."  
+"The conspiracy theorist was sued for defamation after falsely accusing a Georgia man of stuffing ballot boxes"
+https://www.rollingstone.com/politics/politics-news/dinesh-dsouza-admits-2000-mules-documentary-false-data-1235188932/
+
 &nbsp;
 
 # Trickle Down Military Information Warfare
