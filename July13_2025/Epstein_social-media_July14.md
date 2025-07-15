@@ -6,7 +6,15 @@ Every social media platform is in a frenzy [since July 6, 2025](https://www.axio
 
 The central sustained focused desires of the social media society shows all signs to be sexual fetishment of wealthy and media famous people. This seems to be the deepest most emotional motivation that USA people have in why they have abandoned democracy and goodness itself. The attraction to pimps of famous rich men sexual domination.
 
+### Information Promises 
+
 Promise made in early September 2024 seems to have been the one promsie that Donald Trump made that trutly motivates and concerns social media society. The lust for pinping details of rich / wealthy men's sexual fetishment content.
+
+&nbsp;
+
+### Information Addiction
+
+Media addiction is the heart of the Donald Trump era. Stimulation of society by antics politics, shocking behavior. The Russian Surkovian model of year 2012 applied to USA year 2025.
 
 &nbsp;
 
