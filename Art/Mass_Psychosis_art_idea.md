@@ -56,7 +56,7 @@ Darkest purpose is to show lives interrupted and changed:
 24. Technology exploitation of those who do not know the technology.
 25. People not deending from technology and wealth predators.
 26. Handicaps and accesibility issues.
-27. Convience stores vs. grocery stores and profit on canned food, soap, toothpaste and other essentials.
+27. Convience stores vs. grocery stores and profit on canned food, soap, toothpaste and other essentials that have a long shelf life.
 
 .
 
