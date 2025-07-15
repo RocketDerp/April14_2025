@@ -26,7 +26,7 @@ USA year 2024 / year 2025 observations July 15 2025.
 
 USA society PUBLIC picks the biggest liars for clickbait news content and social media rumors. The most shallow and superficial junk news.
 
-USA society PUBLIC picks liars and deceivers for billionaire corporate executives, politicians, leaders. ChatGPT and Grok welcomed since December 2022, full of bullshit sounds-good falsehoods.
+USA society PUBLIC picks liars and deceivers for billionaire corporate executives, politicians, leaders. ChatGPT and Grok artificial intelligence welcomed since December 2022, full of bullshit sounds-good falsehoods.
 
 USA society PUBLIC does not correct Christians who purchase $59.99 Donald Trump Bible by repeating verse "1 John 3:17" in criticism of DOGE Musk and Donald Trump family. 
 
