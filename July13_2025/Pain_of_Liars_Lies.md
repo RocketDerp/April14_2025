@@ -44,6 +44,12 @@ Trickle down amusement parks to manipuate.
 
 Hire the best architechs and artists to create events and content for the poor to become addicted to. Loke the book and film Hunger Games. Rich royalty and elites who live as Kings whie poor people all over the world consume their amusement fiction content of Quran Mecca storytelling. Disney sells the same fiction content to the youngest of children, just as Quran and Mosque have done since year 630.
 
+### July 6 2025 Epstein 
+
+Massive suffering and pain caused by the bewilderment of promises made but being lied to, deceived, for pain and manipulation.
+
+[Jeffery Epstein Social Media Society July 2025](Epstein_social-media_July14.md)
+
 # Symptoms
 
 Egoism / Egomania is a primary symptom of mass mind deception and mob mentality manipulation. A high energy of being in a street gang, terrorism group, the confidence and winning that the Taliban shows against the Untied States Government and USSR both.
