@@ -54,6 +54,12 @@ Reddit is amusement mill doing amusement washing, as are all the social media we
 
 &nbsp;
 
+https://old.reddit.com/r/MurderedByAOC/comments/1m0fy08/aocs_legal_battle/
+
+***Murdered by AOC***, more of this video game fiction communications. Anti-reality. Gives the social media audience sense that they are spectators to entertaining sports scores. Dilutes authenticity, reality, science, factual, reason thinking (Great Seal USA founding fathers emphasis) in favor of amusement. This specific subject is about **lawyers, legal systems, discovery, court cases** where Donald Trump is never put into prison for his crimes and wins popularity for domination and shit-talking on social media. This focus on rihch lawyers and famous people (AOC) taking on Donald Trump makes this a wealthy vs wealthy spectator passive social media / news media consumption sport. All Russian Surkovian year 2012, Reddit community unable to say "are we living in a simulacra, full of bullshit faiths, as we all sit on our social media machines vibraiting and notifying us of mmemes while Putin and Trump consolidate since [November 2012 profesiosnal doctorates of psychology (Cambridge) mind-fucking scheme of Kremlin /Trump Operation Matthew 4:19](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/)"? Living in a simulacra of resistance, not facing up to Peter P's books and writings from year 2014, Andrew Postman 2017, Neil Postman 1985.
+
+&nbsp;
+
 .
 
 ### Notes
