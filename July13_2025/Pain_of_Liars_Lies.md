@@ -12,9 +12,10 @@ Parents who manipulate their children.
 
 Terrorists and hate promoters who use all their media gifts and talents to manipulate others for profit, egoism, "the 4chan LULZ", hate of humanism.
 
-Elon Musk informed people the 2019 pandemic timeline and schedule was it would be over.   
-Donald Trump informed people the 2019 pandemic timeline and schedule that it would be over by Easter 2020.  
-Zero evidence from the Spanish Flu, pandemic of year 1918 showed this.   
+1. Elon Musk informed people the 2019 pandemic timeline and schedule was it would be over.  [Musk predicted the country was headed toward “zero new cases” by the end of April 2020 (by Musk’s deadline, daily case counts had topped 20,000).](https://www.forbes.com/sites/joewalsh/2021/03/13/elon-musks-false-covid-predictions-a-timeline/) 
+2. Donald Trump informed people the 2019 pandemic timeline and schedule that [pandemic would be over by Easter 2020](https://www.bbc.com/news/world-us-canada-52029546).
+  
+Zero evidence or science from the global Spanish Flu pandemic of year 1918 showed this.   
 
 “In many ways, it is hard for modern people living in First World countries to conceive of a pandemic sweeping around the world and killing millions of people, and it is even harder to believe that something as common as influenza could cause such widespread illness and death.”
 ― Charles River Editors, The 1918 Spanish Flu Pandemic: The History and Legacy of the World’s Deadliest Influenza Outbreak, **published October 10, 2014** and easily accessible for Elon Musk and Donald Trup in December 2019 and January 2020 for reading.
