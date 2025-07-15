@@ -15,7 +15,7 @@ Entire nations and corporations and massive multi-national religions run by lies
 
 ## Nations Run by Lies: Russia's Putin
 
-Vlad Putin worked in USSR goverment stationed in Germany and became an expert and skilled liar and manipulaiton using Nazi Germany techniques.
+Vladimir Putin worked in [USSR government stationed in Dresden, Germany for 5 years](https://www.latimes.com/world-nation/story/2023-06-15/russia-putin-early-kgb-years-east-germany-helped-shape-him) and became an expert and skilled liar and manipulaiton using Nazi Germany techniques of lies and deception.
 
 Surkov and Putin.
 
@@ -111,4 +111,4 @@ Egoism / Egomania is a primary symptom of mass mind deception and mob mentality 
 
 ### Chain of Trust Broken
 
-People who trust Donald Trump, JD Vance, Elon Musk, Rupert Murdoch as reliable sources then pass this on in second-hand-smoke fashion to family and friends - and then carry the guilt and pain of the starvation, suicides, medical deaths, and other outcomes from being manipulated and abused by billionare networks that thrive off organized lies.
+People who trust Vladimir Putin, Donald Trump, JD Vance, Elon Musk, Rupert Murdoch as reliable sources then pass this on in second-hand-smoke fashion to family and friends - and then carry the guilt and pain of the starvation, suicides, medical deaths, and other outcomes from being manipulated and abused by billionare networks that thrive off organized lies.
