@@ -5,6 +5,11 @@
 
 &nbsp;
 
+“The display, which was called **'Can Democracy Survive the Internet?'** was dedicated to a 'global election management' company called Cambridge Analytica. Cambridge Analytica claimed to have gathered 5,000 data points on every American voter online: what you liked and what you shared on social media; how and where you shopped; who your friends were... They claimed to be able to take this imprint of your online self, use it to understand your deepest drives and desires, and then draw on that analysis to change your voting behaviour. The boast seemed to be backed up by success: Cambridge Analytica had worked on the victorious American presidential campaign of Donald Trump; it had also run successful campaigns for US Senator Ted Cruz (twice); and others all across Africa, Asia, the Caribbean, Latin America.”
+― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
+&nbsp;
+
 .
 
 https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy
