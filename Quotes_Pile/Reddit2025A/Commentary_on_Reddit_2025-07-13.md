@@ -62,6 +62,8 @@ https://old.reddit.com/r/MurderedByAOC/comments/1m0fy08/aocs_legal_battle/
 
 .
 
+&nbsp;
+
 ### Notes
 
 Context from the content of this parallel document may help: 
@@ -70,14 +72,15 @@ https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Pet
 
 alternate link: [Peter_Pomerantsev_Reddit_202507A](Peter_Pomerantsev_Reddit_202507A.md)
 
-### Dear Reddit Community
+&nbsp;
+
+#### Dear Reddit Community:
 
 Some of your favorite phrases:
 
-"FAFO, Fuck Around and Find Out" - Fuck Around in social media simulacra without constantly asserting Peter Pomerantsev quotes, books, interviews, published articles on The Atlantic and elsewhere and **find out** that your democracy has been wrecked by runaway simulara deployed since March 2013 as part of Operation Matthew 4:19 schemed up November 2012.
+"FAFO, **Fuck Around and Find Out**" - Fuck Around in social media simulacra without constantly asserting Peter Pomerantsev quotes, books, interviews, published articles on The Atlantic and elsewhere and **find out** that your democracy has been wrecked by runaway simulacra deployed since March 2013 as part of Operation Matthew 4:19 schemed up November 2012.
 
-"Leopards At My Face" - Social Media bullshitting all day every day, not being serious, not taking Andrew Postman 2017 and Neil Postman 1985 serious is eating the face of everyday We The People while you spread more trivial, entertainment, sports mentality, and admiration of the wealthy bling bling and not assert over and over sustained focus of EVERYONE age 12 to 120 grasping what Neil Postman wrote in 1985.
+"**Leopards At My Face**" mocking at suffering of Americans - Social Media bullshitting all day every day, not being serious, not taking [Andrew Postman 2017](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) and Neil Postman 1985 **serious**... is eating the face of everyday We The People while you all spread more trivial, entertainment, sports mentality, and admiration of the wealthy bling bling and not assert over and over sustained focus of EVERYONE age 12 to 120 grasping what [Neil Postman wrote in 1985](https://www.youtube.com/watch?v=ETUGwC9jXCM).
 
-You are in the simulacra. Also study [Rick Roderick 1993, "Self Under Siege", 7 hour video](https://rickroderick.org/300-guide-the-self-under-siege-1993/) presentation. You are LIVING in this world of abandoned reason thinking.
-
+*We The People* are in the electric media systems simulacra originated by the Kremlin Internset Research Agency and Cambridge Analytica in late 2012. Also study [Rick Roderick 1993, "Self Under Siege", 7 hour video](https://rickroderick.org/300-guide-the-self-under-siege-1993/) presentation. You are LIVING in this world of abandoned reason thinking.
 
