@@ -99,13 +99,19 @@ Trickle down amusement parks to manipuate.
 
 Hire the best architechs and artists to create events and content for the poor to become addicted to. Loke the book and film Hunger Games. Rich royalty and elites who live as Kings whie poor people all over the world consume their amusement fiction content of Quran Mecca storytelling. Disney sells the same fiction content to the youngest of children, just as Quran and Mosque have done since year 630.
 
-### July 6 2025 Epstein 
+### July 6, 2025 Epstein 
 
 Massive suffering and pain caused by the bewilderment of promises made but being lied to, deceived, for pain and manipulation.
 
 [Jeffery Epstein Social Media Society July 2025](Epstein_social-media_July14.md)
 
 "Yeah, So?" over lies to We The People. https://www.independent.co.uk/news/world/americas/us-politics/bill-oreilly-trump-epstein-biden-b2789412.html
+
+Fox News and Estein July 15, 2025: https://www.cnn.com/2025/07/15/media/trump-epstein-fox-news-maga-media-charlie-kirk
+
+Media systems profiting off all the false promises, lies, abuse, mental anguish, anxiety, hate, information conflicts, systemic falsehoods, trickle down rich men manipulation of information media systems.
+
+&nbsp;
 
 #### Abuse of power
 
