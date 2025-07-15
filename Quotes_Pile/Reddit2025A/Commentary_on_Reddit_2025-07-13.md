@@ -38,11 +38,19 @@ Constanst social media society emphasizing of 1938 Nazi Germany. Which had no co
 
 . 
 
-# Tuesday July 15
+# Tuesday July 15,2025
 
 https://old.reddit.com/r/MurderedByWords/comments/1m0bn71/silly_kate/
 
-Very simplistic anti-information clickbait Reddit title makes it to front page. Portraies USA situation as "silly", as in entertaining and amusing. USA social media users have Surkovian onion breath and do not care to learn of Neil Postman / Peter P of how this *eating out of the hands of antics politicians* is the bais of Russian power for Putin / information warfare. Insulting and mocking MAGA / Trump White House is not resisting, it is the very basis of Surkovian governing. "Murdere By Words" framing implies some sports game mentality of scoring huge points, screen game simulacra of resistance.
+Very simplistic anti-information clickbait Reddit title makes it to front page. Portraies USA situation as "silly", as in entertaining and amusing. Anti-seriouos, no-identity social media mocking. USA social media users have Surkovian onion breath and do not care to learn of Neil Postman / Peter P of how this *eating out of the hands of antics politicians* is the bais of Russian power for Putin / information warfare. Insulting and mocking MAGA / Trump White House is not resisting, it is the very basis of Surkovian governing. "Murdere By Words" framing implies some sports game mentality of scoring huge points, screen game simulacra of resistance.
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m0fgwj/oh_we_are_talking_about_it/
+
+JD Vance quoted from year 2021. The "Aged Like Milk" is very often about mocking and insulting, not about serious important focus. There are often Reddit community comments about **Project 2025**, but the recency bias of serious topics (that truly harm the population) is so strong that you will not see people bring up the **2019 book by Christopher Wylie with "Plot To Break America"** in the very title. And how JD Vance is using psychological manipulation techniques in his Twitter messaging. Further, that September 2021 Twitter context is the raging COVID-19 global pandemic vacination. The "Agged Like Milk" community does not overcome the *serious barrier* and *recency bias* combined to cite August 24, 2018 **serious disclosures** use of the same Twitter platform being used to harm and kill Americans with disease (Cambridge Analytica style) thinking and emotional manipulation. https://www.bbc.com/news/world-us-canada-45294192
+
+Reddit is amusement mill doing amusement washing, as are all the social media websites. The very interface of the smartphone / iPad / tablet and framing taints everything with a entertaiment amusement tone. Neil Postman's deepest emphasis in his 1985 book "Amusing Ourselves To Death". How serious information is not grasped by the audience as there seems to be an amusement entertainment kind of hangover that dominates.
 
 &nbsp;
 
