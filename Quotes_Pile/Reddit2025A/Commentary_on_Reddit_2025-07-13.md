@@ -60,6 +60,12 @@ https://old.reddit.com/r/MurderedByAOC/comments/1m0fy08/aocs_legal_battle/
 
 &nbsp;
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1m0gmqz/this_one_is_a_lovely_combination_of_bootstraps/
+
+This built up since March 2013, MAGA growing, the Fox News / Rupert Murdoch problem known. But this is now Reddit doing what Rupert Murdoch finds profitable: laughing at *conservative tears*, inverting the *amused at liberal tears*. It is Americans Hate Americans, Americans Insult Americans, following the Donald Trump Twitter Role Model of social media behavior. It is not cult deprogramming, it is not asserting Andrew Postman February 2017 and Neil Postman 1985... it is eating out of he hands of Kremlin Surkovian mind-fuck since March 2013 deployment on Reddit by the Internet Research Agency! USA hates USA messaging. Not crying in shared suffering of compassion, not delcaring hate is bad (**hate is mentioned in this very Reddit content linked**) and repeating Dr. Martin Luther King Jr's 1954 teachings about ALL hate by ALL people is bad, but encouraging a *hate harder* attitude of Putin's mind-fuck informationw arfare. Surkovian onion breath.
+
+&nbsp;
+
 .
 
 &nbsp;
