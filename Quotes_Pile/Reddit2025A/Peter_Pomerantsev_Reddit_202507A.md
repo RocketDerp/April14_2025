@@ -362,3 +362,11 @@ https://old.reddit.com/r/TikTokCringe/comments/1m0qjj2/she_had_to_turn_off_comme
 bennystar666 2015-05-04
 
 "This is reddit no one is looking to seriously help anyone they are just looking for a way to pile on someone to make themselves feel better. The person you responded to is taking a big chance by going out there alone to help make a positive difference."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m0srtf/trump_spirals_after_being_asked_if_his_name_is_in/n3c0bip/
+
+GhettoDuk 2013-01-29
+
+"epstein was so comfortable picking up underage girls at trump's clubs that he tried to pick up a member's daughter. The member complained and that's when trump had to dump him."
