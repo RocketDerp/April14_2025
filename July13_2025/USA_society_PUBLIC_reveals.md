@@ -11,6 +11,9 @@ https://www.wired.com/story/enshittification-of-american-power/
 February 23, 2017: **Harvard scientist worries we’re ‘reverting to a pre-Enlightenment form of thinking’**   
 https://www.washingtonpost.com/news/wonk/wp/2017/02/23/harvard-scientist-worries-were-reverting-to-a-pre-enlightenment-form-of-thinking/
 
+July 15, 2025: **Secret changes to major U.S. health datasets raise alarms**    
+https://www.psypost.org/secret-changes-to-major-u-s-health-datasets-raise-alarms/
+
 &nbsp;
 
 .
