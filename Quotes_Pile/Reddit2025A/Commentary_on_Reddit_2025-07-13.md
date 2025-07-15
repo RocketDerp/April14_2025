@@ -69,3 +69,15 @@ Context from the content of this parallel document may help:
 https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Peter_Pomerantsev_Reddit_202507A.md
 
 alternate link: [Peter_Pomerantsev_Reddit_202507A](Peter_Pomerantsev_Reddit_202507A.md)
+
+### Dear Reddit Community
+
+Some of your favorite phrases:
+
+"FAFO, Fuck Around and Find Out" - Fuck Around in social media simulacra without constantly asserting Peter Pomerantsev quotes, books, interviews, published articles on The Atlantic and elsewhere and **find out** that your democracy has been wrecked by runaway simulara deployed since March 2013 as part of Operation Matthew 4:19 schemed up November 2012.
+
+"Leopards At My Face" - Social Media bullshitting all day every day, not being serious, not taking Andrew Postman 2017 and Neil Postman 1985 serious is eating the face of everyday We The People while you spread more trivial, entertainment, sports mentality, and admiration of the wealthy bling bling and not assert over and over sustained focus of EVERYONE age 12 to 120 grasping what Neil Postman wrote in 1985.
+
+You are in the simulacra. Also study [Rick Roderick 1993, "Self Under Siege", 7 hour video](https://rickroderick.org/300-guide-the-self-under-siege-1993/) presentation. You are LIVING in this world of abandoned reason thinking.
+
+
