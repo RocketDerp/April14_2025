@@ -7,7 +7,7 @@
 All metaphors not of fixing egoism and egomania, but of traveling and taking over other lands, Colonization.Relocation as progress instead of education, teaching, mind transofroamtioon.
 
 Hardwware = biloogy  
-Microcode = monomhyth 
+Microcode = monomhyth   
 Firmware = society  
 Software OS = corporation and family   
 Software userland, applications, apps 
