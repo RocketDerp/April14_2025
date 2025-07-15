@@ -107,6 +107,12 @@ Massive suffering and pain caused by the bewilderment of promises made but being
 
 "Yeah, So?" over lies to We The People. https://www.independent.co.uk/news/world/americas/us-politics/bill-oreilly-trump-epstein-biden-b2789412.html
 
+#### Abuse of power
+
+All this seems a breeding ground for living in trickle down nightmares. That rich people or loyal people can break laws by lawyers manipulating and outsmarting the legal system.
+
+https://www.commondreams.org/opinion/trump-epstein-rape-culture
+
 &nbsp;
 
 # Symptoms
