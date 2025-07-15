@@ -105,9 +105,15 @@ Massive suffering and pain caused by the bewilderment of promises made but being
 
 [Jeffery Epstein Social Media Society July 2025](Epstein_social-media_July14.md)
 
+"Yeah, So?" over lies to We The People. https://www.independent.co.uk/news/world/americas/us-politics/bill-oreilly-trump-epstein-biden-b2789412.html
+
+&nbsp;
+
 # Symptoms
 
 Egoism / Egomania is a primary symptom of mass mind deception and mob mentality manipulation. A high energy of being in a street gang, terrorism group, the confidence and winning that the Taliban shows against the Untied States Government and USSR both.
+
+&nbsp;
 
 ### Chain of Trust Broken
 
