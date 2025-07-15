@@ -4,6 +4,31 @@
 
 Quotes about lovers, broken marriages, jilting. The pain and suffering.
 
+# Nations run by Lies
+
+Entire nations and corporations and massive multi-national religions run by lies and deception.
+
+## Nations run by Lies: Nazi Germany
+
+“In an ever-changing, incomprehensible world the masses had reached the point where they would, at the same time, believe everything and nothing, think that everything was possible and that nothing was true. ... Mass propaganda discovered that its audience was ready at all times to believe the worst, no matter how absurd, and did not particularly object to being deceived because it held every statement to be a lie anyhow. The totalitarian mass leaders based their propaganda on the correct psychological assumption that, under such conditions, one could make people believe the most fantastic statements one day, and trust that if the next day they were given irrefutable proof of their falsehood, they would take refuge in cynicism; instead of deserting the leaders who had lied to them, they would protest that they had known all along that the statement was a lie and would admire the leaders for their superior tactical cleverness.”
+― Hannah Arendt, The Origins of Totalitarianism, **published 1951 after defeat of Nazi Germany**
+
+## Nations Run by Lies: Russia's Putin
+
+Vlad Putin worked in USSR goverment stationed in Germany and became an expert and skilled liar and manipulaiton using Nazi Germany techniques.
+
+Surkov and Putin.
+
+Year 2014 book: "Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia"
+
+https://www.goodreads.com/author/quotes/8035579.Peter_Pomerantsev
+
+## Multi-national organization: Scientology run by lies
+
+Fiction content passed off as nonfiction, L Ron Hubbard science fiction manipulation of people to believe lies and falsehoods.
+
+&nbsp;
+
 # Parents who lie and manipulate
 
 Parents who manipulate their children.
