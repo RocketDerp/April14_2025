@@ -8,7 +8,7 @@ Same goes for domestic violence, weomen abused by clergy / family / marriage / r
 
 ### Thought Terminating Behavior
 
-But why does it have to be a thought-terminating behavior that you can not help every person in need of housing, food, medical care, 
+But why does it have to be a thought-terminating behavior that you can not help every person in need of housing, food, medical care, war zones, bamboozled by lies and deception (Russians, Americans under Donald Trump), etc?
 
 &nbsp;
 
