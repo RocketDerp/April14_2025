@@ -102,3 +102,9 @@ Some of your favorite phrases:
 
 *We The People* are in the electric media systems simulacra originated by the Kremlin Internset Research Agency and Cambridge Analytica in late 2012. Also study [Rick Roderick 1993, "Self Under Siege", 7 hour video](https://rickroderick.org/300-guide-the-self-under-siege-1993/) presentation. You are LIVING in this world of abandoned reason thinking and Super Mario parenting morality (social media screen game simulacra addiction).
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m0tthd/oh_so_thats_how_it_is_timmy/
+
+Makes it to the front page of Reddit, comedic context of how funny this is. Surkvian onion breath of USA social media users. [Tim Pool mnedia content duped to work for Russia / Kremlin](https://apnews.com/article/russian-interference-presidential-election-influencers-trump-999435273dd39edf7468c6aa34fad5dd) and here it is, Johnny on the spot, War Against Reality / [Contradictory Vaudeville](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). Without one drop of Reddit poster (community) / American social media users invoking: Surkov year 2012, Peter Pomerantsev 2014, Adam Curtis 2014. It is endless eating of the Surkovian simulacra onions and eogism of mocking and insulting (which is Reddit community adopting the very values of Donald Trump White House: Mocking sincierty, mockery, insutling).
+
