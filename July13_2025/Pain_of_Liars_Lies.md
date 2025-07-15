@@ -28,9 +28,17 @@ Intelligent and creative people manipulate the elderly with all kinds of confide
 
 Pandemic horse dewormer killing people, snake oil manipulation pain due to death and family loss of income.
 
+&nbsp;
+
 # Organized Lies
 
 Rupert Murdoch networks of organized manipulation and deception.
+
+Broken families, such as the boomer Jen Senko's documented family: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad 
+
+The courage it takes for the Senko family as just a few people to stand up in public, Truth to Power, that billionaires are manipulating everyday people into hate, falsehood, anger, dehumanization - with lies and manipulation.
+
+&nbsp;
 
 # Trickle Down Military Information Warfare
 
