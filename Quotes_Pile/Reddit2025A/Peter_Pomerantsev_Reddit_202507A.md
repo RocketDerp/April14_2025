@@ -370,3 +370,13 @@ https://old.reddit.com/r/politics/comments/1m0srtf/trump_spirals_after_being_ask
 GhettoDuk 2013-01-29
 
 "epstein was so comfortable picking up underage girls at trump's clubs that he tried to pick up a member's daughter. The member complained and that's when trump had to dump him."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m0oib6/trump_claims_the_epstein_files_were_made_up_by/n3auzh6/
+
+Domestiicated-Batman **2024-09-23** (Recent Account)
+
+"Man, if Dems have any type of even a semblance of decent political instincts, they won't let up on this. Dude is having mental breakdowns over this, never let this topic go away."
+
+
