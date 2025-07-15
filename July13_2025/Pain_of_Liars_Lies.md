@@ -1,5 +1,7 @@
 # Pain of Liars who Lie
 
+Pain caused of being tricked, abused, manipulated by lies, deception, falsehoods.
+
 # Broken Hearts, Lovers
 
 Quotes about lovers, broken marriages, jilting. The pain and suffering.
