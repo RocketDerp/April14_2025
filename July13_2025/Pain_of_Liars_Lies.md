@@ -45,13 +45,23 @@ Zero evidence or science from the global Spanish Flu pandemic of year 1918 showe
 “In many ways, it is hard for modern people living in First World countries to conceive of a pandemic sweeping around the world and killing millions of people, and it is even harder to believe that something as common as influenza could cause such widespread illness and death.”
 ― Charles River Editors, The 1918 Spanish Flu Pandemic: The History and Legacy of the World’s Deadliest Influenza Outbreak, **published October 10, 2014** and easily accessible for Elon Musk and Donald Trup in December 2019 and January 2020 for reading.
 
+## Grief from broken exepctation and promise 
+
+https://secondstorycounseling.com/grieving-the-loss-of-unmet-expectations-hopes-dreams
+
+&nbsp;
+
 # Elderly scams
 
 Intelligent and creative people manipulate the elderly with all kinds of confidence scams.
 
+&nbsp;
+
 # Trickle Down Snake Oil
 
 Pandemic horse dewormer killing people, snake oil manipulation pain due to death and family loss of income.
+
+Trusted goverment manipulates people with fake snake oil treatment: https://www.bbc.com/news/world-us-canada-60037173
 
 &nbsp;
 
