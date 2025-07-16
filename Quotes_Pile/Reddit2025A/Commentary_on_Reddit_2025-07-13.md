@@ -181,3 +181,8 @@ https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administrati
 
 There is a social media frency of reaction commenting to every move and shake of the Donald Trump White house / Elon Musk Twitter, etc. People barking at individual trees day after day and not seeing the [NATO forest of War Against Reality, unable to describe Adam Curtis / Peter Pomerantsev published more than a decade ago](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) in year 2014. Eating the Surkovian Onions, performances hour after hour on electric media platforms - the very basis of Putina nd Trump power sysems is constant Total Mockery audience engagement.
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1m1hc7c/dementia_don/
+
+Front page top of Reddit. Donald Trump fixated. Constantly social media users are fixated on "demetia" ignoring that Elon Musk is younger, the Fox News / Rupert Murdoch audience problem. Ignoring what Adam Curtis / Peter Pomerantsev published more than a decade ago. Always making it about *one single person*, and not hundreds of millions of people in mulitple NATO nations. Books rot and articles rot on the shelf while people are engaged in constant out-group mocking and insults about *low IQ* and *dementia* of individual persons, barking at trees, unable to see the forest.
