@@ -499,4 +499,14 @@ He’s contradicted himself like three times at this point. It’s clear he’s 
 
 https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/
 
-Front page of Reddit, the very content says that Russia was hoax, yet not a soul on Reddit can mention War Against Reality itself, [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) (more than **TWO full years** before November 2016 election, before Trump announced in June 2015), Adam Curtis 2014 uncited / unmentioned. People on social media July 2025 who can not mention Adam Curtis / Peter Pomerantsev on a very posting that calls Russia manipulation via media systems a hoax are not facing up with self-awareness. People are behaving as conditioned, reaction commenting, reacting- as Donald Trump and Elon Musk lead on social media Truth Social and Twitter, *reactionary mindsets*. Russian manipulation of the USA population is NOT a hoax, [multiple NATO nations document it. It isn't just USA!](https://www.lemonde.fr/en/international/article/2025/02/22/the-increasingly-sophisticated-digital-manipulation-threatening-european-democracies_6738433_4.html)
+* :::=== RoundSparrow_Commentary : Front page of Reddit, the very content says that Russia was hoax, yet not a soul on Reddit can mention War Against Reality itself, [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) (more than **TWO full years** before November 2016 election, before Trump announced in June 2015), Adam Curtis 2014 uncited / unmentioned. People on social media July 2025 who can not mention Adam Curtis / Peter Pomerantsev on a very posting that calls Russia manipulation via media systems a hoax are not facing up with self-awareness. People are behaving as conditioned, reaction commenting, reacting- as Donald Trump and Elon Musk lead on social media Truth Social and Twitter, *reactionary mindsets*. Russian manipulation of the USA population is NOT a hoax, [multiple NATO nations document it. It isn't just USA!](https://www.lemonde.fr/en/international/article/2025/02/22/the-increasingly-sophisticated-digital-manipulation-threatening-european-democracies_6738433_4.html) ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3gobum/
+
+alloutofbees 2020-10-06
+
+"The problem is they do not genuinely give a shit about pedophilia or about victims. They only care about using the spectre of pedophilia as a weapon against groups they hate. That's why they're so caught up on labeling LGBT people groomers and on the myth that human trafficking is suburban white kids being tricked into vans by shadowy figures who want to move them across borders. They actively do not care and do not want to stop actual pedophiles. They will in fact go out of their way to protect actual pedophiles. The only reason they even made Epstein part of their nonsense is QAnon and the idea that it would take down a bunch of "liberal elites"."
