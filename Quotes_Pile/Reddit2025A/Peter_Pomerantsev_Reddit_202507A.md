@@ -441,3 +441,19 @@ Squatch11 2011-12-05
 
 "All this thread is telling me is that 90% of you didn't actually spend the 30 seconds it takes to read the completely free article you're commenting on."
 
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m1aw54/the_rightwing_backlash_over_epstein_isnt_dying/n3gbfi3/
+
+passwordBEEFWOMEN 2018-04-20
+
+"the democratic party doesn't have a shred of political instinct. they are utterly incompetent at political positioning and messaaging.
+
+they're the only party in the world that could lose multiple elections to donald trump."
+
+:::=== RoundSparrow_Commentary : The election was lost to Russia / Putin manipulaiton of Reddit social media users who can't fight an information war to save their nation. Donald Trump winning is symptom of that Russian information war against reality loss, the nation is living in psychological denial of the loss. And it isn't just USA, it is multiple NATO nations. Hate against humanism and lust for wealth and technology like Donald Trump is an everyday change in society, not just voting days. [Russia information warfare includes hurricane topics](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57), not just Democrat vs. Republican elections of Donald Trump. Donald Trump is a symptom of anti-reality, ficiton the Russians are attacking nonfiction and science. The other commentary on this is that the Reddit comment does not address the audience, voter problem. Not holding the population accountable for their voting for antics and social media shit talk - the topics of Carl Agan 1995, Neil Postman 1985. Donald Trump being a center of hate attraction is symptom of a population wide problem. ===:::
+
+&nbsp;
+
+
