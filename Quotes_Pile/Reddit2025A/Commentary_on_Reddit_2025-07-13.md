@@ -76,6 +76,13 @@ https://old.reddit.com/r/clevercomebacks/comments/1m0ense/hey_way_to_go/
 
 Emphasizing punishment, hate, war against Americans on Reddit social media. Eating right out of the 5,000 Russian screen game simulacra patterns since March 2013 to self-harm USA. Unable to cite anything about Russian information warfare and how Donald Trump has ties to Putin and USA year 2025 situation isn't "American Politics" (which the Reddit posting has as question), but Surkovian mind-fuck and aftermath of complete loss of information warfare (with [evidence of MULTIPLE NATO nations, not just USA](https://www.disinfo.eu/doppelganger-operation/)). Also making the only solution about civil war ending in year 1865 where all people have now died of old age, makes it a passive (only consume memes) social media manipulation that active measures against USA, information warfare, is not [ongoing here and now currently](https://www.theguardian.com/us-news/2024/oct/10/russia-ai-hurricane-milton-disinformation) by Kremlin and White House using Surkovian methods.
 
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1m0tq36/congestive_heart_failure/
+
+Top of front page. Can not stay focused on Donald Trump trusting Putin, the entire White House (JD Vance is better?) using manipulation and antics, how MAGA / Trumpism has been going on for over a decade... the forest for the trees. Instead, fixated on the very power of mocking and insulting that Trump is powered by. One single man fixated. The cult problems of MAGA go way beyond him being removed from office or death, it is media itself cult (Neil Postman 1985, confirmed by Andrew Postman February 2017). This has gone on so long, people are so engaged in every single move and shake of the White House and not dealing with the society-wide media addiction that has *lead to* the kind of Twitter-think simplicity of MAGA and USA 2025.
+
 &nbsp;
 
 .
