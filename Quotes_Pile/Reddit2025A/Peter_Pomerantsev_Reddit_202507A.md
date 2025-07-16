@@ -521,3 +521,21 @@ bangontarget 2012-09-08
 
 not saying he'll be impeached and tried for treason any time soon, but this is by far the biggest rift in the bloc so far and we'd do well to help make it bigger."
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3geisq/
+
+corvusmagnus 2010-12-06
+
+"Honestly, I think if there's one thing animating Republican politics it's the God given right to not be wrong about anything. In these other matters, they were redirected to whatever battlefield in the culture war seemed advantageous, but they were never told they were wrong. It's more important than protecting children, or getting transparency. These people will not be embarrassed, or at least they can't know they aren't respected. That is the real break I see."
+
+&nbsp;
+
+https://old.reddit.com/user/ShitFireSavedMatches
+
+ShitFireSavedMatches 2024-01-15
+
+"Collective narcissism. They can only last so long before they turn on each other, the only real loyalty they have is to the image/ narrative of themselves. He is messing that up and they will either turn on him or become Olympic mental gymnasts to make it fit their narrative."
+
+* :::=== RoundSparrow_Commentary : This is a concern where Peter Pomerantsev falls short. You have to bring in Marshall McLuhan on James Joyce, Joseph Campbell on James Joyce, Jean Erdman on James Joyce. Repeating what the Reddit comment says: "Olympic mental gymnasts to make it fit their narrative" - that's exactly what James Joyce is emphasizing in his work, *religions / mythology* foundations of society. Serious study of comparative mythology and religion transoformations of society (such as The Bible being brought to the Americas in year 1492 onward - and the dual change of language to Spanish from Europe and Bible from the Levant simultaneously - is the language and religion mixing of Finneans Wake). Repeating the reddit comment: "Collective narcissism" - that "we are the chosen people by god" is forest for the tree recogntion of Surkovian information warfare / Russian weaponzied [War Against Reality](https://en.wikipedia.org/wiki/This_Is_Not_Propaganda). The addiction populations have to fiction and mythology storytelling (science fiction, inclusive of Disney and Mecca theme parks for said fiction). [These 5,000 artificial relgions that Russia](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) released on the Internet run extremely deep into collective mass minds. ===:::
+
