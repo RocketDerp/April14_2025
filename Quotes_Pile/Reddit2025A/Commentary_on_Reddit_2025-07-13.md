@@ -121,5 +121,7 @@ Makes it to the front page of Reddit, comedic framing ("Timmy") of how entertain
 
 https://old.reddit.com/r/GetNoted/comments/1m0qros/tell_me_you_are_in_a_cult_without_saying_you_are/
 
-Outright declare that USA has a massive cult problem, but do not use socail media to discuss the hundreds of published books on how to deal with a cult. Let Kremlin March 2013 onward media invasion mind-fuck Americans and sit by on social media for over a decade doing noting to degend the USA against Putin's ability to create media cults
+Outright declare that USA has a massive cult problem, but do not use social media to be serious about information warfare to discuss the hundreds of published books on how to deal with a cult. Let Kremlin March 2013 onward media invasion mind-fuck Americans and sit by on social media for over a decade doing noting to degend the USA against Putin's ability to create media cults. At this points, there a are cults of Reddit and Bluesky and other social media that are in the media addiction of mocking MAGA and Trump cults. Media cult vs. media cult. Like Israel Torah media cult (Synsagoge cult) vs. Palestine Quran media cult (Mosque). Both mocking each other as out-group cults using media systems / media venues.
+
+
 
