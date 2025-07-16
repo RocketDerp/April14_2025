@@ -87,6 +87,10 @@ Top of front page. Can not stay focused on Donald Trump trusting Putin, the enti
 
 &nbsp;
 
+https://old.reddit.com/r/AdviceAnimals/comments/1m0p7ij/the_struggles_inside_the_two_brain_cells_of_a/
+
+Front page of reddit saying that Americans have only 2 brain cells. Cult of mocking MAGA, cult of behaving like Donald Trump and Elon Musk on social machines insulting the out-group. Instead of offering sincere compassion for Russia / Surkovian mind-fuck of information war since March 2013 - all USA population does in July 2025 is attack upon the least-educated and most injured by Kremlin information warfare. Kicking Americans while they are down. Those with free time, spare time, to use Reddit - are upvoting and commenting how insults and hate (behaving like role model Donald Trump on Truth Social / Twitter) will improve the USA situation. Eating right out of the destroy-NATO brain exploits of Surkov students / Russia / Putin.
+
 &nbsp;
 
 https://old.reddit.com/r/GetNoted/comments/1m0qros/tell_me_you_are_in_a_cult_without_saying_you_are/
