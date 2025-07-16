@@ -144,3 +144,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1m1al05/apparently_its_a_hoax/
 
 "Murder by words" amusemnt framing does notapply, "LOL" comment social media laugh track for audiences in the scren shot message.  Without one drop of Reddit poster (community) / American social media users invoking: Surkov year 2012, Peter Pomerantsev 2014, Adam Curtis 2014. It is endless eating of the Surkovian simulacra onions.
 
+&nbsp;
+
+https://old.reddit.com/r/dankmemes/comments/1m1955n/did_we_just_become_best_friends/
+
+Donald Trump and RFK Jr are letting measles and other diseases be welcomed, but rich men sex games are the sustained focus (sustained so far) people are concerned about. Malala has given voice to age 13 girls all over the world and doesn't have the "rich men sex games" content audiences desire, that is my observation. USA social media audiences want to hear about private jets, private islands, and what Malala is confronting is a world wide reformation on the topic of young girls being manipulated by elders like age 79 Donald Trump. Pizzagate sex nonsense is the kind of topics given social media voice when what Malala is trying to do is build a network of young girls who have support systems and can speak up and be educated about their own abuse (which can go on within their very own house / family, not on some private island and rich men's private jets). Malala's focus is about prevention and immediate disclosure, not pizzagate style rumor mills.
+
