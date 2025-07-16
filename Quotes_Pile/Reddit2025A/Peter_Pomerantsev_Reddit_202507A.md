@@ -557,3 +557,29 @@ hopeandfaithspreader **2025-07-06 (Brand new account,** created day of FBI annou
 Also note the Reddit account name... is spreading *false hope* that this is only a domestic USA issue and not Russia since March 2013 against all of NATO.
 
 "it’s absolutely working. the comments on his own app are not on his side. i think it’s a “both things can be true” narrative where some people will still follow him, but many are dropping him only because the whole q movement hypothesized trump was liberating the world from pedophiles. to go against this is crushing everything they have believed in since 2020."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3gdjac/
+
+CraftyProcrstntr 2023-11-14
+
+"Calling it a hoax is actually insanity. We know it’s real and exists but he really thinks he can just say it never was real and we’ll just go with that. If his cult doesn’t see past this bs I really lost hope for this country."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3gdvpj/
+
+Rorviver 2020-04-21
+
+"Calling very real things a hoax or fake news has served him very well thus far tbh"
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3gtmk3/
+
+RockEyeOG 2014-09-02
+
+"Every time he calls something a hoax or fake news, you can bet on it being true."
+
+* :::=== RoundSparrow_Commentary : Simplistic Twitter-think tweet-length bi-polar logic thinking. That Donald Trump / Putin / Russia *is always telling lies, that it is 100% indicator*. Absolute failure to study Adam Curtis 2014, Peter Pomerantsev 2014, etc. You [seed 5,000 alternate realities on electric media systems](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) since March 2013, each in conflict with each other, and make the USA / NATO turn into hate vs. hate, hate harder race to the bottom. ===:::
