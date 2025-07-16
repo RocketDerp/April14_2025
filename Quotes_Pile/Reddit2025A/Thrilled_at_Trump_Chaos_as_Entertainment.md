@@ -43,3 +43,13 @@ thesagaconts 2014-04-03
 
 "It cracks me up that they are trying to make this a both sides argument when each side is clearly voting differently."
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3gnpo2/
+
+PoliticsIsDepressing **2025-02-01** (new account, with name having politics)
+
+"Most people need to understand that his rabid base is only 10-20% of the voting block. Most independents that voted for him are long gone and many “Republicans” jumped shipped months ago and are jumping ship over this Epstein crap.
+
+Encourage everyone to vote democrat during the midterms and grab the popcorn! It’ll be entertaining to watch Trump actually get impeached and convicted."
+
