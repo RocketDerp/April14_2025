@@ -482,3 +482,14 @@ Ok-Cup6020 2023-02-12
 
 :::=== RoundSparrow_Commentary : These discussions always avoid blaming We The People, the population, including Reddit EVERYONE attraction to junk on every topic. Neil Postman 1985, Andrew Postman 2017. Democracy does not work if people don't actually love their neighbors: Hate upon Mexicans, hate upon "the others" treating politics like sports games. Society is inclusive, not a "winner takes all" sports game. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m1aw54/the_rightwing_backlash_over_epstein_isnt_dying/n3folaa/
+
+forceblast 2010-10-26
+
+"The real question is even if Trump were to release them at this point could they even trust them? Well I know they will because they’re gullible morons, but after all of this, how can anyone trust whatever comes out?
+
+He’s contradicted himself like three times at this point. It’s clear he’s trying to hide something. Anything that does come out will be heavily sanitized."
+
+:::=== RoundSparrow_Commentary : Mentions contradiction, but [nobody reads / remembers / watches BBC Adam Curtis 2014 on "Contradictory Vaudeville" politics](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). In the Kremlin + White House *War Against Reality* a topic that keeps audiences glued to the constant trickle down content from the leaders is the entire point. People give up their personal lives for more of the show, handing over power and wealth to entertainment addiction. This is the biggest Donald Trump The Apprentice Reality TV acting in all human history. You gain nothing by watching The Apprentice, you are wasting away your nation and your life. That's the importance of Neil Postman's 1985 book, to face up that it is "to death", self-harm. David Foster Wallace Infinite Jest, even Russia / Putin is not winning this game, the entire world is in decline. There is no upside, Neil Postman was correct in 1985. ===:::
