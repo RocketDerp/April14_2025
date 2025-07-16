@@ -179,7 +179,7 @@ Front page of Reddit, the very content says that Russia was hoax, yet not a soul
 
 https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administration_in_history/
 
-There is a social media frency of reaction commenting to every move and shake of the Donald Trump White house / Elon Musk Twitter, etc. People barking at individual trees day after day and not seeing the [NATO forest of War Against Reality, unable to describe Adam Curtis / Peter Pomerantsev published more than a decade ago](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) in year 2014. Eating the Surkovian Onions, performances hour after hour on electric media platforms - the very basis of Putina nd Trump power sysems is constant Total Mockery audience engagement.
+There is a social media frency of reaction commenting to every move and shake of the Donald Trump White house / Elon Musk Twitter, etc. People barking at individual trees day after day and not seeing the [NATO forest of War Against Reality, unable to describe Adam Curtis / Peter Pomerantsev published more than a decade ago](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) in year 2014. Eating the Surkovian Onions, performances hour after hour on electric media platforms - the very basis of Putin and Trump power sysems is constant Total Mockery audience engagement.
 
 &nbsp;
 
