@@ -225,3 +225,8 @@ https://old.reddit.com/r/BlueskySkeets/comments/1m1j86g/he_doesnt_even_remember/
 
 "He doesn't even remember." Fixated on the status symbol of wealth and NYC, Donald Trump. Fixated on one person endlessly. The very mechanism of Donald Trump power, center of attention, mythological axis. well nobody on Reddit is **remembering**: Peter Pomerantsev 2014, Adam Curtis 2014.
 
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1m1jlnt/to_claim_that_epstein_was_arrested_under_the/
+
+Reddit social media users upvoting people realizing that **Reality Itself** is being lost, witnessing the experience of loss of **reality**, yet they can't see beyond mocking tree after tree in streaming meme networks (Reddit, Bluesky, etc) that it is a FOREST of EVERYONE behaving this way regarding reality. That [Cambridge Analytica worked with Russia to wage a war of 5,000 alternate reality fiction screen games](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) against humanity.
