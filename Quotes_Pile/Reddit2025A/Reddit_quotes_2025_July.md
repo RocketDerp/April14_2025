@@ -222,4 +222,13 @@ https://autistics.life/@RoundSparrow/114846760735678831
 
 &nbsp;
 
+https://old.reddit.com/r/ExplainTheJoke/comments/1m1ar5z/what_is_it/n3fq0v5/
+
+SirKorgor 2024-03-05
+
+"I’ve seen several variations of these pics of this girl as memes. The one in this picture references “what Christopher Columbus saw when he disembarked in America.” There’s also a version where someone has photoshopped the woman’s hair to blonde and reads “What the Romans saw when they disembarked in England/Brittania” (last part depending on how smart the person who made the meme wants to sound, I guess).
+
+I think the joke is that both Columbus and the Romans kept sex slaves. Since I am bad at age, I’ll leave it there - but worth noting that age wasn’t a disqualifying factor for either Columbus or the Romans."
+
+* :::=== RoundSparrow_Commentary : Very popular topic on Reddit, underage sex and other cultures. Today is July 16, 2025 - and Epstein priate jet private sex island is non-stop topic for past days when this comment was made. The thing I always see absent from these discussions is historical context of childbirth death and life expectancy, and the quantity of children per mother. In year 1492, life expectancy was 35 years, today in year 2025 it can be 75 years. So getting married and having children at age 15 isn't the same in *Roman times* or today. Nor did people have hospitals and 911 service. Life and death was very different interpretations. Progress in medical and moral fronts is important to recognize. ===:::
 
