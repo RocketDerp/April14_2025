@@ -583,3 +583,11 @@ RockEyeOG 2014-09-02
 "Every time he calls something a hoax or fake news, you can bet on it being true."
 
 * :::=== RoundSparrow_Commentary : Simplistic Twitter-think tweet-length bi-polar logic thinking. That Donald Trump / Putin / Russia *is always telling lies, that it is 100% indicator*. Absolute failure to study Adam Curtis 2014, Peter Pomerantsev 2014, etc. You [seed 5,000 alternate realities on electric media systems](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) since March 2013, each in conflict with each other, and make the USA / NATO turn into hate vs. hate, hate harder race to the bottom. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3gjcpg/
+
+huzzahserrah 2017-12-01
+
+"Very typical for a narcissist to gaslight and insult their partners in a relationship, doesn’t mean the person will see it or leave though. But one can hope!"
