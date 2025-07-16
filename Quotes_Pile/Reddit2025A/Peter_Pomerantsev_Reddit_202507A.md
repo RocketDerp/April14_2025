@@ -456,4 +456,19 @@ they're the only party in the world that could lose multiple elections to donald
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1m1aw54/the_rightwing_backlash_over_epstein_isnt_dying/n3fmhfx/
+
+Adventurous-Goal478 **2025-06-22 account only 23 days old**
+
+"Yup, I've seen people claim AOC is in the files. Brother, if she's in the files, it's because she was a victim. She's not even 40."
+
+:::=== RoundSparrow_Commentary : Which is worse, that people are trusting this Reddit comment claim of AOC at face value, or that it is true? Either way it is a gullibility crisis. It has several replies, engaging one-line Twitter-length bullshit comment of "the others" believing bullshit. That's the attraction of Donald Trump, one-line thinking and shock. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m1aw54/the_rightwing_backlash_over_epstein_isnt_dying/n3g6n0p/
+
+Emotional_Act_461 2023-11-01
+
+"It almost definitely wouldn't matter. Their disinformation bubble is impenetrable."
 
