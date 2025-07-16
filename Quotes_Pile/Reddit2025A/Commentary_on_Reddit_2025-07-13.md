@@ -187,3 +187,10 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1m1hc7c/dementia_don/
 
 Front page top of Reddit. Donald Trump fixated. Constantly social media users are fixated on "demetia" ignoring that Elon Musk is younger, the Fox News / Rupert Murdoch audience problem. Ignoring what Adam Curtis / Peter Pomerantsev published more than a decade ago. Always making it about *one single person*, and not hundreds of millions of people in mulitple NATO nations. [Books rot and articles rot on the shelf](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) while people on electric social machines are engaged in constant out-group mocking and insults about *low IQ* and *dementia* of individual persons, barking at tree after tree, unable to [see the entire forest of military information warfare](https://www.facebook.com/konstantin.rykov/posts/10210643558675446).
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m1etof/this_is_just_embarrassing/
+
+Front page of Reddit with a clickbait topic that is not specific, the Reddit community both authors this topic clickbait and upvotes it. What's embarrassing is that social media users are commenting about social media being used to manipulate people without citing Neil Postman 1985, Andrew Postman February 2017, Peter Pomerantsev 2014, Adam Curtis 2014, etc. People hour after hour, day after day ignore 2014 books that rot on the shelf while commenting that their nation is going into the toilet and engage in Americans upon Americans hate while nobody on Reddit is calling out that this is the very techniques of "War Against Reality", Russian information warfare. [USA people are playing on Reddit social media the 5,000 alternate reality screen games against the other ARG games and electric media platforms](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) without self-awareness to describe them, link them, explain whenthey started, or name the creators.
+
+
