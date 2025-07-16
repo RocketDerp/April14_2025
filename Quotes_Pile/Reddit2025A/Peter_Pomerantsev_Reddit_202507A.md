@@ -433,3 +433,11 @@ Dems need to learn that they are capable of controlling the narrative. Pick ONE 
 
 .
 
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1m0uhj1/american_idol_executive_and_her_husband_found/n3dnqkh/
+
+Squatch11 2011-12-05
+
+"All this thread is telling me is that 90% of you didn't actually spend the 30 seconds it takes to read the completely free article you're commenting on."
+
