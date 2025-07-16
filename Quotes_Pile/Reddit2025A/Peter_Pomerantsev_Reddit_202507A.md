@@ -551,9 +551,9 @@ Also drain the swap was the OG big fear that trump whipped up to get people out 
 
 &nbsp;
 
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3gdjtb/
+
 hopeandfaithspreader **2025-07-06 (Brand new account,** created day of FBI announcement)
 Also note the Reddit account name... is spreading *false hope* that this is only a domestic USA issue and not Russia since March 2013 against all of NATO.
-
-https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3gdjtb/
 
 "it’s absolutely working. the comments on his own app are not on his side. i think it’s a “both things can be true” narrative where some people will still follow him, but many are dropping him only because the whole q movement hypothesized trump was liberating the world from pedophiles. to go against this is crushing everything they have believed in since 2020."
