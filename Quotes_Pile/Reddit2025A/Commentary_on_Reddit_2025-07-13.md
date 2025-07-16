@@ -175,3 +175,9 @@ https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_t
 Front page of Reddit, the very content says that Russia was hoax, yet not a soul on Reddit can mention War Against Reality itself, [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) (more than **TWO full years** before November 2016 election, before Trump announced in June 2015), Adam Curtis 2014 uncited / unmentioned. People on social media July 2025 who can not mention Adam Curtis / Peter Pomerantsev on a very posting that calls Russia manipulation via media systems a hoax are not facing up with self-awareness. People are behaving as conditioned, reaction commenting, reacting- as Donald Trump and Elon Musk lead on social media Truth Social and Twitter, *reactionary mindsets*. Russian manipulation of the USA population is NOT a hoax, [multiple NATO nations document it. It isn't just USA!](https://www.lemonde.fr/en/international/article/2025/02/22/the-increasingly-sophisticated-digital-manipulation-threatening-european-democracies_6738433_4.html)
 
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administration_in_history/
+
+There is a social media frency of reaction commenting to every move and shake of the Donald Trump White house / Elon Musk Twitter, etc. People barking at individual trees day after day and not seeing the [NATO forest of War Against Reality, unable to describe Adam Curtis / Peter Pomerantsev published more than a decade ago](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) in year 2014. Eating the Surkovian Onions, performances hour after hour on electric media platforms - the very basis of Putina nd Trump power sysems is constant Total Mockery audience engagement.
+
