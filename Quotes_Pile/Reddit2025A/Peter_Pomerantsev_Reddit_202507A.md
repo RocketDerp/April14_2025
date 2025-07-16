@@ -625,3 +625,13 @@ Expert_Country7228 2021-04-28
 
 * :::=== RoundSparrow_Commentary : Reddit social media commentary track that it is *only MAGA*, that it isn't Russia Putin Surkov governing year 2012. No ability to discuss that this is informaiton waar, War Against Reality, as described by Adam Curtis 2014 and Peter Pomerantsev 2014. Normalizing it as only domestic USA. See also: Comparative Mythology, Mecca, Islamic world is a science fiction reality show. ===:::
 
+&nbp;
+
+https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administration_in_history/n3gu4no/
+
+ExZowieAgent 2017-11-09
+
+"So weird that “Phase 2” is to deny everything."
+
+* :::=== RoundSparrow_Commentary : you see comments like this consantly, barking at individual events as trees and zero forest perspective. Recency bias, context of only the stream of memes today on social machines. No ability to discuss that this is informaiton waar, War Against Reality, as described by Adam Curtis 2014 and Peter Pomerantsev 2014. ===:::
+* 
