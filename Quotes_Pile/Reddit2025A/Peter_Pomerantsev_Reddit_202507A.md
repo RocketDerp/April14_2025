@@ -614,3 +614,14 @@ Maleficent_Wash_934 2022-04-03
 "It's just fucking embarrassing. Everything about Trump and all his lackeys and the fact that he was elected president twice. Just so fucking embarrassing.
 
 All these families are being torn apart in the US. All the kids in Palestine who manage to live? Kids remember. When they grow up with that trauma and view (rightfully in my opinion), the US as the reason for all that? It's going to be bad."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administration_in_history/n3h8g60/
+
+Expert_Country7228 2021-04-28
+
+"Maga world is literally just a non stop reality show where everyone is competing for the spotlight at all times."
+
+* :::=== RoundSparrow_Commentary : Reddit social media commentary track that it is *only MAGA*, that it isn't Russia Putin Surkov governing year 2012. No ability to discuss that this is informaiton waar, War Against Reality, as described by Adam Curtis 2014 and Peter Pomerantsev 2014. Normalizing it as only domestic USA. See also: Comparative Mythology, Mecca, Islamic world is a science fiction reality show. ===:::
+
