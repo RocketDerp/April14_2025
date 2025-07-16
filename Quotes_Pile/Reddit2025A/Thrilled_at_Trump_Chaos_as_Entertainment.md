@@ -7,6 +7,10 @@ Much of the *thrill* is that *the other group* is trained, predictable - while h
 
 &nbsp;
 
+## Engaged Audience, Glued to the Surkovian Techniques of Unreality / Reality media
+
+&nbsp;
+
 https://old.reddit.com/r/politics/comments/1m1aw54/the_rightwing_backlash_over_epstein_isnt_dying/n3fzgzh/
 
 gorillafightsurvivor **2025-04-29** (New Account)
@@ -30,4 +34,12 @@ https://old.reddit.com/r/politics/comments/1m1aw54/the_rightwing_backlash_over_e
 Lore-Warden 2020-02-12
 
 "It's funny how they've trained them to latch onto conspiracy theories like a German Shepherd while actively engaging in criminal conspiracies themselves. It was only a matter of time until they got bit."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m1aw54/the_rightwing_backlash_over_epstein_isnt_dying/n3ftf97/
+
+thesagaconts 2014-04-03
+
+"It cracks me up that they are trying to make this a both sides argument when each side is clearly voting differently."
 
