@@ -633,5 +633,5 @@ ExZowieAgent 2017-11-09
 
 "So weird that “Phase 2” is to deny everything."
 
-* :::=== RoundSparrow_Commentary : you see comments like this consantly, barking at individual events as trees and zero forest perspective. Recency bias, context of only the stream of memes today on social machines. No ability to discuss that this is informaiton waar, War Against Reality, as described by Adam Curtis 2014 and Peter Pomerantsev 2014. ===:::
-* 
+* :::=== RoundSparrow_Commentary : you see comments like this consantly, barking at individual events as trees and zero forest perspective. Recency bias, context of [only the stream of memes today](../Neil_Postman_mixed0.md) on social machines of content. No ability to discuss (connect) that this is Surkovian informaiton war, War Against Reality, as described by Adam Curtis 2014 and Peter Pomerantsev 2014. ===:::
+  
