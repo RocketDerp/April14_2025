@@ -397,7 +397,7 @@ The fact they've gotten where they are says so much mroe about the crumbling sta
 
 The Trump admin is just the beneficiary of it, but these are not good propagandists. They fucking suck at it. Really bad. Aside from Trump himself as a person, just the totality of his being, nothing in this administration actually works."
 
-:::=== RoundSparrow_Commentary : [Absolute Surkovian Onion Eating, Black and White Case](Surkovian_Onion_Eating.md) ===:::
+* :::=== RoundSparrow_Commentary : [Absolute Surkovian Onion Eating, Black and White Case](Surkovian_Onion_Eating.md) ===:::
 
 &nbsp;
 
@@ -409,7 +409,7 @@ gambit61 2011-03-12
 
 "If he gets pardoned, there is zero reason to not start a Civil War in the streets. There already isn't a reason, IMO, but if he gets pardoned, that means the administration wants him out killing Democrats. And I don't want to hear any "but Martial Law" arguments, because what's the difference if they're murdering us in our homes, anyway?"
 
-:::=== RoundSparrow_Commentary : Civil war in USA does not solve a loss of NATO to information warfare. Civil War does not fix social media addiction to constant mockery of Donald Trump White House, that Joe Biden is considered boring and not entertaining enough. Civil War just adds action scenes to the MAGA fantasy of even more entertainment. The very murder that this Reddit posting about is the action violence MAGA craves in fiction White House driven by Putin / Russia. ===:::
+* :::=== RoundSparrow_Commentary : Civil war in USA does not solve a loss of NATO to information warfare. Civil War does not fix social media addiction to constant mockery of Donald Trump White House, that Joe Biden is considered boring and not entertaining enough. Civil War just adds action scenes to the MAGA fantasy of even more entertainment. The very murder that this Reddit posting about is the action violence MAGA craves in fiction White House driven by Putin / Russia. ===:::
 
 &nbsp;
 
@@ -452,7 +452,7 @@ passwordBEEFWOMEN 2018-04-20
 
 they're the only party in the world that could lose multiple elections to donald trump."
 
-:::=== RoundSparrow_Commentary : The election was lost to Russia / Putin manipulaiton of Reddit social media users who can't fight an information war to save their nation. Donald Trump winning is symptom of that Russian information war against reality loss, the nation is living in psychological denial of the loss. And it isn't just USA, it is multiple NATO nations. Hate against humanism and lust for wealth and technology like Donald Trump is an everyday change in society, not just voting days. [Russia information warfare includes hurricane topics](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57), not just Democrat vs. Republican elections of Donald Trump. Donald Trump is a symptom of anti-reality, fiction... the Russians are attacking nonfiction and science. The other commentary on this is that the Reddit comment does not address the audience, voter problem. Not holding the population accountable for their voting for antics and social media shit talk - the topics of Carl Sagan 1995, Neil Postman 1985. Donald Trump being a center of hate attraction is symptom of a population wide problem. "Political instinct" since March 2013 has been erased in favor of fiction addiction / attraction to deception. ===:::
+* :::=== RoundSparrow_Commentary : The election was lost to Russia / Putin manipulaiton of Reddit social media users who can't fight an information war to save their nation. Donald Trump winning is symptom of that Russian information war against reality loss, the nation is living in psychological denial of the loss. And it isn't just USA, it is multiple NATO nations. Hate against humanism and lust for wealth and technology like Donald Trump is an everyday change in society, not just voting days. [Russia information warfare includes hurricane topics](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57), not just Democrat vs. Republican elections of Donald Trump. Donald Trump is a symptom of anti-reality, fiction... the Russians are attacking nonfiction and science. The other commentary on this is that the Reddit comment does not address the audience, voter problem. Not holding the population accountable for their voting for antics and social media shit talk - the topics of Carl Sagan 1995, Neil Postman 1985. Donald Trump being a center of hate attraction is symptom of a population wide problem. "Political instinct" since March 2013 has been erased in favor of fiction addiction / attraction to deception. ===:::
 
 &nbsp;
 
@@ -462,7 +462,7 @@ Adventurous-Goal478 **2025-06-22 account only 23 days old**
 
 "Yup, I've seen people claim AOC is in the files. Brother, if she's in the files, it's because she was a victim. She's not even 40."
 
-:::=== RoundSparrow_Commentary : Which is worse, that people are trusting this Reddit comment claim of AOC at face value, or that it is true? Either way it is a gullibility crisis. It has several replies, engaging one-line Twitter-length bullshit comment of "the others" believing bullshit. That's the attraction of Donald Trump, one-line thinking and shock. ===:::
+* :::=== RoundSparrow_Commentary : Which is worse, that people are trusting this Reddit comment claim of AOC at face value, or that it is true? Either way it is a gullibility crisis. It has several replies, engaging one-line Twitter-length bullshit comment of "the others" believing bullshit. That's the attraction of Donald Trump, one-line thinking and shock. ===:::
 
 &nbsp;
 
@@ -480,7 +480,7 @@ Ok-Cup6020 2023-02-12
 
 "Actually I consider the democrats more sinister because they hide their true intentions. With the republicans it’s pretty clear who they are. Why do you think the Dems in congress aren’t doing anything, they have achieved their goal."
 
-:::=== RoundSparrow_Commentary : These discussions always avoid blaming We The People, the population, including Reddit EVERYONE attraction to junk on every topic. Neil Postman 1985, Andrew Postman 2017. Democracy does not work if people don't actually love their neighbors: Hate upon Mexicans, hate upon "the others" treating politics like sports games. Society is inclusive, not a "winner takes all" sports game. ===:::
+* :::=== RoundSparrow_Commentary : These discussions always avoid blaming We The People, the population, including Reddit EVERYONE attraction to junk on every topic. Neil Postman 1985, Andrew Postman 2017. Democracy does not work if people don't actually love their neighbors: Hate upon Mexicans, hate upon "the others" treating politics like sports games. Society is inclusive, not a "winner takes all" sports game. ===:::
 
 &nbsp;
 
@@ -492,6 +492,5 @@ forceblast 2010-10-26
 
 He’s contradicted himself like three times at this point. It’s clear he’s trying to hide something. Anything that does come out will be heavily sanitized."
 
-<ul>
-:::=== RoundSparrow_Commentary : Mentions contradiction, but [nobody reads / remembers / watches BBC Adam Curtis 2014 on "Contradictory Vaudeville" politics](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). In the Kremlin + White House *War Against Reality* a topic that keeps audiences glued to the constant trickle down content from the leaders is the entire point. People give up their personal lives for more of the show, handing over power and wealth to entertainment addiction. This is the biggest Donald Trump The Apprentice Reality TV acting in all human history. You gain nothing by watching The Apprentice, you are wasting away your nation and your life. That's the importance of Neil Postman's 1985 book, to face up that it is "to death", self-harm. David Foster Wallace Infinite Jest, even Russia / Putin is not winning this game, the entire world is in decline. There is no upside, Neil Postman was correct in 1985. Imagine ChatGPT giving *sounds good* but factually incorrect bullshit content (exploiting human brain **fiction addiction**) all day, and people adore using it all day every day to write supposed nonfiction school papers... that's what Surkovian governing does to the world, it's self-harm. "Amusing Ourselves To Death" as Neil Postman ... educator of educators .. titled it. ===:::
-</ul>
+
+* :::=== RoundSparrow_Commentary : Mentions contradiction, but [nobody reads / remembers / watches BBC Adam Curtis 2014 on "Contradictory Vaudeville" politics](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). In the Kremlin + White House *War Against Reality* a topic that keeps audiences glued to the constant trickle down content from the leaders is the entire point. People give up their personal lives for more of the show, handing over power and wealth to entertainment addiction. This is the biggest Donald Trump The Apprentice Reality TV acting in all human history. You gain nothing by watching The Apprentice, you are wasting away your nation and your life. That's the importance of Neil Postman's 1985 book, to face up that it is "to death", self-harm. David Foster Wallace Infinite Jest, even Russia / Putin is not winning this game, the entire world is in decline. There is no upside, Neil Postman was correct in 1985. Imagine ChatGPT giving *sounds good* but factually incorrect bullshit content (exploiting human brain **fiction addiction**) all day, and people adore using it all day every day to write supposed nonfiction school papers... that's what Surkovian governing does to the world, it's self-harm. "Amusing Ourselves To Death" as Neil Postman ... educator of educators .. titled it. ===:::
