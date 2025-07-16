@@ -472,3 +472,13 @@ Emotional_Act_461 2023-11-01
 
 "It almost definitely wouldn't matter. Their disinformation bubble is impenetrable."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m1aw54/the_rightwing_backlash_over_epstein_isnt_dying/n3gdfif/
+
+Ok-Cup6020 2023-02-12
+
+"Actually I consider the democrats more sinister because they hide their true intentions. With the republicans it’s pretty clear who they are. Why do you think the Dems in congress aren’t doing anything, they have achieved their goal."
+
+:::=== RoundSparrow_Commentary : These discussions always avoid blaming We The People, the population, including Reddit EVERYONE attraction to junk on every topic. Neil Postman 1985, Andrew Postman 2017. Democracy does not work if people don't actually love their neighbors: Hate upon Mexicans, hate upon "the others" treating politics like sports games. Society is inclusive, not a "winner takes all" sports game. ===:::
+
