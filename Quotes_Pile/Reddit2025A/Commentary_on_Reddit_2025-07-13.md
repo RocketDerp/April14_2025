@@ -200,3 +200,10 @@ https://old.reddit.com/r/AdviceAnimals/comments/1m19qr4/have_a_blessed_wednesday
 
 And another clickbait non-specific title created by Reddit community and upvoted to front page. Normalizing all this with entertainment television (The Office) content. Amusment washing of the situation. Neil Postman's 1985 "Amusing Ourselves to Death" about adoring fiction and shallow superficial understanding ignored while people jump into the bullshit pile. People do not want to leave MAGA behind in history (by **being serious and sustained repeating** of Neil Postman's book to get all USA people on the same 184 pages), *it is too entertaining* to adopt Donald Trump style of communicaitons - the endless mocking, total mockery, never-ending decade plus of shit-talk on social media, the dumb shit of Donald Trump on Twitter that got him to be King. Anti-intellectual, wrapped in poular "The Office" humor, amusement mill washing of sreious topics on every social media platform I study.
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1m1k28t/kevin_spacey_demands_release_of_all_jeffrey/
+
+Super fast upvoting to top of front page of Reddit. Fiction big name star vs. fiction big name star. Rich men's sex games topics is what USA society cares about, despite Trump being elected to office after dozens of fellony convictions. Because fiction content creators are fuel the anti-reality of social media consumers July 2025.
+
+
