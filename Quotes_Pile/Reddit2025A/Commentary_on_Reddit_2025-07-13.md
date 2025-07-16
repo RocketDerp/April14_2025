@@ -206,5 +206,8 @@ https://old.reddit.com/r/nottheonion/comments/1m1k28t/kevin_spacey_demands_relea
 
 Super fast upvoting to top of front page of Reddit. Fiction big name star vs. fiction big name star. Rich men's sex games topics is what USA society cares about, despite Trump being elected to office after dozens of fellony convictions. Because fiction content creators are fuel the anti-reality of social media consumers July 2025. There is a huge super-deep mind manipulation with this media addiction, the fiction star is famous for playing POTUS, "Frank plays the role of President Bartlett, a cartoon president"... Frank Underwood becomes The President, like Donald Trump. The ultimate Surkovian screenplay audience addiction for July 2025. Status symbol fiction gumbo of bullshit and anti-reality. Full blown mythological White House fueled by social media *action reaction commenting* addiction.
 
+&nbsp;
 
+https://old.reddit.com/r/goodnews/comments/1m1ksqs/trump_slams_own_supporters_as_stupid_republicans/
 
+Quickly made high on front page of Reddit. Calling the non-believers stupid in religion systems is core levant clergy values. Reddit community revels in calling MAGA / Republicans / Donald Trump / American people stupid over and over for the past decade, it's some of the most popular content. Adopting MAGA values of hate upon [the other 4,999 screen game pattern players](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) for not agreeing with your current ARG screen game channel choices. Party vs. party, platform vs platform, filter bubble vs. filter bubble, as long as a fiction Reality TV The Apprentice playing Tony Clifton can keep people flocking to hate and mass dehumanization. Egomania abounds, egoism is worshiped. Bullshit and simualcra rules.
