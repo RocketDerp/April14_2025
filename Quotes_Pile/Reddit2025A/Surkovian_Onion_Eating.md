@@ -1,12 +1,14 @@
 # Surkovian Onion Eating
 
+Thinking that this is ONLY the United States of America and Donald Trumpism and having zero ability to describe and associate with Russia year 2012 methods of governing:
+
 1. Peter Pomerantsev [2014: "Menace of Unreality", "Information Warfare"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)
 2. Adam Curtis [2014: "Contradictory Vaudeville"](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
 3. Anything written about techniques of media enagement from goverment to people around Vladislav Surkov
 4. Cambridge Analytica - [military psycological doctorates, organized manipulation firm](https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy) - and that there could possibly be permananent aftermath and side-effects in the general population. Further, [that Russia worked with Cambridge Analytica since November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
 5. Pizzagate, QAnon topics - without reference to ["War Against Reality" information warfare topics from **year 2014** Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). - Also avoiding any of the public notices of **factual evidence* that [QAnon was promoted by Russia since year 2017](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html) - and that [QAnon symbols were promenent at January 6, 2021 insurection](https://time.com/5928627/symbols-capitol/).
 
-&nbsp
+&nbsp;
 
 ## Common forms:
 
