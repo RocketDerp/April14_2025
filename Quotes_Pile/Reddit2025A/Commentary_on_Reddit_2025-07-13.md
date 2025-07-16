@@ -106,6 +106,8 @@ Outright declare that USA has a massive cult problem, but do not use social medi
 
 &nbsp;
 
+# ToDo: Move this section to end
+
 ### Notes
 
 Context from the content of this parallel document may help: 
