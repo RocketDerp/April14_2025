@@ -204,6 +204,7 @@ And another clickbait non-specific title created by Reddit community and upvoted
 
 https://old.reddit.com/r/nottheonion/comments/1m1k28t/kevin_spacey_demands_release_of_all_jeffrey/
 
-Super fast upvoting to top of front page of Reddit. Fiction big name star vs. fiction big name star. Rich men's sex games topics is what USA society cares about, despite Trump being elected to office after dozens of fellony convictions. Because fiction content creators are fuel the anti-reality of social media consumers July 2025.
+Super fast upvoting to top of front page of Reddit. Fiction big name star vs. fiction big name star. Rich men's sex games topics is what USA society cares about, despite Trump being elected to office after dozens of fellony convictions. Because fiction content creators are fuel the anti-reality of social media consumers July 2025. There is a huge super-deep mind manipulation with this media addiction, the fiction star is famous for playing POTUS, "Frank plays the role of President Bartlett, a cartoon president"... Frank Underwood becomes The President, like Donald Trump. The ultimate Surkovian screenplay audience addiction for July 2025. Status symbol fiction gumbo of bullshit and anti-reality. Full blown mythological White House fueled by social media *action reaction commenting* addiction.
+
 
 
