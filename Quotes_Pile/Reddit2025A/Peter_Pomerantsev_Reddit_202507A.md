@@ -604,3 +604,13 @@ Lazy_Ad4370 **2025-01-20** (New account, also put on their profile that they are
 > I have more success in 6 months than perhaps any president in our country’s history
 
 If you define success by destroying the economy, causing chaos in the country by targeting immigrants and POC, going after LGBTQ+ and women’s rights, destroying the healthcare and possibly trying to hide that you were involved in pedophilia, sureeee!!"
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3gg9bn/
+
+Maleficent_Wash_934 2022-04-03
+
+"It's just fucking embarrassing. Everything about Trump and all his lackeys and the fact that he was elected president twice. Just so fucking embarrassing.
+
+All these families are being torn apart in the US. All the kids in Palestine who manage to live? Kids remember. When they grow up with that trauma and view (rightfully in my opinion), the US as the reason for all that? It's going to be bad."
