@@ -194,3 +194,9 @@ https://old.reddit.com/r/agedlikemilk/comments/1m1etof/this_is_just_embarrassing
 Front page of Reddit with a clickbait topic title that is not specific, the Reddit community both authors this title clickbait and upvotes it. What's embarrassing is that social media users are commenting about social media being used to manipulate people without citing Neil Postman 1985, Andrew Postman February 2017, Peter Pomerantsev 2014, Adam Curtis 2014, etc. People hour after hour, day after day ignore 2014 books that rot on the shelf while commenting that their nation is going into the toilet and engage in Americans upon Americans hate while nobody on Reddit is calling out that this is the very techniques of "War Against Reality", Russian information warfare. [USA people are playing on Reddit social media the 5,000 alternate reality screen games against the other ARG games and electric media platforms](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) without self-awareness to describe them, link them, explain when military against population ARG games started, or name the creators.
 
 
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1m19qr4/have_a_blessed_wednesday/
+
+And another clickbait non-specific title created by Reddit community and upvoted to front page. Normalizing all this with entertainment television (The Office) content. Amusment washing of the situation. Neil Postman's 1985 "Amusing Ourselves to Death" about adoring fiction and shallow superficial understanding ignored while people jump into the bullshit pile. People do not want to leave MAGA behind in history, it is too entertaining - the endless mocking, total mockery, never-ending decade plus of shit-talk on social media, the dumb shit of Donald Trump on Twitter that got him to be King. Anti-intellectual, wrapped in poular "The Office" humor, amusement mill washing of sreious topics on every social media platform I study.
+
