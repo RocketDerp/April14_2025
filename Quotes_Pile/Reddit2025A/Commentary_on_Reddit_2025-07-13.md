@@ -150,7 +150,15 @@ https://old.reddit.com/r/dankmemes/comments/1m1955n/did_we_just_become_best_frie
 
 Donald Trump and RFK Jr are letting measles and other diseases be welcomed, but rich men sex games are the sustained focus (sustained so far) people are concerned about. Malala has given voice to age 13 girls all over the world and doesn't have the "rich men sex games" content audiences desire, that is my observation. USA social media audiences want to hear about private jets, private islands, and what Malala is confronting is a world wide reformation on the topic of young girls being manipulated by elders like age 79 Donald Trump. Pizzagate sex nonsense is the kind of topics given social media voice when what Malala is trying to do is build a network of young girls who have support systems and can speak up and be educated about their own abuse (which can go on within their very own house / family, not on some private island and rich men's private jets). Malala's focus is about prevention and immediate disclosure, not pizzagate style rumor mills.
 
+&nbsp;
+
 https://old.reddit.com/r/clevercomebacks/comments/1m19l71/they_lie_in_their_sleep/
 
 "They lie in their sleep" - but that's exaclty the Fox News MAGA talking point, that *liberals lie, libtards lie*. Social media users with no-identity anonymous accounts on Reddit lie and deceive constantly. ChatGPT lies, business owners use public relations firms to lie. The clergy / Church / Mosque lies. Exactly what part of USA society is attracted to nonfiction? At what point do you stop making this an out-group issue and wake up that the human brain / mind has an attraction to fiction and manipulation liars as leaders? Instead of making this an **out-group of Torah fiction vs. Quran fiction vs. Bible fiction vs. Upanishads fiction** - you *wake up* to what James Joyce was iterating in Finnegans Wake about all mythology and fiction, and University of Toronto's [Marshall McLuhan was saying in the 1968 book "War And Peace in the Global Village" about electric media](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village) (Reddit, Twitter, Ttruth Social, Fox News, etc) and Finnegans **Wake**?
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1m1cg1t/moron_who_moved_to_russia_because_texas_was_too/
+
+USA people on Reddit calling Americans morons for **taking Russia at face value**... without persistently repeating and citing: Adam Curtis 2013, Peter P 2013, Surkov methods and techniques of war agains reality. It just goes on and on in USA since March 2013 that people think Russia topic is only about **one single person, fixated on Donald Trump**, and not the ENTIRE population. Avoding serious discussion of how [Russia worked with Cambridge Analytica to create 5,000 screen games of alternate reality out-group hate and mocking](https://www.facebook.com/konstantin.rykov/posts/10210643558675446).
 
