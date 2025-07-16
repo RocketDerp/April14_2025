@@ -591,3 +591,16 @@ https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_t
 huzzahserrah 2017-12-01
 
 "Very typical for a narcissist to gaslight and insult their partners in a relationship, doesn’t mean the person will see it or leave though. But one can hope!"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3ge8u4/
+
+Lazy_Ad4370 **2025-01-20** (New account, also put on their profile that they are a clown)
+
+"
+> I have more success in 6 months than perhaps any president in our country’s history
+
+If you define success by destroying the economy, causing chaos in the country by targeting immigrants and POC, going after LGBTQ+ and women’s rights, destroying the healthcare and possibly trying to hide that you were involved in pedophilia, sureeee!!"
