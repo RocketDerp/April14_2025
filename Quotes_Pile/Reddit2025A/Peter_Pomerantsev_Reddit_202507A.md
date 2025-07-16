@@ -381,6 +381,26 @@ Domestiicated-Batman **2024-09-23** (Recent Account)
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1m0qs0c/ag_pam_bondi_is_pressed_about_frustration_over/n3cmfaz/
+
+StoppableHulk 2018-07-15
+
+"I dunno man. So I'm a political junkie and I've been deep in this shit for 10 years, and I think I could spin this dramatically better than they have.
+
+LIke that's the thing. They are genuinely not good propagandists. They're not clever. Not talented.
+
+Much of the talent of the right-wing machine comes from the fact that it isn't top down. It's organic.
+
+Like when people think of the right's success, I think they don't realize that a huge part of this is the network of opportunitsts, like Joe Rogan and many others, who are so much better at this and who are basically simply exploiting an anti-establishment, rather than conservative, niche.
+
+The fact they've gotten where they are says so much mroe about the crumbling state of the estblishment and its infrastructure more than it does any degree of competency from any of these fucking fools.
+
+The Trump admin is just the beneficiary of it, but these are not good propagandists. They fucking suck at it. Really bad. Aside from Trump himself as a person, just the totality of his being, nothing in this administration actually works."
+
+:::=== RoundSparrow_Commentary : [Absolute Surkovian Onion Eating, Black and White Case](Surkovian_Onion_Eating.md) ===:::
+
+&nbsp;
+
 .
 
 https://old.reddit.com/r/Fauxmoi/comments/1m0oib6/trump_claims_the_epstein_files_were_made_up_by/n3b2sxz/
