@@ -211,3 +211,11 @@ Super fast upvoting to top of front page of Reddit. Fiction big name star vs. fi
 https://old.reddit.com/r/goodnews/comments/1m1ksqs/trump_slams_own_supporters_as_stupid_republicans/
 
 Quickly made high on front page of Reddit. Calling the non-believers stupid in religion systems is core levant clergy values. Reddit community revels in calling MAGA / Republicans / Donald Trump / American people stupid over and over for the past decade, it's some of the most popular content. Adopting MAGA values of hate upon [the other 4,999 screen game pattern players](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) for not agreeing with your current ARG screen game channel choices. Party vs. party, platform vs platform, filter bubble vs. filter bubble, as long as a fiction Reality TV The Apprentice playing Tony Clifton can keep people flocking to hate and mass dehumanization. Egomania abounds, egoism is worshiped. Bullshit and simualcra rules.
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1m1j8u7/its_a_fun_time_for_rconservative_right_now/
+
+"Fun time", amusing, entertaining to mock and insult American people on social media. That is the values of Donald Trump, MAGA, Fox News: *insulting, hate, mocking, LOL at suffering of liberal taars.* Now popular with all Americans in July 2025. Fox News found huge profit in mocking and hate, now every media platform has found it to be the biggest engagement, best selling content. All media has adopted Fox News MAGA values, it just took more time for every media system to "catch up" that fiction and hate is popular. The content of the screenshot, well nobody on Reddit is mentioning: Peter Pomerantsev 2014, Adam Curtis 2014. Because everyone is damn enaged and entertained at the streaming memes and hate messages on every one of the USA media channels / meme networks. 
+
+
