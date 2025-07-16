@@ -625,7 +625,7 @@ Expert_Country7228 2021-04-28
 
 * :::=== RoundSparrow_Commentary : Reddit social media commentary track that it is *only MAGA*, that it isn't Russia Putin Surkov governing year 2012. No ability to discuss that this is informaiton waar, War Against Reality, as described by Adam Curtis 2014 and Peter Pomerantsev 2014. Normalizing it as only domestic USA. See also: Comparative Mythology, Mecca, Islamic world is a science fiction reality show. ===:::
 
-&nbp;
+&nbsp;
 
 https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administration_in_history/n3gu4no/
 
@@ -635,3 +635,13 @@ ExZowieAgent 2017-11-09
 
 * :::=== RoundSparrow_Commentary : you see comments like this consantly, barking at individual events as trees and zero forest perspective. Recency bias, context of [only the stream of memes today](../Neil_Postman_mixed0.md) on social machines of content. No ability to discuss (connect) that this is Surkovian informaiton war, War Against Reality, as described by Adam Curtis 2014 and Peter Pomerantsev 2014. ===:::
   
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administration_in_history/n3h2b4u/
+
+gingerbreademperor 2015-06-16
+
+"Not just that. It cannot be overstated how big of a deal it is that he now calls it a hoax and claims that only "former" supporters believe it. This has been one of their cornerstone narratives for a decade -- calling it a hoax now is essentially an admission of guilt. It is absolutely crazy that they take something they so vigorously sent their supporters into and then try to distance themselves from it and essentially drop their own base for "believing bullshit". It's not mere denial, it's breaking the MAGA universe and the only reason can be guilt."
+
+* :::=== RoundSparrow_Commentary : very popular to say on media systems that "the only reason" is A, or that there are *two and only two sides* to every topic, nobody can ever invent an answer outside the 1 or 2 explinations. Quoting the reddit comment: "It is absolutely crazy" - that there is no ability to discuss (connect) that this is Surkovian informaiton war, War Against Reality, as described by Adam Curtis 2014 and Peter Pomerantsev 2014. ===:::
+
