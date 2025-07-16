@@ -539,3 +539,12 @@ ShitFireSavedMatches 2024-01-15
 
 * :::=== RoundSparrow_Commentary : This is a concern where Peter Pomerantsev falls short. You have to bring in Marshall McLuhan on James Joyce, Joseph Campbell on James Joyce, Jean Erdman on James Joyce. Repeating what the Reddit comment says: "Olympic mental gymnasts to make it fit their narrative" - that's exactly what James Joyce is emphasizing in his work, *religions / mythology* foundations of society. Serious study of comparative mythology and religion transoformations of society (such as The Bible being brought to the Americas in year 1492 onward - and the dual change of language to Spanish from Europe and Bible from the Levant simultaneously - is the language and religion mixing of Finneans Wake). Repeating the reddit comment: "Collective narcissism" - that "we are the chosen people by god" is forest for the tree recogntion of Surkovian information warfare / Russian weaponzied [War Against Reality](https://en.wikipedia.org/wiki/This_Is_Not_Propaganda). The addiction populations have to fiction and mythology storytelling (science fiction, inclusive of Disney and Mecca theme parks for said fiction). [These 5,000 artificial relgions that Russia](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) released on the Internet run extremely deep into collective mass minds. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3ghvt0/
+
+Front_Target7908 2022-03-10
+
+"I agree, pizza gate and qanon was the wave trump rode into office - he rode in on their coat tails not the other way around. I have no way or articulating why I think this but I suspect with conspiracy/cults, order of introduction to ideas may be something that matters. To give up the gateway drug, the entrance to the rabbit warren, is to admit you’ve built your entire life around a lie. I suspect Trump will be killed off from the cult before people will be willing to kill the cult.
+
+Also drain the swap was the OG big fear that trump whipped up to get people out to vote for him…there is no fall back on this one."
