@@ -510,3 +510,14 @@ https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_t
 alloutofbees 2020-10-06
 
 "The problem is they do not genuinely give a shit about pedophilia or about victims. They only care about using the spectre of pedophilia as a weapon against groups they hate. That's why they're so caught up on labeling LGBT people groomers and on the myth that human trafficking is suburban white kids being tricked into vans by shadowy figures who want to move them across borders. They actively do not care and do not want to stop actual pedophiles. They will in fact go out of their way to protect actual pedophiles. The only reason they even made Epstein part of their nonsense is QAnon and the idea that it would take down a bunch of "liberal elites"."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m1duwj/trump_posted_this_morning_on_truth_social_that/n3grqfe/
+
+bangontarget 2012-09-08
+
+"this. the importance of shit like qanon and pizzagate cannot be understated in his fanbase. he sucked up all the conspiracy nuts and fed their delusions, and the biggest conspiracy issue is still the pedophilic elite. a lot of his support actually hinges on the topic. anyone saying this will blow over with zero impact hasn't been paying attention.
+
+not saying he'll be impeached and tried for treason any time soon, but this is by far the biggest rift in the bloc so far and we'd do well to help make it bigger."
+
