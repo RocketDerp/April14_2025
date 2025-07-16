@@ -53,3 +53,11 @@ PoliticsIsDepressing **2025-02-01** (new account, with name having politics)
 
 Encourage everyone to vote democrat during the midterms and grab the popcorn! It’ll be entertaining to watch Trump actually get impeached and convicted."
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administration_in_history/n3gunrs/
+
+blazelet 2012-07-30
+
+"It’s really awkward to see someone so gleefully holding the Epstein files."
+
