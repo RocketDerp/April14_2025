@@ -409,7 +409,7 @@ gambit61 2011-03-12
 
 "If he gets pardoned, there is zero reason to not start a Civil War in the streets. There already isn't a reason, IMO, but if he gets pardoned, that means the administration wants him out killing Democrats. And I don't want to hear any "but Martial Law" arguments, because what's the difference if they're murdering us in our homes, anyway?"
 
-:::=== RoundSparrow_Commentary : Civil war in USA does not solve a loss of NATO to information warfare. Civil War does not fix social media addiction to constant mockery of Donald Trump White House, that Joe Biden is considered boring and not entertaining enough. Civil War just adds action scenes to the MAGA fantasy of even more entertainment. ===:::
+:::=== RoundSparrow_Commentary : Civil war in USA does not solve a loss of NATO to information warfare. Civil War does not fix social media addiction to constant mockery of Donald Trump White House, that Joe Biden is considered boring and not entertaining enough. Civil War just adds action scenes to the MAGA fantasy of even more entertainment. The very murder that this Reddit posting about is the action violence MAGA craves in fiction White House driven by Putin / Russia. ===:::
 
 &nbsp;
 
