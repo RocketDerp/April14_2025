@@ -656,3 +656,20 @@ Jaerba 2015-07-15
 He'll lie about anything at a rate far greater than other politicians. Politifact's study on it found he lies 75% of the time.  Other Republicans were just a tick above 50%."
 
 * :::=== RoundSparrow_Commentary : Reddit comment starts with "I wonder how many people will wake up" - that year 1924 onward publication by James Joyce of Finnegans Wake spells all that is being described (favoring of fiction over non-fiction, reality warfare) with the help of University of Toronto's Marshall McLuhan in **year 1968** book [War And Peace in The Global Village](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village) - describing the predictability of Reddit electric media user behaviors in 1924... ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administration_in_history/n3h8hwj/
+
+Plenty_Rope_2942 2023-05-16
+
+"I want to stress to people that this belief, for many of his followers, actually predates their beliefs in Donald Trump/MAGA.
+
+The funnel for many of these people was esoteric religious conspiracy communities (e.g. Flat Earth, Theistic Evolutionism, Young Earth Creationism, etc.) into QAnon/MAGA. They were put into Christian Fundamentalist pipelines that shat them out on Donald's doorstep because it was politically exigent and convenient. This was not their inevitable endpoint.
+
+As a result, their founding theory of the world is not that Donald Trump is their big daddy. For so, so many Trumpers, their founding theory is that there is a dark cabal and that a nebulous ***(((they)))*** are trying to hide the true nature of the world from you while participating in ***(((dark pedophilic rituals)))*** in consort with the literal biblical Satan.
+
+**Functionally, they believe that the Jews invented modernity so they could fuck little kids and keep you from knowing God personally. They believe that Donald Trump is the prophet who will bring this cabal to justice under God's eye.**
+
+I'm not sure what happens when these people are finally forced to choose between their twisted idea of religion via early YouTube and their twisted idea of American excellence via Donald Trump. But I wish I didn't have to be here to find out."
+
