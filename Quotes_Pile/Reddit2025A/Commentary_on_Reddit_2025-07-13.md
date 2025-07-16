@@ -87,7 +87,18 @@ Top of front page. Can not stay focused on Donald Trump trusting Putin, the enti
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/GetNoted/comments/1m0qros/tell_me_you_are_in_a_cult_without_saying_you_are/
+
+Outright declare that USA has a massive cult problem, but do not use social media to be serious about information warfare to discuss the hundreds of published books on how to deal with a cult. Let Kremlin March 2013 onward media invasion mind-fuck Americans and sit by on social media for over a decade doing noting to **defend the USA sand NATO partners against Putin's ability to create media cults**. At this points, there a are cults of Reddit and Bluesky and other social media that are in the media addiction of mocking MAGA and Trump cults. Media cult vs. media cult. Like Israel Torah media cult (Synagogue cult) vs. Palestine Quran media cult (Mosque). Both mocking each other as out-group cults using media systems / media venues.
+
+&nbsp;
+
 .
+
+
+
 
 &nbsp;
 
@@ -117,10 +128,5 @@ https://old.reddit.com/r/agedlikemilk/comments/1m0tthd/oh_so_thats_how_it_is_tim
 
 Makes it to the front page of Reddit, comedic framing ("Timmy") of how entertaining and amusing this mockery is. Surkvian onion breath of USA social media users. [Tim Pool media content duped to work for Russia / Kremlin](https://apnews.com/article/russian-interference-presidential-election-influencers-trump-999435273dd39edf7468c6aa34fad5dd) and here it is, Johnny on the spot, War Against Reality / [Contradictory Vaudeville](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). Without one drop of Reddit poster (community) / American social media users invoking: Surkov year 2012, Peter Pomerantsev 2014, Adam Curtis 2014. It is endless eating of the Surkovian simulacra onions and egoism of mocking and insulting (which is Reddit community adopting the very values of Donald Trump White House: Mocking sincerity, mockery, insulting).
 
-&nbsp;
-
-https://old.reddit.com/r/GetNoted/comments/1m0qros/tell_me_you_are_in_a_cult_without_saying_you_are/
-
-Outright declare that USA has a massive cult problem, but do not use social media to be serious about information warfare to discuss the hundreds of published books on how to deal with a cult. Let Kremlin March 2013 onward media invasion mind-fuck Americans and sit by on social media for over a decade doing noting to **defend the USA sand NATO partners against Putin's ability to create media cults**. At this points, there a are cults of Reddit and Bluesky and other social media that are in the media addiction of mocking MAGA and Trump cults. Media cult vs. media cult. Like Israel Torah media cult (Synagogue cult) vs. Palestine Quran media cult (Mosque). Both mocking each other as out-group cults using media systems / media venues.
 
 
