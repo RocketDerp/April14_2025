@@ -645,3 +645,14 @@ gingerbreademperor 2015-06-16
 
 * :::=== RoundSparrow_Commentary : very popular to say on media systems that "the only reason" is A, or that there are *two and only two sides* to every topic, nobody can ever invent an answer outside the 1 or 2 explinations. Quoting the reddit comment: "It is absolutely crazy" - that there is no ability to discuss (connect) that this is Surkovian informaiton war, War Against Reality, as described by Adam Curtis 2014 and Peter Pomerantsev 2014. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1m1gx6h/the_most_transparent_administration_in_history/n3h3wil/
+
+Jaerba 2015-07-15
+
+"I wonder how many people will wake up to the fact that he's been a serial liar this entire time.  That the talking points about the border, LGBTQ+ people, Kamala Harris, etc. have been lies as well. He lied about his businesses, he lied to screw over contractors, he lied about his association to Protect 2025.
+
+He'll lie about anything at a rate far greater than other politicians. Politifact's study on it found he lies 75% of the time.  Other Republicans were just a tick above 50%."
+
+* :::=== RoundSparrow_Commentary : Reddit comment starts with "I wonder how many people will wake up" - that year 1924 onward publication by James Joyce of Finnegans Wake spells all that is being described (favoring of fiction over non-fiction, reality warfare) with the help of University of Toronto's Marshall McLuhan in **year 1968** book [War And Peace in The Global Village](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village) - describing the predictability of Reddit electric media user behaviors in 1924... ===:::
