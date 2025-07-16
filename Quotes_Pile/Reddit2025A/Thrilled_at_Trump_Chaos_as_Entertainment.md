@@ -1,6 +1,6 @@
 # Thrilled at Surkovian Governing
 
-NOTE: Lest you believe I take words like "funny" too literally, not as in "odd" or that people are being sarcastic... I remind you that context of commenting about it on social media, ironically or otherwise, is social media engagement of the Surkovian poison apple kind. Donald Trump's power is making EVERY HOUR of EVERY DAY of United States of America life exciting and thrilling what the Hunger Games white men ruling the nation are going to do / say / chaos next. [Electric Torah song frm July 1973 applies to Donald Trump MAGA Fox News politics, lyrics: "And for the coup de grace: they're outrageous!](https://www.youtube.com/watch?v=-h-crmBPHb4)
+NOTE: Lest you believe I take words like "funny" too literally, not as in "odd" or that people are being sarcastic... I remind you that context of commenting about it on social media, ironically or otherwise, is social media engagement of the Surkovian poison apple kind. Donald Trump's power is making EVERY HOUR of EVERY DAY of United States of America life exciting and thrilling what the Hunger Games white men ruling the nation are going to do / say / chaos next. [Electric Torah song frm July 1973 applies to Donald Trump MAGA Fox News politics, lyrics: *"And for the coup de grace: they're outrageous!"*](https://www.youtube.com/watch?v=-h-crmBPHb4)
 
 
 &nbsp;
