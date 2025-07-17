@@ -785,5 +785,5 @@ SuperRat10 2021-12-29
 
 "Everyone conveniently seems to forget that Trump was president before."
 
-* :::=== RoundSparrow_Commentary : **Recency bias** seems to be a major symtom of the War Against Reality, outcomes of Cambridge Analytica and Kremlin manipulation of the population. Context bewilderment too. ===:::
+* :::=== RoundSparrow_Commentary : **Recency bias** seems to be a major symptom of the War Against Reality, outcomes of Cambridge Analytica and Kremlin manipulation of the population. [Context bewilderment](https://www.amazon.com/Context-Blindness-Technology-Evolution-Understanding/dp/1433186136) too. ===:::
 
