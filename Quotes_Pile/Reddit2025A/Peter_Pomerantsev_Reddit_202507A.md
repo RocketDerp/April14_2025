@@ -682,3 +682,16 @@ turkey_sandwiches 2012-06-04
 "Yeah, this is pretty stupid. Trump wasn't shot, but there was a real shooter and someone died. This is Alex Jones levels of crazy, and we're better than this."
 
 * :::=== RoundSparrow_Commentary : There is so much streaming memes and ever-changing content on social media that is fiction and anti-reality, people can't even see the forest for the trees of how much people against Donald Trump and MAGA have adopted the behaviors and values of hate and unreality. 2014 Peter Pomerantsev rots on the shelf. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m29nd9/new_view_of_the_butler_pa_shooting/n3nbnlv/
+
+TalkFormer155 2020-10-09
+
+"The only dumb people are the one's here that have convinced themselves this was staged.
+
+The flag wasn't lowered. The wind changed slightly and the viewpoint raised. Secret service was doing exactly what they were supposed to do. There's original photo evidence of the bullet on a trajectory exactly as has been published. Anyone who understands a thing about shooting and the ballistics involved of knows you can't get one that close to his head without it doing more than grazing him. You could take that shot 5 times and 3 of them he would be dead and the other two wouldn't have hit him at all. The blood dripping off his face was real."
+
+* :::=== RoundSparrow_Commentary : Exactly. Social media year 2024 and year 2025 has those who *hate Trump / despise Trump* adopting all the same out-group hate and unreality favoring that MAGA adopted in 2014. It took longer for sone groups, but people are swiming in reactionary no-identity social media content. Social media has become a unreality training ground. People do not discuss the Internet Research Agency, [Plot to Break America books by Christopher Wylie from 2019](https://en.wikipedia.org/wiki/Christopher_Wylie), there are *huge voids* in discussion of mass mind manipulation - people constantly bring up **Project 2025** but ignore current [ongong information warfare](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57) against We The People. There are mutliple NATO nations reporting manipulation, but social media society of USA is fixated on Donlad Trump domestic.  ===:::
+
