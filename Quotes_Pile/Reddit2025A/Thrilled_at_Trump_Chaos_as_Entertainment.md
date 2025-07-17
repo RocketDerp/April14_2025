@@ -61,3 +61,11 @@ blazelet 2012-07-30
 
 "It’s really awkward to see someone so gleefully holding the Epstein files."
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m29nd9/new_view_of_the_butler_pa_shooting/n3ncy5y/
+
+the_catalyst_alpha **2025-03-11** (Recent account)
+
+"Funny how you’re so caught up on the camera angle and the flag but ignore everything else involved. Typical bullshit from the right. Lol"
+
