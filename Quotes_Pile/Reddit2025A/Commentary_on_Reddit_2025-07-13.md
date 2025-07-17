@@ -233,6 +233,10 @@ Reddit social media users upvoting people realizing that **Reality Itself** is b
 
 &nbsp;
 
+# Thursday July 17, 2025
+
+&nbsp;
+
 https://old.reddit.com/r/50501/comments/1m275b7/new_angle_of_the_attempt_what_are_your_thoughts/
 
 Anti-reality narative, as if Joe Biden in July 2024 would have covered this up. What total social media society bullshit. "What are your thoughts?" title social media engagement technique. 50501 shows so many signs of being a *simulacra of resistance* and entirely avoids promoting Jen Senko's book and film, Neil Postman 1985 / Andrew Postman February 2017, Peter Pomerantsev, Adam Curitis 2014, Christopher Wylie 2019 books, etc. Just jumps right into the Donald Trump / MAGA / Kremlin bullshit instead of addressing the society-wide addiction to hate upon Donald Trump / hate intiated by Donald Trump, magnet for hate and mass dehumanization. 
