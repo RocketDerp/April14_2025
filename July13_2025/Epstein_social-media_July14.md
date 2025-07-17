@@ -146,7 +146,7 @@ How the elder men of society ruled over little girls, their sex life, their marr
 
 #### Impossible to Describe
 
-The sewer of shit, the fetish USA population of social media users have demonstrated July 2025 over rich men is impossible to describe. The fetish people have to bow down to a King of 79 year old man for sex topics and Drake content in year 2024 can't be described. What a fucked-up population of addicts to rich men worship, rich "Daddy" 79 year old fetishism (sugar daddy? sky daddy? take your pick).
+The sewer of shit, the fetish USA population of social media users have demonstrated July 2025 over rich men is impossible to describe. The fetish people have to bow down to a King of 79 year old man for sex topics and Drake content in year 2024 can't be described. What a fucked-up population of addicts to rich men worship, rich "Daddy" 79 year old fetishism (sugar daddy? [sky daddy](https://en.wikipedia.org/wiki/God_Bless_the_U.S.A._Bible)? take your pick).
 
 Children have been given Donald Trump as a role model of behavior and leadership since year 2014. For over a decade, children age 8 and older have been told that Donald Trump is the aspiration of human achievement and goodness. What a fucked-up set of social media users who flock to shit and liars that make up the United States of America. This has been Hell itself since year 2015. And it gets worse every single day, every single week, every single month, every single year. Social media users, computer users, in USA have raised the children of society to worship Donald Trump values and thinking.
 
