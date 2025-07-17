@@ -241,3 +241,16 @@ ArgyleNudge 2013-07-30
 "A sophisticated, educated, confident, and humane citizenry is of no use whatsoever to the ChristoFascist GoP and its technobro billionaire sponsors. A lively, informed democracy is, in fact, a direct threat.
 
 Their authoritarianism and daylight robbery of the nation will continue unabated so long as they are able to buy off willing collaborators at every level of leadership and law enforcement, while they continue to impoverish the minds and the bodies of the working class."
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1m1zvy1/til_about_perrine_florida_in_1948_after_it/n3l7ngg/
+
+tpa338829 2020-09-14
+
+"Oh wait until you find out what the "White Municipal Party" was
+
+https://en.wikipedia.org/wiki/White_Municipal_Party
+
+EDIT: Why is this getting downvoted? Are people affraid of learning how truly, utterly racist Florida was/is? Are they worried people would learn it's not just all mickey mouse, beaches, and latin night clubs? Oh god forbid people learn the nasty parts of our history."
+
