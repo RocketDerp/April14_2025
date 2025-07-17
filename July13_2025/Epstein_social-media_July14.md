@@ -152,3 +152,15 @@ Children have been given Donald Trump as a role model of behavior and leadership
 
 This shit is so bad, impossible to describe the ocean of toxic shit the United States of America social media nation has become.
 
+&nbsp;
+
+
+# Morning of Thursday July 17, 2205
+
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_and_cpo_caught_having_an_affair_on/
+
+5 hours and 9274 comments, that is HUGE engagement for Reddit. And that is only ONE post of this video, it was upvoted to the front page over and over in mutliple subreddits.
+
+People are attracted to rich people's sex lives. Epstein private jet, private island. This frenzy of activity isn't about the girls being abused, this is about the rumor and shit-talking against the wealthy elite like Trump / Epstein who get on the Jumbotrons. Gawking at the rich and successful.
+
+Again, social media users have grey-rocked Malala since publicaiton of her October 8, 2013 book. It isn't just the USA where elders of society punch down on little girls and sexually abuse them, force them into marriages, etc. This is a global problem of girls being manipulated and not educated on what is happening and the pattern of abuse by elders in power (Taliban elders, Donald Trump elders, Islamic Iran elders, Russian elders, etc, etc, etc). Support [the Pussy Riot band](https://www.youtube.com/watch?v=Bp-KeVBNz0A), support Malala, give *young girls* a voice to speak up and *shut this shit down* in a preventative way, stop giving voice to the bullshit White House July 2025.
