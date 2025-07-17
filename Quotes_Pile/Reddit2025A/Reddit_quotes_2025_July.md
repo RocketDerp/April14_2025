@@ -254,3 +254,16 @@ https://en.wikipedia.org/wiki/White_Municipal_Party
 
 EDIT: Why is this getting downvoted? Are people affraid of learning how truly, utterly racist Florida was/is? Are they worried people would learn it's not just all mickey mouse, beaches, and latin night clubs? Oh god forbid people learn the nasty parts of our history."
 
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1m23rbg/boomers_are_mad_that_zoomers_wont_fake_smile_for/n3m0f9q/
+
+Bearcatsean 2012-10-28
+
+"My favorite part of this and I’m 58. I’m not a baby boomer. I’m a Gen X Gen X is getting such a pass in our society.
+
+1) My moronic generation is one of the highest groups of voting blocks for Trump and Maga and it’s unsettling to me. I don’t know what happened to my generation the generation of Molly Ringwald
+
+2) I grew up on Commodore 64 in computers so I’m a little more savvy than most, but my generation is shockingly dumb when it comes to technology and I could see where I would piss off the younger generation"
+
+* :::=== RoundSparrow_Commentary : I'm Gen X (born 1969 in Georgia), and I will tell you what happen. Russia mind-fucked EVERYONE, not just Donald Trump one single person. [5,000 artificial reality screen games were deployed by the Kremlin, crafted with Cambridge Analytica, and nobody defended](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). People tune into their own ficiton channel of garbage and hate upon the out-groups who tuned into one of the other 5,000 channels. We lost a war to Putin and GenX should have been defending the boomers and youth. We deployed the commercial Internet! ===:::
