@@ -232,3 +232,12 @@ I think the joke is that both Columbus and the Romans kept sex slaves. Since I a
 
 * :::=== RoundSparrow_Commentary : Very popular topic on Reddit, underage sex and other cultures. Today is July 16, 2025 - and Epstein priate jet private sex island is non-stop topic for past days when this comment was made. The thing I always see absent from these discussions is historical context of childbirth death and life expectancy, and the quantity of children per mother. In year 1492, life expectancy was 35 years, today in year 2025 it can be 75 years. So getting married and having children at age 15 isn't the same in *Roman times* or today. Nor did people have hospitals and 911 service. Life and death was very different interpretations. Progress in medical and moral fronts is important to recognize. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1m24727/npr_and_pbs_to_be_defunded_disgusting/n3m9n03/
+
+ArgyleNudge 2013-07-30
+
+"A sophisticated, educated, confident, and humane citizenry is of no use whatsoever to the ChristoFascist GoP and its technobro billionaire sponsors. A lively, informed democracy is, in fact, a direct threat.
+
+Their authoritarianism and daylight robbery of the nation will continue unabated so long as they are able to buy off willing collaborators at every level of leadership and law enforcement, while they continue to impoverish the minds and the bodies of the working class."
