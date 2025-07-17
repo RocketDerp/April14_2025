@@ -724,3 +724,11 @@ Or you know they saw an opportunity and ran with it...
 Also why would they stage it with a far right shooter? Surly they would at least make the shooter a trans illegal immigrant or something 😂"
 
 * :::=== RoundSparrow_Commentary : Surkovian information warfare exploits minds, human brain, regardless if MAGA / Democrats / Republicans. It may take longer time for the *opposition* to soak in the anti-reality, but [once people adopt out-group hate our human brain becomes exploitable](../Martin_Luther_King_Jr_quotes0.md). Anonymous no-identity Reddit / Bluesky constant stream of [mental context changes (media ecology)](https://www.amazon.com/Context-Blindness-Technology-Evolution-Understanding/dp/1433186136) and junk memes are all part of these problems (Neil Postman, 1985). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m29nd9/new_view_of_the_butler_pa_shooting/n3n78vh/
+
+BostonJordan515 2019-07-31
+
+"Exactly it’s the same level of shit behind thinking 2020 was stolen. Trump is breaking people’s minds"
