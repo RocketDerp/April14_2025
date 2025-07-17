@@ -47,15 +47,17 @@ Done. Blocked. Logged out. I feel like I can breathe again.
 
 So they were living together? 
 
-First off, why must be block-happy with someone you lived with. None of this is toxic to that degree. It's shallow and superficial, but who teaches relationship behaviors - Hollywood fiction films that are just as hate-bait selling for money as fake Reddit social media content.
+First off, why must be block-happy with someone you lived with (and supposedly loved more than any other free and available person). None of this being described is toxic to that degree. It's shallow and superficial, but who teaches relationship behaviors - Hollywood fiction films that are just as hate-bait selling for money as fake Reddit social media content. Block-happy behavior shows a *red flag* in itself, a very popular behavior that is a USA society-wide red flag. 
 
-That aside... the statement **"Not stories written in invisible ink that I’m expected to decode"** is what drew me to creating this page I am composing.
+* "We must develop and maintain the capacity to forgive. He who is devoid of the power to forgive is devoid of the power to love." - Dr. Martin Luther King Jr.
 
-1. Why do people accept this style of social media content? Including the Reddit posting itself? "Not stories written in invisible ink that I’m expected to decode"
+That block-happy behavior aside... the statement **"Not stories written in invisible ink that I’m expected to decode"** is what drew me to creating this page I am composing.
 
-2. Why does the same idea not apply to President Donald Trump, people "settle for" cryptic communications and promises and don't treat public communications standard as they would call out an intimate relationship. "Not stories written in invisible ink that I’m expected to decode"
+1. Why do people (commenting on Reddit, USA society) accept this style of social media content? Including the Reddit posting itself? "Not stories written in invisible ink that I’m expected to decode"
 
-3. Corporate America leaders and teams where personality and manipulation / "selling skills" lead to power at the top over clarity and mutuality in understanding. "Not stories written in invisible ink that I’m expected to decode"
+2. Why does the same idea and atttiude towards communications not apply to **President Donald Trump** and Vice President JD Vance, people "settle for" cryptic communications and promises and don't treat public communications standard as they would call out an intimate relationship. **"Not stories written in invisible ink that I’m expected to decode"**
+
+3. Corporate America leaders and teams where personality and manipulation / "selling skills" lead to power at the top over clarity and mutuality in understanding. **"Not stories written in invisible ink that I’m expected to decode"**
 
 In the era of Donald Trump as role model for all of society, do people even recognize that they flock to and seek out this very kind of cryptic manipulative communications in Donald Trump? "Not stories written in invisible ink that I’m expected to decode"?
 
