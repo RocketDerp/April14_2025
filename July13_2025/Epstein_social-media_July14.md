@@ -159,7 +159,7 @@ This shit is so bad, impossible to describe the ocean of toxic shit the United S
 
 https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_and_cpo_caught_having_an_affair_on/
 
-5 hours and 9274 comments so far on ONE post, that is HUGE engagement for Reddit. And that is only ONE post of this video, it was upvoted to the front page over and over in mutliple subreddits.
+5 hours and 9274 comments (68,830 points upvotes) so far on ONE single post, that is HUGE engagement for Reddit. And that is only one post of this video, it was upvoted to the front page over and over in mutliple subreddits.
 
 People are attracted to rich people's sex lives. Epstein private jet, private island. This frenzy of activity isn't about the girls being abused, this is about the rumor and shit-talking against the wealthy elite like Trump / Epstein who get on the Jumbotrons. Gawking at the rich and successful.
 
