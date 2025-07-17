@@ -269,3 +269,14 @@ Bearcatsean 2012-10-28
 &nbsp;
 
 * :::=== RoundSparrow_Commentary : (Repeating from Reddit comment) "I don’t know what happened to my generation" - I'm Gen X (born 1969 in Georgia), and I will comment here what happen. I had a Commodore 64 too, I created social media sites for the Commodore 128. What happened? Russia *mind-fucked EVERYONE, not just Donald Trump* one single person. [5,000 artificial reality screen games were deployed by the Kremlin since March 2013, crafted with Cambridge Analytica, and nobody defended](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). People tune into their own fiction channel of garbage and hate upon / insult the out-groups who tuned into one of the other 5,000 channels. We lost an information war to Putin and GenX should have been defending the boomers and youth. We deployed the commercial Internet! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1m26n1e/its_miserable_ice_morale_in_crapper_as_agents/n3mgp1p/
+
+Klutzy_Act2033 2023-08-24
+
+"This isn't good news at all. They going to quit or be 'managed out' and ICE has the budget to hire folks who don't give a shit, or worse."
+
+* :::=== RoundSparrow_Commentary : Exactly, I agree with this comment. Reddit community is constantly normalizing the Trump situation for over a decade, downplyaing the threat as "good news" (subreddit name context). Dehumanizing Americans is not *good news*, and it is adding hate to the Donald Trump MAGA hate pile. *Good news* would be hundreds of millions of USA people asserting goodness and actually choosing positive paths and following them. Putin mind-fuck started in March 2013, Trump announced run for President in June 2015, this has been going on for more than a decade with every month worse than the past, the path has been horrific. People who use social media are living in anti-reality, not facing up to real reality of how hearts and minds are lost and that people are not adopting sincere and good, but instead adopting hate and falsehoods of MAGA / Donald Trump social media. ===:::
+
