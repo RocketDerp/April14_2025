@@ -280,3 +280,15 @@ Klutzy_Act2033 2023-08-24
 
 * :::=== RoundSparrow_Commentary : Exactly, I agree with this comment. Reddit community is constantly normalizing the Trump situation for over a decade, downplyaing the threat as "good news" (subreddit name context). Dehumanizing Americans is not *good news*, and it is adding hate to the Donald Trump MAGA hate pile. *Good news* would be hundreds of millions of USA people asserting goodness and actually choosing positive paths and following them. Putin mind-fuck started in March 2013, Trump announced run for President in June 2015, this has been going on for more than a decade with every month worse than the past, the path has been horrific. People who use social media are living in anti-reality, not facing up to real reality of how hearts and minds are lost and that people are not adopting sincere and good, but instead adopting hate and falsehoods of MAGA / Donald Trump social media. ===:::
 
+&nbsp;
+
+
+https://old.reddit.com/r/50501/comments/1m275b7/new_angle_of_the_attempt_what_are_your_thoughts/n3mixqt/
+
+
+"I mean, you can hear in the audio from the original video Trump saying "wait!" so they could do the photo op."
+
+ProfessionalCraft983 **2025-02-07** (Recent Account)
+
+* :::=== RoundSparrow_Commentary : Yes, because Donald Trump is the most successful media personality in all human history. The man puts his name "Trump" on everything, like a dog marking territory with piss. He is standing at a podium on a stage, he is keenly aware this a media event. He does not have stage freight, he lives to be on media and was a king of Twitter as an old white man (a generation not known for shit-talking like XBox live / Stream multi-player gamers, yet Trump mastered youth behavior on computers in 2012). Give credit where it is due, did nobody watch Michael Moore's 2018 film about **Donald Trump: "I am the storm."** Donald Trump has a natural instinct for crowds and getting under the skin of people with popularity itself. All People age 12 t 120 in social media July 2025 *really need* to study and [learn Neil Postman's 184 page book "Amusing Ourselves To Death" pubished in 1985](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) - a book about media and President Ronald Reagan behaviors of crowds. ===:::
+
