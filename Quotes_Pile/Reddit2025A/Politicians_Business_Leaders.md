@@ -124,13 +124,13 @@ The ***red flags*** people have in intimate relationships should be applied to t
 
 &nbsp;
 
-# Why Donald Trump?
+# Why Donald Trump? WTF?
 
 https://old.reddit.com/r/PublicFreakout/comments/1m23nsq/astronomer_ceo_and_cpo_caught_having_an_affair_on/n3lsii2/
 
 "I love these videos. As someone who’s been cheated on…. It brings out the Darth Sidious in me."
 
-### Is that the motivation?
+### Is that the deepest motivation?
 
 I think the case can be made that USA population has avoided rescuing MAGA with Neil Postman's 1985 book, rescuing Fox News audience with Neil Postman's 1985 book (published 11 years before the 1996 opening of Fox News) - because people "love these videos". That there is a sadistic behavior of group thinking, mob mentality, in watching cheater Donald Trump wreck on the media systems stage.
 
@@ -148,11 +148,15 @@ https://old.reddit.com/r/PublicFreakout/comments/1m23nsq/astronomer_ceo_and_cpo_
 
 ### The motivation to self-harm and self-destruction
 
-It is this very attitude of motivation: **"I love these videos. As someone who’s been cheated on…. It brings out the Darth Sidious in me."** that seems at the heart of *why* people are so engaged with Donald Trump, MAGA,the Total Mockery.
+It is this very attitude of motivation: **"I love these videos. As someone who’s been cheated on…. It brings out the Darth Sidious in me."** that seems at the heart of *why* people are so engaged with Donald Trump, MAGA, the Total Mockery White House (and breaking news media / social media platforms).
 
 #### Has Russia mind-fucked people into self-harm with this mental pattern?
 
 Is that what [the 5,000 patterns of Cambridge Analytica mind-fuck have done](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) to media consumers since March 2013?
+
+.
+
+&nbsp;
 
 .
 
