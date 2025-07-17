@@ -15,6 +15,8 @@ Of course, not all content on Reddit is real, many of these are fake to appeal t
 
 &nbsp;
 
+.
+
 # July 16, 2025 late
 
 "I dumped my girlfriend because she made a “test” Instagram story and I failed"
@@ -38,6 +40,8 @@ I want peace. Not stories written in invisible ink that I’m expected to decode
 Done. Blocked. Logged out. I feel like I can breathe again.
 
 &nbsp;
+
+.
 
 ### "Packed my stuff", "leaving her"
 
