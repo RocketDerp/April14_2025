@@ -695,3 +695,19 @@ The flag wasn't lowered. The wind changed slightly and the viewpoint raised. Sec
 
 * :::=== RoundSparrow_Commentary : Exactly. Social media year 2024 and year 2025 has those who *hate Trump / despise Trump* adopting all the same out-group hate and unreality favoring that MAGA adopted in 2014. It took longer for sone groups, but people are swiming in reactionary no-identity social media content. Social media has become a unreality training ground. People do not discuss the Internet Research Agency, [Plot to Break America books by Christopher Wylie from 2019](https://en.wikipedia.org/wiki/Christopher_Wylie), there are *huge voids* in discussion of mass mind manipulation - people constantly bring up **Project 2025** but ignore current [ongong information warfare](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57) against We The People. There are mutliple NATO nations [reporting ongoing manipulation](https://www.wired.com/story/pro-russia-disinformation-campaign-free-ai-tools/) to favor fiction (unreality), but social media society of USA is fixated on Donlad Trump domestic.  ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m29nd9/new_view_of_the_butler_pa_shooting/n3n5c7y/
+
+BostonJordan515 2019-07-31
+
+"You guys are insane. I hate trump as much as the next guy but holy fuck
+
+People were shot and killed here. They fucking died. Real bullets were fired at trump.
+
+So a shooter from hundreds of yards away shot at trump intentionally to set up a photo shoot? What the hell?
+
+What proof do we have that guy is ushering people to take photos? We don’t see what he does off screen lmfao. All he does is slightly put his hands around two photographers and apparently that means he is corralling them for the right photo?
+
+Where is any level of skepticism?"
+
