@@ -308,3 +308,13 @@ https://old.reddit.com/r/politics/comments/1m26wzm/musk_goes_nuclear_on_trumps_e
 BankshotMcG 2012-09-02
 
 "It would be so great to wake up one day and not need to worry about the moods of a half-dozen monstrous crooks."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m26wzm/musk_goes_nuclear_on_trumps_epstein_crisis_with/n3mjurk/
+
+jaywastaken 2010-12-08
+
+"I hate that the world is now run billionaire edge lord children. This is the worst possible timeline."
+
+* :::=== RoundSparrow_Commentary : Constantly casting these men as "children" is a subcousious self-exploit that children *are innocent, pure, not responsible for their actions - it is the parent's fault*. This is a social media world of July 2025 that Neil Postman's 1985 book "Amusing Ourselves to Death" is ignored, rotting on the shelf, with one-line Twitter-length reaction comments that do not address the forest-wide problem and instead reaciton comments barking at individual trees day after day for over a decade. What this *timeline* and *the world is* now is runaway media addiction, Internet notifications and memes, as described in Neil Postman's books from the 1980's and 1990's. ===:::
