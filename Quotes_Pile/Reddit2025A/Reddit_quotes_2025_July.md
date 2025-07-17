@@ -300,3 +300,11 @@ KnightDuty 2014-09-02
 "Stop it. countless people have come forward with countless pieces of evidence, tesimonies, far more damming than this. and it all was waved away, or they received death threats until fhey withdrew, or they were sued. Each and every time.
 
 This small and insignificant statement is coming out now the same reason all #MeToo evidence rallies before conviction: The world wasn't ready to accept it previously."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m26wzm/musk_goes_nuclear_on_trumps_epstein_crisis_with/n3mpeql/
+
+BankshotMcG 2012-09-02
+
+"It would be so great to wake up one day and not need to worry about the moods of a half-dozen monstrous crooks."
