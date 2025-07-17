@@ -766,3 +766,13 @@ MasterMcMasterFace 2024-11-07 (less than a year)
 
 * :::=== RoundSparrow_Commentary : I am of the stance that the domestic self-harm Peter Pomerantsev describes in year 2014 is multiple generations now in Russia, that people can get sick of life to a point that starting war seems appealing. I do not discount all the signs of self-harm, this entire Ukraine war since year 2013 prep has been a massive mistake. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m248tl/like_a_glass_of_milk_left_outside_in_phoenix/n3nwwzp/
+
+dudinax 2017-10-23
+
+"Judging by Tim Pool going one way then immediately going the other, I suspect this was a warning shot from Putin to demonstrate whether he or Trump controls right-wing media in the US."
+
+* :::=== RoundSparrow_Commentary : Reminder: [Tim Pool (previously paid by Russia) was given White House Press credentials by Donald Trump](https://www.yahoo.com/news/influencer-paid-russia-added-white-162543389.html). ===:::
+
