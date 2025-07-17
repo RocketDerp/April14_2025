@@ -99,6 +99,10 @@ https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_an
 
 "Why is this downvoted and all the moronic replies upvoted?"
 
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_and_cpo_caught_having_an_affair_on/n3lssjt/
+
+"Cheaters being out in public and then being surprised people see them in public:"
+
 
 &nbsp;
 
