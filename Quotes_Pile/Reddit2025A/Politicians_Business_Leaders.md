@@ -100,6 +100,12 @@ These are the personalities of leaders that people admire and flock to in year 2
 
 Manipulative personalities are embraced in business and politics. Maybe the proble is that the audience thinks it is LOL to see *other people* being manipulated and are self-harming the future and even the entire nation (JD Vance, Donald Trump, etc) by making it a sport to see others fail (MAGA fail is a very popular attitude of LOL in July 2025 USA society, that people manipulated and harmed by Rupert Murdoch, JD Vance, Donald Trump, etc - it is good for the future of USA that nobody is taeching remedial morality of good fromband and helping them see all the *red flags* in the relationships they have with leaders in business and government and news media systems).
 
+## USA child born year 2002
+
+A child born in year 2002 would be age ten in [November 2012 when Donald Trump instructed Cambridge Analytica and Russia to manipulate all the hearts and minds of USA people](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). They in year 2025 will be 23 years old, having lived under Donald Trump's rise and constant parent role model from age 10 to 23. What kind of parents made Donald Trump a role model and status symbol for leadership? What kind of parents think Fox News / Rupert Murdoch is good for future of their children as learnng and education source?
+
+The ***red flags*** people have in intimate relatonships should be applied to the behavior in establishing status symbols, leaders.
+
 &nbsp;
 
 .
