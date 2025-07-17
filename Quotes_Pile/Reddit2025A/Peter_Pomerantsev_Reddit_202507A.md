@@ -776,3 +776,14 @@ dudinax 2017-10-23
 
 * :::=== RoundSparrow_Commentary : Reminder: [Tim Pool (previously paid by Russia) was given White House Press credentials by Donald Trump](https://www.yahoo.com/news/influencer-paid-russia-added-white-162543389.html). ===:::
 
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m248tl/like_a_glass_of_milk_left_outside_in_phoenix/n3m6p37/
+
+SuperRat10 2021-12-29
+
+"Everyone conveniently seems to forget that Trump was president before."
+
+* :::=== RoundSparrow_Commentary : **Recency bias** seems to be a major symtom of the War Against Reality, outcomes of Cambridge Analytica and Kremlin manipulation of the population. Context bewilderment too. ===:::
+
