@@ -711,3 +711,16 @@ What proof do we have that guy is ushering people to take photos? We don’t see
 
 Where is any level of skepticism?"
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m29nd9/new_view_of_the_butler_pa_shooting/n3n6sw9/
+
+Gingrpenguin 2015-06-12
+
+"It's weird how we view them as both dumb and yet the entire thing was supposed to be perfectly choreographed.
+
+Or you know they saw an opportunity and ran with it...
+
+Also why would they stage it with a far right shooter? Surly they would at least make the shooter a trans illegal immigrant or something 😂"
+
+* :::=== RoundSparrow_Commentary : Surkovian information warfare exploits minds, human brain, regardless if MAGA / Democrats / Republicans. It may take longer time to soak in reality, but [once you adopt out-group hate your brain becomes exploitable](../Martin_Luther_King_Jr_quotes0.md). Anonymous no-identity Reddit / Bluesky constant stream of [mental context changes (media ecology)](https://www.amazon.com/Context-Blindness-Technology-Evolution-Understanding/dp/1433186136) and junk memes are all part of these problems (Neil Postman, 1985). ===:::
