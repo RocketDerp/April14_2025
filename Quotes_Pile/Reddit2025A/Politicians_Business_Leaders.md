@@ -73,8 +73,36 @@ Something is very wrong that people don't recognize what is being revealed by th
 
 Why would you fuel and create an abusive father / Daddy figure and put them in dictator control of your life and not see it it as an abusive self-harm behavior like alcoholism and drug abuse? To view MAGA as manipulated and abused, no matter how much they *claim* it is "winning", at what point do people truly grasp how many years this pattern of abuse has been going on... 2014, 2015, 2016, 2017, and see that it is mass psychosis and group sickness of cults and mob mentality from people who have lost sense of what goodness itself means?
 
+&nbsp;
+
+.
+
+# Business Leaders
+
+As if employees didn't witness this...
+
+Reddit comment:  
+
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_and_cpo_caught_having_an_affair_on/n3lrcie/
+
+"This is making the front page of reddit in half a hour or so judging by the crazy engagement this post is getting, these two are royally fucked lol"
+
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_and_cpo_caught_having_an_affair_on/n3lpv4z/
+
+"They don't care until they get caught. No accountability, even at this age and status, is wild. Cut it off and pay the spousal support. Oh wait, he won't have a choice now, looool. Courts are gonna love this."
+
 
 &nbsp;
+
+## Leaders
+
+These are the personalities of leaders that people admire and flock to in year 2025. And the way social media society nation react-comments to these kind of leaders.
+
+Manipulative personalities are embraced in business and politics. Maybe the proble is that the audience thinks it is LOL to see *other people* being manipulated and are self-harming the future and even the entire nation (JD Vance, Donald Trump, etc) by making it a sport to see others fail (MAGA fail is a very popular attitude of LOL in July 2025 USA society, that people manipulated and harmed by Rupert Murdoch, JD Vance, Donald Trump, etc - it is good for the future of USA that nobody is taeching remedial morality of good fromband and helping them see all the *red flags* in the relationships they have with leaders in business and government and news media systems).
+
+&nbsp;
+
+.
 
 ##### NOTE A
 
