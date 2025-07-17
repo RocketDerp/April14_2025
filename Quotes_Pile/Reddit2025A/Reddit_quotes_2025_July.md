@@ -326,3 +326,12 @@ https://old.reddit.com/r/interestingasfuck/comments/1m2k4k1/ceo_of_astronomer_an
 smeetebwet 2020-06-01
 
 "I can't believe this has 700 upvotes, how does everyone just believe this uncritically. we're cooked"
+
+&nbsp;
+
+https://old.reddit.com/r/BeAmazed/comments/1m2lad6/chrysler_guy_is_lying/n3psm17/
+
+RedditIsFiction 2018-02-09
+
+"Way to go OP for setting the record straight! Reddit has so much fiction and misinformation, but it's awesome when someone else who was there can chime in and set the record straight"
+
