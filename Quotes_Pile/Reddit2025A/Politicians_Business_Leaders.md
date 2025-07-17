@@ -91,6 +91,10 @@ https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_an
 
 "They don't care until they get caught. No accountability, even at this age and status, is wild. Cut it off and pay the spousal support. Oh wait, he won't have a choice now, looool. Courts are gonna love this."
 
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_and_cpo_caught_having_an_affair_on/n3lu2xi/
+
+"If the ceo cheats on his wife in public with the head of hr just think what he’s willing to do behind closed doors with other people’s money"
+
 
 &nbsp;
 
