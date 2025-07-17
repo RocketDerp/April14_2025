@@ -95,6 +95,10 @@ https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_an
 
 "If the ceo cheats on his wife in public with the head of hr just think what he’s willing to do behind closed doors with other people’s money"
 
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_and_cpo_caught_having_an_affair_on/n3lvos9/
+
+"Why is this downvoted and all the moronic replies upvoted?"
+
 
 &nbsp;
 
