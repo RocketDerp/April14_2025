@@ -69,3 +69,8 @@ the_catalyst_alpha **2025-03-11** (Recent account)
 
 "Funny how you’re so caught up on the camera angle and the flag but ignore everything else involved. Typical bullshit from the right. Lol"
 
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1m2f6ok/this_has_been_a_fun_week/
+
+Redit community created title "Fun week".
