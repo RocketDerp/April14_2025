@@ -103,6 +103,10 @@ https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_an
 
 "Cheaters being out in public and then being surprised people see them in public:"
 
+https://old.reddit.com/r/PublicFreakout/comments/1m23nsq/astronomer_ceo_and_cpo_caught_having_an_affair_on/n3lsii2/
+
+"I love these videos. As someone who’s been cheated on…. It brings out the Darth Sidious in me."
+
 
 &nbsp;
 
@@ -120,8 +124,43 @@ The ***red flags*** people have in intimate relatonships should be applied to th
 
 &nbsp;
 
+# Why Donald Trump?
+
+https://old.reddit.com/r/PublicFreakout/comments/1m23nsq/astronomer_ceo_and_cpo_caught_having_an_affair_on/n3lsii2/
+
+"I love these videos. As someone who’s been cheated on…. It brings out the Darth Sidious in me."
+
+### Is that the motivation?
+
+I think the case can be made that USA population has avoided rescuing MAGA with Neil Postman's 1985 book, rescuing Fox News audience with Neil Postman's 1985 book (published 11 years before the 1996 opening of Fox News) - because people "love these videos". That there is a sadistic behavior of group thinking, mob mentality, in watching cheater Donald Trump wreck on the media systems stage.
+
+I'm saying... people show all signs that hate-watching Donald Trump every hour of every day on social media is a deep seated emotional desire and the very source of Donald Trump. That *power of hate*,, that Donald Trump's hate magnatism is the very basis of Trump power... USA social media addicts who want to see harm and destruction take place in public. Subconsious, even if spoken (or commented on scoial media), the truth depth of the words not fully being grasped. We The People have had since year 2014 to make lies, deception, bullshit, manipulation, falsehoods a core topic by making this article a constant repeat assertion on social media: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - we have had since September 9, 2014 to call out that MAGA believes *Unreality*. That **Donald Trump is a "Menace of Unreality"**, the [very title of the article: "Russia and the Menace of Unreality. How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)
+
+One step further, nearly 2 years before that article was published, [November 2012 Donald Trump, Russia, and Cambridge Analytica agreed to manipulate](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) the hearts and minds of everyday people... exploiting the behavior of people enjoying the suffering ofothers.
+
+### Repeating
+
+https://old.reddit.com/r/PublicFreakout/comments/1m23nsq/astronomer_ceo_and_cpo_caught_having_an_affair_on/n3lsii2/
+
+"I love these videos. As someone who’s been cheated on…. It brings out the Darth Sidious in me."
+
+&nbsp;
+
+### The motivation to self-harm and self-destruction
+
+It is this very attitude of motivation: **"I love these videos. As someone who’s been cheated on…. It brings out the Darth Sidious in me."** that seems at the heart of *why* people are so engaged with Donald Trump, MAGA,the Total Mockery.
+
+#### Has Russia mind-fucked people into self-harm with this mental pattern?
+
+Is that what [the 5,000 patterns of Cambridge Analytica mind-fuck have done](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) to media consumers since March 2013?
+
+.
+
+&nbsp;
+
 .
 
 ##### NOTE A
 
-Poorly written, not edited, brain damage from all the mass mind information warfare.
+Poorly written, not edited, brain damage from all the mass mind information warfare. This shit is impossible to write, it is USA mass mind sewer crawling of the worst kind. Dreadful. 
+
