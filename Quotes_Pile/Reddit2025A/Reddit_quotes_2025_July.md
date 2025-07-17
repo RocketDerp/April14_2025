@@ -291,3 +291,12 @@ ProfessionalCraft983 **2025-02-07** (Recent Account)
 
 * :::=== RoundSparrow_Commentary : Yes, because Donald Trump is the most successful media personality (fiction content creator) in all human history. The man puts his name "Trump" on everything, like a dog marking territory with piss. He is standing at a podium on a stage, he is keenly aware this is a media event. He does not have stage freight, he lives to be on media and was a king of Twitter as an old white man (a generation not known for shit-talking like XBox live / Stream multi-player gamers, yet Trump mastered youth behavior on computers in 2012). Give credit where it is due, did nobody watch Michael Moore's 2018 film about **Donald Trump: "I am the storm."** Donald Trump has a natural instinct for media cults and getting under the skin of people with popularity itself. All people age 12 t 120 in social media July 2025 *really need* to study and [learn Neil Postman's 184 page book "Amusing Ourselves To Death" pubished in 1985](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) - a book about media and President Ronald Reagan behaviors of audiences. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m296fg/trump_and_epstein_brought_teen_to_casino_floor/n3n6c74/
+
+KnightDuty 2014-09-02
+
+"Stop it. countless people have come forward with countless pieces of evidence, tesimonies, far more damming than this. and it all was waved away, or they received death threats until fhey withdrew, or they were sued. Each and every time.
+
+This small and insignificant statement is coming out now the same reason all #MeToo evidence rallies before conviction: The world wasn't ready to accept it previously."
