@@ -755,3 +755,14 @@ canofspinach 2013-09-23
 They don’t really care if their team cheats or gets things wrong. And even if they can stand the results, they buy the merch and tickets and keeps cheering."
 
 
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1m2dx5z/russia_threatens_west_with_preemptive_strikes_as/n3oh67r/
+
+MasterMcMasterFace 2024-11-07 (less than a year)
+
+"They can use them. Putin is beginning to not care. He is a game board flipper. If he can;t win he will burn down the world."
+
+* :::=== RoundSparrow_Commentary : I am of the stance that the domestic self-harm Peter Pomerantsev describes in year 2014 is multiple generations now in Russia, that people can get sick of life to a point that starting war seems appealing. I do not discount all the signs of self-harm, this entire Ukraine war since year 2013 prep has been a massive mistake. ===:::
+
