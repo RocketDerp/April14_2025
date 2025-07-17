@@ -673,3 +673,12 @@ As a result, their founding theory of the world is not that Donald Trump is thei
 
 I'm not sure what happens when these people are finally forced to choose between their twisted idea of religion via early YouTube and their twisted idea of American excellence via Donald Trump. But I wish I didn't have to be here to find out."
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m29nd9/new_view_of_the_butler_pa_shooting/n3n90aw/
+
+turkey_sandwiches 2012-06-04
+
+"Yeah, this is pretty stupid. Trump wasn't shot, but there was a real shooter and someone died. This is Alex Jones levels of crazy, and we're better than this."
+
+* :::=== RoundSparrow_Commentary : There is so much streaming memes and ever-changing content on social media that is fiction and anti-reality, people can't even see the forest for the trees of how much people against Donald Trump and MAGA have adopted the behaviors and values of hate and unreality. 2014 Peter Pomerantsev rots on the shelf. ===:::
