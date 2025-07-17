@@ -242,3 +242,9 @@ https://old.reddit.com/r/50501/comments/1m275b7/new_angle_of_the_attempt_what_ar
 Anti-reality narative, as if Joe Biden (active POTUS) in July 2024 (and August 2024, September 2024, October 2024) would have covered this up before the November 2024 election. What total social media society bullshit. "What are your thoughts?" title social media engagement technique. 50501 shows so many signs of being a *simulacra of resistance* and entirely avoids promoting [Jen Senko's 2016 book and film](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad), Neil Postman 1985 / Andrew Postman February 2017, Peter Pomerantsev, Adam Curitis 2014, Christopher Wylie 2019 books, etc. Just jumps right into the Donald Trump / MAGA / [Kremlin Unreality bullshit](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) instead of addressing the society-wide addiction to hate upon Donald Trump / hate intiated by Donald Trump + MAGA. Trump is a magnet for: hate, unreality via media, mass dehumanization of "the others". 
 
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m29nd9/new_view_of_the_butler_pa_shooting/
+
+Made it to top of Reddit front page a second time, very fast upvoting. Biden had months to analyze this high-profile event, very unlikely Joe Biden would have not disclosed if there was any evidence of it being faked.
+
