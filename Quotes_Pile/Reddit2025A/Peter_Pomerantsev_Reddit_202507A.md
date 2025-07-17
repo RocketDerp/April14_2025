@@ -743,3 +743,15 @@ snomeister 2014-07-04
 "It always blows my mind. Lesser allegations have ruined politicians' careers. Basically nothing ruins Trump's reputation, but also, mainstream media barely talks about these cases. Why? Something ain't right"
 
 * :::=== RoundSparrow_Commentary : Yes, the (quoting the comment) "Why? Something ain't right" - is that [the most sophisticated doctorates of psychology and psychiatry in the world mentally manipulated every person in the USA since March 2013 to self-harm self-destruct the nation with hate and mass dehumanization using 5,000 alternate reality screen games](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) deployed on [mainstream media news website comment sections](https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/) and social media comments and like / upvote patterns. Things are entirely off the rails as to people's mob mentality and desires to destroy the future of the USA. People keep parroting "Project 2025", but nobody is talking about 2019 book [quotes like this](../Cambridge_Analytica_Quotes.md): "This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019** ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1m2amox/katie_johnson13_and_trump/n3nfrey/
+
+canofspinach 2013-09-23
+
+"It’s like sports team fans.
+
+They don’t really care if their team cheats or gets things wrong. And even if they can stand the results, they buy the merch and tickets and keeps cheering."
+
+
