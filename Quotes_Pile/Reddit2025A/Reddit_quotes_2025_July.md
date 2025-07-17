@@ -318,3 +318,11 @@ jaywastaken 2010-12-08
 "I hate that the world is now run billionaire edge lord children. This is the worst possible timeline."
 
 * :::=== RoundSparrow_Commentary : Constantly casting these men as "children" is a subconscious self-exploit that children *are innocent, pure, not responsible for their actions - it is the parent's fault*. This is a social media world of July 2025 that Neil Postman's 1985 book "Amusing Ourselves to Death" is ignored, rotting on the shelf, with one-line Twitter-length reaction comments that do not address the forest-wide problem and instead reaction comments barking at individual trees day after day for over a decade. What this *timeline* and *the world is* now is runaway media addiction, Internet notifications and memes, as described in Neil Postman's books from the 1980's and 1990's. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m2k4k1/ceo_of_astronomer_andy_byron_releases_apology/n3pr353/
+
+smeetebwet 2020-06-01
+
+"I can't believe this has 700 upvotes, how does everyone just believe this uncritically. we're cooked"
