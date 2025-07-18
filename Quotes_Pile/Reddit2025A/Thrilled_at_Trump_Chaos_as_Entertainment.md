@@ -81,3 +81,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1m3224v/ok_whoever_wrote_this_joke_for
 
 Front page of Reddit Friday July 18, 2025. Chuckleheads who think every thing is a joke comedy (Donald Trump as Tony Clifton) that MAGA, Elon Musk, Donald Trump does is thrilling Reality TV (The Apprentice) entertainment, that Russian Surkov methods of government are so fun and enjoyable to keep smartphones vibrating with notificaitons to stimulate the poor people in the USA - that nobody desires to stand up and preach, quoteing Peter Pomerantsev from 2014 or Andrew Postman from February 2017... because the addiction to the antics, mocking, total mockery is such that people do not wish to remove the absurd surreal comedy entertainers (Musk, Trump, White House, Putin, JD Vance, etc).
 
+&nbsp;
+
+https://old.reddit.com/r/ChatGPT/comments/1m36rtn/unseen_angle_from_coldplay_concert/
+
+ChatGPT subreddit right to the front page of Reddit, it's laugh track to the fiction. War Against Reality lost, everything the Donald Trump White House does is endlessly entertaining ot the 300 million USA population on HDTV, Internet meme sites, social machine systems.
