@@ -32,3 +32,42 @@ Atheists in USA are almost entirely anti Levant Religions. They have never studi
 
 Joseph Campbell worked with George Lucas, creator of Star Wars, if you don't know. The Official **science fiction** website ( Star Wars dot Com) run by Disney for Star Wars: https://www.starwars.com/news/mythic-discovery-within-the-inner-reaches-of-outer-space-joseph-campbell-meets-george-lucas-part-i
 
+&nbsp;
+
+## Christian Nalitionsl, USA
+
+As I compose this sentence July 18, 2025...
+
+### "I Love Jesus" is WRONG
+
+Stop being a reactionary atheist and focus on what has been said from the top of the very page that you are reading. 1. Atheist, 2. Bible Believer, 3. Meteaphors.  That's the crisis. This is not a binary "Two Sides" issue, this is not "Both Sides", this is not a "two and only two sides to every story".  BOTH GROUPS do not grasp literacy of languge, idioms, metaphors, science fiction storytelling!
+
+1. Torah is science fiction
+2. Bible is science fiction retcon of Torah, New Testiment is reworking and rewriting elements of the Torah.
+3. Mohamamad's Quran is science fiction retcon of Bible and Torah. Most people in USA can't even answer correctly when you ask them: Who are the main chracter's in Mohamamd's Quran stories told from year 610 to year 635?  People in USA don't even know that Mary and Jesus and Adan and Eve are in the Quran / Mosque! Jesus is in the Mosque / Quran storytelling! People don't even grasp that level of science fiction story reboots and Star Wars reboot science fiction conventions!
+
+Get it right, fix this issue: ***"I Love Jesus"*** is wrong, incorrect. Read Bible verse "1 John 4:20" and correct the literacy problems of USA Christian Natioalist who do not grasp a transated and double-imported Levant storytelling book. (Double Imported: Levant to Rome, Rome to Spain, Spain to Americas in year 1492 onward).
+
+### "I Love God" is incorrect!
+
+Again, Bible verse "1 John 4:20"
+
+### "I Hate Mexicans' is incorrect!
+
+Again, Bible verse "1 John 4:20"
+
+### "I Hate homosexuals and transgenders" is wrong!
+
+Again, Bible verse "1 John 4:20"
+
+&nbsp;
+
+# Atheists are not fixing the metaphor literacy
+
+Atheists are too busy promoting hate the out-group, just like Muslims are too busy hating on Jewish and Christians in their contenst for **book supremacy** of the *one and only one true perfect correct nonfiction book** of Quran vs. Torah vs. Quran.  This is like Star Trek (Gene Roddenberry) fans of science fiction *hating upon* with Star Wars (geoerge lucas) fans. And one-media venue of Mosque vs. Church vs. Synagogue vs. Cinema vs. Shakespeare Globe Theater!
+
+**Atheists are not fixing the literacy metaphor problems**, We The People of the United States of America hav a We The People crisis of literacy metaphors.
+
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.”
+― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
