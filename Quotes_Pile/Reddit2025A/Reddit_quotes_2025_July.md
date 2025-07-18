@@ -342,3 +342,16 @@ https://old.reddit.com/r/politics/comments/1m2mkug/trump_responds_after_report_r
 zsaz_ch 2016-11-23
 
 "They are helplessly in love with their cult leader. Like how did this demon child convince people to just toss all of their morals aside, if they had any to begin with. He has zero redeeming qualities, I will never understand."
+
+&nbsp;
+
+# Friday July 18, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m37eah/colberts_cancellation_is_a_dark_warning/n3uilku/
+
+LuvKrahft 2008-11-07
+
+"Of many many dark warnings. Honestly I’d say we’re beyond the warnings. That was happening last election. The is the stuff that everyone, including trump, was saying Trump was going to do."
+
