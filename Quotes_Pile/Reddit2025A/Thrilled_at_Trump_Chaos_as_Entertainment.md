@@ -86,3 +86,11 @@ Front page of Reddit Friday July 18, 2025. Chuckleheads who think every thing is
 https://old.reddit.com/r/ChatGPT/comments/1m36rtn/unseen_angle_from_coldplay_concert/
 
 ChatGPT subreddit right to the front page of Reddit, it's laugh track to the fiction. War Against Reality lost, everything the Donald Trump White House does is endlessly entertaining to the 300 million USA population on HDTV consumers, Internet meme adueinces, social machine systems users.
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1m317rf/trump_letter_to_epstein_ties_him_to_a_significant/n3t56x0/
+
+Commercial_Blood2330 2024-12-07 (recent)
+
+"Yeah this shit cracks me up. Everyone acts like this is some new thing and the Epstein files are the smoking gun. Dude is a convicted felon. He took classified documents to his personal residence. He raped someone… like yeah is this bad, sure. But there is plenty of evidence of him already being a predator without it."
