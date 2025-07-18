@@ -9,6 +9,10 @@ Lest you think *I take things too literally* as an atuistic, person, I suggest y
 
 "Most people can't **stand up for their convictions**, because the majority of people might not be doing it. See, **everybody's not doing it**, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so." - Dr. Martin Luther King Jr. February 28, 1954.
 
+Dr. Martin Luther King Jr. is an **American** born in Atlanta, Georgia. And you know wehre I, Stephen Gutknecht, was born? Columbus, **Georgia**.
+
+&nbsp;
+
 ### Everybody in USA is avoiding "1 John 4:20" verse
 
 This is not about if you *believe* in George Lucas **Star Wars 1977 film** as fiction or non fiction. This is not about if you *believe* in Muhammad's Quran stories of year 610 to year 635 as science fiction. Or Matthew, Mark, Luke, Jon, and who ever else you want to cite regarding science fiction, this is not about what you "believe". A lot of "atheists" are confused about metaphors.
