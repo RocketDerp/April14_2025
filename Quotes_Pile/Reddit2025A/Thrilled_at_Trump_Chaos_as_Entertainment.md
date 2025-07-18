@@ -74,3 +74,9 @@ the_catalyst_alpha **2025-03-11** (Recent account)
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1m2f6ok/this_has_been_a_fun_week/
 
 Redit community created title "Fun week".
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m3224v/ok_whoever_wrote_this_joke_for_elon_got_a_chuckle/
+
+Front page of Reddit Friday July 18, 2025. Chuckleheads who think every thing is a joke comedy (Donald Trump as Tony Clifton) that MAGA, Elon Musk, Donald Trump does is thrilling Reality TV (The Apprentice) entertainment, that Russian Surkov methods of government are so fun and enjoyable to keep smartphones vibrating with notificaitons to stimulate the poor people in the USA - that nobody will bother to quote Peter Pomerantsev from 2014 or Andrew Postman from February 2017
