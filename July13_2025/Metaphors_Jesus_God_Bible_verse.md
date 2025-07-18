@@ -9,7 +9,7 @@ Lest you think *I take things too literally* as an atuistic, person, I suggest y
 
 "Most people can't **stand up for their convictions**, because the majority of people might not be doing it. See, **everybody's not doing it**, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so." - Dr. Martin Luther King Jr. February 28, 1954.
 
-Dr. Martin Luther King Jr. is an **American** born in Atlanta, Georgia. And you know wehre I, Stephen Gutknecht, was born? Columbus, **Georgia**. I was born in 1969, but it did not take me that many yeras to be able to read a book and find MLK Jr's February 28, 1954 words printed on paper.
+Dr. Martin Luther King Jr. is an **American** born in Atlanta, Georgia. And you know where I, Stephen Gutknecht, was born? Columbus, **Georgia**. I was born in 1969, but it did not take me that many yeras to be able to read a book and find MLK Jr's February 28, 1954 words printed on paper.
 
 &nbsp;
 
