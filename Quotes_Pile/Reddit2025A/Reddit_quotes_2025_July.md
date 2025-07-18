@@ -335,3 +335,10 @@ RedditIsFiction 2018-02-09
 
 "Way to go OP for setting the record straight! Reddit has so much fiction and misinformation, but it's awesome when someone else who was there can chime in and set the record straight"
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m2mkug/trump_responds_after_report_reveals_his_birthday/n3q77je/
+
+zsaz_ch 2016-11-23
+
+"They are helplessly in love with their cult leader. Like how did this demon child convince people to just toss all of their morals aside, if they had any to begin with. He has zero redeeming qualities, I will never understand."
