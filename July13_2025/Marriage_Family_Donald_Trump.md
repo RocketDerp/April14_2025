@@ -15,7 +15,7 @@ You all TRUST Donald Trump? WTF⸘‽
 
 1. You trust your age 14 daughters to the future of USA being created by Donald Trump age 79?
 
-2. You trust memes off Bluesky and Twitter on medical science? You trust #RFKjr memes and ideas?
+2. You trust memes off Bluesky and Twitter on medical science? You [trust RFK jr memes and ideas](https://www.bbc.com/news/world-us-canada-45294192)?
 
 WTF, USA. You all have extreme year 2025 gullibility crisis. You flock to deceivers.
 
