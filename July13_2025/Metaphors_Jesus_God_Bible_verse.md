@@ -27,7 +27,7 @@ Think about that statement:
 1. Atheists are wrong
 2. Believers are wrong
 3. Joseph Campbell is saying EVERYONE, 100%, are wrong, who don't grasp metaphors.
-4. The quote ends on the word "lies" - and guess what, that's the exact concern of this entire content I am composing. "lies" is aid by Joseph Campbell, and turn your Bible to verse "1 John 4:20*... *lies, liars*.
+4. The quote ends on the word "lies" - and guess what, that's the exact concern of this entire content I am composing. The word "lies" is written by Joseph Campbell, please turn your [Bible to verse "1 John 4:20*](https://biblehub.com/1_john/4-20.htm)... *lies, liars*.
 
 Repeating: "Most people can't **stand up for their convictions**, because the majority of people might not be doing it. See, **everybody's not doing it**, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right." - Dr. Martin Luther King, Jr. February 28, 1954.
 
