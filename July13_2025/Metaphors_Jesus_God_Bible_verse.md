@@ -32,7 +32,7 @@ Repeating: "Most people can't **stand up for their convictions**, because the ma
 
 Again and again, in the United States of America, what I find are atheists who do not teach **reading literacy** to science fiction book readers. They just are sick of the bullshit lies and manipulation of Christians / Bible readers. That kind of "atheist" is a reactionary who is sick of Christians. They are not educated on the difference between a gnostic Christian and a Sufi Muslim, they just are sick of the behavior of poor-literacy (non metaphor grasping) Christians.
 
-Atheists in USA are almost entirely anti Levant Religions. They have never studied the Navajo Pollen Path, they are just concerned about "believe" aspect of Bible, believing if it isa  perfect factually correct 100% accurate book.  Star Wars is fiction, The Bible is science fiction.
+Atheists in USA are almost entirely anti Levant Religions. They have never studied the Navajo Pollen Path, they are just concerned about "believe" aspect of Bible, *believing* if it is a perfect factually correct 100% accurate history book. Star Wars is fiction, The Bible is science fiction.
 
 Joseph Campbell worked with George Lucas, creator of Star Wars, if you don't know. The Official **science fiction** website ( Star Wars dot Com) run by Disney for Star Wars: https://www.starwars.com/news/mythic-discovery-within-the-inner-reaches-of-outer-space-joseph-campbell-meets-george-lucas-part-i
 
