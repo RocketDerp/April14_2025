@@ -64,7 +64,7 @@ Again, Bible verse "1 John 4:20"
 
 # Atheists are not fixing the metaphor literacy
 
-Atheists are too busy promoting hate the out-group, just like Muslims are too busy hating on Jewish and Christians in their contenst for **book supremacy** of the *one and only one true perfect correct nonfiction book** of Quran vs. Torah vs. Quran.  This is like Star Trek (Gene Roddenberry) fans of science fiction *hating upon* with Star Wars (geoerge lucas) fans. And one-media venue of Mosque vs. Church vs. Synagogue vs. Cinema vs. Shakespeare Globe Theater vs. Netflix Home Theater in the hotel room!
+Atheists are too busy promoting hate the out-group, just like Muslims are too busy hating on Jewish and Christians in their contenst for **book supremacy** of the *one and only one true perfect correct nonfiction poetry story book* of Quran vs. Torah vs. Quran.  This is like Star Trek (Gene Roddenberry) fans of science fiction *hating upon* with Star Wars (geoerge lucas) fans. And one-media venue of Mosque vs. Church vs. Synagogue vs. Cinema vs. Shakespeare Globe Theater vs. Netflix Home Theater in the hotel room!
 
 **Atheists are not fixing the literacy metaphor problems**, We The People of the United States of America hav a We The People crisis of literacy metaphors.
 
