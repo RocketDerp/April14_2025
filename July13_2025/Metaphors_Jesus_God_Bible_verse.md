@@ -64,10 +64,17 @@ Again, Bible verse "1 John 4:20"
 
 # Atheists are not fixing the metaphor literacy
 
-Atheists are too busy promoting hate the out-group, just like Muslims are too busy hating on Jewish and Christians in their contenst for **book supremacy** of the *one and only one true perfect correct nonfiction poetry story book* of Quran vs. Torah vs. Quran.  This is like Star Trek (Gene Roddenberry) fans of science fiction *hating upon* with Star Wars (geoerge lucas) fans. And one-media venue of Mosque vs. Church vs. Synagogue vs. Cinema vs. Shakespeare Globe Theater vs. Netflix Home Theater in the hotel room!
+Atheists are too busy promoting hate the out-group, just like Muslims are too busy hating on Jewish and Christians in their contenst for **book supremacy** of the *one and only one true perfect correct nonfiction poetry story book* of Quran vs. Torah vs. Bible.  This is like Star Trek (Gene Roddenberry) fans of science fiction *hating upon* with Star Wars (geoerge lucas) fans. And one-media venue of Mosque vs. Church vs. Synagogue vs. Cinema vs. Shakespeare Globe Theater vs. Netflix Home Theater in the hotel room!
 
 **Atheists are not fixing the literacy metaphor problems**, We The People of the United States of America hav a We The People crisis of literacy metaphors.
 
 “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.”
 ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
+&nbsp;
+
+### This is North America
+
+What the hell is wrong with the Navajo Pollen Path? Why are Americans using **Levant** imported story books and saying they are the *one and only one perfect book*, when we have awesome American-made material? We eat the local American-made food, the American-rain water we drink, why the hell do we adopt a **Levant** storybook and don't even grasp the metaphors?
+
+[www.GreatSealUSA.com](https://www.GreatSealUSA.com)
