@@ -355,3 +355,12 @@ LuvKrahft 2008-11-07
 
 "Of many many dark warnings. Honestly I’d say we’re beyond the warnings. That was happening last election. The is the stuff that everyone, including trump, was saying Trump was going to do."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m37eah/colberts_cancellation_is_a_dark_warning/n3veg6a/
+
+iFlashings 2021-10-27
+
+"A generation? I hate to be that "guy" but the damage is permanent. There's no going back to how it was pre 2016 (which wasn't all that great to begin with.) There's no way democrats can reverse everything Trump and Republicans passed without completely dismantling the republican party to stop them from blocking the democrats. Even if that scenario is possible the United States of America as we used to know it is never coming back. 
+
+Elections has consequences and this is what the people voted (or not vote at all) for."
