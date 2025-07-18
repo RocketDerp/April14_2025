@@ -75,6 +75,6 @@ Atheists are too busy promoting hate the out-group, just like Muslims are too bu
 
 ### This is North America
 
-What the hell is wrong with the Navajo Pollen Path? Why are Americans using **Levant** imported story books and saying they are the *one and only one perfect book*, when we have awesome American-made material? We eat the local American-made food, the American-rain water we drink, why the hell do we adopt a **Levant** storybook and don't even grasp the metaphors?
+What the hell is wrong with the Navajo Pollen Path? Why are Americans using **Levant** imported story books and saying they are the *one and only one perfect book*, when we have awesome American-made material? We eat the local American-made food, the American-rain water we drink, why the hell do we adopt a imported **Levant** storybook and don't even grasp the metaphors? Do we still think we are part of the Roman Empire, the **King James** Bible? How many Americans in July 2025 can even NAME the year 1820 **Thomas Jefferson (Founding Father)** Bible?
 
 [www.GreatSealUSA.com](https://www.GreatSealUSA.com)
