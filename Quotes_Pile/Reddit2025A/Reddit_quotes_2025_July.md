@@ -410,3 +410,18 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1m3jx20/fans_using_lasers_in
 Kurovi_dev 2024-03-24
 
 "Whenever I think American sports fans are terrible, I see a video of football/soccer fans and immediately have a little more perspective."
+
+&nbsp;
+
+# Saturday July 19, 2025
+
+https://old.reddit.com/r/law/comments/1m3tcrw/tulsi_gabbard_calls_for_obama_to_be_prosecuted/n3zei89/
+
+AnotherDoubtfulGuest 2020-02-18
+
+"This isn’t about anything except trying to distract from the Epstein clusterfuck. Let these clowns try it, because that only ends two ways: Obama has the same immunity as Trump, or Trump doesn’t actually have immunity.
+
+They’re not thinking at all right now; they’re just panicking and being reactive. I’ve seen in a couple of different subs that there are more Epstein revelations in the pipeline; I don’t know how much of that is factual or wishful thinking, but sit tight! 🍿"
+
+* :::=== RoundSparrow_Commentary : Popcorn Reality TV (The Apprentice) entertainment, "sit tight" in your spectator social media seat, eat up the Surkovian governing antics and strip-tease of information, this is the greatest show on earth. Non-stop shocking behavior of MAGA, Donald Trump playing Tony Clifton. Eat up the Russiain information warfare while your nation is wrecked. This is a social media mind-fuck track instructing We The Peopole of the United States of America that without Donald Trump, we would never have such Tony Clifton entertainment to mock and insult! Instead of [teaching Neil Postman 1985 book](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) to every person age 12 to 120 day after day on the front page of Reddit, it's [falling (deeper) right into the Kremlin intended outcomes of addiction to Surkov style "Contradictory Vaudeville"](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) information media content. ===:::
+  
