@@ -248,3 +248,12 @@ https://old.reddit.com/r/interestingasfuck/comments/1m29nd9/new_view_of_the_butl
 
 Made it to top of Reddit front page a second time, very fast upvoting. Biden had months to analyze this high-profile event, very unlikely Joe Biden would have not disclosed if there was any evidence of it being faked.
 
+&nbsp;
+
+# Friday July 18, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/fixedbytheduet/comments/1m3eruf/how_to_play_it_off_when_you_get_caught_on_the_big/
+
+Front page of Reddit fromother social media: **Lessonsfor Corporate American Executives** on how to be better liars, deceivers, manipulators of the audience with entertainment and fiction. Social media users are behaving as they do with Donald Trump, JD Vance, Elon Musk, White House 2025 - *give us the fiction lies we crave as an audience every hour of every day, CEO*.
