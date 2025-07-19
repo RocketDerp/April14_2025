@@ -797,5 +797,11 @@ Republicant_Party 2021-01-08
 
 * :::=== RoundSparrow_Commentary : This extremely popular comment on Reddit is deep psychological denial, as if you did a legal case against Putin in Russia that evidence will just be handed over by Putin. This is no longer true and reality for the USA in year 2025. Further, all the rich men / famous men sex antics of ["grab them by the Pussy" as an *October Surprise*](https://www.politico.com/magazine/story/2016/10/donald-trump-tape-surprise-record-women-214331/) did nothing but increase the [hyper reality fame, unpopularity is popular (Rick Roderick 1993)](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) of Donald Trump for his Twitter-behavior social media street cred mental exploits of the mass mind. Donald Trump's social power is of Mythology like Mohammad and the Quran storytelling, [not of reason thinking](https://www.washingtonpost.com/news/wonk/wp/2017/02/23/harvard-scientist-worries-were-reverting-to-a-pre-enlightenment-form-of-thinking/) and nonfiction. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/law/comments/1m3tcrw/tulsi_gabbard_calls_for_obama_to_be_prosecuted/n3zdzmc/
+
+dundunitagn 2021-07-16
+
+"This comment took way took long. More people need to recognize her obvious behavior and admit she was compromised long ago. She's been a Russian agent almost as long as Melania. Tulsi ust waited until the later stages to sell herself out."
 
