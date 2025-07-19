@@ -264,3 +264,11 @@ https://old.reddit.com/r/memes/comments/1m3hicg/the_last_few_days_in_a_nutshell/
 
 It isn'tjust Donald Trump CEO / President of the company sex lives that crowds flock to, Epstein attraction of rich white men sex antics. Crowds eat this up, just as they do Donald Trump.
 
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1m3at40/elon_musk_is_not_letting_the_epstein_scandal/
+
+**Why would Elon Musk** not want to keep the most popular topics and his personal street cred on top media topics? Reddit society is eating right out of the hands of **Trickle Down Content** from the rich. Everything is media ecology. Surkovian governing of society in action, every media platform reacting to every move and shake of the White House (including Elon Musk DOGE). People adore the "tea" and "scoop" sex lives of rich white men topics, Musk sex life, Trump sex life, etc. This is what people voted for in year 2024, a thrilling white house of antics and Donald Trump playing Tony Clifton.
+
+
+
