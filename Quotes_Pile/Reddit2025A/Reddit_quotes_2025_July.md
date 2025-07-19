@@ -392,3 +392,13 @@ kazaaksDog 2019-12-28
 "There will be nothing left at the end of this lunatic's term. There may not be anything left to save by midterms.
 
 I remember the good old days when I thought it was unusual and extremely backwards to hear people argue against the theory of evolution. Now, we are surrounded by flat-Earthers, anti-vaxers, climate change deniers, Nazis, concentration camps, and people who want to bring back slavery. I am waiting for the Witch Trials to resume. We are honestly skipping into the Dark Ages. Pathetic."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1m3gsf7/epa_says_it_will_eliminate_its_scientific/n3wssn4/
+
+"This is what gets me about Americans. They told you exactly what they were going to do. They still tell you, and it gets ignored, then it's all complaints. Do something before they make it real, just do some pre reading please."
+
+RentonBrax 2013-01-13
+
+* :::=== RoundSparrow_Commentary : People have had since year 1985 to take Neil Postman on this attraction to fiction problem seriously. Andrew Postman went public in February 2017 repeating. Nobody on social media wants to repeat and stay focused on the problem of addiction to entertainment / amusement / fiction. ===:::
