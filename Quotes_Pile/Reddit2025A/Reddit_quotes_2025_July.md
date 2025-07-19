@@ -364,3 +364,12 @@ iFlashings 2021-10-27
 "A generation? I hate to be that "guy" but the damage is permanent. There's no going back to how it was pre 2016 (which wasn't all that great to begin with.) There's no way democrats can reverse everything Trump and Republicans passed without completely dismantling the republican party to stop them from blocking the democrats. Even if that scenario is possible the United States of America as we used to know it is never coming back. 
 
 Elections has consequences and this is what the people voted (or not vote at all) for."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1m3hai6/despite_being_trumps_go_to_propaganda_empire/n3wp2q8/
+
+kescusay 2014-12-27
+
+"I fucking HATE the fact that we have a stupid asshole president who gives stupid asshole nicknames to everyone, and we're all just so used to it now that we hardly even notice."
+
