@@ -374,3 +374,11 @@ kescusay 2014-12-27
 "I fucking HATE the fact that we have a stupid asshole president who gives stupid asshole nicknames to everyone, and we're all just so used to it now that we hardly even notice."
 
 * :::=== RoundSparrow_Commentary : "used to it" is not the situation, **social media society of USA (aka, Everyone)** has adopted and behaved like Donald Trump. He is the role model of deport those you disagree with, block those you don't understand (they speak Spanish language, they communicate in science) social machine behaviors. People mimic and adore the role model of *hate thy enemy, hate thy nehgbor* and hate upon MAGA, hate upon Donald Trump, adopting the very values of MAGA hate magnet. You will never see as many "stgupid ashole nicknames" on electric media systems as those for Donald Trump about his skin color domination, diapers, everything. Donald Trump is an inspiration for creative hate and insults. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1m3hai6/despite_being_trumps_go_to_propaganda_empire/n3wq6q9/
+
+seeclick8 2019-10-20
+
+"Oh sweet jesus, when will this awful person be gone from our lives. He just needs to retire and sit in his stained pajamas and bitch to the tv. I am so sick of reading and hearing about him."
