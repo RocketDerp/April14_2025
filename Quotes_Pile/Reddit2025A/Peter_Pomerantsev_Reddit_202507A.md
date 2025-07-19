@@ -787,3 +787,15 @@ SuperRat10 2021-12-29
 
 * :::=== RoundSparrow_Commentary : **Recency bias** seems to be a major symptom of the War Against Reality, outcomes of Cambridge Analytica and Kremlin manipulation of the population. [Context bewilderment](https://www.amazon.com/Context-Blindness-Technology-Evolution-Understanding/dp/1433186136) too. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1m3hai6/despite_being_trumps_go_to_propaganda_empire/n3wnryr/
+
+Republicant_Party 2021-01-08
+
+"I hope Donald and his "friends" are looking forward to many hours of discovery."
+
+* :::=== RoundSparrow_Commentary : This extremely popular comment on Reddit is denia, as if you did a leagal case against Putin in Russia that evidence will just be handed over by Putin. This is no longer true and rality for the USA in year 2025. Further, all the sex antics of "grab them by the Pussy" as an *October Surprise* did nothing but increase the [hyper reality fame, unpopularity is popular (Rick Roderick 1993)](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) of Donald Trump for his Twitter-behavior social media street cred mental exploits of the mass mind. Donald Trump's social power is of Mythology like Mohammad and the Quran storytelling, not of reason thinking and nonfiction. ===:::
+
+
+
