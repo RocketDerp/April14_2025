@@ -382,3 +382,13 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1m3hai6/despite_being_trumps
 seeclick8 2019-10-20
 
 "Oh sweet jesus, when will this awful person be gone from our lives. He just needs to retire and sit in his stained pajamas and bitch to the tv. I am so sick of reading and hearing about him."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1m3gsf7/epa_says_it_will_eliminate_its_scientific/n3wnbvq/
+
+kazaaksDog 2019-12-28
+
+"There will be nothing left at the end of this lunatic's term. There may not be anything left to save by midterms.
+
+I remember the good old days when I thought it was unusual and extremely backwards to hear people argue against the theory of evolution. Now, we are surrounded by flat-Earthers, anti-vaxers, climate change deniers, Nazis, concentration camps, and people who want to bring back slavery. I am waiting for the Witch Trials to resume. We are honestly skipping into the Dark Ages. Pathetic."
