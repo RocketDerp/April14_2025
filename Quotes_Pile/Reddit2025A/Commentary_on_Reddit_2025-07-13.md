@@ -256,4 +256,4 @@ Made it to top of Reddit front page a second time, very fast upvoting. Biden had
 
 https://old.reddit.com/r/fixedbytheduet/comments/1m3eruf/how_to_play_it_off_when_you_get_caught_on_the_big/
 
-Front page of Reddit from other social media: **Lessons for Corporate American Executives** on how to be better liars, deceivers, manipulators of the audience with entertainment and fiction. Social media users are behaving as they do with Donald Trump, JD Vance, Elon Musk, White House 2025 - *give us the fiction lies we crave as an audience every hour of every day, CEO*.
+Front page of Reddit from other social media: **Lessons for Corporate America Executives** on how to be better liars, deceivers, manipulators of the audience with entertainment and fiction. Social media users are behaving as they do with Donald Trump, JD Vance, Elon Musk, White House 2025 - *give us the fiction lies and Surkovian contradictions we crave as an audience every hour of every day, CEO*.
