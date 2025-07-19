@@ -424,4 +424,16 @@ AnotherDoubtfulGuest 2020-02-18
 They’re not thinking at all right now; they’re just panicking and being reactive. I’ve seen in a couple of different subs that there are more Epstein revelations in the pipeline; I don’t know how much of that is factual or wishful thinking, but sit tight! 🍿"
 
 * :::=== RoundSparrow_Commentary : Popcorn Reality TV (The Apprentice) entertainment, "sit tight" in your spectator social media seat, eat up the Surkovian governing antics and strip-tease of information, this is the greatest show on earth. Non-stop shocking behavior of MAGA, Donald Trump playing Tony Clifton. Eat up the Russiain information warfare while your nation is wrecked. This is a social media mind-fuck track instructing We The Peopole of the United States of America that without Donald Trump, we would never have such Tony Clifton entertainment to mock and insult! Instead of [teaching Neil Postman 1985 book](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) to every person age 12 to 120 day after day on the front page of Reddit, it's [falling (deeper) right into the Kremlin intended outcomes of addiction to Surkov style "Contradictory Vaudeville"](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) information media content. ===:::
-  
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m3tcrw/tulsi_gabbard_calls_for_obama_to_be_prosecuted/n4039ku/
+
+Euphoric_Election785 2020-09-11
+
+"Its such a shame reporters have decided to be cowards that bend over for this orange turd and his cronies instead of stand strong and hit them with facts. Like they could even do it passive aggressively too. "Wait so if Obama is responsible for this, would that mean that all the evidence, and Senate Republicans, some of which are still trump supporters, are wrong?" But instead they just continue to feed the narrative. Like that one douchebag who asked a question related to Mamdani starting off by saying "the communist mayoral candidate Mamdani" that shit pissed me the fuck off.
+
+Sorry for the rant, I guess where I'm getting at is that instead of pushback with facts, reporters are more than happy to roll with this chaos because they're greedy shills for clicks."
+
+* :::=== RoundSparrow_Commentary : No vocabulary of Andrew Postman, Neil Postman, Marshall McLuhan, Peter Pomerantsev, Christopher Wylie. **Social media clicks is exactly like reporter clicks, even more engaging. Blaming "the media" on "social media" is a lack of self-awareness. June 23, 2005 - it is **20 years of Reddit media**, without paywalls, with reaction commenting. [Reddit owners work with Elon Musk.](https://mashable.com/article/elon-musk-messaged-reddit-ceo-over-content) ===:::
+
