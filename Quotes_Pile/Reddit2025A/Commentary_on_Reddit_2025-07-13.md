@@ -257,3 +257,10 @@ Made it to top of Reddit front page a second time, very fast upvoting. Biden had
 https://old.reddit.com/r/fixedbytheduet/comments/1m3eruf/how_to_play_it_off_when_you_get_caught_on_the_big/
 
 Front page of Reddit from other social media: **Lessons for Corporate America Executives** on how to be better liars, deceivers, manipulators of the audience with entertainment and fiction. Social media users are behaving as they do with Donald Trump, JD Vance, Elon Musk, White House 2025 - *give us the fiction lies and Surkovian contradictions we crave as an audience every hour of every day, CEO*.
+
+&nbsp;
+
+https://old.reddit.com/r/memes/comments/1m3hicg/the_last_few_days_in_a_nutshell/
+
+It isn'tjust Donald Trump CEO / President of the company sex lives that crowds flock to, Epstein attraction of rich white men sex antics. Crowds eat this up, just as they do Donald Trump.
+
