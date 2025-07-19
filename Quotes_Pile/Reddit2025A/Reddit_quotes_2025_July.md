@@ -402,3 +402,11 @@ https://old.reddit.com/r/news/comments/1m3gsf7/epa_says_it_will_eliminate_its_sc
 RentonBrax 2013-01-13
 
 * :::=== RoundSparrow_Commentary : People have had since year 1985 to take Neil Postman on this attraction to fiction problem seriously. Andrew Postman went public in February 2017 repeating. Nobody on social media wants to repeat and stay focused on the problem of addiction to entertainment / amusement / fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1m3jx20/fans_using_lasers_in_the_egypt_vs_senegal_world/n3xfj3z/
+
+Kurovi_dev 2024-03-24
+
+"Whenever I think American sports fans are terrible, I see a video of football/soccer fans and immediately have a little more perspective."
