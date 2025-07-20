@@ -458,3 +458,11 @@ https://old.reddit.com/r/news/comments/1m4rkrb/ice_secretly_deported_pennsylvani
 logicoptional 2015-03-15
 
 "I wouldn't call it speedrunning, the pace is pretty comparable actually, and that's the thing I think many didn't get: how fast things can deteriorate."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1m4rkrb/ice_secretly_deported_pennsylvania_grandfather_82/n46tlo9/
+
+LifeScientist123 2017-04-20
+
+"You’re so wrong. MAGA ARE questioning things. They’re furious that more people aren’t being rounded up and sent to Alligator Auschwitz. That’s why they voted to 10x ICE budget."
