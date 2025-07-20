@@ -822,3 +822,11 @@ illini81 2012-06-26
 "Bots can't vote, but they certainly can sway votes, so is there really that big of a difference?"
 
 * :::=== RoundSparrow_Commentary : Yes, the difference is huge. Insincere Russian accounts, manipulative content sways people every single hour of every single day, not just voting days and elections, but thinking and attitudes all day every day of the year, holidays included. Not just topics of government, but topics of [medical science](https://www.bbc.com/news/world-us-canada-45294192) and [hurricanes](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57) and sports. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1m4mzra/a_maga_bot_network_on_x_is_divided_over_the/n46qrd0/
+
+NotASellout 2013-01-01
+
+"It's every social media site. Makes you feel crazy but it's way too patterned to be organic"
