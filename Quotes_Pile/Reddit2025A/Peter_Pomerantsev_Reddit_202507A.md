@@ -805,3 +805,10 @@ dundunitagn 2021-07-16
 
 "This comment took way took long. More people need to recognize her obvious behavior and admit she was compromised long ago. She's been a Russian agent almost as long as Melania. Tulsi ust waited until the later stages to sell herself out."
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1m4mzra/a_maga_bot_network_on_x_is_divided_over_the/n45k4re/
+
+Popular_Try_5075 2024-04-22
+
+"TBH I wish they'd take a look at Reddit a little more too because ugh this place has gone downhill over the last decade."
