@@ -437,3 +437,17 @@ Sorry for the rant, I guess where I'm getting at is that instead of pushback wit
 
 * :::=== RoundSparrow_Commentary : No vocabulary of Andrew Postman, Neil Postman, Marshall McLuhan, Peter Pomerantsev, Christopher Wylie. **Social media clicks is exactly like reporter clicks, even more engaging. Blaming "the media" on "social media" is a lack of self-awareness. June 23, 2005 - it is **20 years of Reddit media**, without paywalls, with reaction commenting. [Reddit owners work with Elon Musk.](https://mashable.com/article/elon-musk-messaged-reddit-ceo-over-content) ===:::
 
+&nbsp;
+
+# Sunday July 20, 2025
+
+https://old.reddit.com/r/news/comments/1m4rkrb/ice_secretly_deported_pennsylvania_grandfather_82/n46hetg/
+
+Euler007 2013-07-21
+
+"It's next level evil to try to make the relatives think he died to throw them off the scent. Hope they can sue the hell out of ICE.
+
+Edit: to all the Internet tough guys telling me lawsuits are too nice and suggesting violent alternatives (and getting zapped by automod): giving them a valid reason to lock you away for a long time is not as smart as you think it is."
+
+* :::=== RoundSparrow_Commentary : I have found since year 2014 that the pro-violence pro-weapons behavior of USA social media society comes from complete and total avoidance by people of: Neil Postman's 1985 book explaining Ronald Reagan (President in 1985) and Donald Trump - repeating and repeating and educating and teaching and calling out the crisis. Andrew Postman's Febraury 2017 decleration. Peter Pomerantsev since year 2014, Christopher Wylie since year 2019 (prior to pandemic), etc. People in USA are so gun-stroking weapon systems happy that the solution they promote is murder and killing - without even using social media to teach cult deprogramming of MAGA / Donald Trump cult / Fox News cult. [A *baby boomer*, Jen Senko - born in a "red state" in 1954 has been ignored since March 2016 - why is her film and book](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad) not constantly repeated on every social media platform by people who actually want to address the Rupert Murdoch / Donald Trump cults? People are constantly promoting civil war, terrorism, murder, killing, guns, weapon systems on social machine systems. People are addicted to the very behavior of Elon Musk, Donald Trump, Kremlin and White House. People are engtertained, amused, at the Surkovian techniques of Realty TV (The Apprentice, Trump) content from billionares. Neil Postman spells all this out in his 1985 book. It is not *only MAGA* that is thrilled at the hate and gun stroking violence of Donald Trump status symbol of hate and mass dehumanization. ===:::
+
