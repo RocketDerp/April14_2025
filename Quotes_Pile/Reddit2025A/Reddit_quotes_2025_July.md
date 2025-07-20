@@ -466,3 +466,13 @@ https://old.reddit.com/r/news/comments/1m4rkrb/ice_secretly_deported_pennsylvani
 LifeScientist123 2017-04-20
 
 "You’re so wrong. MAGA ARE questioning things. They’re furious that more people aren’t being rounded up and sent to Alligator Auschwitz. That’s why they voted to 10x ICE budget."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1m4rkrb/ice_secretly_deported_pennsylvania_grandfather_82/n46o88h/
+
+"We’ve been using illegal immigrants as the scapegoat for all our problems for decades, to the extent that even liberal people believe the lies about them. We now have people in power taking those lies seriously. The country is being ruled by Nazis."
+
+animerobin 2022-03-04
+
+* :::=== RoundSparrow_Commentary : Decades as in 1985 - **four decades** unable to face up to the [184 page book by Neil Postman about how technology itself, electric media](https://www.goodreads.com/author/quotes/41963.Neil_Postman), has turned us into favoring reactionary shallow short-term thinking who think it is LOL amusing to see people we disagreew it suffer and die. Look at our medical system in USA compared to other nations! Our very technology has induced Nazi like behavior, machine logic, "us vs. them" binary bit bucketing.  [Rick Roderick 1993: "But any intellect that powerful has a tendency to become totalitarian. This is the fundamental problem and nowhere would that be more evident than in the experience of the Germans who were, you know, great at their technology, the advance in science and so on, a world as instrumentally rational, you know, the famous joke that their trains run on time, but the flipside of enlightenment has been to, sort of, give up before the overpowering forces of technology in a more abject surrender than any that was ever called for in religion."](https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/) - what more do you need to see than Elon Musk year 2024, Elon Musk year 2025 with Trump and the White House to see what Texan Rick Roderick was emphasizing in 1993? ===:::
