@@ -511,3 +511,13 @@ LuvKrahft 2008-11-07
 
 The angriest I’ve seen these people get was when they tried to steal everyone’s votes on Jan 6."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m5hld6/tulsi_gabbard_openly_accuses_obama_of/n4cqppt/
+
+Lord_Lion 2020-03-31
+
+"If Trump arrests Obama for nothing, people will fuck him up. Thats way over the red line for all non cult Americans . With the rapid decline of America after Obama, hes going to be and already is remembered as the last great president of the USA.
+
+If Trump messes with him beyond his typical shit weasel bluster, the riots will happen immediately and the marches on Washington will happen within the week."
+
