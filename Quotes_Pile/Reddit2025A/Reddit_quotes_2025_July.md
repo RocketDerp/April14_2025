@@ -528,3 +528,14 @@ https://old.reddit.com/r/politics/comments/1m5hld6/tulsi_gabbard_openly_accuses_
 Slymook 2018-09-27
 
 "Trump is on tape asking more votes and trying to steal the 2020 election. He is on tape trying to steal the election. He is on tape trying to steal the election. I cannot stress enough that he is on trying to steal an election."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m5hld6/tulsi_gabbard_openly_accuses_obama_of/n4c0itl/
+
+QuiGonColdGin 2020-12-05
+
+"Another MAGA nutbag. I swear to God, these people are clinically mentally ill. They all need psychological help."
+
+* :::=== RoundSparrow_Commentary : Social media could sustain repeating '"MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"](https://www.youtube.com/watch?v=09maaUaRT4M) every day on social sites until 90% of people age 14 to age 120 in USA are on the same page. But that would require sustained focus and repeating of important topics, not just repating entertainment, but nonfiction serious priority rescue focus. There also needs to be reconing with the mental health profession not declaring that believing religions are nonfiction, believing Fox News is not billionaires manpulation of the poor, and believing lies and falsehoods... is a mental disorder. ===:::
+
