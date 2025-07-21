@@ -546,3 +546,16 @@ https://old.reddit.com/r/complaints/comments/1m5mbea/if_you_voted_for_trump_you_
 booperbloop 2016-01-26
 
 "Why wouldn't they? They are encouraged to wear their hatred and lack of empathy for anybody else like a badge of honor. Trashy people love when others encourage their trashiness. Might not even be their fault that they are too stupid to realize that they've been used and they are the shit on the bottom of their Dear Leader's shoe at best and will go down with the rest of the non-billionaires. That's the silver lining, even the people that voted for the inept POTUS will be thrown out with the trash by the people they voted for."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m5lnnm/jeff_daniels_on_trumps_2nd_term_weve_lost_decency/n4d2i7o/
+
+laudanum18 2013-07-03
+
+"These leaders are a true reflection of what shitty, racist, ignorant morons most Americans have become. I could say it's probably due to hypocritical religious beliefs, disdain for education and learning in general, historically ingrained racism, nonstop 24/7 propaganda on television and the internet but at this point the reason doesn't even matter.
+
+The simple fact is that year after year after year, US voters keep voting for the shittiest human beings on the ballot. And it keeps accelerating to the point where voters are now electing blatantly racist, proudly stupid pedophiles. Whether intentionally or not, US voters are the straight-up dumbest, most hateful, spite-driven assholes on the face of the Earth today and probably ever."
+
+* :::=== RoundSparrow_Commentary : I don't view this as *voters* that the Reddit comment says: "US voters keep voting for the shittiest human beings on the ballot" - it is true EVERY day, ***non-voters** (underage, etc) inclusive. USA society as media consumers and *employees of workplaces* flock to: liars, deceivers, manpulators, CEO skills. You encounter this offline and online, with friends and strangers alike. People are in egomania staring into their smartphones in public, the introduciton of the Apple iPhone in middle of year 2007 has drastically changed society into filter-bubble behaviors. People are not facing up to Neil Postman's 1985 book about this Apple iPhone meme mixing of amusmeent and fiction with nonfiction. Fiction wins, junk meme society, Twitter-thinking is Donald Trump White House now (and Reddit voting of reaction comments). [Surkovian governing is media addiciton that Neil Postman described in year 1985.](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) :::===
+
