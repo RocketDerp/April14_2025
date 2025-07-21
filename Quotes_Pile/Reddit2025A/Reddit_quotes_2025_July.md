@@ -539,3 +539,10 @@ QuiGonColdGin 2020-12-05
 
 * :::=== RoundSparrow_Commentary : Social media could sustain repeating ["MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"](https://www.youtube.com/watch?v=09maaUaRT4M) every day on social sites until 90% of people age 14 to age 120 in USA are on the same page. But that would require sustained focus and repeating of important topics, not just repating entertainment, but nonfiction serious priority rescue focus. There also needs to be reconing with the mental health profession not declaring that believing religions are nonfiction, believing Fox News is not billionaires manpulation of the poor, and believing lies and falsehoods... is a mental disorder. [Mob mentality, mob gullibility.](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m5mbea/if_you_voted_for_trump_you_are_a_nazi/n4d2koa/
+
+booperbloop 2016-01-26
+
+"Why wouldn't they? They are encouraged to wear their hatred and lack of empathy for anybody else like a badge of honor. Trashy people love when others encourage their trashiness. Might not even be their fault that they are too stupid to realize that they've been used and they are the shit on the bottom of their Dear Leader's shoe at best and will go down with the rest of the non-billionaires. That's the silver lining, even the people that voted for the inept POTUS will be thrown out with the trash by the people they voted for."
