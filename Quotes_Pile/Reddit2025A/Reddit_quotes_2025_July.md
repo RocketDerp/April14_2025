@@ -521,3 +521,10 @@ Lord_Lion 2020-03-31
 
 If Trump messes with him beyond his typical shit weasel bluster, the riots will happen immediately and the marches on Washington will happen within the week."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m5hld6/tulsi_gabbard_openly_accuses_obama_of/n4ca23v/
+
+Slymook 2018-09-27
+
+"Trump is on tape asking more votes and trying to steal the 2020 election. He is on tape trying to steal the election. He is on tape trying to steal the election. I cannot stress enough that he is on trying to steal an election."
