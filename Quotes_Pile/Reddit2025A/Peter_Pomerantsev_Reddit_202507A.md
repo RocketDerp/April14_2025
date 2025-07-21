@@ -830,3 +830,16 @@ https://old.reddit.com/r/technology/comments/1m4mzra/a_maga_bot_network_on_x_is_
 NotASellout 2013-01-01
 
 "It's every social media site. Makes you feel crazy but it's way too patterned to be organic"
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m5lnnm/jeff_daniels_on_trumps_2nd_term_weve_lost_decency/n4cskhh/
+
+Three_Froggy_Problem 2021-05-10
+
+"A lot of people say this and I do think it’s true to an extent, but here’s my problem with this view:
+
+It seems to imply that some switch flipped in 2016 and people became worse, like all these racists emerged out of nowhere and people who used to be nice suddenly became vile and hateful. And that isn’t true. We haven’t “lose decency and civility;” the thin veneer that masked all this awfulness has just been erased and it’s all in the open now."
+
+* :::=== RoundSparrow_Commentary : Reddit coment saying: "some switch flipped in 2016 and people became worse" without being able to cite in July 2025: Christopher Wylie, Peter Pomerantsev, name the dates of Internet Research Agency, name Cambridge Anlytica - doctorates of psychological behavior manipulation. Not a person in the Reddit July 2025 discussions can [cite November 2012 agreement beteen: Trump, Russia, CA](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/). The experience is staring them in the face: "switch flipped in 2016 and people became worse" - you didn't *notice* until year 2016? Trump announced in June 2015, Trump was doing sex shows in Moscow in March 2013. [Conservative International 2013 was announced in December 2013](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/), afer the Russian Internet Research Agency attacks on *we the people* had been online for most of the year! "some switch flipped in 2016 and people became worse, like all these racists emerged out of nowhere and people who used to be nice suddenly became vile and hateful" - what exaclty does this person think happens when war breaks out, what military boot camp does to everyday people, make them compassion and love for strangers? ===:::
+
