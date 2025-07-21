@@ -476,3 +476,24 @@ https://old.reddit.com/r/news/comments/1m4rkrb/ice_secretly_deported_pennsylvani
 animerobin 2022-03-04
 
 * :::=== RoundSparrow_Commentary : Decades as in 1985 - **four decades** unable to face up to the [184 page book by Neil Postman about how technology itself, electric media](https://www.goodreads.com/author/quotes/41963.Neil_Postman), has turned us into favoring reactionary shallow short-term thinking who think it is LOL amusing to see people we disagree with suffer and die (widespread USA society prizing egomania). Look at [our medical system values in USA](https://www.ineteconomics.org/perspectives/blog/how-the-u-s-lost-national-healthcare) for decades compared to other nations! Our very technology has induced Nazi like behavior, machine logic, "us vs. them" binary bit bucketing.  [Rick Roderick 1993: "But any intellect that powerful has a tendency to become totalitarian. This is the fundamental problem and nowhere would that be more evident than in the experience of the Germans who were, you know, great at their technology, the advance in science and so on, a world as instrumentally rational, you know, the famous joke that their trains run on time, but the flipside of enlightenment has been to, sort of, give up before the overpowering forces of technology in a more abject surrender than any that was ever called for in religion."](https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/) - what more do you need to see than Elon Musk year 2024, Elon Musk year 2025 with Trump and the White House all 2025 to see what **Texan Rick Roderick was emphasizing in 1993**? [Neil Postman in 1992](https://www.goodreads.com/work/quotes/1511641-technopoly-the-surrender-of-culture-to-technology)? ===:::
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/complaints/comments/1m51h5r/fuck_this_presidency/
+
+Stankassmfgorilla 2022-05-01
+
+"We have a pedophile, a rapist, a convicted felon, a racist, and an all around piece of shit in office. How did we get here?
+
+I think almost every person in a major political office is a piece of shit one way or another, but my God does Trump take the cake. This guy is something else. Was it really not seen as a big deal before recently that he was buddy buddy with the guy who turned out to have one of the biggest pedophile rings in the world and was using, abusing, torturing, raping, and molesting all these young girls?
+
+Of course his followers will just turn a blind eye to that. They’ll leech off of Joe Biden making some really weird or creepy comments but think Trump shits gold when the evidence is all but laid out for the world to see. MAGA is literally a cult. I’ve never seen a group of people get so up in arms to defend someone that doesn’t give a single shit about them.
+
+I just don’t understand how we as a country got here. This is ridiculous. This piece of shit has done multiple unconstitutional things, is unprofessional, and continues to make an ass out of himself on TV and embarrasses America in front of the entire world.
+
+Fuck this guy
+
+Edit: It really is telling of the state of our country and the people in it when stating your disgust with who is in office is somehow relegated to “karma farming.” Truly baffling. The people here defending Trump or brushing off what he’s done are part of the problem. This isn’t even a matter of opinion anymore. There’s evidence against him that’s just being ignored because, why not?"
+
