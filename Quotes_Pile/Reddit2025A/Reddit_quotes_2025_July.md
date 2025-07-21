@@ -497,3 +497,17 @@ Fuck this guy
 
 Edit: It really is telling of the state of our country and the people in it when stating your disgust with who is in office is somehow relegated to “karma farming.” Truly baffling. The people here defending Trump or brushing off what he’s done are part of the problem. This isn’t even a matter of opinion anymore. There’s evidence against him that’s just being ignored because, why not?"
 
+&nbsp;
+
+# Monday July 21, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m5hld6/tulsi_gabbard_openly_accuses_obama_of/n4c234x/
+
+LuvKrahft 2008-11-07
+
+"I think they’re more puzzled by trump than angry at him.
+
+The angriest I’ve seen these people get was when they tried to steal everyone’s votes on Jan 6."
+
