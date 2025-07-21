@@ -559,3 +559,13 @@ The simple fact is that year after year after year, US voters keep voting for th
 
 * :::=== RoundSparrow_Commentary : I don't view this as *voters* that the Reddit comment says: "US voters keep voting for the shittiest human beings on the ballot" - it is true EVERY day, ***non-voters** (underage, etc) inclusive. USA society as media consumers and *employees of workplaces* flock to: liars, deceivers, manpulators, CEO skills. You encounter this offline and online, with friends and strangers alike. People are in egomania staring into their smartphones in public, the introduciton of the Apple iPhone in middle of year 2007 has drastically changed society into filter-bubble behaviors. People are not facing up to Neil Postman's 1985 book about this Apple iPhone meme mixing of amusmeent and fiction with nonfiction. Fiction wins, junk meme society, Twitter-thinking is Donald Trump White House now (and Reddit voting of reaction comments). [Surkovian governing is media addiciton that Neil Postman described in year 1985.](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) :::===
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1m5lnnm/jeff_daniels_on_trumps_2nd_term_weve_lost_decency/n4dq5he/
+
+Darko33 2010-02-20
+
+"I think it may be important to note that this isn't exactly new, either. The winner of the Pulitzer Prize in Nonfiction in 1964 was titled Anti-Intellectualism in American Life."
+
+* :::=== RoundSparrow_Commentary : What is *new* is the Apple iPhone since middle of year 2007. Reddit, Twitter, Bluesky, that is what is new. HDTV wall to wall screens, vibrating intimate touch screen content filtering to personal egoism. [Neil Postman in 1985 in his 184 page book](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) explains this in well written language. Even before year 1964 book, Neil Postman's 1985 book goes back to February 4, 1932 *Brave New World*. :::====
+
