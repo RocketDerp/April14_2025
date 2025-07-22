@@ -845,3 +845,12 @@ It seems to imply that some switch flipped in 2016 and people became worse, like
 
 * :::=== RoundSparrow_Commentary : "some switch flipped in 2016 and people became worse" - is pretty much what Peter Pomerantsev describes happening to London / UK society after he returned from Reality TV production in Moscow, Russia for the Kremlin. He recognized that it was happening in the UK. [Adam Curtis emphasized this in year 2014 also: "But maybe, we have something similar emerging here in Britain. Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge"](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). When Adam Curtis made that December 31, 2014 statement, the Russian IRA had been online for 18 months already. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m6iq9x/trump_on_who_the_doj_should_target_it_would_be/n4jx5w5/
+
+Haunting-Ad788 2020-08-10
+
+"Wow super weird he did nothing about this during his first term and suddenly cares when he’s trying to distract from being a child rapist."
+
+* :::=== RoundSparrow_Commentary : Recency bias abounds. People is USA July 2025 keep behaving as if Donald Trump's first termin office starting January 2017 did not happen. Mass mind memory loss. Aftermath of Cambridge Analytica and Russian information warfare. ===:::
