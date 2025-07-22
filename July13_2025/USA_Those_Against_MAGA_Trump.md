@@ -14,7 +14,13 @@ https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stel
 
 I have seen time nnd time again people sharing personal stories about blocking and disowning friends over Doanld Trump support and MAGA since year 2015.
 
+&nbsp;
+
 ## Not Rescuing Americans
+
+Intelectual survivor guilt of not being able to overcome the [Cambridge Analytica weaponized executive function mind manipulation since year 2013](../Quotes_Pile/Cambridge_Analytica_Quotes.md). Not being able to save the future of the USA since year 2013, not being able to rescue neighbors, friends, coworkers.
+
+&nbsp;
 
 ### [Anti Empathy signals](https://www.theguardian.com/us-news/ng-interactive/2025/apr/08/empathy-sin-christian-right-musk-trump), Anti Compassion popularity
 
