@@ -41,6 +41,16 @@ I have seen time nnd time again people sharing personal stories about blocking a
 
 .
 
+# Against Trump, Against MAGA
+
+The problem is that hate for hate against Trump, matching MAGA hate and dehumzniation is not seeing the forest problem for the trees. 
+
+We are not dealing with domestic brainrot only of HDTV and meme culture, we lost an information war to Russia nad people can not even name the players or describe. People can not name dates, players, techniques. [Surkovian Onion Eating abounds](../Quotes_Pile/Reddit2025A/Surkovian_Onion_Eating.md)
+
+&nbsp;
+
+.
+
 ### Of course needs editing
 
 I have extreme brain damage from what CA and IRA have done to USA mass mind. All this needs writing, rewriting, editing.
