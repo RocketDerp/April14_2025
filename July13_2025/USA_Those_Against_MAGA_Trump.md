@@ -55,6 +55,18 @@ To deny that MAGA "high energy" comes from stress, hate, dehumanization - wartim
 
 The stress that comes from middle of the night antics and rage on social media from government leaders. Health care system in constant dehumanization values. Future of children and society in denial of climate change, attacking allies, not defending against enemy mental and emotional manipulation attacks.
 
+&nbsp;
+
+# Fundamental Breakdowns
+
+Rick Roderick 1993 quote about breakdown of society
+
+## Comprehension, Undrestanding
+
+back to the start of this page with the "Speak Fox News?" breakdown of langauge. There is also a breakdown of science comprehension that was apparent during the December 2019 onward COVID-19 pandemic. A breakdown of comprehension, interpretation, in the face of complexity.
+
+&nbsp;
+
 .
 
 ### Of course needs editing
