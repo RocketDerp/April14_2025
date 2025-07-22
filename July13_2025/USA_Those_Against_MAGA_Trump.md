@@ -1,5 +1,9 @@
 # Those Against MAGA / Trump
 
+https://autistics.life/@RoundSparrow/114897194089631865     
+https://bsky.app/profile/roundsparrow.bsky.social/post/3luknfjy6ys2c    
+
+
 Please read:
 
 "Do You Speak Fox?    
