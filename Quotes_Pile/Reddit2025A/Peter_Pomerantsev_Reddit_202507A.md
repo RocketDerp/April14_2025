@@ -854,3 +854,15 @@ Haunting-Ad788 2020-08-10
 "Wow super weird he did nothing about this during his first term and suddenly cares when he’s trying to distract from being a child rapist."
 
 * :::=== RoundSparrow_Commentary : Recency bias abounds. People is USA July 2025 keep behaving as if Donald Trump's first termin office starting January 2017 did not happen. Mass mind memory loss. Aftermath of Cambridge Analytica and Russian information warfare. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m6iq9x/trump_on_who_the_doj_should_target_it_would_be/n4jxb5y/
+
+whooo_me 2016-07-07
+
+"I've hated Trump for decades.
+
+But if you told me in 2015 that things would be this nuts, I wouldn't have believed you."
+
+* :::=== RoundSparrow_Commentary : Nor can this social media user on Reddit in July 2025 see what is going on and discuss Russian information warfare, Surkovian mass mind mental exploits. Can't cite when the Kremlin IRA went online, can't cite names of players. Can't cite Cambridge Analtyica doctors who used the most sophisticated techniques known to mankind. Also since they "hated Trump for decades" - they can't [cite Dr. Martin Luther King Jr from 1954 about hate](../Martin_Luther_King_Jr_quotes0.md) itself. That is why they don't grasp mass mind back in year 2015 or year 2025 both.
