@@ -49,6 +49,12 @@ We are not dealing with domestic brainrot only of HDTV and meme culture, we lost
 
 &nbsp;
 
+## Stress Kills / Stress Lords
+
+To deny that MAGA "high energy" comes from stress, hate, dehumanization - wartime kind of attitudes of military commanders...
+
+The stress that comes from middle of the night antics and rage on social media from government leaders. Health care system in constant dehumanization values. Future of children and society in denial of climate change, attacking allies, not defending against enemy mental and emotional manipulation attacks.
+
 .
 
 ### Of course needs editing
