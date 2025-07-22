@@ -569,3 +569,14 @@ Darko33 2010-02-20
 
 * :::=== RoundSparrow_Commentary : What is *new* is the Apple iPhone since middle of year 2007. Reddit, Twitter, Bluesky, that is what is new. HDTV wall to wall screens, vibrating intimate touch screen content filtering to personal egoism. [Neil Postman in 1985 in his 184 page book](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) explains this in well written language. Even before year 1964 book, Neil Postman's 1985 book goes back to February 4, 1932 *Brave New World*. :::====
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m5svpa/amid_epstein_fallout_video_of_trump_judging_teens/n4edc4x/
+
+StoppableHulk 2018-07-15
+
+"Till the day I die, I will never understand how so many people's radars are so fucking bad that this obvious pedophile skated through life without any fucking person realizing it.
+
+He's been very obviously one of the skeeviest, grossest people on the planet since LONG before his presidential tenure."
+
+* :::=== RoundSparrow_Commentary : People do not want to face up to the implications of the IRA and Cambridge Anlytica manipulation of the population. **Wake the fuck up, USA: do you think MAGA shows good judgement during pandemic science discussions? Floods in Texas in July 2025? Do you seriously think the mind-fucking is limited to only Donald Trump sex topics?** - [Neil Postman's 1985 book is about the behavior of all media consumers, everyone](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley), it is about a ticking timebomb that exploded with [egomania induced by filter-bubble Internet](https://www.goodreads.com/work/quotes/15503719-the-filter-bubble-what-the-internet-is-hiding-from-you) meme consumption. You can't even get [USA self-declared patriots to face up to documented hard evidence of mental manipulation announced August 24, 2018](https://www.bbc.com/news/world-us-canada-45294192) and repeated [many times before December 2019 escape of Wuhan, China virus](https://www.foxnews.com/tech/russian-trolls-blamed-for-spreading-anti-vaccination-propaganda) via airports. ===:::
