@@ -280,4 +280,11 @@ https://old.reddit.com/r/technology/comments/1m5xqqe/youtube_wipes_out_thousands
 
 Putin media invasion continues and nobody in USA is alarmed or feels the need to use words like: defend, rescue of Americans.
 
+# Tuesday July 22, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1m6chhr/president_karen_wanted_to_speak_to_the_manager/
+
+"Voice of reason" plastered as heading on the content. This is NOT in any way the voice of reason thinkiing system, this is *voice of total mockery, voice of mocking*.  www.GreatSealUSA.com discusses comprehending the voice of reason from USA founding fathers.
 
