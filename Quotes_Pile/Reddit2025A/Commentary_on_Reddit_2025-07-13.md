@@ -270,5 +270,14 @@ https://old.reddit.com/r/popculturechat/comments/1m3at40/elon_musk_is_not_lettin
 
 **Why would Elon Musk** not want to keep the most popular topics and his personal street cred on top media topics? Reddit society is eating right out of the hands of **Trickle Down Content** from the rich. Everything is media ecology. Surkovian governing of society in action, every media platform reacting to every move and shake of the White House (including Elon Musk DOGE). People adore the "tea" and "scoop" sex lives of rich white men topics, Musk sex life, Trump sex life, etc. This is what people voted for in year 2024, a thrilling white house of antics and Donald Trump playing Tony Clifton.
 
+&nbsp;
+
+# Monday July 21, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1m5xqqe/youtube_wipes_out_thousands_of_propaganda/
+
+Putin media invasion continues and nobody in USA is alarmed or feels the need to use words like: defend, rescue of Americans.
 
 
