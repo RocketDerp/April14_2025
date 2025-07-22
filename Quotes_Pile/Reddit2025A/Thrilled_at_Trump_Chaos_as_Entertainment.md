@@ -99,7 +99,7 @@ Commercial_Blood2330 2024-12-07 (recent)
 
 https://old.reddit.com/r/Fauxmoi/comments/1m6c8iv/karma_strikes_back_connor_ftom_jubilee_video_got/
 
-Reddit front page. Gleeful that people are mentally manipulated by Elon Musk mind virus / billionaires manipulating the population. Mocking and insulting is not resisting, it is exactly what Surkovian governing / Russian information warfare exploits in the human mind and brain... out-group hate patterns. Instead of teaching Jen Senko, Neil Postman, Andrew Postman, Peter P - people use social machine systems to promote mocking and insulting (which are MAGA / Donald Trump values) in July 2025.
+Reddit front page. Gleeful that people are mentally manipulated by [Elon Musk mind virus / billionaires manipulating](https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html) the population. Mocking and insulting is not resisting, it is exactly what Surkovian governing / Russian information warfare exploits in the human mind and brain... out-group hate patterns. Instead of teaching Jen Senko, Neil Postman, Andrew Postman, Peter P - people use social machine systems to promote mocking and insulting (which are MAGA / Donald Trump values) in July 2025.
 
 Something to be happy would be Connor adopting compassion comprehension, learning better morality. Instead, people "love it" that a human has been mind-fucked by the wealthy and powerful... which is in no way something good for humanity. USA society has such a low bar: "liberal tears" as the bar people have, "conservative tears" are the low bar of measure people have in July 2025. There is no high road, only total mockery. Russia won, Surkov won since March 2013.
 
