@@ -676,3 +676,10 @@ ONLY_SAYS_ONLY 2013-02-05
 "Orbán’s oligarchs captured over 80% of the media in Hungary within 18 months of his reelection. 
 
 Now they pump out pro- propaganda 24/7 and the electorate swallow it wholesale and vote accordingly every election. It is a democracy in name only."
+
+&nbsp;
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1m781z1/a_true_american_original/n4peop9/
+
+"How in the world could anyone listen to Ozzy speaking and think he was from the US?"
+
