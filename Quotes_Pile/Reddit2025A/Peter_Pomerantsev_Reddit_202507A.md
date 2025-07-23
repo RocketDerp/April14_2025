@@ -885,3 +885,20 @@ https://old.reddit.com/r/agedlikemilk/comments/1m76zu5/this_guy_really_should_de
 
 * :::=== RoundSparrow_Commentary : So much eating of the Surkovian onions. People in USA can not resist the contradictory hate-speech of Americans hate Americans. People do not call this out as mass mind exploits, entertainment that people have in out-group hate patterns. In 2025, **all Americans** follow Twitter King Donald Trump and Elon Musk values of dehumanizing and hate upon out-groups, thrilled at the entertainment of Total Mockery USA. "Should really delete his account" - how would the controlled opposition be controlled except in compusive media addiciton with no self-awareness at the Neil Postman 1985 level? Mocking "conservative tears" and "liberal tears" is the foundation of Russian informationw warfare. ["The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd."](https://www.goodreads.com/author/quotes/8035579.Peter_Pomerantsev) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m76zu5/this_guy_really_should_delete_his_account/n4pgnla/
+
+Upbeat-Fondant9185 2022-12-07
+
+"I keep pointing this out, it’s insidious how this works. These profiles count on outrage from “the left” to boost their engagement and it works flawlessly.
+
+When thousands of people see the post it drives a percentage of those to the actual account, and some of those will follow for more outrage content. But some will stay because they are on the fence or agree to some extent, and those people become radicalized over time and help spread the content in sympathetic circles. Circles that continue to grow as people are introduced to these accounts by outrage posting.
+
+This is essentially how Trump got elected. Twice. Politics wasn’t so mainstream before him, but every type of media found his antics boosted engagement so they kept feeding us more and more and more, which attracted more viewers. And for every person that watched to laugh there was another thinking “hey, I like this guy”.
+
+It’s repeated through multiple local, state, and federal elections now. The crazy person gets name recognition and memes. That gets them elected.
+
+All we had to do was stop boosting this bullshit. It’s too late now. And yes, I recognize the hypocrisy as I contribute to the engagement here."
+
+* :::=== RoundSparrow_Commentary : That is why you make 1985 book by Neil Postman the core topic of social media for months and months, every day, until the 184 page book is understood by every person in USA age 12 to 120. [In year 1985, Neil Postman described the Reddit and Twitter problem](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) before Fox News even went online in 1996 on Putin's birthday. And you can go into [1993 Texan Rick Roderick at Duke University](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) before Peter Pomerantsev published.  ===:::
