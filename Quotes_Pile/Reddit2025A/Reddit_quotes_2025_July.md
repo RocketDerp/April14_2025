@@ -683,3 +683,12 @@ https://old.reddit.com/r/confidentlyincorrect/comments/1m781z1/a_true_american_o
 
 "How in the world could anyone listen to Ozzy speaking and think he was from the US?"
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m7ea3e/burger_king_worker_went_viral_for_running_the/n4qq3p6/
+
+Al_Tilly_the_Bum 2013-07-03
+
+"What the hell is this title? Pure hustle? How about pure exploitation. She will get $0 more for working alone but the owner is saving tons because he only has to pay the wages of one person.
+
+This should be a crime not lauded as hustle culture"
