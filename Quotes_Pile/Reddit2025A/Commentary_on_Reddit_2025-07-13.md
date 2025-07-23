@@ -288,3 +288,9 @@ https://old.reddit.com/r/BlueskySkeets/comments/1m6chhr/president_karen_wanted_t
 
 "Voice of reason" plastered as heading on the content. This is NOT in any way the voice of reason thinkiing system, this is *voice of total mockery, voice of mocking*.  www.GreatSealUSA.com discusses comprehending the voice of reason from USA founding fathers.
 
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1m6to5z/these_are_deeply_unserious_people/
+
+"Deeply Unserious People" on a social media platform where people are so cowardly and non-serious about truth that they hide their real names (cowering, bravery abasent) while billionares on social media like Donald Trump and Elon Musk use their real name. Such unserious people who can't quote  Neil Postman 1985 / Andrew Postman February 2017, Peter Pomerantsev, Adam Curitis 2014, Christopher Wylie 2019 books, etc. All the unserious people with MAGA values do is mock "conservative tears" and "liberal tears" in out-group fashion and not look at Surkovian Russian governing and recognize the patterns.
+
