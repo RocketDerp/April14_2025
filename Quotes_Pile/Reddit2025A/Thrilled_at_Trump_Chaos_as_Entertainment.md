@@ -103,3 +103,15 @@ Reddit front page. Gleeful that people are mentally manipulated by [Elon Musk mi
 
 Something to be happy would be Connor adopting compassion comprehension, learning better morality. Instead, people "love it" that a human has been mind-fucked by the wealthy and powerful... which is in no way something good for humanity. USA society has such a low bar: "liberal tears" as the bar people have, "conservative tears" are the low bar of measure people have in July 2025. There is no high road, only total mockery. Russia won, Surkov won since March 2013.
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1m77sg1/us_man_who_moved_to_russia_to_escape_lgbt/n4p94fv/
+
+ecwagner01 2019-02-14
+
+"HA HA
+
+I am terrible. I find the irony in each event I see like this and I cannot summon one ounce of compassion or sympathy.
+
+I'm usually more empathetic to others, but somehow, these events crack me up. Sending thoughts and prayers."
+
