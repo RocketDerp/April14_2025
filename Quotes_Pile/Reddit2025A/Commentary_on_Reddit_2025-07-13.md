@@ -310,3 +310,12 @@ I'm so very very sick of all this and the lack of people supporting and rising c
 
 I'm so sick of this, writing this is never enjoyable, some broken sense of civic duty. Edit and delete.
 
+&nbsp;
+
+.
+
+https://old.reddit.com/r/GenX/comments/1m7iqxf/dad_passed_not_going_to_the_service/
+
+I too am GenX - this made front page of Reddit. Alas, what concerns me is that this "go no contact" behavior in society is not connected with the **deportation of immigrants**, the ICE raids. That's exacly the attitude MAGA / Donald Trump White House / Rupert Murdoch holds about other races. Going *no contact* is social media society, block-happy, deportation-happy. The **dramatic ICE raids** are all about showing disgust and contept for fellow humans, hate thy neighbor, hate thy enemey, *we do not forgove those who trespass* inversions in the Donald Trump $59.99 Bible. Acting in USA as if Communism by Karl Marx in year 1848 invtented ideas in the Levant Bible 2,000 years ago - verse ["1 John 3:17"](https://biblehub.com/1_john/3-17.htm) for example (applies to Elon Musk and Donald Trump, among others). People on social media are not willing to address the Fox News literacy problem by making [baby boomer Jen Senko's book and film a constant repeated and asserted social media topic since March 2016](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad), nor do people weant to correct the massive Bible literacy problesm of MAGA / Trump White House. People are not taking the high road at all, the high road is education on these topics.
+
+
