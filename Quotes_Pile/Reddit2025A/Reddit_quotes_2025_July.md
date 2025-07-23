@@ -802,3 +802,10 @@ xRockTripodx 2017-02-08
 
 * :::=== RoundSparrow_Commentary : The entire USA society, social media society, [can not admit that Neil Postman was correct in 1985](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) - more than a decade before 1996 when Fox News launched. And how his 1985 book applies to Reddit, Bluesky, Twitter, TikTok, etc. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m7i9tq/justice_department_told_trump_in_may_that_his/n4rrtj7/
+
+Justify-my-buy 2021-02-01
+
+"Um, why doesn’t anyone just believe the 100’s of victims? Oh, and that part where Trump was convicted of 34 felonies? Uh hem…oh yeah and that recording where he justifies grabbing women’s vaginas?"
