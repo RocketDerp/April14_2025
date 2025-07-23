@@ -809,3 +809,11 @@ https://old.reddit.com/r/politics/comments/1m7i9tq/justice_department_told_trump
 Justify-my-buy 2021-02-01
 
 "Um, why doesn’t anyone just believe the 100’s of victims? Oh, and that part where Trump was convicted of 34 felonies? Uh hem…oh yeah and that recording where he justifies grabbing women’s vaginas?"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m7lmwa/breaking_trump_named_in_multiple_documents/n4sjc53/
+
+g2g079 2006-12-28
+
+"So maga thought that they would release a bunch of liberal names, instead they've only managed to release Trump's name."
