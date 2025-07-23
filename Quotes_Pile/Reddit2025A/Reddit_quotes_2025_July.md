@@ -741,3 +741,12 @@ khisanthmagus 2017-09-05
 
 "When known, and documented, child molester and rapist Roy Moore was running for senate in Alabama a while back, a reporter asked a republican voter how they could vote for someone like that. His reply that if Moore had raped his own daughter he would punch Moore in the face and then still vote for him, because he is still better than a democrat. It is such a team sport, and they have been so brainwashed by right wing media to believe all democrats are even worse monsters, that they still view it as a lesser evil."
 
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m78jac/why_do_republicans_love_rape/n4pi883/
+
+Historical-Egg3243 2020-10-17
+
+"politics has become so toxic that it's not seen as that abnormal anymore, or they just assume it's lies. Many others will vote the party line no matter who the candidate is.
+
+And then yea many of them are actually rapists or hold rapey views so it doesn't bother them at all. Many times times when people say "family values" they don't mean more loving families, they mean families that hold more primitive beliefs."
