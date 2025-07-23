@@ -656,3 +656,14 @@ TheDoomBlade13 2016-04-29
 "Any hope of this went out the window with corporate journalism. Even your local paper is probably owned by a massive conglomerate.
 
 Journalism is dead, the public is just now finding the body."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m76ypk/trump_claims_new_cbs_owner_will_gift_him_20m/n4q7fig/
+
+HypnoticONE 2012-02-23
+
+"That's how he gets away with so much. Think about it, if a whistleblower came out with this info, it might actually be a scandal. But since he just admits it in the open, the media doesn't know how to cover it. The media is still in the "Powerful people want to hide their corruption, and scandals are uncovered, not touted.""
+
+* :::=== RoundSparrow_Commentary : BBC, Adan Curits, 2014: ["But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year.](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) - year 2014 ===:::
+
