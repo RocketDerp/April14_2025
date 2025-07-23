@@ -721,4 +721,23 @@ Glad_Stay4056 2020-12-13
 
 "Yes, people that believed Hatians ate pets totally beleive this. It's not even the most ridiculous thing they've ever had to sanewash."
 
-* :::=== RoundSparrow_Commentary : Surkovian government goes beyond those who accept the lies, it is all inclusive, everyone. Those who *mock and insult* the out-group are consuming the trickle down White House / Kremlin media content. Mocking "the others" is not resisting - it is content engagement, it's exactly what Surkovian chesss is about. ['The first law', he told radio managers on 25 March 1933: 'Don't become boring!'](https://abandonedfootnotes.blogspot.com/2014/06/the-tedium-of-authoritarianism.html) ===::: 
+* :::=== RoundSparrow_Commentary : Surkovian government goes beyond those who accept the lies, it is all inclusive, everyone. Those who *mock and insult* the out-group are consuming the trickle down White House / Kremlin media content. Mocking "the others" is not resisting - it is content engagement, it's exactly what Surkovian chess is about. ['The first law', he told radio managers on 25 March 1933: 'Don't become boring!'](https://abandonedfootnotes.blogspot.com/2014/06/the-tedium-of-authoritarianism.html) ===::: 
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m78jac/why_do_republicans_love_rape/n4phy3k/
+
+HogiSon727 2019-07-15
+
+"They only care about themselves so rape and any other bad thing is only bad if it happens to them. If it happens to others they don’t give a shit. It all comes down to empathy and they have none."
+
+* :::=== RoundSparrow_Commentary : USA people on social media behave as if this problem of girls being abused is only one political party in the USA. That a nation of 0.35 billion people out of 8.0 billion is unique in sexual abuse cocnerns. Malala Yousafzai from Pakistain who has been tring to give young girls a voice since year 2013 is grey-rocked by social media users. People on social media only seem to care about rich white men (Epstein / Trump / etc) while ignoring Malala Yousafzai's global efforts. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m78jac/why_do_republicans_love_rape/n4pzfpt/
+
+khisanthmagus 2017-09-05
+
+"When known, and documented, child molester and rapist Roy Moore was running for senate in Alabama a while back, a reporter asked a republican voter how they could vote for someone like that. His reply that if Moore had raped his own daughter he would punch Moore in the face and then still vote for him, because he is still better than a democrat. It is such a team sport, and they have been so brainwashed by right wing media to believe all democrats are even worse monsters, that they still view it as a lesser evil."
+
