@@ -866,3 +866,16 @@ whooo_me 2016-07-07
 But if you told me in 2015 that things would be this nuts, I wouldn't have believed you."
 
 * :::=== RoundSparrow_Commentary : Nor can this social media user on Reddit in July 2025 see what is going on and discuss Russian information warfare, Surkovian mass mind mental exploits. Can't cite when the Kremlin IRA went online, can't cite names of players. Can't cite Cambridge Analtyica doctors who used the most sophisticated techniques known to mankind. Also since they "hated Trump for decades" - they can't [cite Dr. Martin Luther King Jr from 1954 about hate](../Martin_Luther_King_Jr_quotes0.md) itself. That is why they don't grasp mass mind back in year 2015 or year 2025 both.
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1m78b0e/furious_trump_swears_live_on_tv_as_hes_quizzed_on/n4pfkjt/
+
+TheGongShow61 2013-07-31
+
+"He keeps trying to deflect, gaslight, and lashes out hysterically. HE IS SO GUILTY!
+
+Absolutely textbook guilty liar behavior."
+
+* :::=== RoundSparrow_Commentary : **Donald Trump has always been OBVIOUS as a liar, manipulator, attraction to bad.** The quesiton is why We The People are attracted to adopting hate of Donald Trump, hate as a value. That's why I am creating this very page to discuss, people are NOT learning what doctors of Cambridge Analytica did, what Russiain information warfare / Surkovian governing does to populations, We The People. People are attracted to, flocking to self-harm. [Russia did this to pandemic topics, and USA self-harmed instead of defending against a China virus as a patrotic save Americans civic duty, people welcome RFK Jr and measles diseases.](https://www.bbc.com/news/world-us-canada-45294192) this self-harm is a population attracted to [inverted monomyth](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/) patterns. Out-grup hate (and not just MAGA, not *only* Republicans, but out-group hate of Trump and MAGA since January 2024... it took longer, but it is entire 100% with faith in hate / hate as religion.). The OBVIOUS of it is part of Surkovian mass man mind exploits. People are self-harming NATO and USA. ===:::
+
