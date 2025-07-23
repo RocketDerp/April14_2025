@@ -841,3 +841,10 @@ What’s exactly new here? Or is this just another collective exercise showing h
 
 * :::=== RoundSparrow_Commentary : Yes, **much of this was already known and obvious** - but nobody wants to put down entertainment and stop the total mockery long enough to [face up that Neil Postman's 1985 book explains what is going on with Ronald Regan 1985 and Donald Trump 2025](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). The Audience is the problem. If people stopped using "echo-chamber" as an insult and mocking other people, they might start to grasp the media ecology crisis we are swimming in! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m7n8pb/the_epstein_files_are_going_to_haunt_trumps/n4ss903/
+
+milo_snatch 2021-03-31
+
+"I swear there’s an article like this every other week, claiming something or someone is going to actually hold Trump accountable. He’s proven time and again that he’s going to do whatever the fuck he wants, so I fail to see how this will lead anywhere different."
