@@ -771,3 +771,12 @@ alksreddit 2016-05-12
 
 * :::=== RoundSparrow_Commentary : People have been saying that Paparazzi is bad for decades. Social media users have lost their ability to view media behaviors at the Neil Postman and Marshall McLuhan level of self-awareness that everyday Internet users behave like classic Paparazzi. This stuff isn't covered in 2,000 year old Bible stories, they didn't have recorded video and Twitter in the Levant. Who is teaching morality? Social media users sure are not, they mock and insult, that isn't progressive education and teaching. Malala Yousafzai, who does teach remedial morality, is grey-rocked by social media society. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1m7fw8g/bryan_kohberger_sentenced_to_life_without_parole/n4rmkhr/
+
+fleemfleemfleemfleem 2019-07-24
+
+"I'm increasingly uncomfortable with the true-crime genre for basically this reason. People treat it as entertainment, and forget that there are real people involved. In the more extreme form it's like the weird parasocial relationships people form with podcasters, but with victims of crimes. I saw a post the other day were someone had to have her sister exhumed and cremated because to many true crime people were taking selfies at the grave site."
+
+* :::=== RoundSparrow_Commentary : Neil Postamn's 1985 book "Entertaining Ourselves to Death" needs to be understood and asserted on social media every day for months and months, until every person in USA understand the ideas in the book, EVERYONE age 12 to age 120 needs to face up to this problem. It isn't just Elon Musk and Donald Trump entertainment that is killing us. ===:::
