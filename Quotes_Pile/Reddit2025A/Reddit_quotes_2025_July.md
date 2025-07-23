@@ -829,4 +829,15 @@ Paizzu 2010-12-18
 * :::=== RoundSparrow_Commentary : Whenever the topic of "media" comes up on social media, people avoid Marshall McLuhan, Neil Postman, Peter Pomerantsev, etc. Social machine users act like social media consuemrs on Reddit don't create the same clickbait titles as "news sites". The audience is the problem, "Amusing Ourselves To Death" book in 1985 was created when Ronald Reagan was an entertainer politician like Donald Trump. Social media users did not in any way resist Cambridge Analytica and Internet Research Agency, media was infiltrated by a hostile enemy - and people just mock other people as "bots" without citing any authors or [serious treatment of the subject](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). People in USA can't name dates, timeframes, players. Just off the cuff commentary (by no-identity Reddit users) like Donald Trump does on social media, no citation, no references, no experts. ===:::
 
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m7lmwa/breaking_trump_named_in_multiple_documents/n4sxiq1/
+
+PolicyWonka 2019-10-04
+
+"Am I taking crazy pills or wasn’t this already known for years at this point? He was on flight logs and all kinds of shit.
+
+What’s exactly new here? Or is this just another collective exercise showing how the American electorate has the memory of a goldfish?"
+
+* :::=== RoundSparrow_Commentary : Yes, **much of this was already known and obvious** - but nobody wants to put down entertainment and stop the total mockery long enough to [face up that Neil Postman's 1985 book explains what is going on with Ronald Regan 1985 and Donald Trump 2025](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). The Audience is the problem. If people stopped using "echo-chamber" as an insult and mocking other people, they might start to grasp the media ecology crisis we are swimming in! ===:::
 
