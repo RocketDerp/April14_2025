@@ -635,4 +635,4 @@ ONLY_SAYS_ONLY 2013-02-05
 
 "Ya think having all of the tech oligarchs lined up in a row at the inauguration wasn’t a tell?"
 
-* :::=== RoundSparrow_Commentary : Good to see somone calling out the recency bais and denial of real reality. ===:::
+* :::=== RoundSparrow_Commentary : Good to see somone calling out the recency bias of meme consumers and denial of real reality. ===:::
