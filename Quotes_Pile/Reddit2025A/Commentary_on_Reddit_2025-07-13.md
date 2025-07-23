@@ -293,3 +293,20 @@ https://old.reddit.com/r/BlueskySkeets/comments/1m6chhr/president_karen_wanted_t
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1m6to5z/these_are_deeply_unserious_people/
 
 "Deeply Unserious People" on a social media platform where people are so cowardly and non-serious about truth that they hide their real names (cowering, bravery absent) while billionaires on social media like Donald Trump and Elon Musk use their real name. Such unserious people who can't quote Neil Postman 1985 / Andrew Postman February 2017, Peter Pomerantsev, [Adam Curitis 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html), Christopher Wylie 2019 books, etc. All the unserious people with MAGA values do is mock "conservative tears" and "liberal tears" in out-group fashion (eating the Surkovian onions, contradictory performances) and not look at Surkovian Russian governing and recognize the patterns.
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1m757ih/study_has_found_that_people_who_report_favorable/
+
+"Study has found that people who report favorable views of Donald Trump also tend to score higher on measures of callousness, manipulation, and other malevolent traits—and lower on empathy and compassion."
+
+Zero discussion how Mass Man (University of Toronto Marshall McLuhan term), Mob Menality, Mass Psychosis, Group Thinking works beyond just references to "church" and "cult" and "right-wing media"... but not recognition that media ecology and history of Levant faiths with facism basis of Yaweh, Jesus, Allah dictator creator of the world is media story ... right-wing media. And the dictator role that computers play in society, machine logic and message repeating.
+
+I'm so sick of all this, the sickening behavior on crowds, and people not bieng able to cite year 2012 behavior of social media vs. year 2025 and media ecology.
+
+War isn't going to cure climate change denial, war isn't going to assert goodness. War may "end" terrorism in Palestine by making life nothing but war. But it sure does not create an idelic peaceful society. Japan invested in arts and kept out outsiders and rode the waves of one-time technological inventions (transistor, video games, etc).
+
+I'm so very very sick of all this and the lack of people supporting and rising civil rights reformers, outside of government, to address the toxic clergy teaching problems. Lack of focus on global unity and goodness itself. A sense of helping each other through climate change and using social media for everyone on the WWW to condem war (Russia invading Ukraine).  The fantasy people have with war may not create immediate violence in thier own life, but it seems to impact their voting for politicians who will not die in the name of peace and dialog - and people using social media to condem a real-world war like Russia attacking Ukraine.
+
+I'm so sick of this, writing this is never enjoyable, some broken sense of civic duty. Edit and delete.
+
