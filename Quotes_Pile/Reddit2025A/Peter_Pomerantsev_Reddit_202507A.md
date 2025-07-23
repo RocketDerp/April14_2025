@@ -902,3 +902,13 @@ It’s repeated through multiple local, state, and federal elections now. The cr
 All we had to do was stop boosting this bullshit. It’s too late now. And yes, I recognize the hypocrisy as I contribute to the engagement here."
 
 * :::=== RoundSparrow_Commentary : That is why you make 1985 book by Neil Postman the core topic of social media for months and months, every day, until the 184 page book is understood by every person in USA age 12 to 120. [In year 1985, Neil Postman described the Reddit and Twitter problem](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) before Fox News even went online in 1996 on Putin's birthday. And you can go into [1993 Texan Rick Roderick at Duke University](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) before Peter Pomerantsev published.  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m76zu5/this_guy_really_should_delete_his_account/n4pnu8e/
+
+KindBass 2011-05-07
+
+"You're exactly right. If it weren't for left-leaning subs dedicated to dunking on them, I would have never heard of Ben Shapiro, Tim Pool, Matt Walsh, etc."
+
+* :::=== RoundSparrow_Commentary : The whole Eating the Surkovian Onions of dunking back and forth in out-group hate patterns, late night comedy television on politics topics, is exactly what [1985 Neil Postman book is about "Amusing Ourselves To Death"](https://www.goodreads.com/work/quotes/2337731-amusing-ourselves-to-death-public-discourse-in-the-age-of-show-business). People either face up to the fiction vs nonfiction attraction problem, or we continue to live under mythology like the Middle East does, fiction media content running lives, abaandonment of science that USA had year 2012 and earlier.  ===:::
