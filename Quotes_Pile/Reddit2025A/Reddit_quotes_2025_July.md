@@ -780,3 +780,15 @@ fleemfleemfleemfleem 2019-07-24
 "I'm increasingly uncomfortable with the true-crime genre for basically this reason. People treat it as entertainment, and forget that there are real people involved. In the more extreme form it's like the weird parasocial relationships people form with podcasters, but with victims of crimes. I saw a post the other day were someone had to have her sister exhumed and cremated because to many true crime people were taking selfies at the grave site."
 
 * :::=== RoundSparrow_Commentary : Neil Postamn's 1985 book "Entertaining Ourselves to Death" needs to be understood and asserted on social media every day for months and months, until every person in USA understand the ideas in the book, EVERYONE age 12 to age 120 needs to face up to this problem. It isn't just Elon Musk and Donald Trump entertainment that is killing us. ===:::
+
+&nbsp;
+
+"We're not a real country anymore. I don't understand how Republicans don't die from embarrassment"
+
+miketruckllc **2025-07-08 (fresh account)**
+
+https://old.reddit.com/r/movies/comments/1m7dhfo/skydance_tells_fcc_it_will_create_cbs_news/n4qkyqb/
+
+* :::=== RoundSparrow_Commentary : It is the whole nation who was defeated in an information war from Russia that started in March 2013 with the Internet Research Agency. It isn't just Republicans who have not taken seriously things like QAnon - people who have adopted the Russia-induced out-group hate patterns of Americans hate Americans instead of seeing that [mutliple NATO nations (and beyond, Japan)](https://www.japantimes.co.jp/news/2025/07/18/japan/politics/russia-influence-japan-election/) have reported the *Putin Media Invasion* - not just Republicans in USA. Neil Postamn's 1985 book has been sitting on the shelf to raise self-awareness of everyone, but people can not resist the out-group mocking and insult patterns. ===:::
+
+
