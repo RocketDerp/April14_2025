@@ -817,3 +817,16 @@ https://old.reddit.com/r/law/comments/1m7lmwa/breaking_trump_named_in_multiple_d
 g2g079 2006-12-28
 
 "So maga thought that they would release a bunch of liberal names, instead they've only managed to release Trump's name."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m7lmwa/breaking_trump_named_in_multiple_documents/n4st6le/
+
+Paizzu 2010-12-18
+
+"Historians will describe the media's need to "turn down the temperature" as complicity in the country's conversion from a democratic republic to full-blown dictatorship."
+
+* :::=== RoundSparrow_Commentary : Whenever the topic of "media" comes up on social media, people avoid Marshall McLuhan, Neil Postman, Peter Pomerantsev, etc. Social machine users act like social media consuemrs on Reddit don't create the same clickbait titles as "news sites". The audience is the problem, "Amusing Ourselves To Death" book in 1985 was created when Ronald Reagan was an entertainer politician like Donald Trump. Social media users did not in any way resist Cambridge Analytica and Internet Research Agency, media was infiltrated by a hostile enemy - and people just mock other people as "bots" without citing any authors or [serious treatment of the subject](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). People in USA can't name dates, timeframes, players. Just off the cuff commentary (by no-identity Reddit users) like Donald Trump does on social media, no citation, no references, no experts. ===:::
+
+
+
