@@ -952,3 +952,12 @@ After-Balance2935 2021-10-19
 "They love the way he speaks. Just says shit like Google never existed."
 
 * :::=== RoundSparrow_Commentary : This is exactly waht Neil Postman in his 1985 book is saying: "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance." Everything about Donald Trump / Russia / Surkovian / White House / Kremlin is **media ecology literacy and self-awareness.** ===::::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m7i9tq/justice_department_told_trump_in_may_that_his/n4ror15/
+
+FMCam20 2023-08-16
+
+"I've come to realize they legit live in a different world than we do. Some of his supporters are learning about the trump and epstein connection for the first time in all of this. They though the list was going to just a bunch of Dems and RINOs they didn't like"
+
