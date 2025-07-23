@@ -792,3 +792,13 @@ https://old.reddit.com/r/movies/comments/1m7dhfo/skydance_tells_fcc_it_will_crea
 * :::=== RoundSparrow_Commentary : It is the whole nation who was defeated in an information war from Russia that started in March 2013 with the Internet Research Agency. It isn't just Republicans who have [not taken seriously things like QAnon](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html) - people who have adopted the Russia-induced out-group hate patterns of Americans hate Americans instead of seeing that [mutliple NATO nations (and beyond, Japan)](https://www.japantimes.co.jp/news/2025/07/18/japan/politics/russia-influence-japan-election/) have reported the *Putin Media Invasion* - not just Republicans in USA. Neil Postamn's 1985 book has been sitting on the shelf to raise self-awareness of everyone, but people can not resist the out-group mocking and insult patterns. ===:::
 
 
+&nbsp;
+
+"Those morons think his inability to admit a mistake is a STRENGTH, which is mind blowing to me. How can anyone think that self reflection and learning is a weakness?"
+
+https://old.reddit.com/r/movies/comments/1m7dhfo/skydance_tells_fcc_it_will_create_cbs_news/n4qsaqr/
+
+xRockTripodx 2017-02-08
+
+* :::=== RoundSparrow_Commentary : The entire USA society, social media society, [can not admit that Neil Postman was correct in 1985](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) - more than a decade before 1996 when Fox News launched. And how his 1985 book applies to Reddit, Bluesky, Twitter, TikTok, etc. ===:::
+
