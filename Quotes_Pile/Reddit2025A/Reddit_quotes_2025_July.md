@@ -692,3 +692,14 @@ Al_Tilly_the_Bum 2013-07-03
 "What the hell is this title? Pure hustle? How about pure exploitation. She will get $0 more for working alone but the owner is saving tons because he only has to pay the wages of one person.
 
 This should be a crime not lauded as hustle culture"
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m7ea3e/burger_king_worker_went_viral_for_running_the/n4r20t4/
+
+fluffershuffles 2016-01-28
+
+"And why drug use is normalized, how else do they expect workers to do it all over the next day"
+
+* :::=== RoundSparrow_Commentary : Social media society in USA loves to say "take your meds" over criticism of society. Rick Roderick in 1993 talked about medication / drug culture in "Self Under Siege": ["I figured that if she couldn’t help me with my fundamental problem, she wasn’t going to do much good on the trivial problems. I mean, I had a big problem: why are we born to suffer and die? She just went [utter nonsense]… she just went “Well I can write you a prescription for some Valium”, and I said “No thanks, I drink, I don’t need it” [crowd laughter] I belong to a large club; I am a drunkard… no"](https://rickroderick.org/302-heidegger-and-the-rejection-of-humanism-1993/) ===:::
+
