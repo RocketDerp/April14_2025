@@ -961,3 +961,13 @@ FMCam20 2023-08-16
 
 "I've come to realize they legit live in a different world than we do. Some of his supporters are learning about the trump and epstein connection for the first time in all of this. They though the list was going to just a bunch of Dems and RINOs they didn't like"
 
+&nbsp;
+
+https://old.reddit.com/r/union/comments/1m7jq7z/i_sure_am_happy_my_previous_two_posts_in_this_sub/n4sdku6/
+
+Ok-Environment3724 2021-07-05
+
+"Exactly this. We use to be able to have a difference of opinions and still get along. Within the last 2 decades tho, it has changed. Now it’s either you have to feel, think, and act like I do, or I will silence you. It’s quite sad that society in general has become like this."
+
+* :::=== RoundSparrow_Commentary : It changed in March 2013, the Internet Research Agency ramped up. ===:::
+
