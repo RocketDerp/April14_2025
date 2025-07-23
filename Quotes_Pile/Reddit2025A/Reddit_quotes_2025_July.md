@@ -760,3 +760,14 @@ corrla 2017-08-14
 "Scholars of evangelical Christianity (the main driving force in Republican politics) have described its obsession with sex, male domination, and rape culture, and how their voting patterns, etc, consistently support the right of men to dominate women and children. Their obsession with pedophilia reveals their need to externalize that kind of stuff rather than root it out in their own homes and churches."
 
 * :::=== RoundSparrow_Commentary : The Bible is science fiction storytelling. Fox News / Rupert Murdoch provides fiction storytelling. Donald Trump is creative fiction storytelling. The driving force of Repulican politics is anti-reality, fiction, avoidance of nonfiction. We saw this during [December 2019 onward pandemic regarding medical science, driven by Russian fiction](https://www.bbc.com/news/world-us-canada-45294192). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1m7fw8g/bryan_kohberger_sentenced_to_life_without_parole/n4rnemi/
+
+alksreddit 2016-05-12
+
+"Amateur sleuths are fucking ghouls and that’s a hill I will always die on. Like 5 success stories in decades and now they feel like they should have the unchecked ability to accuse people freely and ruin lives without consequence."
+
+* :::=== RoundSparrow_Commentary : People have been saying that Paparazzi is bad for decades. Social media users have lost their ability to view media behaviors at the Neil Postman and Marshall McLuhan level of self-awareness that everyday Internet users behave like classic Paparazzi. This stuff isn't covered in 2,000 year old Bible stories, they didn't have recorded video and Twitter in the Levant. Who is teaching morality? Social media users sure are not, they mock and insult, that isn't progressive education and teaching. Malala Yousafzai, who does teach remedial morality, is grey-rocked by social media society. ===:::
+
