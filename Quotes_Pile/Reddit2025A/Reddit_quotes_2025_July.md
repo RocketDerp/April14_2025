@@ -636,3 +636,23 @@ ONLY_SAYS_ONLY 2013-02-05
 "Ya think having all of the tech oligarchs lined up in a row at the inauguration wasn’t a tell?"
 
 * :::=== RoundSparrow_Commentary : Good to see somone calling out the recency bias of meme consumers and denial of real reality. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m76ypk/trump_claims_new_cbs_owner_will_gift_him_20m/n4p4wch/
+
+ExpressAssist0819 2023-12-19
+
+"One of the most important pieces to successfully fighting tyranny is having strong institutions in the public sector, such as media, that will check and stand against the would be tyrant. Being as all of ours are completely captured by capitalists with loyalty to absolutely nothing but themselves and who align with fascists, we were always doomed to failure.
+
+This is what a weak democracy and country looks like. For all our outward might, we have virtually no meaningful groups or institutions with a fierce loyalty to the union and this country. Everyone is out for themselves and this is just a dead country being sold for scraps. We are almost certainly going to end up like russia."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m76ypk/trump_claims_new_cbs_owner_will_gift_him_20m/n4pldhw/
+
+TheDoomBlade13 2016-04-29
+
+"Any hope of this went out the window with corporate journalism. Even your local paper is probably owned by a massive conglomerate.
+
+Journalism is dead, the public is just now finding the body."
