@@ -750,3 +750,13 @@ Historical-Egg3243 2020-10-17
 "politics has become so toxic that it's not seen as that abnormal anymore, or they just assume it's lies. Many others will vote the party line no matter who the candidate is.
 
 And then yea many of them are actually rapists or hold rapey views so it doesn't bother them at all. Many times times when people say "family values" they don't mean more loving families, they mean families that hold more primitive beliefs."
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m78jac/why_do_republicans_love_rape/n4pjpgj/
+
+corrla 2017-08-14
+
+"Scholars of evangelical Christianity (the main driving force in Republican politics) have described its obsession with sex, male domination, and rape culture, and how their voting patterns, etc, consistently support the right of men to dominate women and children. Their obsession with pedophilia reveals their need to externalize that kind of stuff rather than root it out in their own homes and churches."
+
+* :::=== RoundSparrow_Commentary : The Bible is science fiction storytelling. Fox News / Rupert Murdoch provides fiction storytelling. Donald Trump is creative fiction storytelling. The driving force of Repulican politics is anti-reality, fiction, avoidance of nonfiction. We saw this during [December 2019 onward pandemic regarding medical science, driven by Russian fiction](https://www.bbc.com/news/world-us-canada-45294192). ===:::
