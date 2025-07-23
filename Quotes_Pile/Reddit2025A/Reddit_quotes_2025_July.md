@@ -848,3 +848,11 @@ https://old.reddit.com/r/politics/comments/1m7n8pb/the_epstein_files_are_going_t
 milo_snatch 2021-03-31
 
 "I swear there’s an article like this every other week, claiming something or someone is going to actually hold Trump accountable. He’s proven time and again that he’s going to do whatever the fuck he wants, so I fail to see how this will lead anywhere different."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m7kpym/the_flipflopping_is_insane/n4sh6gn/
+
+Chezfuchs 2019-03-19
+
+"It doesn’t bite them. They don’t care. They have no shame, no values and believe in nothing other than winning. Pointing out their hypocrisy is futile. The old rules of political discourse have been swept away by bad faith actors. They use those rules as a weapon while refusing to be bound by them themselves."
