@@ -925,3 +925,18 @@ Stefan_Vanderhoof **2025-04-01** (Recent)
 
 * :::=== RoundSparrow_Commentary : Beyond the time shift aspect (the warnings from the 1985 past of Brave New World coming), the other aspect of Neil Postman is that it revives the best of Orwell. Makes 1984 a topic that people apply to Twitter, Reddit, media systems - not political party, but electric meme platforms. It isn't about a *person*, the problem is *techniques* and self-awareness of the media consumers (everyone, regardless if even old enough or otherwise legal to vote). It is about every day, all day, not just voting election days and Donald Trump / White House. [War Against Reality is far-reaching](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57). ===:::
 
+&nbsp;
+
+.
+
+https://old.reddit.com/r/law/comments/1m7edg5/donald_trump_july_2018_i_accept_our_intelligence/n4r0ix5/
+
+secret-agent-t3 2015-01-03
+
+"I am looking in the comments, but nobody has mentioned this:
+
+This public statement was read a few days after Trump met with Vladimir Putin (in Helsinki, I believe?). That that meeting, when asked if Trump trusted his own intelligence network, even though Putin denied being involved in the election, Trump said he "didn't know why it would be Russia". Taking it in context, with what was said around it, it became clear that the President of the United States was saying he trusted Vladimir Putin over his own intelligence community.
+
+This caused a fire storm at the time, and embarrassment for Republicans. Some officials during the first term threatened to resign if he didn't make it clear he trusted the intelligence community. So, they trotted him out there and had him read from a piece of paper.
+
+So, no, he never trusted his own people. He openly admitted to trusting Vladimir Putin more than US intelligence. For any other President in history, they would have resigned in shame and people would have demanded a recall. Now, some people in these comments think this video is fake. Sad times, indeed."
