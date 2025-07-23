@@ -607,3 +607,13 @@ saltfish 2007-07-02
 
 * :::=== RoundSparrow_Commentary : I personally contacted the Pentagon (first time in my life) August 17, 2015 because of how people were behaving. [Mass Man](https://www.organism.earth/library/document/mcluhan-mcmanus) shift. The Internet Research Agency had already been online for over two years at that point. People were detaching from reality on serious matters. I had witnessed this on Reddit all 2014, but August 2015 is when I faced up that this wasn't just a society phase or short-term fashion, but a massive shift towards mythology had taken place. In August 2015, I had not yet discovered Peter Pomerantsev's published works. I was interpeting the situation through James Joyce / Marshall McLuhan / Joseph Campbell / Jean Erdman people faovring monomyth fiction behaviors. I remember telling the Pentagon employee about Joseph Campbell's Power of Myth interviews in 1987 at Skywalker Ranch and the forthcoming Star Wars film in 2015 (The Force Awakens)... somebody was doing monomyth mind-fuck on Internet meddia consumers. I had missed [the June 2, 2014 story that would have clued me in](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) it was Russia / Kremlin. I saw the behavior changes of *We The People* being attracted to monomyth fiction patterns over science reality / truth / sincerity. ===:::
 
+&nbsp;
+
+.
+
+https://old.reddit.com/r/law/comments/1m76ypk/trump_claims_new_cbs_owner_will_gift_him_20m/n4pcq4c/
+
+throwmeaway987612 2022-02-04
+
+"My question is that after his term, will we be able to go back to normal? Majority of the federal organizations like DOJ, DHS, etc are all compromised. I don't even see manufacturing to be coming back despite their claims which is disruptive to the supply chain and endangering the small businesses."
+
