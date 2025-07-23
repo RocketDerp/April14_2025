@@ -605,4 +605,4 @@ saltfish 2007-07-02
 
 "I was screaming these things back in 2015 and everyone thought I was insane."
 
-* :::=== RoundSparrow_Commentary : I personally contacted the Pentagon (first time in my life) August 17, 2015 because of how people were behaving. [Mass Man](https://www.organism.earth/library/document/mcluhan-mcmanus) shift. The Internet Research Agency had already been online for over a year at that point. People were detaching from raelity on serious matters. ===:::
+* :::=== RoundSparrow_Commentary : I personally contacted the Pentagon (first time in my life) August 17, 2015 because of how people were behaving. [Mass Man](https://www.organism.earth/library/document/mcluhan-mcmanus) shift. The Internet Research Agency had already been online for over a year at that point. People were detaching from raelity on serious matters. I had witnessed this on Reddit in 2014, but August 2015 is when I faced up that this wasn't just a society phase or short-term fashion, but a massive shift twoards mythology had taken place. ===:::
