@@ -940,3 +940,15 @@ This public statement was read a few days after Trump met with Vladimir Putin (i
 This caused a fire storm at the time, and embarrassment for Republicans. Some officials during the first term threatened to resign if he didn't make it clear he trusted the intelligence community. So, they trotted him out there and had him read from a piece of paper.
 
 So, no, he never trusted his own people. He openly admitted to trusting Vladimir Putin more than US intelligence. For any other President in history, they would have resigned in shame and people would have demanded a recall. Now, some people in these comments think this video is fake. Sad times, indeed."
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/law/comments/1m7edg5/donald_trump_july_2018_i_accept_our_intelligence/n4r1by3/
+
+After-Balance2935 2021-10-19
+
+"They love the way he speaks. Just says shit like Google never existed."
+
+* :::=== RoundSparrow_Commentary : This is exactly waht Neil Postamn in his 1985 book is saying: "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance." Everything about Donald Trump / Russia / Surkovian / White House / Kremlin is **media ecology literacy and self-awareness.** ===::::
