@@ -912,3 +912,16 @@ KindBass 2011-05-07
 "You're exactly right. If it weren't for left-leaning subs dedicated to dunking on them, I would have never heard of Ben Shapiro, Tim Pool, Matt Walsh, etc."
 
 * :::=== RoundSparrow_Commentary : The whole Eating the Surkovian Onions of dunking back and forth in out-group hate patterns, late night comedy television on politics topics, is exactly what [1985 Neil Postman book is about "Amusing Ourselves To Death"](https://www.goodreads.com/work/quotes/2337731-amusing-ourselves-to-death-public-discourse-in-the-age-of-show-business). People either face up to the fiction vs nonfiction attraction problem, or we continue to live under mythology like the Middle East does, fiction media content running lives, abaandonment of science that USA had year 2012 and earlier.  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m76zu5/this_guy_really_should_delete_his_account/n4pab97/
+
+Stefan_Vanderhoof **2025-04-01** (Recent)
+
+"These “influencers” don’t need a consistent message. They live in the present and cultivate a vibe in which their team is never wrong. It’s what the audience wants to hear. Orwell described this form of propaganda in “1984”:
+
+“History has stopped. Nothing exists except an endless present in which the Party is always right.”
+
+* :::=== RoundSparrow_Commentary : Beyond the time shift aspect (the warnings from the past of Brave New World coming), the other aspect of Neil Postman is that it revives the best of Orwell. Makes 1984 a topic that people apply to Twitter, Reddit, media systems - not political party, but electric meme platforms. It isn't about a *person*, the problem is *techniques* and self-awareness of the media consumers (everyone, regardless if even old enough or otherwise legal to vote). It is about every day, all day, not just voting election days and Donald Trump / White House. [War Against Reality is far-reaching](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57). ===:::
+
