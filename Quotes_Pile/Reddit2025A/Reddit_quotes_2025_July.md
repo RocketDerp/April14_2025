@@ -703,3 +703,13 @@ fluffershuffles 2016-01-28
 
 * :::=== RoundSparrow_Commentary : Social media society in USA loves to say "take your meds" over criticism of society. Rick Roderick in 1993 talked about medication / drug culture in "Self Under Siege": ["I figured that if she couldn’t help me with my fundamental problem, she wasn’t going to do much good on the trivial problems. I mean, I had a big problem: why are we born to suffer and die? She just went [utter nonsense]… she just went “Well I can write you a prescription for some Valium”, and I said “No thanks, I drink, I don’t need it” [crowd laughter] I belong to a large club; I am a drunkard… no"](https://rickroderick.org/302-heidegger-and-the-rejection-of-humanism-1993/) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1m7fqy3/which_is_it_ryan/n4r8pem/
+
+RocketRelm 2017-05-07
+
+"It'll be future republicans too. A supermajorty of americans consented to the dissolution of their democracy. Even if we somehow make it to 2028 without collapsing into fascism another populist copycat of Trump will rise up and capture people, and with americans this level of brainrotted we are just rolling dice until we land on a fascist who isn't 80 and dementia ridden."
+
+* :::=== RoundSparrow_Commentary : The facism is already here, "somehow make it to 2028 without collapsing into fascism" is denial in the mind. Italy and Germany 1930's did not have the computing and technology infrastructure and were in poverty. People are disappeared (or targeted content published in sandbox / shadow) from every social media platform and you see it right on Reddit - all the new accounts created because people were removed and disappeared. Do people seriously think that by July 2025, [Trump doesn't have all the media plaforms hosted in USA under this thumb?](https://www.kron4.com/news/national/bay-area-tech-ceos-get-front-row-seats-at-trump-inauguration-what-this-means/) People on Reddit seriously think the FBI takeover Trump has done since January 2025 hasn't tossed out any concept of survelance right to privacy? AT&T and Verizon have been working with FBI since their creation. HBO "The Wire" series... ===:::
+
