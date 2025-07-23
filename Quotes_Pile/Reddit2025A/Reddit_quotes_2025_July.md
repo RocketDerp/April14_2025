@@ -713,3 +713,12 @@ RocketRelm 2017-05-07
 
 * :::=== RoundSparrow_Commentary : The facism is already here, "somehow make it to 2028 without collapsing into fascism" is denial in the mind. Italy and Germany 1930's did not have the computing and technology infrastructure and were in poverty. People are disappeared (or targeted content published in sandbox / shadow) from every social media platform and you see it right on Reddit - all the new accounts created because people were removed and disappeared. Do people seriously think that by July 2025, [Trump doesn't have all the media plaforms hosted in USA under this thumb?](https://www.kron4.com/news/national/bay-area-tech-ceos-get-front-row-seats-at-trump-inauguration-what-this-means/) People on Reddit seriously think the FBI takeover Trump has done since January 2025 hasn't tossed out any concept of survelance right to privacy? AT&T and Verizon have been working with FBI since their creation. HBO "The Wire" series... ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m7gupc/dni_tulsi_gabbard_accuses_former_president_barack/n4rg35j/
+
+Glad_Stay4056 2020-12-13
+
+"Yes, people that believed Hatians ate pets totally beleive this. It's not even the most ridiculous thing they've ever had to sanewash."
+
+* :::=== RoundSparrow_Commentary : Surkovian government goes beyond those who accept the lies, it is all inclusive, everyone. Those who *mock and insult* the out-group are consuming the trickle down White House / Kremlin media content. Mocking "the others" is not resisting - it is content engagement, it's exactly what Surkovian chesss is about. ['The first law', he told radio managers on 25 March 1933: 'Don't become boring!'](https://abandonedfootnotes.blogspot.com/2014/06/the-tedium-of-authoritarianism.html) ===::: 
