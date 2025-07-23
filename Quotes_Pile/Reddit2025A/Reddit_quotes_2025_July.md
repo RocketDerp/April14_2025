@@ -617,3 +617,22 @@ throwmeaway987612 2022-02-04
 
 "My question is that after his term, will we be able to go back to normal? Majority of the federal organizations like DOJ, DHS, etc are all compromised. I don't even see manufacturing to be coming back despite their claims which is disruptive to the supply chain and endangering the small businesses."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m76ypk/trump_claims_new_cbs_owner_will_gift_him_20m/n4p9r2e/
+
+RODjij 2016-07-31
+
+"Trumps the face. Theres a whole lot of people behind him pressuring CBS and other media outlets to get what they want.
+
+When the courts and law firms bent over for him it was a sign he was going to get whatever he wants business related. Law firms were promising like tens of millions of dollars in free services for him. So not surprised hes threatening court action almost every day now."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m76ypk/trump_claims_new_cbs_owner_will_gift_him_20m/n4pipnq/
+
+ONLY_SAYS_ONLY 2013-02-05
+
+"Ya think having all of the tech oligarchs lined up in a row at the inauguration wasn’t a tell?"
+
+* :::=== RoundSparrow_Commentary : Good to see somone calling out the recency bais and denial of real reality. ===:::
