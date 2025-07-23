@@ -731,7 +731,7 @@ HogiSon727 2019-07-15
 
 "They only care about themselves so rape and any other bad thing is only bad if it happens to them. If it happens to others they don’t give a shit. It all comes down to empathy and they have none."
 
-* :::=== RoundSparrow_Commentary : USA people on social media behave as if this problem of girls being abused is only one political party in the USA. That a nation of 0.35 billion people out of 8.0 billion is unique in sexual abuse cocnerns. Malala Yousafzai from Pakistain who has been tring to give young girls a voice since year 2013 is grey-rocked by social media users. People on social media only seem to care about rich white men (Epstein / Trump / etc) while ignoring Malala Yousafzai's global efforts. ===:::
+* :::=== RoundSparrow_Commentary : USA people on social media behave as if this problem of girls being abused is only one political party in the USA. That a nation of 0.35 billion people out of world 8.0 billion is unique in sexual abuse cocnerns. Malala Yousafzai from Pakistain has been trying to give young girls a voice since year 2013... but she is grey-rocked by social media users. People on social media only seem to care about rich white men (Epstein / Trump / etc) while ignoring Malala Yousafzai's global efforts. When Malala [came to USA while Donald Trump was in office](https://malala.org/news-and-voices/malala-speech-atlanta), social media ignored her. ===:::
 
 &nbsp;
 
