@@ -893,7 +893,7 @@ ghostinlace **2025-04-30 (new account)**
 
 "It says something when South Park, a show known for poop jokes and chaos demons, ends up being one of the more honest voices about the state of politics and entertainment. It's like if a drunk uncle suddenly said the most insightful thing at Thanksgiving and then went back to yelling at the TV"
 
-* :::=== RoundSparrow_Commentary : Eating the Surkovian onions, eating out of the hands of Donald Trump **Reality TV fiction**, Surkovian governing. South Park created the very Fox News "Entertainment News" culture that Neil Postman spelled out in 1985, more thn a decade before Fox News went on the air. Bullshit about penis size for governing. South Park does not fix a technology HDTV addiction. Donald Trump is hate-based entertainment, out-group hate Middle East religion patterns passed by Kremlin into USA society. ===:::
+* :::=== RoundSparrow_Commentary : Eating the Surkovian onions, eating out of the hands of Donald Trump **Reality TV fiction**, Surkovian governing. South Park created the very Fox News "Entertainment News" culture that Neil Postman spelled out in 1985, more thn a decade before Fox News went on the air. Bullshit about penis size for governing. South Park does not fix a technology HDTV addiction. Donald Trump is hate-based entertainment, out-group hate Middle East religion patterns passed by Kremlin (forkbomb into 5000 meme patterns by Cambridge Analytica) into USA society. ===:::
 
 &nbsp;
 
@@ -902,3 +902,5 @@ https://old.reddit.com/r/AskReddit/comments/1m89q26/what_do_you_think_of_south_p
 CharleyNobody 2021-01-02
 
 "I think GOP doesn’t need Trump anymore. He’s old and sick. He got the BBB passed. They got their tax breaks; Russia got all our info from DOGE. They’re sick of the tariffs. Project 2025 is well underway. They have the house, the senate, SCOTUS and 1600 Pennsylvania Avenue. They’ve got a fascist tech bro backed by billionaires waiting in the wings. The word is out. Dump Trump Everyone in media is piling on because this is the showdown. He’s got vascular insufficiency which is one of the causes of vascular dementia. He’s less and less useful. His cult are now tribal democrat haters"
+
+* :::=== RoundSparrow_Commentary : Yes. The crisis is the total population, every American age 12 to 120, not just voters, not just people in political parties, **everyone**. Media addiction and falsehoods, mythology storytelling, has taken over the society. Way bigger force than one single person, Donald Trump. We failed to teach the Great Seal of the United State of America for over 100 years, and we paid the price for not grasping art symbolism, meme sytems, while we waved around the siplistic USA flag. :::===
