@@ -868,3 +868,20 @@ https://old.reddit.com/r/interestingasfuck/comments/1m81i49/south_park_at_it_onc
 Scruffy11111 2020-07-22
 
 "We not only allowed him to run out the clock once, we put him back in and are going to allow it again. Stains everywhere."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1m89q26/what_do_you_think_of_south_park_going_scorched/n4xnrps/
+
+TostitoNipples 2013-10-09
+
+"Capital consumes everything, it’s as in on the joke as the people making fun of it"
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1m89q26/what_do_you_think_of_south_park_going_scorched/n4xt0qz/
+
+hoppertn 2010-10-27
+
+"It’s this. Paramount will make their money back and then some. It’s like selling guns to both sides, you always come out on top."
+
