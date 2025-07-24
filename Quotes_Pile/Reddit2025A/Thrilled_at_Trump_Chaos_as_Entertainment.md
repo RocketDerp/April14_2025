@@ -137,4 +137,12 @@ https://old.reddit.com/r/clevercomebacks/comments/1m83gmf/lil_donny_found_love/
 
 "Clever comebacks" framing of subreddit name, "Little cute innocent (psychology that children are not responsible for adult choices) Donnie Trump" framing, amused at Donald Trump, entertained at Donald Trump. It isn't funny, because **every social media user in USA is unable to cite** in July 2025: Christopher Wylie, Peter Pomerantsev, Andrew Postman, Neil Postman. People without self-awareness of what [Donald Trump Medium does to their brains](https://autistics.life/@RoundSparrow/114908848841690331). “In psychological warfare, the weak points are flaws in how people think. If you’re trying to hack a person’s mind, you need to identify cognitive biases and then exploit them.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019. For USA, that is absurd surreal comedy brain exploits, Donald Trump playing Tony Clifton compusively, without self-awareness. That's the entire point of "Amusing Ourselves To Death" 1985 book.... the lack of self-awareness.
 
+&nbsp;
 
+https://old.reddit.com/r/AskReddit/comments/1m89q26/what_do_you_think_of_south_park_going_scorched/n4xkxhj/
+
+JiminyJilickers-79 2025-02-11 (recent account)
+
+"It's incredibly incredibly beautiful."
+
+People in USA are thrilled and entertained at Donald Trump fiction content creation White House, Putin Kremlin Surkovian methods.
