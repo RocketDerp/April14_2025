@@ -905,3 +905,14 @@ CharleyNobody 2021-01-02
 
 * :::=== RoundSparrow_Commentary : Yes. The crisis is the total population, every American age 12 to 120, not just voters, not just people in political parties, **everyone**. Media addiction and falsehoods, mythology storytelling, has taken over the society. Way bigger force than one single person, Donald Trump. We failed to teach the Great Seal of the United State of America for over 100 years, and we paid the price for not grasping art symbolism, meme systems, while we [waved around the simplistic American flag "in our face"](https://youtu.be/BHnJp0oyOxs?t=144). George Lucas tried to educate the Star Wars / Hollywood audience with ["Power of Myth"](https://www.GreatSealUSA.com/) book, but nobody wants to learn about the pyramid on the Nile river meanings of the Founding Fathers. People just want dumb-shit like "It means the Illuminati, har har". As if Bill Moyers (former White House director) and Joseph Campbell (Sarah Lawrence College) can't explain a 1776 symbolism system in year 1987! There is no *secret meaning* to the Great Seal any more than the 2,000 year old Bible story has *secrets*, art symbolism and poetry are well understood and [James Joyce's Finnegans Wake has been publishing since year 1924](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village). Competition in education is toxic, just look at Donald Trump’s education pedigree of brand name diploma abuse. :::===
 
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1m89q26/what_do_you_think_of_south_park_going_scorched/n4xv0pq/
+
+Siicktiits 2013-08-27
+
+"I think it was amazing, and hopefully the rest of people with a voice are now shown that you don't have to be a pussy and can start saying shit."
+
+* :::=== RoundSparrow_Commentary : *We The People* on social media had voices to ReTweet, and all you get is everything Neil Postamn wrote about in year 1985 book, "Amusing Ourselves To Death" - memes, sports, Donald Trump Reality TV fiction, bullshit. Anonymous no-identity Reddit users can't redundanty repeat and repeat anytihng but total mockery, insutling, the mocking values of Fox News and Trump on Twitter. The time to dust off 1985 Neil Postman was in year 2015 and 2016, before runaway social machine meme addiction wrecked USA. Peter Pomerantsev should be a household name, "Trump is using Russia Surkov methods" should be a well repeated phrase. That's *the shit* people aren't saying, the shit-talk shit-bird Tweeting of Doanld Trump is what people adopted. ===:::
+
+
