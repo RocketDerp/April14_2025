@@ -856,3 +856,15 @@ https://old.reddit.com/r/agedlikemilk/comments/1m7kpym/the_flipflopping_is_insan
 Chezfuchs 2019-03-19
 
 "It doesn’t bite them. They don’t care. They have no shame, no values and believe in nothing other than winning. Pointing out their hypocrisy is futile. The old rules of political discourse have been swept away by bad faith actors. They use those rules as a weapon while refusing to be bound by them themselves."
+
+&nbsp;
+
+# Thursday July 24, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m81i49/south_park_at_it_once_again_lmao_now_this_is/n4vqoij/
+
+Scruffy11111 2020-07-22
+
+"We not only allowed him to run out the clock once, we put him back in and are going to allow it again. Stains everywhere."
