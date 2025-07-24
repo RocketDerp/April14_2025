@@ -131,3 +131,10 @@ travoltaswinkinbhole 2022-09-27
 
 "I wish I had saved the tweet or something because I saw one a few days ago that replied “because South Park is funny” to a tweet about Colbert getting cancelled while South Park got $1.5 billion dollars. Like I would pay money to see that he has to say now."
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1m83gmf/lil_donny_found_love/
+
+"Clever comebacks" framing of subreddit name, "Little cute innocent (psychology that children are not responsible for adult choices) Donnie Trump" framing, amused at Donald Trump, entertained at Donald Trump. It isn't funny, because **every social media user in USA is unable to cite** in July 2025: Christopher Wylie, Peter Pomerantsev, Andrew Postman, Neil Postman. People without self-awareness of what [Donald Trump Medium does to their brains](https://autistics.life/@RoundSparrow/114908848841690331). “In psychological warfare, the weak points are flaws in how people think. If you’re trying to hack a person’s mind, you need to identify cognitive biases and then exploit them.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019. For USA, that is absurd surreal comedy brain exploits, Donald Trump playing Tony Clifton compusively, without self-awareness. That's the entire point of "Amusing Ourselves To Death" 1985 book.... the lack of self-awareness.
+
+
