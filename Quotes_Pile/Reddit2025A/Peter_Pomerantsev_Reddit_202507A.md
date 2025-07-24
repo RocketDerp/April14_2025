@@ -971,3 +971,17 @@ Ok-Environment3724 2021-07-05
 
 * :::=== RoundSparrow_Commentary : It changed in March 2013, the Internet Research Agency ramped up. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m81i49/south_park_at_it_once_again_lmao_now_this_is/n4vpvvu/
+
+The_Fiji_Water 2022-06-30
+
+"Trump is beyond parody ...
+
+He's even worse than what you can joke about.
+
+It would be a stain on humanity if we just allow him to run out the clock instead of standing up to him and his enablers"
+
+* :::=== RoundSparrow_Commentary : If I haven't mentioned it already, in the year 1985 a New York City Manhattan professor (home town of Donald Trump) wrote a book about Ronald Regan's second term in office (we are in Donald Trump's second term in year 2025)... called "Amusing Ourselves To Death" - about how populations behaved towards Ronald Regan. The core problem was the media venue, television news in year 1985, in our case meme Reddit news, meme Bluesky news, memes and clickbait and HDTV television in 2025. This is the one area where  Peter Pomerantsev - having been raised in the UK, just does not grasp the toilet humor of USA Twitter culture.  Peter Pomerantsev believes satire and comedy will rescue the USA from Donald Trump, but the aftermath is a chucklehead nation unable to comprehend reading taht isn't Fox News NFL football coverage of governing and Environmental Protection Agency.   Peter Pomerantsev has not studied James Joyce's 1924 onward publication of Finnegans Wake - the only *comedy parady* capable of taking on the depth of this human mind exploit. Not to say every person needs to grasp Finnegans Wake, but at least every person who works in media as a content creator or "source of breaking news" needs to be on the same page as James Joyce in year 1924. The Dublin stories of James Joyce get the humor problem that Peter's London atttiudes just don't get. Yes, Nazi Germany could be defeated by Sefton Delmer.. but Sefton Delmer has never taken on [5,000 patterns](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) of monomyth religion memes. For that, you need James Joyce (combined with Jean Erdman, Marshall McLuhan - both Joyceans) - you need to get into dreams and mythological behaviors (Donald Trump $59.99 Bible, which the London scene would not fall for in the same way as Hollywood USA religion audiences). ["Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966](https://www.lazywake.com/) ===:::
+
