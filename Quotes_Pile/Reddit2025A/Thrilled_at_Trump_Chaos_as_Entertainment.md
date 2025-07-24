@@ -146,3 +146,13 @@ JiminyJilickers-79 2025-02-11 (recent account)
 "It's incredibly incredibly beautiful."
 
 People in USA are thrilled and entertained at Donald Trump fiction content creation White House, Putin Kremlin Surkovian methods.
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m8chge/theyre_eating_themselves_alive_fmr_gop_advisor/
+
+Rupert Murdoch has been mind-fucking Americans since 1996 with Fox News, then the Internet Research Agency in Russia and Cambridge Analytica joined together in late 2012 to mind-fuck in more diverse and deeper ways. And the comments on Reddit in that posting about "eating themselves alive" - this is self-harm of USA directed by a enemy, Russia. This isn't asserting goodness, this is what you get more than a dozen years of mental and emotional manipulation for Americans to hate Americans. This is self-harm on a mass mind scale, mass pcyhosis. Science isn't being adopted, it's bullshit lust for private jet and private islands wealthy men topics.
+
+People are not addressing the underlying cause: *why do people trust computer screens so blindly, The ELIZA effect*, why do people trust Donald Trump? Why are people attracted to terrorism and out-group killing in Israel and Palestine... why does Russia think war against Ukraine since February 2014, more than a full decade, is good for their future? Why are people so convinced badness itself (Donald Trump) is good for the future? Humanity has not developed education and defense against propaganda / cults / Rupert Murdoch Fox News - this is nothing to be happy about or cheer on. We need to be focused on the problem of people's attraction to fiction media content, Fox News attraction, Donald Trump attraction, Elon Musk Twitter attraction, etc.
+
+
