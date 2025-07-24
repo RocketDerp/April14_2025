@@ -115,3 +115,19 @@ I am terrible. I find the irony in each event I see like this and I cannot summo
 
 I'm usually more empathetic to others, but somehow, these events crack me up. Sending thoughts and prayers."
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m81i49/south_park_at_it_once_again_lmao_now_this_is/n4vr90b/
+
+Tuxflux 2012-07-15
+
+"I can wait for Truth Social meltdown over this. It's gonna be epic."
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1m81i49/south_park_at_it_once_again_lmao_now_this_is/n4w6yvw/
+
+travoltaswinkinbhole 2022-09-27
+
+"I wish I had saved the tweet or something because I saw one a few days ago that replied “because South Park is funny” to a tweet about Colbert getting cancelled while South Park got $1.5 billion dollars. Like I would pay money to see that he has to say now."
+
