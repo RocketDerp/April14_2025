@@ -885,3 +885,13 @@ hoppertn 2010-10-27
 
 "It’s this. Paramount will make their money back and then some. It’s like selling guns to both sides, you always come out on top."
 
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1m89q26/what_do_you_think_of_south_park_going_scorched/n4xj41g/
+
+ghostinlace **2025-04-30 (new account)**
+
+"It says something when South Park, a show known for poop jokes and chaos demons, ends up being one of the more honest voices about the state of politics and entertainment. It's like if a drunk uncle suddenly said the most insightful thing at Thanksgiving and then went back to yelling at the TV"
+
+* :::=== RoundSparrow_Commentary : Eating the Surkovian onions, eating out of the hands of Donald Trump **Reality TV fiction**, Surkovian governing. South Park created the very Fox News "Entertainment News" culture that Neil Postman spelled out in 1985, more thn a decade before Fox News went on the air. Bullshit about penis size for governing. South Park does not fix a technology HDTV addiction. Donald Trump is hate-based entertainment, out-group hate Middle East religion patterns passed by Kremlin into USA society. ===:::
+
