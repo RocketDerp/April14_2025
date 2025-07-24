@@ -915,4 +915,13 @@ Siicktiits 2013-08-27
 
 * :::=== RoundSparrow_Commentary : *We The People* on social media had voices to ReTweet, and all you get is everything Neil Postamn wrote about in year 1985 book, "Amusing Ourselves To Death" - memes, sports, Donald Trump Reality TV fiction, bullshit. Anonymous no-identity Reddit users can't redundanty repeat and repeat anytihng but total mockery, insutling, the mocking values of Fox News and Trump on Twitter. The time to dust off 1985 Neil Postman was in year 2015 and 2016, before runaway social machine meme addiction wrecked USA. Peter Pomerantsev should be a household name, "Trump is using Russia Surkov methods" should be a well repeated phrase. That's *the shit* people aren't saying, the shit-talk shit-bird Tweeting of Doanld Trump is what people adopted. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m8hrnn/newt_gingrich_predicts_a_big_win_for_republicans/n4zdkv9/
+
+sedatedlife 2015-03-28
+
+"Honestly despite how horrible and Fascist this administration is its looking like the Democratic party will not be able too benefit from it. They are hated just as much as this administration and from everything i have seen have learned no lessons from losing."
+
+* :::=== RoundSparrow_Commentary : This is current Levant religion / cult logic. Hate as the core motivation. And Republicans hate harder. The problem is the audience, the voters and non-voters alike, people have abandoned reality in favor of fiction. ===:::
 
