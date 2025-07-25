@@ -1012,3 +1012,21 @@ SoulRebel726 2014-10-10
 They're just so deep into the cult at this point that the idea that the other side is willing to hold their politicians accountable is too foreign to them. It's been a decade of "everything Trump does or says is the greatest thing in the history of things" and they just can't accept anything else."
 
 * :::=== RoundSparrow_Commentary : Reddit socail media consuemrs who think the **War Against Reality** isn't about wrecking reality and creating monomyth fiction patterns. Unable to cite Christopher Wylie, Peter Pomerantsev... just eating the Surkovian onions thinking that this is only voters of legal voting age who vote MAGA, and not 100% of the population who... can't cite Christopher Wylie, Peter Pomerantsev, let alone Neil Postman 1985. Quoting the Reddit comment: "never ceases to amuse me", do We The People continue to seriously not grasp that MAGA is also amused at liberal tears, out-group hate / out-group mockery? Neil Postman's 1985 book??? It is an all inclusive total mockery, age 12 to 120, United States of America social meachine addicts. Not just Republicans, not just MAGA, EVERYONE who can't cite Neil Postman, Andrew Postman, Christopher Wylie, Peter Pomerantsev, Adam Curtis, Surkov himself. More South Park amusement this week is EXACTLY the Kremlin mental exploit of "the opposition", it is runaway monomyths. Reality nonfiction does not matter to all people in USA, everyone is addicted to fiction. That's Neil Postman's point in 1985 book! Why has no major social media site had front-page sustained coverage of [Peter Pomerantsev's 2014 works](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)? Every time Donald Trump / MAGA says or does something **unreal, surreal, irreal** in 2017, 2025 - why isn't this cited from year 2014 and NATO quoted? The linked [articles on The Altantic](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) (and other places) are published before the 2016 election by more than **two full years**. Domestic Russia can't escape it since 1999, Ukraine can't escape it since February 2014, USA can't escape it! [I spent YEARS on Reddit citing Texan Rick Roderick 1993 (Professor at Duke University) - I created a dedicated publishing space April 24, 2017](https://old.reddit.com/r/WhiteHouseHyperReal/), and everyone could not escape the Surkovian techniques! ===:::
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/law/comments/1m925dm/republicans_subpoena_bill_and_hillary_clinton_in/n53wxa4/
+
+Y0___0Y 2024-09-19
+
+"Every day, they realize their distraction from the previous day did not work and they try a new one. How long will this go on for?
+
+You’re going to subpoena Hillary Clinton? To what end? To demonstrate a connection to Epstein, declare “see? They’re connected to Epstein!”
+
+And the continue suppressing the files that would prove that claim while Democrats call for their release?
+
+They think this will get them out of this? It will bury them deeper! Anything they claim to “uncover” about Epstein will make their people demand the release of the files even louder."
+
+* :::=== RoundSparrow_Commentary : "How long will this go on for?" - ask Neil Postman's 1985 book, ask Andrew Postman February 2017. Ask David Foster Wallace how long Infinite Jest goes on. How long have Surkovian antics governing kept Putin in power? How long did Surkov say the war in Ukraine would last back in year 2014? Answer: ["The underlying aim, Surkov says, is **not to win the war**, but to use the conflict to create a **constant state** of destabilized perception, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
