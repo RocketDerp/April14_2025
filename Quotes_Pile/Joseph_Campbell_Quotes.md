@@ -10,3 +10,10 @@ November 16, 1961
 Joseph Campbell  
 The Cooper Union  
 Lecture I.1.4 - New Horizons 
+
+
+&nbsp;
+
+# Metaphors / Atheists 
+
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
