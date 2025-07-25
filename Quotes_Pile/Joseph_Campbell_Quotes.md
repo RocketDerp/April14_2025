@@ -17,3 +17,23 @@ Lecture I.1.4 - New Horizons
 # Metaphors / Atheists 
 
 “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+&nbsp;
+
+.
+
+# Science vs Fiction Mythology 
+
+But now when one says truth as a scientist one is being sentimental, because really the wonderful thing and the great challenge of the scientific revelation is that science itself does not pretend to be true. It does not pretend to be final.
+
+It is simply an organization of working hypotheses—hypotheses that seem to take account of the facts, as we now know them. But is there any intention to stay with these facts? No. There is a continuous quest for more, as though one were eager to grow as though the life of man, and of society here, were to be based on new things, on change, on transformation, rather than on petrifaction and rigidity. And so we don’t know anything. And even science itself is not the truth; it is only, so to say, an eagerness for the truth no matter where it may lead.
+
+And so here again we have a still greater revelation than that of anything the old texts have to say; the old texts comfort us with horizons.
+
+They tell us that a loving, a kind, a just father is out there. According to the scientific view nobody knows what is out there, or if there is any out there at all. There is just a display of things that our senses bring to us, and we are dealing with those. But what lies beyond is an ultimate mystery, and it is a mystery that is so great that it is going to be inexhaustible in its revelations. And man has to be great enough to receive it.
+
+There is no thou shalt anymore. There is nothing you have to believe, nothing you have to do.
+
+And if you want to play the game of the Middle Ages, go ahead, but don’t tell anybody else that that’s the only game there is. Or if you want to play the game of the Chinese Mandate of Heaven, go ahead—those are all lovely games. And the scientific game, after all, may not be any truer, but it is vaster, and it takes in a bigger range of facts and experience.
+
+So it is this terrific moment that we face; it is a moment that has been maturing so to say since the days of the Greeks. And since the days of the Second World War, it has gone through all the planet.
