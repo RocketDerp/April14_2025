@@ -1001,3 +1001,14 @@ ManOf1000Usernames 2017-11-15
 
 The repeated prosecutions of the clintons is prophecy fulfillment for them at this point, and the brainwashed have BEEN incapable of accepting the reality of the situation that there was not enough evidence of anything to have actual trials, let alone convict."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m925dm/republicans_subpoena_bill_and_hillary_clinton_in/n53zpx8/
+
+SoulRebel726 2014-10-10
+
+"It never ceases to amuse me how Republicans think potentially implicating the Clintons, or anyone really, in the Epstein files would be some sort of "gotcha" to liberals. We. Don't Care. Lock up all the pedos regardless of political affiliation.
+
+They're just so deep into the cult at this point that the idea that the other side is willing to hold their politicians accountable is too foreign to them. It's been a decade of "everything Trump does or says is the greatest thing in the history of things" and they just can't accept anything else."
+
+* :::=== RoundSparrow_Commentary : Reddit socail media consuemrs who think the **War Against Reality** isn't about wrecking reality and creating monomyth fiction patterns. Unable to cite Christopher Wylie, Peter Pomerantsev... just eating the Surkovian onions thinking that this is only voters of legal voting age who vote MAGA, and not 100% of the population who... can't cite Christopher Wylie, Peter Pomerantsev, let alone Neil Postman 1985. Quoting the Reddit comment: "never ceases to amuse me", do We The People continue to seriously not grasp that MAGA is also amused at liberal tears, out-group hate / out-group mockery? Neil Postman's 1985 book??? It is an all inclusive total mockery, age 12 to 120, United States of America social meachine addicts. Not just Republicans, not just MAGA, EVERYONE who can't cite Neil Postman, Andrew Postman, Christopher Wylie, Peter Pomerantsev, Adam Curtis, Surkov himself. More South Park amusement this week is EXACTLY the Kremlin mental exploit of "the opposition", it is runaway monomyths. Reality nonfiction does not matter to all people in USA, everyone is addicted to fiction. That's Neil Postma's point in 1985 book! Why has no major social media site had front-page sustained coverage of [Peter P's 2014 works](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)? Every time Donald Trump / MAGA says or does something **unreal, surreal, irreal** - why isn't this cited from year 2014 and NATO quoted? It's all before the 2016 election by more than **two full years**. Domesti Russia can't escape it since 1999, Ukraine can't escape it since February 2014, USA can't escape it! [I spent YEARS on Reddit citing Rick Roderick 1993 - I created a dedicated publishing space April 24, 2017](https://old.reddit.com/r/WhiteHouseHyperReal/), and everyone could not escape the Surkovian techniques! ===:::
