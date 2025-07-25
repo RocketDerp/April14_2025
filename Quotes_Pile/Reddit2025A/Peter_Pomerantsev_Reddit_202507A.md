@@ -990,3 +990,14 @@ It would be a stain on humanity if we just allow him to run out the clock instea
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1m8983z/the_official_democrats_account_on_twitter_holding/
 
 "Holding nothing back" *we win* meme for meme attitude. The crisis is not just one single person, Donald Trump, but [mob mentality of mass psychosis group thinking](). Induced by: media ecology literacy failure, Russian information warfare since March 2013 (including doctorates at Cambridge Analytica). What people are holding back is confronting the power of Elon Musk and Donald Trump: reactionary Twitter messages / reactionary meme-thinking. And this is one more *inside the Surkovian governing*, of appeasing to the crowd instead of lecturing people on morality and Neil Postman media ecology. Can't be "too preachy" and "too nerdy" and quote book professors on how Russian information warfare works. The framing of this, "the medium is the message" of the message frame on Reddit is ***"White People Twitter"*** of the Democrat political party. White skin color mind-fuck of Reddit audience. This is *eating the Surkovian onions, inside the simularcra of resistance*, not calling out mythological media behaviors - but being *inside without demonstrated ability to articulte self-awareness*. [Peter Pomerantsev 2014 ignored](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/).
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1m925dm/republicans_subpoena_bill_and_hillary_clinton_in/n5425bj/
+
+ManOf1000Usernames 2017-11-15
+
+"They do it because it works with their base. There are people out there who are convinced that the clintons are the literal implementers of satans agenda who get away each time thanks to their dark pact. It has worked ever since AM radio radicalized generations of rural listeners for decades. Even now, the stuff said about people there is on par with the worst of stuff you hear from the people in the middle east who enforce sharia law. 
+
+The repeated prosecutions of the clintons is prophecy fulfillment for them at this point, and the brainwashed have BEEN incapable of accepting the reality of the situation that there was not enough evidence of anything to have actual trials, let alone convict."
+
