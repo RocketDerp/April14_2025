@@ -965,7 +965,9 @@ These are human beings and he's just telling Israel to decide whether you want t
 
 https://old.reddit.com/r/politics/comments/1m99svs/trump_gives_israel_chilling_order_as_it_starves/n55iuxf/
 
+Hypochrondiac 2010-10-11
 
 "Boy, Arabs for Trump are giving Latinos for Trump a run for their money on dumbest groups to support Trump."
 
 * :::=== RoundSparrow_Commentary : Roman Catholic Mexicans / Central Americans who have large families and ties to Bible storytelling. Muslims with large families and ties to Quran storytelling. These 1,380 year old Quran stories and 2,000 year old Bible stories are founded on the same monomyth patterns, exploitable by modern [Cambridge Analytica and Russian information warfare](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). Americans don't want to listen to George Lucas in 1986 / 1987 / 1988 informing his Star Wars / Hollywood audience about the science fiction monomyth patterns: https://www.GreatSealUSA.com Filmed by Lucas himself at Skywalker Ranch, California. Joseph Campbell was 83 years old in 1987 when this interview with (former White House director) Bill Moyers was filmed. :::===
+
