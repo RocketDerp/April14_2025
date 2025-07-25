@@ -971,3 +971,13 @@ Hypochrondiac 2010-10-11
 
 * :::=== RoundSparrow_Commentary : Roman Catholic Mexicans / Central Americans who have large families and ties to Bible storytelling. Muslims with large families and ties to Quran storytelling. These 1,380 year old Quran stories and 2,000 year old Bible stories are founded on the same monomyth patterns, exploitable by modern [Cambridge Analytica and Russian information warfare](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). Americans don't want to listen to George Lucas in 1986 / 1987 / 1988 informing his Star Wars / Hollywood audience about the science fiction monomyth patterns: https://www.GreatSealUSA.com Filmed by Lucas himself at Skywalker Ranch, California. Joseph Campbell was 83 years old in 1987 when this interview with (former White House director) Bill Moyers was filmed. :::===
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m99svs/trump_gives_israel_chilling_order_as_it_starves/n55n1ny/
+
+crazybones 2007-08-08
+
+" Once again Trump demonstrates that the underlying question at the heart of all his thinking and actions is, "What's in it for me?"
+
+For any normal human politician with a fully functioning moral compass, the number one question in relation to Gaza would be, "What can I do to save these people from this nightmare?" "
+
