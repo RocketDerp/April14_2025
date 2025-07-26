@@ -1143,3 +1143,6 @@ Sgtwhiskeyjack9105 2017-09-02
 It's either that she's completely oblivious, or pretty much everyone in this comment section has zero barometer for sarcasm.
 
 Either way, media literacy blah blah dead."
+
+* :::=== RoundSparrow_Commentary : "It's either that she's completely oblivious, or" - ahh, short Twitter-length social media comments that are binary logic: there are two sides, and ONLY two sides, there are 2 and only 2 choices. What about door number 13 choice? That you are living in a Internet fiter-bubble like everyone else, and your brain has a set of fiction content memes different from every other person, and you subscribe to subreddts and YouTube channels and Bluesky content that matches your patterns! And [you can't cite a book written about filter-bubbles more than a decade ago](https://en.wikipedia.org/wiki/Filter_bubble)... "media literacy blah blah dead" - yes, dead because nobody actually bothers to quote the book and gives Tweet-stayle reaction comments as you did. If your nation is falling to a media ecology and Russian information warfare with terrible outcomes (Donald Trump elected in 2024), why aren't you teaching media ecology as a civic duty? ===:::
+
