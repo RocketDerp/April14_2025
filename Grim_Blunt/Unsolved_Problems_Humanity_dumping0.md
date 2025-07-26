@@ -16,7 +16,7 @@ People view nations as a competition instead of viewing:
 
 1. all war bad
 2. all terrorism bad
-3. all hate bad
+3. all hate bad ( ["The 1954 Equation"](../Quotes_Pile/Martin_Luther_King_Jr_quotes0.md) )
 4. every person in the world has a body and medical techniques are common
 5. food and shelter common
 6. lies, manipulation, poisoning, murder, traps, kidnapping, imprisoning are bad no matter what nation, what religion, every geography
