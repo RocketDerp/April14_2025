@@ -1121,3 +1121,13 @@ https://old.reddit.com/r/technology/comments/1ma155z/the_internet_archive_just_b
 Zenith251 2011-01-31
 
 "There's always been a way. And you can bet your sweet, sweet, internet points that they were going to come for the archive anyway. Rewriting history has been a strong edict of this gov so far."
+
+&nbsp;
+
+https://old.reddit.com/r/mapporncirclejerk/comments/1m9wm4x/outjerked_by_twitter/n5alf57/
+
+Unlikely_Repair9572 **2025-04-04 (recent account)**
+
+"Do they think the Palestinians are stealing Israel's land or something lmao?  Like they need to go live in France because they're living on someone else's land?"
+
+* :::=== RoundSparrow_Commentary : Note the social media laugh track "lmao" in the comment. Short Twitter-length comments with a built-in audience laugh track. Neil Postamn in year 1985 published a book called "Amusing Ourselves To Death".... ===:::
