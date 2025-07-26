@@ -1025,3 +1025,20 @@ Died_Of_Dysentery1 2024-02-11
 
 "They're wrong, they have all been wrong every single time with these morons. Every. Single. Time. I don't believe it for a second"
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m9fxku/maga_wont_let_trump_off_the_hook_for_the_epstein/n573l2o/
+
+Motorbarge 2023-01-30
+
+"Republicans didn't care that Trump raped a woman. They don't care that he is getting rich selling access to the White House. There is no reason to think they would start caring if he is on the list. They probably just want the list so they can see whether it's actually okay to rape children, cause rich people do it."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m9fxku/maga_wont_let_trump_off_the_hook_for_the_epstein/n587dyi/
+
+Negative_Gravitas 2010-07-15
+
+"Wrong. They WILL let him off t he hook, and I know why: they don't actually care that Donald Trump raped children. They only care that he hurts people they hate (but have never met).
+
+As long as he does that, they will forgive anything. Anything at all."
