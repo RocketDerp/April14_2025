@@ -1,6 +1,6 @@
 ## Unsolved Problems of Humanity
 
-Dumping ground of messages and ideas that I can't finish or solve either. But my mind is stuck with hyper empahty and I don't know the future, maybe in weeks or months I can rewrite this.
+Dumping ground of messages and ideas that I can't finish or solve either. But my mind is stuck with [hyper empathy](https://www.shu.ac.uk/news/all-articles/latest-news/autism-and-hyper-empathy-study) and I don't know the future, maybe in weeks or months I can rewrite this.
 
 &nbsp;
 
