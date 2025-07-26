@@ -1048,3 +1048,21 @@ As long as he does that, they will forgive anything. Anything at all."
 "Exactly. People are really setting themselves up for disappointment. The fuckers ALWAYS find a way to lie to themselves and other people to justify their hatred. Fuck them and I won't ever believe they can change until I actually see it."
 
 * :::=== RoundSparrow_Commentary : Everyone, including Democrats and other non MAGA, are addicted to the constant conflict and suprising shock. People are not willing to do the one thing that will suber us up: Neil Postman's 1985 book or everything year 2014 from Adam Curtis and year 2014 Peter Pomerantsev - and face up to year 2014 that this was described *two years before* the November 2016 election. Recency bias has to be addressed. The constant stream of Bluesky / Reddit memes, the *only the past 18 hours* on social media stream has to be confronted at the Neil Postman 1985 depth of understanding. We have to decide if we are willing to die for memes. Yes, [people DIE FOR MEMES and ENTERTAINMENT stories, what do you think The Bible and Holy Quran are, Mecca is a media theme park like Disneyland is a media theme park! The Cruisades, Terrorists, people are murdering and killiong for memes and metaphors. Geroge Lucas spelled this out to his audience in 1987](../Joseph_Campbell_Metaphors.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m9wp96/as_a_republican_i_say_we_need_to_stop_supporting/n5aq43a/
+
+Zappybur 2019-02-15
+
+"... If they voted for him and didn't lose you as a friend then I don't even know what to say. They voted for a predator and convicted criminal, nothing else really matters after that. All this chaos in your country is what they voted for."
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m9wp96/as_a_republican_i_say_we_need_to_stop_supporting/n5a7938/
+
+PBandJellyfish77 **2025-04-27 (recent account)**
+
+"If you had cared to notice before you voted for him, this was always going to be what was going to happen. And I'm very happy that you are coming around now. But it's a bit late. You have a lot of work to do if you want to fix what you helped make happen."
+
+* :::=== RoundSparrow_Commentary : This is classical thinking, classical reaction. From people who do not grasp Marshall Mcluhan 1968, Neil Postman 1985, Christopher Wylie 2019. We are dealing with people thinkingin mythological ways, alternate reality, they can say words and write words - but the underlying model they have in their mind is as deep as any religion in history. Surkovian information warfare goes incredibly deep and must be directly educated and addressed! [Neil Postman's 1985 book, only 184 pages](https://www.goodreads.com/work/quotes/2337731-amusing-ourselves-to-death-public-discourse-in-the-age-of-show-business), needs to be understood by EVERY PERSON age 12 to 120, it is not OPTIONAL comprehension. ===:::
