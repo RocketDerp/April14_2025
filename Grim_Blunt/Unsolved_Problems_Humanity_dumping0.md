@@ -17,11 +17,12 @@ People view nations as a competition instead of viewing:
 1. all war bad
 2. all terrorism bad
 3. all hate bad ( ["The 1954 Equation"](../Quotes_Pile/Martin_Luther_King_Jr_quotes0.md) )
-4. every person in the world has a body and medical techniques are common
-5. medical drugs, medical techniques, medical instruciton and education are common
+4. every person in the world has a body and medical progress are common
+5. medical drugs, medical techniques, medical instruction and education, medical technology are common (because our human body is common)
 6. food and shelter common
 7. long-term understandings of cancer, virus, and disease are common. Such as allergies, enviornmental toxins, pollution, stress, food / dietary, exercise, sleep, etc.
 8. lies, manipulation, poisoning, murder, traps, tricks, deceptive signs and signals in enviornment, kidnapping, imprisoning are bad no matter what nation, religion, geography. common.
+9. public relations, propaganda, advertising, marketing, product placement, insincere recommendations motivated by earning money... all have side-effects and impact in negative ways. Manipulation and trust being exploited.
 
 Donald Trump life is about private jets, security guards, lavish bling bling symbolism of wealth.  Telling lies and manipulation to trick people out of their labor, wealth and goodness so clever selfish people can have more land and wealth and rule over others in egomania. The biggest egoism politician who can lie better to the audiences is who is winning (and those with egomania who understand lies / mannipulation / falsehoods / deception who support and desire such politicians as their representatives). People who have not been educated to comprehend crowd behavior manipulation methods (information warfare, etc) are gullible and trusting of liars instead of openly and actively teaching the problem of #egomania that Donald Trump / Rupert Murdoch have.
 
