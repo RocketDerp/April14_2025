@@ -1155,3 +1155,14 @@ shootforutopia **2025-07-16 (newly minted Reddit login**, cool username)
 "it’s definitely not satire. it’s meant to mock mamdani’s own videos while also serving as an attack ad.
 
 don’t go on about media literacy fam this shit is real, it’s just not meant for you."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ma1kve/melania_trump_very_involved_in_epstein_scandal/n5bnb87/
+
+TweakedNipple 2013-11-25
+
+"Anyone who is half sane and has barely been paying attention to all this has known every "breaking news" headline this week for years. Im more confused as to why all the things are coming up now, except for the files trump promised and refused to give up to the "stupid troublemakers he doesn't need anymore" that one i get."
+
+* :::=== RoundSparrow_Commentary : Information overload, mass man burnout, mass mind burnout. Donald Trump is the content creator of all time, how do those lyrics go: "Why'd you choose such a backward time in such a strange land? If you'd come today you could have reached a whole nation. Israel in 4 BC had no **mass communication**."](https://www.youtube.com/watch?v=KJDgUoAQC8Y)
+
