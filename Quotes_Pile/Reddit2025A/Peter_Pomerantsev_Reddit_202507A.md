@@ -1030,3 +1030,13 @@ And the continue suppressing the files that would prove that claim while Democra
 They think this will get them out of this? It will bury them deeper! Anything they claim to “uncover” about Epstein will make their people demand the release of the files even louder."
 
 * :::=== RoundSparrow_Commentary : "How long will this go on for?" - ask Neil Postman's 1985 book, ask Andrew Postman February 2017. Ask David Foster Wallace how long Infinite Jest goes on. How long have Surkovian antics governing kept Putin in power? How long did Surkov say the war in Ukraine would last back in year 2014? Answer: ["The underlying aim, Surkov says, is **not to win the war**, but to use the conflict to create a **constant state** of destabilized perception, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m9fxku/maga_wont_let_trump_off_the_hook_for_the_epstein/n56x5fh/
+
+MagicianHeavy001 2024-03-18
+
+"It's no accident either. If you don't think that social media, designed to deliver little dopamine hits throughout the day, wasn't weaponized for spreading conspiracy theories and radicalizing people long ago...well, welcome to the new world order I guess.
+
+I worked in ads. It's easy to manipulate people if you control their supply of dope."
