@@ -18,7 +18,7 @@ Lecture I.1.4 - New Horizons
 
 &nbsp;
 
-# Metaphors / Atheists 
+## Metaphors / Atheists 
 
 “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
@@ -26,7 +26,9 @@ Lecture I.1.4 - New Horizons
 
 .
 
-# Science vs Fiction Mythology 
+## Science vs Fiction Mythology 
+
+&nbsp;
 
 But now when one says truth as a scientist one is being sentimental, because really the wonderful thing and the great challenge of the scientific revelation is that science itself does not pretend to be true. It does not pretend to be final.
 
