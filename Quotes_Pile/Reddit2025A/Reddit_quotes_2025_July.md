@@ -1017,3 +1017,11 @@ I agree with you, the users of this website suffer from a lack of empathy when t
 
 * :::=== RoundSparrow_Commentary : ***If only*** it were only Reddit, and not the foundation of success of Fox News (wealthy punching down on the poor, wealth televagelism religion of Rupert Murdoch media empire). This goes on on Mastodon, Bluesky, Lemmy, Twitter, etc, etc, etc. That's the entire attitude of Bluesky + Reddit + Lemmy about MAGA / HDTV news networks (Neil Postman's 1985 book) / Donald Trump: "oh wow I'm so smart just don't make a mistake" - hate upon and insult Americans (which MAGA is based upon "liberal tears" mockery) who fall for Russian information warfare, while not a soul can cite the forest for trees total society problem of Peter Pomerantsev, Christopher Wylie. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1m9fxku/maga_wont_let_trump_off_the_hook_for_the_epstein/n5746fn/
+
+Died_Of_Dysentery1 2024-02-11
+
+"They're wrong, they have all been wrong every single time with these morons. Every. Single. Time. I don't believe it for a second"
+
