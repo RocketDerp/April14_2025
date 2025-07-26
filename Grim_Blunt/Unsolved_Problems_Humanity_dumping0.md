@@ -18,10 +18,12 @@ People view nations as a competition instead of viewing:
 2. all terrorism bad
 3. all hate bad ( ["The 1954 Equation"](../Quotes_Pile/Martin_Luther_King_Jr_quotes0.md) )
 4. every person in the world has a body and medical techniques are common
-5. food and shelter common
-6. lies, manipulation, poisoning, murder, traps, kidnapping, imprisoning are bad no matter what nation, what religion, every geography
+5. medical drugs, medical techniques, medical instruciton and education are common
+6. food and shelter common
+7. long-term understandings of cancer and disease are common. Such as allergies, enviornmental toxins, pollution, stres
+8. lies, manipulation, poisoning, murder, traps, tricks, deceptive signs and signals in enviornment, kidnapping, imprisoning are bad no matter what nation, religion, geography. common.
 
-Donald Trump life is about private jets, security guards, lavish bling bling symbolism of wealth.  Telling lies and manipulation to trick people out of their labor, wealth and goodness so clever selfish people can have more land and wealth and rule over others. The biggest politician who can lie better to the audiences is who is winning. People are gullible and trusting of liars instead of teaching the problem of #egomania that Donald Trump / Rupert Murdoch have.
+Donald Trump life is about private jets, security guards, lavish bling bling symbolism of wealth.  Telling lies and manipulation to trick people out of their labor, wealth and goodness so clever selfish people can have more land and wealth and rule over others in egomania. The biggest egoism politician who can lie better to the audiences is who is winning (and those with egomania who understand lies / mannipulation / falsehoods / deception who support and desire such politicians as their representatives). People who have not been educated to comprehend crowd behavior manipulation methods (information warfare, etc) are gullible and trusting of liars instead of openly and actively teaching the problem of #egomania that Donald Trump / Rupert Murdoch have.
 
 I see highly educated social media users who don't want to support #MalalaYousafzai because she wants stable and high quality education for more people. And Donald Trump values are that education is a competition of telling lies and falsehoods to other people, not about equal comprehending and understanding ... instead wanting to see wars, see diseased people, see people tricked into self-harm ( The very popular year 2025 "Leopards Ate my Face" mocking of the uneducated and misunderstanding #MAGA voters, for example)
 
