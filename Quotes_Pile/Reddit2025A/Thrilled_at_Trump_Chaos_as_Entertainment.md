@@ -181,3 +181,16 @@ Are they serious? Lol"
 https://old.reddit.com/r/BlueskySkeets/comments/1m96ujg/sue_sue_sue_them_all_s/
 
 Funny, hilarious, entertaining, Reality TV - sex lives of rich and famous... The Apprentice Reality TV star. People are eating right out of Surkovian onion garden of fiction. “The first thing the President had done when he came to power in 2000 was to seize control of television. It was television through which the Kremlin decided which politicians it would ‘allow’ as its puppet opposition, what the country’s history and fears and consciousness should be. And the new Kremlin won’t make the same mistake the old Soviet Union did: it will never let TV become dull. The task is to synthesise Soviet control with Western entertainment. Twenty-first-century Ostankino mixes show business and propaganda, ratings with authoritarianism. And at the centre of the great show is the President himself" - **year 2014, more than a decade ago** - Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/TikTokCringe/comments/1m9x98b/right_wing_account_tries_14_going_in_peice_but/n5adl83/
+
+Lanoris 2016-01-29
+
+"One of the bad things she found about Mamdani was that he wants to get rid of medical debt? LMAOOO.
+
+I guess to magas and conservatives hes trash no matter what he does, but I feel like to everyone else here, at least half of things she said about Mamdani are why people would WANT to vote for him."
+
