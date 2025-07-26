@@ -40,6 +40,6 @@ They tell us that a loving, a kind, a just father is out there. According to the
 
 There is no thou shalt anymore. There is nothing you have to believe, nothing you have to do.
 
-And if you want to play the game of the Middle Ages, go ahead, but don’t tell anybody else that that’s the only game there is. Or if you want to play the game of the Chinese Mandate of Heaven, go ahead—those are all lovely games. And the scientific game, after all, may not be any truer, but it is vaster, and it takes in a bigger range of facts and experience.
+And if you want to play the game of the Middle Ages, go ahead, but don’t tell anybody else that that’s the only game there is. Or if you want to play the game of the [Chinese Mandate of Heaven](https://en.wikipedia.org/wiki/Mandate_of_Heaven), go ahead—those are all lovely games. And the scientific game, after all, may not be any truer, but it is vaster, and it takes in a bigger range of facts and experience.
 
 So it is this terrific moment that we face; it is a moment that has been maturing so to say since the days of the Greeks. And since the days of the Second World War, it has gone through all the planet.
