@@ -981,3 +981,15 @@ crazybones 2007-08-08
 
 For any normal human politician with a fully functioning moral compass, the number one question in relation to Gaza would be, "What can I do to save these people from this nightmare?" "
 
+&nbsp;
+
+# Saturday, July 26, 2025
+
+https://old.reddit.com/r/agedlikemilk/comments/1m9pyyu/womp_womp/n59h0wk/
+
+pile_of_bees 2021-08-05
+
+"It didn’t happen. This entire post is a fake. The ultramagalady account doesn’t exist and has never existed. You are falling for low effort propaganda again"
+
+* :::=== RoundSparrow_Commentary : made the front page of Reddit and has been on the front page several times before. Out-group [hate is complete saturation in USA](../Martin_Luther_King_Jr_quotes0.md), and nobody sees the forest for the trees problem, each group hating the other groups. ===:::
+
