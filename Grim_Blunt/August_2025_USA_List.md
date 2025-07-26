@@ -21,7 +21,7 @@ Same page understandings and comprehensions.
 
 ### Notes 
 
-1. When I say a "Wiki sytle system", I do not mean that every system needs to ahve open access to everyone on edits and content. It can be limited to a set of authors and editors. But we should try to identify *who*, not just one single login account that a dozen people share, there should be a unique login account for each author, etc. I'm not suggesting that a politician like Alexandria Ocasio-Cortez have a "anyone in the world can edit" Wiki on her ideas / platform / proposals / legislation / etc. My emphasis is: not hiding mistakes, showing corrections and errors (be human), dealing with feedback through progressive editing and rethinking, having a consumer audience that knows to review the history of changes to a document, etc.
+1. When I say a "Wiki sytle system", I do not mean that every system needs to ahve open access to everyone on edits and content. It can be limited to a set of authors and editors. But we should try to identify *who*, not just one single login account that a dozen people share, there should be a unique login account for each author, etc. I'm not suggesting that a politician like Alexandria Ocasio-Cortez have a "anyone in the world can edit" Wiki on her ideas / platform / proposals / legislation / etc. My emphasis is: not hiding mistakes, showing corrections and errors (be human), dealing with feedback through progressive editing and rethinking, having a consumer audience that knows to review the history of changes to a document, **long format, web of linked ideas and topics (in contrast to Twitter / Bluesky July 2025 society)**, etc.
 
 &nbsp;
 
