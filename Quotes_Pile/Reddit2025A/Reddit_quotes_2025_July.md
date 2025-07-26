@@ -993,3 +993,11 @@ pile_of_bees 2021-08-05
 
 * :::=== RoundSparrow_Commentary : made the front page of Reddit and has been on the front page several times before. Out-group [hate is complete saturation in USA](../Martin_Luther_King_Jr_quotes0.md), and nobody sees the forest for the trees problem, each group hating the other groups. ===:::
 
+&nbsp;
+
+Some thoughtful comments about agre restrictions for content.
+
+https://old.reddit.com/r/whenthe/comments/1m9nqa3/learn_to_parent_you_lazy_bastards/n598hdy/
+
+https://old.reddit.com/r/whenthe/comments/1m9nqa3/learn_to_parent_you_lazy_bastards/n599p1h/
+
