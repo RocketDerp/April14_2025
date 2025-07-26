@@ -995,9 +995,25 @@ pile_of_bees 2021-08-05
 
 &nbsp;
 
-Some thoughtful comments about agre restrictions for content.
+Some thoughtful comments about age restrictions for content.
 
 https://old.reddit.com/r/whenthe/comments/1m9nqa3/learn_to_parent_you_lazy_bastards/n598hdy/
 
 https://old.reddit.com/r/whenthe/comments/1m9nqa3/learn_to_parent_you_lazy_bastards/n599p1h/
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1m9p6ix/these_gaps_at_metro_stations_need_to_be_addressed/n58y2hb/
+
+Takfu1514  2024-09-19
+
+"Redditors are so fucking annoying with this "oh wow I'm so smart just don't make a mistake" attitude when there is a video posted where something goes wrong.
+
+The comments about "natural selection" irk me, first because accidentally falling down a gap is not natural selection and secondly half the people on this website would be dead without constant human intervention to keep as many of us as safe as possible in every situation.
+
+I agree with you, the users of this website suffer from a lack of empathy when they feel like they can grandstand about their supposed superiority over the most vulnerable in society."
+
+* :::=== RoundSparrow_Commentary : ***If only*** it were only Reddit, and not the foundation of success of Fox News (wealthy punching down on the poor, wealth televagelism religion of Rupert Murdoch media empire). This goes on on Mastodon, Bluesky, Lemmy, Twitter, etc, etc, etc. That's the entire attitude of Bluesky + Reddit + Lemmy about MAGA / HDTV news networks (Neil Postman's 1985 book) / Donald Trump: "oh wow I'm so smart just don't make a mistake" - hate upon and insult Americans (which MAGA is based upon "liberal tears" mockery) who fall for Russian information warfare, while not a soul can cite the forest for trees total society problem of Peter Pomerantsev, Christopher Wylie. ===:::
 
