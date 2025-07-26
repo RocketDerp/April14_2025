@@ -1066,3 +1066,26 @@ PBandJellyfish77 **2025-04-27 (recent account)**
 "If you had cared to notice before you voted for him, this was always going to be what was going to happen. And I'm very happy that you are coming around now. But it's a bit late. You have a lot of work to do if you want to fix what you helped make happen."
 
 * :::=== RoundSparrow_Commentary : This is classical thinking, classical reaction. From people who do not grasp Marshall Mcluhan 1968, Neil Postman 1985, Christopher Wylie 2019. We are dealing with people thinkingin mythological ways, alternate reality, they can say words and write words - but the underlying model they have in their mind is as deep as any religion in history. Surkovian information warfare goes incredibly deep and must be directly educated and addressed! [Neil Postman's 1985 book, only 184 pages](https://www.goodreads.com/work/quotes/2337731-amusing-ourselves-to-death-public-discourse-in-the-age-of-show-business), needs to be understood by EVERY PERSON age 12 to 120, it is not OPTIONAL comprehension. ===:::
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/complaints/comments/1m9wp96/as_a_republican_i_say_we_need_to_stop_supporting/n5aua23/
+
+justadude27 2011-04-29
+
+" Have you ever noticed how these posts are “we’ve been betrayed”, “we’ve been tricked” and never “I’m sorry for having no morals”? "
+
+* :::=== RoundSparrow_Commentary : YES, I have noticed, and they can't even face up to WHO did the betrayal, that Donald Trump and JD Vance are manipulated by the Kremlin / Putin / Russia just as much as the society MAGA itself, We The People! You have been tricked by electric media ecology, Surkovian media exploits, doctorates of the mind at Cambridge Analtyica - Donald Turmp did not trick you - Russia tricked you into being attracted to ***badness itself, self-harm of USA*** and Donad Trump was the symbol of choice. The mind-fucking of the symbol systems is the crisis, the [good from bad morality bit flipping](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/) techniques! :::===
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m9wp96/as_a_republican_i_say_we_need_to_stop_supporting/n5ahl80/
+
+"This whole sub is bs posts for karma and for some reason people keep feeding into it."
+
+RS308 2018-12-31
+
+* :::=== RoundSparrow_Commentary : "for some reason people keep feeding" - it is a simulacra of resistance, it is media engagement, it is anti-reality, it is fiction model, not the real world. The real word lies beyond ***EVERY PERSON AGE TWELVE TO ONE-HUNDRED-TWENTY*** grasping and understanding Neil Postman's 1985 book "Amusing Ourselves To Death" about Media Ecology, Reddit itself, Bluesky itself, Fox News HDTV itself, Donald Trump Reality TV star ITSELF! :::===
+
