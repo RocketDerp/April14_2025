@@ -1042,3 +1042,9 @@ Negative_Gravitas 2010-07-15
 "Wrong. They WILL let him off t he hook, and I know why: they don't actually care that Donald Trump raped children. They only care that he hurts people they hate (but have never met).
 
 As long as he does that, they will forgive anything. Anything at all."
+
+&nbsp;
+
+"Exactly. People are really setting themselves up for disappointment. The fuckers ALWAYS find a way to lie to themselves and other people to justify their hatred. Fuck them and I won't ever believe they can change until I actually see it."
+
+* :::=== RoundSparrow_Commentary : Everyone, including Democrats and other non MAGA, are addicted to the constant conflict and suprising shock. People are not willing to do the one thing that will suber us up: Neil Postman's 1985 book or everything year 2014 from Adam Curtis and year 2014 Peter Pomerantsev - and face up to year 2014 that this was described *two years before* the November 2016 election. Recency bias has to be addressed. The constant stream of Bluesky / Reddit memes, the *only the past 18 hours* on social media stream has to be confronted at the Neil Postman 1985 depth of understanding. We have to decide if we are willing to die for memes. Yes, [people DIE FOR MEMES and ENTERTAINMENT stories, what do you think The Bible and Holy Quran are, Mecca is a media theme park like Disneyland is a media theme park! The Cruisades, Terrorists, people are murdering and killiong for memes and metaphors. Geroge Lucas spelled this out to his audience in 1987](../Joseph_Campbell_Metaphors.md) ===:::
