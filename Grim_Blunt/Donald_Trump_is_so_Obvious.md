@@ -10,7 +10,7 @@ The obviousness of Donald Trump is the problem, it is an audience problem, it is
 
 &nbsp;
 
-I knew we were dealing with bit-flipping in the mind of core values. I did not know August 17, 2015 about Cambridge Anlyatica, I didn't know about the Internet Research Agency, but I recognized the persistent patterns of monomyth mind-fuck on Reddit social media that had not gone away.
+I knew we were dealing with bit-flipping in the mind of core values. I did not know August 17, 2015 about Cambridge Anlyatica, I didn't know about the Internet Research Agency, but I recognized the persistent patterns of monomyth mind-fuck on Reddit social media comments that had not gone away. People avoidant of rich complex understanding in favor of hyper banality as described by Rick Roderick in 1993.People ere *attracted to* the antics of MAGA / Trump and people [did not see the flocking reactions to Donald J. Trump as a threat](https://www.youtube.com/watch?v=09maaUaRT4M).
 
 &nbsp;
 
