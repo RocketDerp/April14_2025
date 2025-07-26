@@ -1089,3 +1089,13 @@ RS308 2018-12-31
 
 * :::=== RoundSparrow_Commentary : "for some reason people keep feeding" - it is a simulacra of resistance, it is media engagement, it is anti-reality, it is fiction model, not the real world. The real word lies beyond ***EVERY PERSON AGE TWELVE TO ONE-HUNDRED-TWENTY*** grasping and understanding Neil Postman's 1985 book "Amusing Ourselves To Death" about Media Ecology, Reddit itself, Bluesky itself, Fox News HDTV itself, Donald Trump Reality TV star ITSELF! :::===
 
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m9wp96/as_a_republican_i_say_we_need_to_stop_supporting/n5a7pe1/
+
+gerkin123 2011-12-11
+
+"Fun bait.
+
+Reducing opposition to Trump to a desire to get happy feels from updoots is silly. Signs of support for opposition to a thing do not automatically reduce opposition of a thing to a circlejerk."
+
