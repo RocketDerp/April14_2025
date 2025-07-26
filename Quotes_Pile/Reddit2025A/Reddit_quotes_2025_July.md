@@ -1164,5 +1164,5 @@ TweakedNipple 2013-11-25
 
 "Anyone who is half sane and has barely been paying attention to all this has known every "breaking news" headline this week for years. Im more confused as to why all the things are coming up now, except for the files trump promised and refused to give up to the "stupid troublemakers he doesn't need anymore" that one i get."
 
-* :::=== RoundSparrow_Commentary : Information overload, mass man burnout, mass mind burnout. Donald Trump is the content creator of all time, how do those lyrics go: "Why'd you choose such a backward time in such a strange land? If you'd come today you could have reached a whole nation. Israel in 4 BC had no **mass communication**."](https://www.youtube.com/watch?v=KJDgUoAQC8Y)
+* :::=== RoundSparrow_Commentary : Information overload, mass man burnout, mass mind burnout. Donald Trump is the content creator of all time, how do those lyrics go: ["Why'd you choose such a backward time in such a strange land? If you'd come today you could have reached a whole nation. Israel in 4 BC had no **mass communication**."](https://www.youtube.com/watch?v=KJDgUoAQC8Y)
 
