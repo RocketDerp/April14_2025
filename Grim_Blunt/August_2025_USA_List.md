@@ -4,6 +4,8 @@ We the People of the United States of America
 
 Same page understandings and comprehensions.
 
+**NOTE: very very very incomplete, unedited, brain damage author**
+
 1. Lies, deception, falsehoods are sinking the USA in year 2025. And have been for years.
 2. Information systems about news and public topics need to shift towards a Wiki style system (Wikipedia as example) that has a full history of edits and revisions. Translations to multiple languages. [Example, July 4, 2025 floods in Central Texas on Wikipedia](https://en.wikipedia.org/wiki/July_2025_Central_Texas_floods). We want to be able to download the database and have independent verification that no tampering was done on who / what / when of edits and corrections. Society is drowning in "personalized" streams of *breaking news* that is fragmented and disconnected from progressive refinement and corrections. This is a systemic problem, and we as a society need to try hard to maintain a common progressively improving comprehension of facts and information.
 3. We need to stop playing games with our own minds about sex. All over the world we consider choice marriage, choice of sexual partners, to be competitive based on beauty, charm, wealth ("class"), popularity, etc, etc. Even among animals, birds who sing songs and have colors, it is a competition for attention. Stop behaving as if we can't get all on the same page that it is a messy subject and people can go too far in competition for "the best" in almost any area of human life. People lie about their age to get booze in a bar or to join the military. This is documented the world over, and we know it, and we need to be more open and honest about it so we can sort out the serious problems. All people need love, and our clergy is not preaching love and compassion for all people, etc. We need to view this as a global problem and listen to people like Malala Y from Pakistan **who treats it s a global problem**. Yes, the "Epstein" files of July 2025 is part of this topic.
@@ -18,4 +20,4 @@ Same page understandings and comprehensions.
 
 ### writing
 
-brain damage, broken, editing my own text is difficult. 
+incomplete. brain damage, broken, editing my own text is difficult. 
