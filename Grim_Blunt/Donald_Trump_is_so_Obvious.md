@@ -6,7 +6,7 @@ Badness itself is in the audience, unpopularity is popular.
 
 The obviousness of Donald Trump is the problem, it is an audience problem, it is a Tony Clifton performance, but it is reality itself - not just entertainment.
 
-Rodney Dangerfield in Caddyshack 1980 monomyth patterns, it is *that obvious*. That's my core point. That is why I telephoned the Pentagon Monday, August 17, 2015 afternoon. We are talking 9 to 5 with Dolly Parton, and Donald Trump playing Franklin Hart Jr. from year 1980 monomyth, Mr. Burns himself!
+[Rodney Dangerfield in Caddyshack 1980](https://www.youtube.com/watch?v=UGkyFs_SkIk) monomyth media patterns, it is *that obvious*. That's my core point. That is why I telephoned the Pentagon Monday, August 17, 2015 afternoon. We are talking [9 to 5 with Dolly Parton, and Donald Trump playing Franklin Hart Jr. from year 1980](https://www.youtube.com/watch?v=tqwmyq9XGVU) monomyth story patterns, Mr. Montgomery Burns himself!
 
 &nbsp;
 
