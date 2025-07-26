@@ -1059,3 +1059,13 @@ romacopia 2019-08-23
 
 "Yep. I grew up in the south, raised Christian, and there's simply no excuse for conservatives anymore. I really did try to understand their perspective, but the fact is they're clearly lying about their values and display literally 0 traits in common with Christ. It's all bullshit. Hate and insecurity have completely consumed them. Matthew 25:40-46 even directly says Jesus will personally throw them into Hell for what they support. There's no way around it. They're bad people."
 
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1ma5dod/i_cant_even_think_of_a_title_for_this/n5c4czn/
+
+colmscomics 2019-07-19
+
+"Breaking news!: Trump pardons co-conspirator of massive organised pedophile sex ring to prove he is in fact, not a pedophile."
+
+* :::=== RoundSparrow_Commentary : at times, I call this "Surkov Shuffle" in Surkovian Chess ===:::
+
