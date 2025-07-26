@@ -42,3 +42,12 @@ CAMPBELL: Yes. Words are always qualifications and limitations.
 MOYERS: And yet, Joe, all we puny human beings are left with is this miserable language, beautiful though it is, that falls short of trying to describe—
 
 CAMPBELL: That’s right
+
+&nbsp;
+
+.
+
+# Bible verse John 1:1 ॐ
+
+Bible verse John 1:1 is one way to view AUM, ॐ
+
