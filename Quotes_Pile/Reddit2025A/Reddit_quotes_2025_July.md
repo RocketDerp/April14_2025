@@ -1166,3 +1166,31 @@ TweakedNipple 2013-11-25
 
 * :::=== RoundSparrow_Commentary : Information overload, mass man burnout, mass mind burnout. Donald Trump is the content creator of all time, how do those lyrics go: ["Why'd you choose such a backward time in such a strange land? If you'd come today you could have reached a whole nation. Israel in 4 BC had no **mass communication**."](https://www.youtube.com/watch?v=KJDgUoAQC8Y)
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ma1kve/melania_trump_very_involved_in_epstein_scandal/n5bo3a9/
+
+epicender584 2016-10-06
+
+"I think the people in power have finally decided that he's not a particularly useful idiot and they're controlling the narrative the way they usually do. while I'm delighted that this may mean his downfall, I can't imagine what replaces him will be sunshine and roaes"
+
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ma1kve/melania_trump_very_involved_in_epstein_scandal/n5bei5s/
+
+VruKatai 2014-02-19
+
+"When Maxwell gives her info to the feds to get out of prison, she'll offer up Dems/lefties while also making claims that clear Trump. So someone involved in trafficking girls (Maxwell) will go free, Trump will come out a hero and some Dems will (rightfully) be hung for being involved.
+
+What won't happen is Maxwell saying anything that implicates anyone other than Trump's enemies. This is all going to go down very, very badly and may even give Trump carte blanche to use his power as president to go after his political enemies."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ma1kve/melania_trump_very_involved_in_epstein_scandal/n5bln8o/
+
+Mad-farmer 2015-10-15
+
+"This person gets it, and this should be shouted to the heavens for all the rubes who worship Trump and the people who hate him alike. It’s obvious that a fix is coming: does no one see the very events happening right in front of their eyes?"
+
+* :::=== RoundSparrow_Commentary : ["But **the key thing** was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) - this is a point people do not grasp about religion-based monomyth mind-fuck, the *more obvious* the more it exploits the brain. Dress up in a funny Pope hat. Wear the orange skin makeup, it gets everyone talking about *skin color* (black brown), doesn't it? [Tony Clifton, Rapid Eye Movement REM dream state of Joyce's Finnegans Wake 19240 onward](https://www.youtube.com/watch?v=dLxpNiF0YKs)... *this mind exploit of crowds / Mass Man (McLuhan term) / peer pressure within audience* is the very 32D chess everyone mocks about Trump, Putin / Kremlin playing the Surkovian chess while everyone mocks the front-man Trump as *playing checkers*. Make no mistake Hillary Clinton worked for the State Department and was wife of a POTUS, make no mistake she does not use the [term "Puppet"](https://www.youtube.com/watch?v=cfm4L0TGDrw) simply. Of course, you will think I'm out of line / reaching... I suggest you take Malala's criticisms of Mecca / Saudi Arabia seriously. Malala's rise is post Arab Spring and parallels the Operation Matthew 4:19 launch, it offers a inverse Kremlin / Trump / MAGA mass mind (mass man) tracking path. ===:::
