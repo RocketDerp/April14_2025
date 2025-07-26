@@ -6,6 +6,8 @@ George Lucas filmed at Skywalker Ranch, California in summer of 1986 and summer 
 
 In summer of 1987, Joseph Campbell was age 83, he died later that year.
 
+![George Lucas with Bill Moyers and Joseph Campbell in 1986 or 1987](images/lucas_moyers_campbell.jpeg)
+
 &nbsp;
 
 BILL MOYERS: Eden was not. Eden will be.
