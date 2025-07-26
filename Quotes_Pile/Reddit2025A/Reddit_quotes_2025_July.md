@@ -1202,3 +1202,21 @@ https://old.reddit.com/r/politics/comments/1ma1kve/melania_trump_very_involved_i
 sausage_ditka_bulls 2016-03-15
 
 "Trump wasn’t a client. He was part of the management team. To me it looks like he was part of “procurement”. Sourcing the victims from his teen beauty pageants and now it seems like from Eastern Europe. Scum"
+
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/comics/comments/1ma5dod/i_cant_even_think_of_a_title_for_this/n5c2kjc/
+
+shellbullet17 2011-11-28
+
+"What's wild is there is MULTIPLE documentaries about this woman and the things she and Epstein did. Yet despite all the evidence, despite all the testimony, despite what happened to her partner in crime there is STILL people that defend her and even worse a chance that she will get away with it.
+
+> You sure you wanna read this?
+
+No but we have to. When youre done with the gas can pass it down the line. I think it's time we start over"
+
+* :::=== RoundSparrow_Commentary : REMINDER: "Everything is Possible" is paired *with* "Nothing is True" ([Everything is fiction](https://www.youtube.com/watch?v=FiK2qICPP4o), people do not desire or crave nonfiction). :::===
+
