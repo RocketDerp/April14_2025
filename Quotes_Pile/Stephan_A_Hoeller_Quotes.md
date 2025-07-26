@@ -26,6 +26,11 @@ https://youtu.be/08R1kPdfrHA
 
 VLC media app can play this very old RealAudio format link whcih is source: http://www.gnosis.org/CJ44.ram
 
+&nbsp;
+
+## Partial transcript
+
+&nbsp;
 
 The only American of the four, he was born in New York City in 1904. And he was educated at Columbia University, the University of Paris, and the University of Munich in Bavaria. In 1934, after having lived for a while in California, he joined the literary faculty of Sarah Lawrence College where he taught until his retirement.
 
