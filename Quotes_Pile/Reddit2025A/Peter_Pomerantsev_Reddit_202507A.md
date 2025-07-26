@@ -1040,3 +1040,12 @@ MagicianHeavy001 2024-03-18
 "It's no accident either. If you don't think that social media, designed to deliver little dopamine hits throughout the day, wasn't weaponized for spreading conspiracy theories and radicalizing people long ago...well, welcome to the new world order I guess.
 
 I worked in ads. It's easy to manipulate people if you control their supply of dope."
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1m9wp96/as_a_republican_i_say_we_need_to_stop_supporting/n5ay8dp/
+
+tomdarch 2012-01-14
+
+"It's more than feeling offended. Trump very much does not want certain plain and simple facts reported. On top of that he very much wants as much control of "the narrative" as possible. To do that through government power is radically contrary to the Constitution and the principles our nation is founded on."
+
