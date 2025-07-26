@@ -1130,4 +1130,4 @@ Unlikely_Repair9572 **2025-04-04 (recent account)**
 
 "Do they think the Palestinians are stealing Israel's land or something lmao?  Like they need to go live in France because they're living on someone else's land?"
 
-* :::=== RoundSparrow_Commentary : Note the social media laugh track "lmao" in the comment. Short Twitter-length comments with a built-in audience laugh track. Neil Postamn in year 1985 published a book called "Amusing Ourselves To Death".... ===:::
+* :::=== RoundSparrow_Commentary : Note the social media laugh track "lmao" in the comment. [Short Twitter-length](https://www.youtube.com/watch?v=wcY-x1VuWtE) comments with a built-in audience laugh track. Neil Postamn in year 1985 published a book called "Amusing Ourselves To Death".... ===:::
