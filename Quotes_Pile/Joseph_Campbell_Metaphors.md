@@ -55,7 +55,9 @@ Bible verse John 1:1 is one way to view AUM, ॐ
 
 As Campbell said: "AUM is a symbolic sound that puts you in touch with that resounding being that is the universe"... that is the metaphor of "the word" in Levant Bible verse John 1:1 - symbolic of languages.
 
-nbsp;
+&nbsp;
+
+.
 
 # God is an idea
 
