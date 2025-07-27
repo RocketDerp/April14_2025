@@ -28,6 +28,16 @@ Same page understandings and comprehensions.
 
 &nbsp;
 
+.
+
+### see also
+
+[Neil postman was correct in June 8, 2025 subdirectory](June8_2025/Neil_Postman_in_1985_correct.md)
+
+&nbsp;
+
+.
+
 ### writing
 
 incomplete. brain damage, broken, editing my own text is difficult. 
