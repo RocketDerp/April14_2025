@@ -43,12 +43,17 @@ Why oh why can social media users since December 2019, in year 2020, 2021, 2022,
 
 The original message is now gone, as the website hosting Lemmy instance was taken down due to the disaster of year 2025 social media informationw wars. Link dead: https://lemm.ee/post/64851740/20670405
 
+&nbsp;
+
 ## Pandemic Warnings August 24, 2018
 
-On the topic of social media being silent about pandemic warnings:
+On the topic of social media society being silent about pandemic warnings:
 
 https://www.bbc.com/news/world-us-canada-45294192
 
-This is 15 months before a virus escaped via airports in Wuhan, China to all over the world. How come compsracty theorists don't discuss *actual evidence and facts* from Johns Hopkins University and George Washington Unviersity?
+This is 15 months before a virus escaped via airports in Wuhan, China to airports all over the world. How come conspiracy theorists don't discuss *actual validated evidence and facts* from Johns Hopkins University and George Washington University?
 
 There is something wrong with the media ecology behaviors of social media consumers. Neil Postman was correct in his 1985 book "Amusing Ourselves To Death"...
+
+Measles outbreaks are going on in North America all year 2025, and social media users are ignoring that measles is in that August 24, 2018 BBC story. Our society-wide avoidance of nonfiction problem is extremely serious.
+
