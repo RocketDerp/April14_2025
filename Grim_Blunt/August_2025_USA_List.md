@@ -32,7 +32,7 @@ Same page understandings and comprehensions.
 
 ### see also
 
-[Neil Postman was correct discusses making "desired changes in society lists", in June 8, 2025 subdirectory](../June8_2025/[Neil_Postman_in_1985_correct.md#desired-changes-in-society-lists)
+[Neil Postman was correct discusses making "desired changes in society lists", in June 8, 2025 subdirectory](../June8_2025/Neil_Postman_in_1985_correct.md#desired-changes-in-society-lists)
 
 &nbsp;
 
