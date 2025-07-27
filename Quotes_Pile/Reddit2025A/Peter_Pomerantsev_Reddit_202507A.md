@@ -1137,3 +1137,14 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1manqd0/turning_our_country
 BluesSuedeClues 2023-05-05
 
 "This is much more similar to how Orban did it, than Putin. He's not openly seizing control of media, just putting cronies in positions of power and insuring that ownership is beholden to himself. This is how "soft dictatorship" works. We will still have elections, but the outcome will be decided in advance."
+
+&nbsp;
+
+https://old.reddit.com/r/teenagers/comments/1mapria/this_is_so_corny/n5gifxx/
+
+Living_The_Dream75 2021-03-22
+
+"The only reason why they’re advocating for memes is because humor is the only way they know how to try to hide the awful inhumane shit they’re doing. Joking about alligator Alcatraz is the only reason why the two brain cells in your average trump supporter’s brain aren’t rubbing together and realizing how fucking evil it is to rip a family apart, put them in a concentration camp, and then send them to random countries they have no affiliation with"
+
+* :::=== RoundSparrow_Commentary :  Yes. Humor is the best mind-fuck, Putin and Surkov have proven that abusrd surreal contradictory is a proven mass mind exploit. This is why Adam Curtis 2014, Peter Pomerantsev 2014 have be augmented with electric media ecology lessons from Neil Postman 1985, "Amusing Ourselves To Death". Americans adore mocking, insutling, imitating, copying Donald Trump and MAGA. Mocking is not resisting. Compusive brain exploits. ===:::
+  
