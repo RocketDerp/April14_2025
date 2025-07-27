@@ -1130,3 +1130,10 @@ black_flag_4ever 2013-10-15
 
 "The amount of distrust in government being planted right now will take a generation or more to recover from, if ever. This administration is as fake as the plastic, spray tanned faces that run it."
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1manqd0/turning_our_country_into_russia/n5fu22m/
+
+BluesSuedeClues 2023-05-05
+
+"This is much more similar to how Orban did it, than Putin. He's not openly seizing control of media, just putting cronies in positions of power and insuring that ownership is beholden to himself. This is how "soft dictatorship" works. We will still have elections, but the outcome will be decided in advance."
