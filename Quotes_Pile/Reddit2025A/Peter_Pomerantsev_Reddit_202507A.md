@@ -1113,3 +1113,11 @@ Thinkpad200 2016-06-11
 "Like his taxes and everything else he tries to cover up- it’s surreal how bad he is at it but gets away with it over and over. I hope I’m not getting too optimistic that Epstein seems different in terms of public reaction, but I have to remind myself how gullible his followers are."
 
 * :::=== RoundSparrow_Commentary : **Onion breath... eating the Surkovian Onions**... people just can't grasp that "surreal" is intentional. For god's sake, it's in the fucking title of Peter Pomerantsev's **year 2014 book**: [Nothing Is True and Everything Is Possible: **The Surreal Heart** of the **New Russia** is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media.](https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible) - the deeper question in July 2025 is why is the recency bias and *avoid Russia recall in the minds* of Americans so terrible that nobody is citing Adam Curtis 2014, Peter Pomerantsev 2014, Andrew Postman February 2017, Neil Postman 1985, etc *every day, all day* to call out the patterns of the forest for the barking at individual streaming memes of trees (social media comments / streaming social media latest news stories)! "it’s surreal how bad he is at it" - he is NOT bad at it, the American population (everyone, all inclusive, not just MAGA) is BAD AT finding Adam Curtis 2014, Peter Pomerantsev 2014 - bad at MEDIA ECOLOGY. "gets away with it over and over" - yes, that's [the very point of Neil Postman's **1985 book** "Amusing Ourselves To Death" ... what if Ronald Reagan 1985 became a role model of an EVEN WORSE President / POTUS icon - aka Donald Trump!](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). ===:::
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/inflation/comments/1majqxf/hell_slowly_see_the_consequences_for_himself/
+
+* :::=== RoundSparrow_Commentary : Front page of Reddit, Sunday July 27, 2025 morning: **"Were not divided by politics anymore. We're divided by reality."**, "I say it's denial". ===:::
