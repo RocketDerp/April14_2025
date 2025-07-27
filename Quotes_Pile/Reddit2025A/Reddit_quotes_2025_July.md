@@ -1322,3 +1322,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1manqd0/turning_our_country
 Crazy-Boysenberry452 2021-01-30
 
 "We are no longer sleep walking into dictatorship.  We woke up and decided to go full speed and now we are there. The other networks are next."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1man0bv/this_is_quite_possibly_the_worst_tweet_ever_made/
+
+The comments on this... grim USA July 2025. Age 12, age 13 sex topics.
