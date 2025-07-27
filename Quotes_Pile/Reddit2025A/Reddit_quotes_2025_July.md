@@ -1339,3 +1339,10 @@ Dull-Penalty5787 2021-04-29
 
 * :::=== RoundSparrow_Commentary : In year 1985, when Ronald Reagan entertainer was President, media theorist Neil Postman wrote a book called "Amusing Ourselves To Death" about electric media systems - Twitter, Reddit, Bluesky, TikTok... in 1985. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/teenagers/comments/1mapria/this_is_so_corny/n5h2kle/
+
+ChocoGoodness 2023-01-08
+
+"This is why people think America is a joke. Trump is acting like a fucking high school bully or an influencer. Not a President. A truly great president wouldn't be flaunting himself around and acting like he's better than everyone else."
