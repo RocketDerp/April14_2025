@@ -1069,3 +1069,12 @@ colmscomics 2019-07-19
 
 * :::=== RoundSparrow_Commentary : at times, I call this "Surkov Shuffle" in Surkovian Chess ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/BatmanArkham/comments/1mafyeo/hes_bringing_back_the_aslumes/n5f7mv4/
+
+"The list is being used to distract you from this, where Trumo can claim anyone he wants is “deranged” and throw them out of the public eye…literal Putin playbook stuff."
+
+MadeByTango 2018-06-29
+
+* :::=== RoundSparrow_Commentary : Yes. Locking up free thinking people who are stressed by Putin and Trump behavior is part of the Russian playbook. The Epstein "the list" is being manipulated with pardons to be used against political enemies of the Trump White House and Kremlin. People are claiming that everything happening in reality is actually a *distraction from Epstein*, when it is the inverse. Sex sells, rich men sex conquest sells better. People actually wanting to give voice to girls on social media have had since October 8, 2013 to quote Malala's book about empowring girls to stand up to elder men (Taliban rulers, Donald Trump elder rulers, Putin elder rulers) as a global movement. But people are attracted to (media ecology attraction) rich men sex content... that is the "distraction". Also note this comment was made in a community about films, comics, and video games (Batman). That is the distraction, bread and content circus. Trump White House / Surkovian governing is feeding the human mind exploit of total mockery entertainment, mocking back, not willing to turn away from amusement and entertainment of Ronald Reagan in 1985, the year 1985 when Neil Postman wrote his 184 page book "Amusing Ourselves To Death"... (have I repeated that enough? I'll keep repeating). ===:::
