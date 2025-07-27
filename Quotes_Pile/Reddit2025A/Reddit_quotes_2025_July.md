@@ -1364,3 +1364,5 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mavp8a/coming_to_terms_on_t
 Djwhat6 2017-07-07
 
 "Cause of how poor Bidens presidency was? I bet this person had no actual problems in his life while Biden was president. This guy is just another idiot who would vote for Trump all over again."
+
+* :::=== RoundSparrow_Commentary : [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.”](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) - October 19, 2024 - America’s gullibility crisis, Zachary Basu ===:::
