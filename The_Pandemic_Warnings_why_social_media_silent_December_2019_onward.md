@@ -32,3 +32,23 @@ Why oh why can social media users since December 2019, in year 2020, 2021, 2022,
 
 "It is only now beginning to be understood that cultures may also suffer grievously from information glut, information without meaning, information without control mechanisms.”
 ― Neil Postman, [Technopoly: The Surrender of Culture to Technology](https://www.goodreads.com/work/quotes/1511641-technopoly-the-surrender-of-culture-to-technology), 1992
+
+&nbsp;
+
+.
+
+&nbsp;
+
+# July 27, 2025 
+
+The original message is now gone, as the website hosting Lemmy instance was taken down due to the disaster of year 2025 social media informationw wars. Link dead: https://lemm.ee/post/64851740/20670405
+
+## Pandemic Warnings August 24, 2018
+
+On the topic of social media being silent about pandemic warnings:
+
+https://www.bbc.com/news/world-us-canada-45294192
+
+This is 15 months before a virus escaped via airports in Wuhan, China to all over the world. How come compsracty theorists don't discuss *actual evidence and facts* from Johns Hopkins University and George Washington Unviersity?
+
+There is something wrong with the media ecology behaviors of social media consumers. Neil Postman was correct in his 1985 book "Amusing Ourselves To Death"...
