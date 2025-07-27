@@ -1298,3 +1298,11 @@ realitytvwatcher46 2023-01-05
 "Democrats did nothing after he literally tried to have a mob overturn an election. No one’s gonna do anything to him, he just needs to give his base some plausible deniability. Their opinion is the only one that matters."
 
 * :::=== RoundSparrow_Commentary : The Reddit username "realitytvwatcher46" is a Peter Pomerantsev (Reality TV producer) an Donald Trump (Reality TV / Reality Twitter / Reality Truth Social actor) all in one ;) As for "Their opinion is the only one that matters." - this has proven true because the *influenced opposition* is bi-polar, logical, reactionary to MAGA / Trump White House. People (We The People, all inclusive, not just voters of legal age, etc) are engaged in the Surkovian governing media content without being able to call out Peter Pomerantsev, Adam Curtis, Surkov himself, connect it to multiple NATO nations and electric media platforms (Reddit vs. Facebook, Bluesky vs. Twitter, Fox News vs. The Daily Beast, etc, etc, etc). Bi-polar thinking, bi-polar minds, two-party logic, us vs. them behaviors, simplistic left vs. right **two and ONLY two ways to think, two sides to every problem, bi-polar thinking.** Exactly what the Great Seal of the United States of America from the Founding Fathers addresses, not *left vs. right*, but *front vs. back* sides of the pyramid and the [vertical](https://www.youtube.com/watch?v=rZoD8JEFjAE) horizon, 13 steps upward. Not [one-bit digital computer logic of us and them egoism](https://www.youtube.com/watch?v=lf208iObcww). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1makqte/jeffrey_epsteins_sex_trafficking_operation/n5fe3yu/
+
+BoldThrow 2017-09-21
+
+"It’s absolutely insane what happened to the Jack Smith investigation, and yet, I think we haven’t come close to seeing the peak of the craziness."
