@@ -1314,3 +1314,11 @@ https://old.reddit.com/r/politics/comments/1makqte/jeffrey_epsteins_sex_traffick
 keytotheboard 2019-05-07
 
 "Exactly. And we all know why nobody else is being prosecuted and it has little to do with evidence. Epstein is a well known socialite, who dined with the most elite people in the world. His clientele are going to be those people. The entire justice system is a farce."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1manqd0/turning_our_country_into_russia/n5fyh3u/
+
+Crazy-Boysenberry452 2021-01-30
+
+"We are no longer sleep walking into dictatorship.  We woke up and decided to go full speed and now we are there. The other networks are next."
