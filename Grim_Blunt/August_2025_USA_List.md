@@ -32,7 +32,7 @@ Same page understandings and comprehensions.
 
 ### see also
 
-[Neil postman was correct in June 8, 2025 subdirectory](June8_2025/Neil_Postman_in_1985_correct.md)
+[Neil Postman was correct in June 8, 2025 subdirectory](../June8_2025/Neil_Postman_in_1985_correct.md)
 
 &nbsp;
 
