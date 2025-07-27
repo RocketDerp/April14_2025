@@ -1220,3 +1220,54 @@ No but we have to. When youre done with the gas can pass it down the line. I thi
 
 * :::=== RoundSparrow_Commentary : REMINDER: "Everything is Possible" is paired *with* "Nothing is True" ([Everything is fiction](https://www.youtube.com/watch?v=FiK2qICPP4o), people do not desire or crave nonfiction). :::===
 
+&nbsp;
+
+# Sunday, July 27, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1macphs/i_cant_believe_she_tweeted_this/n5dqj8a/
+
+Meteor-of-the-War 2025-01-20 (this year)
+
+"You're asking the company whose AI called itself "Mecha Hitler" for a moral compass?"
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/agedlikemilk/comments/1macphs/i_cant_believe_she_tweeted_this/n5eggmm/
+
+VeganKiwiGuy **2025-07-21 (new account)**
+
+"People have selective empathy and can easily exclude humans and other sentient beings from their circle of moral consideration. 
+
+Take things right with animal consumption. Everyone who eats animals knows that they wouldn’t like to be treated the way animals are treated. 
+
+Yet, what do people do with their behavior? How do they react if someone suggests they stop and consider the animals even a tiny bit more than they do?
+
+MAGA Republicans do this human rights for people outside their circle of compassion. Israelis are excluding Palestinians now, hence the genocide. Average person does it 3x a day to animals, without a 2nd thought. 
+
+And all get mad when they’re called out on it, and refuse to change or adjust either their behaviors or beliefs."
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/agedlikemilk/comments/1macphs/i_cant_believe_she_tweeted_this/n5dwapk/
+
+GazelleSpringbok 2024-07-30
+
+"They quite literally always, and I do mean always, vote to block child marriage bans. They also marry 12 year olds when they are 40 to trap them in christianity based marriages of fear. Fear to have an abortion at age 12, fear to be banished from their community if they get divorced, fear of violence if they "act up" by questioning the psychotic nature of the things done to them. Chained to the kitchen and housework for decades, not allowed to follow their passions because those would take away time from their womenly duties eg. pumping out babies and doing unpaid work for decades and decades, all while being regularly sexually assaulted and abused. THAT is who the republicans are."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1macphs/i_cant_believe_she_tweeted_this/n5e9b93/
+
+woeful_haichi 2015-06-02
+
+"New Jersey lawmakers: A 13 year old girl is mature enough to get married.
+
+A 17 year old girl thinks the law should be changed: https://www.youtube.com/watch?v=B0lwiInZG1E
+
+New Jersey lawmakers: She's just a minor. She's too young to have an educated opinion about something as important as marriage!"
