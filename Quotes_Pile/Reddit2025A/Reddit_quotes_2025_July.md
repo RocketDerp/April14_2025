@@ -1328,3 +1328,14 @@ Crazy-Boysenberry452 2021-01-30
 https://old.reddit.com/r/clevercomebacks/comments/1man0bv/this_is_quite_possibly_the_worst_tweet_ever_made/
 
 The comments on this... grim USA July 2025. Age 12, age 13 sex topics.
+
+&nbsp;
+
+https://old.reddit.com/r/teenagers/comments/1mapria/this_is_so_corny/n5gjo43/
+
+Dull-Penalty5787 2021-04-29
+
+"America has become a fucking joke"
+
+* :::=== RoundSparrow_Commentary : In year 1985, when Ronald Reagan entertainer was President, media theorist Neil Postman wrote a book called "Amusing Ourselves To Death" about electric media systems - Twitter, Reddit, Bluesky, TikTok... in 1985. ===:::
+
