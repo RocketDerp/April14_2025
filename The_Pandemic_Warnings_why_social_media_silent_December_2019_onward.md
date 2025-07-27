@@ -41,7 +41,7 @@ Why oh why can social media users since December 2019, in year 2020, 2021, 2022,
 
 # July 27, 2025 
 
-The original message is now gone, as the website hosting Lemmy instance was taken down due to the disaster of year 2025 social media informationw wars. Link dead: https://lemm.ee/post/64851740/20670405
+The original message is now gone, as the website hosting Lemmy instance was taken down due to the disaster of year 2025 social media information wars. Link dead: https://lemm.ee/post/64851740/20670405
 
 &nbsp;
 
