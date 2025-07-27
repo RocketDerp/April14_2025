@@ -201,3 +201,10 @@ https://old.reddit.com/r/teenagers/comments/1mapria/this_is_so_corny/n5gj3gd/
 Usual_Connection8765 2023-07-14
 
 "People will try to be mad but ts is just too funny, this is the timeline of all time bro, imagine kids in the future having to look at this shit it the future lmao I'm gonna be laughing my ass off when my future kids come home and I see twitter posts of Ai ragebait in their textbooks"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mawbks/lets_make_this_video_of_trump_and_his_caddy/
+
+This is what makes it to the front page as a "social media, come together, make this video viral" post - Donald Trump golf course entertainment. What this society needs to upvote to the front page every 12 hours is quotes from Neil Postman, Adam Curtis, and Peter Pomerantsev... this is eating right out of the hands of Realty TV star Donald Trump. "The Apprentice" is fiction, he already knows fiction and cheating out-sells authentic "sleep Joe" Biden nonfiction.
+
