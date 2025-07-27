@@ -164,3 +164,22 @@ https://old.reddit.com/r/WatchPeopleDieInside/comments/1m239rb/astronomer_ceo_an
 People are attracted to rich people's sex lives. Epstein private jet, private island. This frenzy of activity isn't about the girls being abused, this is about the rumor and shit-talking against the wealthy elite like Trump / Epstein who get on the Jumbotrons. Gawking at the rich and successful.
 
 Again, social media users have grey-rocked Malala since publicaiton of her October 8, 2013 book. It isn't just the USA where elders of society punch down on little girls and sexually abuse them, force them into marriages, etc. This is a global problem of girls being manipulated and not educated on what is happening and the pattern of abuse by elders in power (Taliban elders, Donald Trump elders, Islamic Iran elders, Russian elders, etc, etc, etc). Support [the Pussy Riot band](https://www.youtube.com/watch?v=Bp-KeVBNz0A), support Malala, give *young girls* a voice to speak up and *shut this shit down* in a preventative way, stop giving voice to the bullshit White House July 2025.
+
+
+&nbsp;
+
+# July 27, 2025 thoughts
+
+https://vmst.io/tags/InfiniteTrumpismARG001100   
+https://autistics.life/tags/InfiniteTrumpismARG001100   
+https://bsky.app/hashtag/InfiniteTrumpismARG001100
+
+&nbsp;
+
+## Super Lie, Disco Ball 
+
+A spinning disco ball in a nightclub, reflecting indivdiaul ego desires of each person back to them, all seeing thier own reflection. That is what the Epstein information has become July 27, 2025.
+
+Texan Rick Roderick, 1993: ["we will be in a setting in which you won’t want the true, you will want the truer than true. You won’t even… The false won’t even be a good enough lie for you, you’ll want the lie better than a lie. I mean, the truer than true explanation."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/)
+
+It is wildcard memes, blank check meaning. It is Infinite Jest itself, in motion. It is electronic media systems, media notification opera, gone wild. ***Sex sells, private jet bling life, private islands / offsure wealth bling life.***
