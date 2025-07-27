@@ -1,9 +1,9 @@
 #include <stdio.h>
 
-// main is automatically called for applications.
+// main function is automatically called for applications.
 int main() {
    // printf() displays the string inside quotation.
    printf("Hello, World! RoundSparrow was here.");
-   // return excit code for app execution, 0 is normal exit, not an abend.
+   // return exit code for app execution, 0 is normal program exit, not an abend.
    return 0;
 }
