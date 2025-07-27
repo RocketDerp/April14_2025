@@ -1306,3 +1306,11 @@ https://old.reddit.com/r/politics/comments/1makqte/jeffrey_epsteins_sex_traffick
 BoldThrow 2017-09-21
 
 "It’s absolutely insane what happened to the Jack Smith investigation, and yet, I think we haven’t come close to seeing the peak of the craziness."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1makqte/jeffrey_epsteins_sex_trafficking_operation/n5fdt21/
+
+keytotheboard 2019-05-07
+
+"Exactly. And we all know why nobody else is being prosecuted and it has little to do with evidence. Epstein is a well known socialite, who dined with the most elite people in the world. His clientele are going to be those people. The entire justice system is a farce."
