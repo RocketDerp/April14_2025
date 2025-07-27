@@ -30,6 +30,14 @@ Lecture I.1.4 - New Horizons
 
 &nbsp;
 
+Also from:    
+November 16, 1961  
+Joseph Campbell  
+The Cooper Union  
+Lecture I.1.4 - New Horizons 
+
+&nbsp;
+
 But now when one says truth as a scientist one is being sentimental, because really the wonderful thing and the great challenge of the scientific revelation is that science itself does not pretend to be true. It does not pretend to be final.
 
 It is simply an organization of working hypotheses—hypotheses that seem to take account of the facts, as we now know them. But is there any intention to stay with these facts? No. There is a continuous quest for more, as though one were eager to grow as though the life of man, and of society here, were to be based on new things, on change, on transformation, rather than on petrifaction and rigidity. And so we don’t know anything. And even science itself is not the truth; it is only, so to say, an eagerness for the truth no matter where it may lead.
