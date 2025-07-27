@@ -1078,3 +1078,17 @@ https://old.reddit.com/r/BatmanArkham/comments/1mafyeo/hes_bringing_back_the_asl
 MadeByTango 2018-06-29
 
 * :::=== RoundSparrow_Commentary : Yes. Locking up free thinking people who are stressed by Putin and Trump behavior is part of the Russian playbook. If anything (speculation) [The Epstein "the list" could be manipulated with pardons (and other incentives) to be used against](https://people.com/ghislaine-maxwell-doj-epstein-associates-angles-trump-pardon-11779406) political enemies of the Trump White House and Kremlin. People are claiming that everything happening in reality is actually a *distraction from Epstein "the list"*, when it is far more likely the inverse. Sex sells, media content of sex puts Trump in the center of attention, rich men (status symbol) sex conquest sells better. People actually wanting to give voice to girls on social media have had since October 8, 2013 to quote Malala's book about empowring girls to stand up to elder men (Taliban rulers, Donald Trump elder rulers, Putin elder rulers) as a global movement. But people are attracted to (media ecology attraction) rich men sex content... that is the "distraction". Also note this comment was made in a community about films, comics, and video games (Batman). That is the distraction, bread and content circus. Trump White House / Surkovian governing is feeding the human mind exploit of total mockery entertainment, mocking back, not willing to turn away from amusement and entertainment of Ronald Reagan in 1985, the year 1985 when Neil Postman wrote his 184 page book "Amusing Ourselves To Death"... (have I repeated that enough? I'll keep repeating). ===:::
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/BatmanArkham/comments/1mafyeo/hes_bringing_back_the_aslumes/n5f8nih/
+
+kingsadboi5811 2022-08-14
+
+"I'm starting to think the Epstein shit is the distraction. I believe the plan is to have Maxwell list off a bunch of people Trump wants targeted and exonerate Trump. They will speed-run the process and bulldog past any legal snares and use it as a catalyst to propel into an even more grim future. I fear for anyone affiliated with the LGBTQ community."
+
+
+* :::=== RoundSparrow_Commentary : That would fit with the [long-term thinking of Operation Matthew 4:19 originated in November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) and announced to the whole world [in December 2013, immediately before the Ukraine war](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) went from online softening up of minds (media blitz) to February 2014 land grab / invasion. The December 2013 announcement by Putin / Kremlin was very specific that **sex roles / gender roles of tradition** (men grabbing women, Epstein / Maxwell "traditions" kind of gender roles) would be main trust for Conservative International 2013 to rally around: [The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of the West's **"genderless and infertile"** liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) ===:::
+
