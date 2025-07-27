@@ -2,6 +2,8 @@ Reddit posting:  https://old.reddit.com/r/ThePeoplesPress/comments/1jogeem/billi
 
 TITLE: Billionaires met in November 2013 and one month later announced in December 2013 that they were going to troll the entire world (over gender) to wage war against Ukraine - Operation Matthew 4:19 [OC]
 
+NOTE: this GitHub file name "Operation_Matthew_4_19_on_monday_2024-03-31.md" has an error in it, it should have been "Operation_Matthew_4_19_on_monday_2025-03-31.md" - in refernce to the March 31, 2025 posting date of the previously linked Reddit poswting. Oops.
+
 &nbsp;
 
 # Claims being made: Operation Matthew 4:19
