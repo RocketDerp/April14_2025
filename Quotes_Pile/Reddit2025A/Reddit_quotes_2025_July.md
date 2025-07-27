@@ -1346,3 +1346,5 @@ https://old.reddit.com/r/teenagers/comments/1mapria/this_is_so_corny/n5h2kle/
 ChocoGoodness 2023-01-08
 
 "This is why people think America is a joke. Trump is acting like a fucking high school bully or an influencer. Not a President. A truly great president wouldn't be flaunting himself around and acting like he's better than everyone else."
+
+* :::=== RoundSparrow_Commentary : Behaving like an ***Internet influencer*** which means a superstar of Reality Social Media. In year 1985, when [Ronald Reagan entertainer was President, media theorist Neil Postman wrote a book called "Amusing Ourselves To Death"](https://www.youtube.com/watch?v=ETUGwC9jXCM) ... ===:::
