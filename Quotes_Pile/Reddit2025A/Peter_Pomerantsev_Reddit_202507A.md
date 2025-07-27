@@ -1092,3 +1092,15 @@ kingsadboi5811 2022-08-14
 
 * :::=== RoundSparrow_Commentary : That would fit with the [long-term thinking of Operation Matthew 4:19 originated in November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) and announced to the whole world [in December 2013, immediately before the Ukraine war](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) went from online softening up of minds (media blitz) to February 2014 land grab / invasion. The December 2013 announcement by Putin / Kremlin was very specific that **sex roles / gender roles of tradition** (men grabbing women, Epstein / Maxwell "traditions" kind of gender roles) would be main trust for Conservative International 2013 to rally around: [The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of the West's **"genderless and infertile"** liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) ===:::
 
+&nbsp;
+
+"Which makes it so weird that they did that entire press BS at the White House - handing out binders that included cover pages with Epstein files referenced - done for his closest, rabid, ass-sucking followers.
+
+Why do that? Around that time is when his AG (?) told him that she is all over it, and also reassure the American people that she is happy covering for multiple people while they rape young girls.
+
+At least she knows where she stands.
+
+Edit: werds"
+
+* :::=== RoundSparrow_Commentary : the crisis of USA social media society not reading or recalling **year 2014** Peter Pomerantsev and **year 2014 Adam Curtis**: ["We live with a constant vaudeville of contradictory stories that makes it impossible for any real opposition to emerge, because they can't counter it with any coherent narrative of their own."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) .. repeating what the Reddit comment said: "Which makes it so weird that they did that entire press BS at the White House", "Why do that?" ... that's how Surkovian chess, Surkovian govening, works! This is Russia year 2012 behavior of the Kremlin as detailed by Peter Pomerantsev. The crisis is that social media users have such receny bias and are so fixated on domestic USA - that they can't discuss and translate the schema to Russia year 2012 / Peter Pomerantsev publications year 2014. The [Putin Media Invasion has so addeled the entire population of USA with the 5,000 mind-fuck patterns](https://www.facebook.com/konstantin.rykov/posts/10210643558675446), *we the people people* can't recognize the forest for the trees (how long this has been going on, and the [multiple nations reporting Russia media invasion such as the Paris Olympics](https://www.pbs.org/newshour/world/how-russian-disinformation-campaigns-have-sought-to-undermine-the-paris-olympics)). ===:::
+
