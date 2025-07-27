@@ -325,3 +325,12 @@ https://old.reddit.com/r/agedlikemilk/comments/1m8gsrg/these_people_are_truly_su
 
 Americans calling Americans subhuman, without a one on any of the social media platforms shown in the Reddit posting able to cite Peter Pomerantsev, Christopher Wylie. Just endlesss usage of social machines to dehumanize and hate upon American people and not able to say a single thing about Cambridge Analytica and Russian Internet Research agency since 2013.
 
+&nbsp;
+
+# Sunday, July 27, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1manqd0/turning_our_country_into_russia/
+
+People on social media talk about Russia and USA media together, but not a soul can cite Peter Pomerantsev year 2014 writings, which need to be repeated and repeated and repeat.
