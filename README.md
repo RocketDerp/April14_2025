@@ -4,7 +4,7 @@ Long-form scratch pad / dumping ground.
 
 Many of this is extremely raw product of brain damage attempting to express ideas. Not edited, not spell checked, serious problems with language brain issues.
 
-Thank you. Love to all.
+Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 
 &nbsp;
 
