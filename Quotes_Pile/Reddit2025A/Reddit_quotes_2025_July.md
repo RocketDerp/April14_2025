@@ -1271,3 +1271,13 @@ woeful_haichi 2015-06-02
 A 17 year old girl thinks the law should be changed: https://www.youtube.com/watch?v=B0lwiInZG1E
 
 New Jersey lawmakers: She's just a minor. She's too young to have an educated opinion about something as important as marriage!"
+
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1macphs/i_cant_believe_she_tweeted_this/n5ds5pj/
+
+misfortunesangel 2021-01-30
+
+"As a girl who grew up in the 70s and 80s it was gross for guys in their 40s and 50s to grope young girls even way back when I was that young. Even if those perverts didn’t get it. It was common for grown men to grab our asses and breasts in public places and not expect anything to be done about it. Just some of us girls weren’t confident enough to clobber them and give them a piece of our mind yet. I was considered one of those cranky girls."
+
