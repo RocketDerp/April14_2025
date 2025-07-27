@@ -1281,3 +1281,10 @@ misfortunesangel 2021-01-30
 
 "As a girl who grew up in the 70s and 80s it was gross for guys in their 40s and 50s to grope young girls even way back when I was that young. Even if those perverts didn’t get it. It was common for grown men to grab our asses and breasts in public places and not expect anything to be done about it. Just some of us girls weren’t confident enough to clobber them and give them a piece of our mind yet. I was considered one of those cranky girls."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1makqte/jeffrey_epsteins_sex_trafficking_operation/n5f74zz/
+
+terayonjf 2013-05-14
+
+"Which is why trump is going to offer her a pardon to throw a bunch of people under the bus, pretend he was a saint who not only never got involved but didn't even know anything was happening. Then he can tout how amazing he is and how it was all a witch hunt by the left and media to interrupt his "amazing " presidency. The worst part is its going to work for his base because it gives them enough to latch on to."
