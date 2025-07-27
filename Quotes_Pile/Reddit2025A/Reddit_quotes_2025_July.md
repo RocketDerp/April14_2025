@@ -1356,3 +1356,11 @@ https://old.reddit.com/r/teenagers/comments/1mapria/this_is_so_corny/n5gsdtz/
 PandaStrafe 2019-05-29
 
 "Department of education is gone, birthright citizenship with 200+ years of precedent is under attack, nearly 50% of cancer research funding + 40% of NIH funding cut, 10 million plus Americans kicked off health insurance, attacking higher education, making most of our global allies despise us, having north korea style military parades, having a rise of American children being infected with vaccine preventable diseases, and ignoring federal court mandates. Yep, just awesome."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mavp8a/coming_to_terms_on_their_fb_status/n5hlqvu/
+
+Djwhat6 2017-07-07
+
+"Cause of how poor Bidens presidency was? I bet this person had no actual problems in his life while Biden was president. This guy is just another idiot who would vote for Trump all over again."
