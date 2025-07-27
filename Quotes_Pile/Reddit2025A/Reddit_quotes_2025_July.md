@@ -1288,3 +1288,11 @@ https://old.reddit.com/r/politics/comments/1makqte/jeffrey_epsteins_sex_traffick
 terayonjf 2013-05-14
 
 "Which is why trump is going to offer her a pardon to throw a bunch of people under the bus, pretend he was a saint who not only never got involved but didn't even know anything was happening. Then he can tout how amazing he is and how it was all a witch hunt by the left and media to interrupt his "amazing " presidency. The worst part is its going to work for his base because it gives them enough to latch on to."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1makqte/jeffrey_epsteins_sex_trafficking_operation/n5f8xzy/
+
+realitytvwatcher46 2023-01-05
+
+"Democrats did nothing after he literally tried to have a mob overturn an election. No one’s gonna do anything to him, he just needs to give his base some plausible deniability. Their opinion is the only one that matters."
