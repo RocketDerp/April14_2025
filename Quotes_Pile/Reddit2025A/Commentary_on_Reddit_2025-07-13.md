@@ -334,3 +334,9 @@ Americans calling Americans subhuman, without a one on any of the social media p
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1manqd0/turning_our_country_into_russia/
 
 People on social media talk about Russia and USA media together, but not a soul can cite Peter Pomerantsev year 2014 writings, which need to be repeated and repeated and repeat.
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1maqnnn/president_trump_ranting_about_windmills_again_we/
+
+Discussion about Donald Trump alternate reality that windmills kill.
