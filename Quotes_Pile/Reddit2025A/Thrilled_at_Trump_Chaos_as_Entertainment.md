@@ -194,3 +194,10 @@ Lanoris 2016-01-29
 
 I guess to magas and conservatives hes trash no matter what he does, but I feel like to everyone else here, at least half of things she said about Mamdani are why people would WANT to vote for him."
 
+&nbsp;
+
+https://old.reddit.com/r/teenagers/comments/1mapria/this_is_so_corny/n5gj3gd/
+
+Usual_Connection8765 2023-07-14
+
+"People will try to be mad but ts is just too funny, this is the timeline of all time bro, imagine kids in the future having to look at this shit it the future lmao I'm gonna be laughing my ass off when my future kids come home and I see twitter posts of Ai ragebait in their textbooks"
