@@ -1121,3 +1121,12 @@ Thinkpad200 2016-06-11
 https://old.reddit.com/r/inflation/comments/1majqxf/hell_slowly_see_the_consequences_for_himself/
 
 * :::=== RoundSparrow_Commentary : Front page of Reddit, Sunday July 27, 2025 morning: **"Were not divided by politics anymore. We're divided by reality."**, "I say it's denial". ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mavpe0/cia_director_new_secret_documents_will_expose/n5hlwa0/
+
+black_flag_4ever 2013-10-15
+
+"The amount of distrust in government being planted right now will take a generation or more to recover from, if ever. This administration is as fake as the plastic, spray tanned faces that run it."
+
