@@ -116,6 +116,6 @@ And you have The Little Guy, Jen Senko, speaking Truth to Power... and social me
 
 But social media internet society is not getting behind "The Litlte Guy", that's the problem with spirtual and religion.  People are far more enthusiastic about sports stars than people making books and films about the entire world *progress / progressive* improvements.  Millions of messages a day of people bitching about Fox News and Newsmax, why can't Jen Senko be the **baby boomer who stood up to the other baby boomers and spoke critical thinking**? And her inspire people to make their own films, books, podcasts if her work isn't satifying everyone?
 
-yes, this writing is poor. If I could do better, I would Brain damage from all these topics and information warfare. And I am FAR from the only person brain damaged by Trumpism / MAGA / Cambridge Analtyica media. Reminder: "Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/)
+yes, this writing is poor. If I could do better, I would... Brain damage from all these topics and information warfare. And I am FAR from the only person with (mass mind) brain damaged by Trumpism / MAGA / Cambridge Analtyica media. Reminder: "Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/)
 
 
