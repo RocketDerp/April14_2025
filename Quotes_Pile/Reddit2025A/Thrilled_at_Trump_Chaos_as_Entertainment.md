@@ -208,3 +208,16 @@ https://old.reddit.com/r/NoFilterNews/comments/1mawbks/lets_make_this_video_of_t
 
 This is what makes it to the front page as a "social media, come together, make this video viral" post - Donald Trump golf course entertainment. What this society needs to upvote to the front page every 12 hours is quotes from Neil Postman, Adam Curtis, and Peter Pomerantsev... this is eating right out of the hands of Realty TV star Donald Trump. "The Apprentice" is fiction, he already knows fiction and cheating out-sells authentic "sleep Joe" Biden nonfiction.
 
+&nbsp;
+
+# Monday July 28, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mbe97f/trump_in_rage_mode_as_epstein_storm_refuses_to/n5lf5il/
+
+FriendlyNative66 2020-07-27
+
+"I find this whole thing disgusting and yet very amusing."
+
+That's exactly what Russia and Cambridge Analytica weaponized. The human mind can be exploited, brains fucked, with absurd surreal comedy. Tony Clifton weaponized. 
