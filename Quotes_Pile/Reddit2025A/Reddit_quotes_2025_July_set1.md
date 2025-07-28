@@ -86,4 +86,20 @@ Hating on gay people is against "love thy neighbour". If a "christian" judges a 
 
 &nbsp;
 
-:::=== RoundSparrow_Commentary : "There really are no unforgivable sins" - someone who grasps Bible verse Romans 11:32 - there is no Hell, mercy is always the outcome of sin in the Romans 11:32 equation. See Dublin Ireland James Joyce's body of work for langauge proof on verse Romans 11:32. Backed up by Joseph Campbell (New York City, not an Irishman, independent of Joyce). If we can't get MAGA / Fox News audience / Donald Trump fanatics to grasp a 2,000 year old book that is really not that thick, what hope do we have with people interpreting TV shows, films, other books? ===:::
+:::=== RoundSparrow_Commentary : "There really are no unforgivable sins" - someone who grasps Bible verse Romans 11:32 - there is no Hell, mercy is always the outcome of sin in the Romans 11:32 equation. See Dublin Ireland James Joyce's body of work for langauge proof on verse Romans 11:32. Backed up by Joseph Campbell (New York City, not an Irishman, independent of Joyce). If we can't get MAGA / Fox News audience / Donald Trump fanatics to grasp a 2,000 year old book that is really not that thick, what hope do we have with people interpreting TV shows, films, other books, music lyrics? ===:::
+
+&nbsp;
+
+Uhh_JustADude 2020-05-26
+
+https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5lt3hg/
+
+"Trump was amazing for media ratings, ad revenue, and subscriptions. Every day a circus. Of course they wanted him back."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5lxcr6/
+
+No-Group7343 2022-02-26
+
+"The media is owned by conservatives . . They control the narrative, that's why trump went after pbs"
