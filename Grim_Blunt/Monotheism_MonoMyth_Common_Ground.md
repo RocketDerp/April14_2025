@@ -32,7 +32,7 @@ Living in Gaza and parenting in year 2024. Living in Ukraine and parenting in ye
 
 # Monotheism
 
-One god or manny gods, one agreement.
+One god or many gods, one agreement.
 
 I sometimes view Islam as a revision of Christianity from the perspective that prayer was taken to structure and routine. Like adding automatic routine oil changes for a internal combustion gasoline mechanical car engine. Or routine m aintenace on an aircraft engine.
 
@@ -61,7 +61,24 @@ In my 55 years alive and world travels, I agree with Joseph Campbell at age 83:
 1. "That’s the reduction of mythology to theology. Mythology is very fluid. Most of the myths are self-contradictory. You may even find four or five myths in a given culture, all giving different versions of the same mystery. Then theology comes along and says it has got to be just this way. Mythology is poetry, and the poetic language is very flexible. Religion turns poetry into prose. God is literally up there, and this is literally what he thinks, and this is the way you’ve got to behave to get into proper relationship with that god up there."
 2. "ou have to break past your image of God to get through to the connoted illumination. The psychologist Jung has a relevant saying: “Religion is a defense against the experience of God.” The mystery has been reduced to a set of concepts and ideas, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An intense experience of mystery is what one has to regard as the ultimate religious experience."
 
-3. &nbsp;
+&nbsp;
 
-4. blah blah blah. I may never revisit this page or fix the mistakes.I don't know.
-5. 
+blah blah blah. I may never revisit this page or fix the mistakes.I don't know. What I wrote on this page is incomplete, not what I agree with, more an attempt to shuffle around ideas that come from other people (I was thinking about [Asimov's Foundation book stories about the robots influencing](https://www.youtube.com/watch?v=1mKCKt3xRnw) human history for tens of thousands of years, laying a pattern out for [psychohistory](https://en.wikipedia.org/wiki/Foundation_universe#Psychohistory) shortly before I opened and created this page you are reading). 
+
+I have a strong desire that humanity cherry-pick from all religions, all the public library, good ideas. Living under Donald Trump in July 2025 ... people are seeking bad, attracted to badness itself, and self-harm on a national scale in the USA. Just as I see in September 2023 the Palestine / Gaza society was self-harming on a national scale (and I am so sad to see social media users not quote / assert / reepeat with regularity Malala Yousafzai since October 8, 2013 publication of her book... the lack of attraction to great thinking and ideas about mass man / society / global behavior and reformation). 
+
+Asimov's Psychohistory is about avoiding major wars / chaos / self-harm. In my view, it isn't about Malala being the best, number one winner, it is that she clearly has her finger on exactly what Joseph Campbell said in year 1987 earlier in this document: "the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression? This is a problem that the world is going to have to face" - and Malala was born 10 years after that summer 1987 statement... her birthdate July 12, 1997.  She intuitvely expereinced this in Swat Valley Pakistan.
+
+["everything changed when the Taliban took control of their town in Swat Valley. The extremists banned many things — like owning a television and playing music — and enforced harsh punishments for those who defied their orders. And they said girls could no longer go to school. In **January 2009, when she was just 11 years old**, she said goodbye to her classmates, not knowing when — if ever — she would see them again."](https://malala.org/malalas-story)
+
+Clearly she was on the world information systems / public libraries / internet when her book was released October 8, 2013. And in all the years since (July 28, 2025 as I type this page), I have seen very little in the Islamic socitey or USA / UK / media / social media that says: we really should have given more lip service / more repeating of Malala. It is also in my mind that [one month after](https://en.wikipedia.org/wiki/Miss_Universe_2013) October 8, 2013 publication of Malala's book... is when Donald Trump was setting role models for girls in Moscow. And then one moth after that, in December 2013, the ["Conservative International 2013" global movement](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) was formally announced - basically *Talian values* initiative that has fueled the rise of Donald Trump here in the USA.
+
+Further... media ecology wise, you have Malala's book at the public library October 8, 2013 ... and you have the Russian Internet Research Agency online and active in middle 2013. ["The Internet Research Agency itself, founded last summer (summer of 2013), now employs over 600 people"](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) - June 2, 2014.
+
+And guess which shit gets repeated... hate motivates, hate thrives, Fox News is the most popular HDTV news network in USA... anonymous no-identity social media where only rich and famous people use their real names (or people selling things with LinkedIn or book author or other "my brand" selling personas)... but Reddit, Twitter... whcih are influential to various groups - is almost all people who hide real names and real life since year 2013 and let certain sellint-oriented or famous and rich people use their real names. That's a vast topic. More concering is Fox News popualrity, **year 2015**: ["Fox News, with a dominant primetime lineup and host to the most-watched presidential primary debate on record, remained the No. 1 ratings player in cable news and finished second overall to ESPN in primetime total viewership — the highest-ever finish for any cable news network."](https://variety.com/2015/tv/news/cable-news-ratings-cnn-top-gainer-fox-news-channel-dominant-1201666151/)
+
+All of year 2015, the full year, Malala's book surely was on the public library shelf and quotes handy in all her book tours in late 2013. Published October 8, 2013 ... that gives more than 14 full months before start of January 2015... so the book was out there.  But what do Americans see that the word needs? Rupert Murdoch messages, flocking to Rupert Murdoch's ideas and views.
+
+blah blah blah blah blah blah blah, can't someone else write this who is't so sick of living in this stew of Donald Trump hate-worship and [Donald Trump hate clubs since November 2012](https://www.theguardian.com/world/2012/nov/07/donald-trump-twitter-tirade-obama)? The hate and mass dehumanization just keeps getting worse every single month since November 2012 when Trump became rise to the center of attention was in motion. Every fucking day, every month, worse than the last. July 2025 USA is nightmare levels worse than ever.
+
+
