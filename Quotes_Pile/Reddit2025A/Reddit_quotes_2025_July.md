@@ -1434,3 +1434,15 @@ Though Wexner cut ties with Epstein in 2007, he didn’t claim Epstein misapprop
 Wexner was Epstein’s financier, pure and simple. Without Wexner there would be no jets, no mansions, no island. Wexner was the top guy in this nest of spies. Epstein was the middle man doing the dirty work. It’s a story as old as time. Wexner will walk away unscathed,"
 
 * :::=== RoundSparrow_Commentary : I enjoy this kind of long-form Reddit comment, but since year 2015 I have found that hostile agents weaponize the spam filters of the Reddit server-side to filter out important links. What is designed to prevent spam links ends up getting comments black-holed because the filters are manipulated by outsiders to Reddit (feeding in important topic links with spam junk and have the links blacklisted, a type of information attack). At minmum, since links may not work without the comment being unpublished, the person should cite some authors names on any of the sources for this information. Because it is this style and tone of communictions that people accept without fact-checking because the labor clearly went into the writing. But it really should not be published without citing a book author or article, ideally a link. Unique proose on social media is popular, but frankly, all these kinds of public topics that get repeated day after day would be far better on a Wiki style system with refined editing and links for citations. People are in a media frenzy on these topics, accurate information deserves citation. (the specific CNN reference is great) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mb8oak/bill_clinton_getting_a_massage_from_epstein/n5liyh3/
+
+cataath 2014-01-13
+
+"Epstein was a master manipulator and a con artist, but he was also a cog in a much bigger network that leads to much more powerful individuals. That person who he conned into getting his teaching job was the headmaster of the Dalton School, Donald Barr. Barr was an OSS officer operating in Europe during WW2 who worked HUMINT, and had a knack for funding the right people and getting them in the right place to extract intelligence. He was instrumental in getting a young Jewish resistance fighter working with British Intelligence into a position as official censor of all German newspapers in the postwar period. That person was Robert Maxwell, who would go on to build a publishing empire in England. Robert was the father of Ghislaine, and Donald was the father of former AG William Barr.
+
+By all accounts it was Donald who found Epstein, not the other way around. Donald and Jeffrey also seemed to have similar interests; Donald Barr published a sci-fi novel called Space Relations, in which the protagonist travels to conduct negotiations on a slave planet, gets captured, becomes the property of a high society dominatrix. The two fall far each other and spend their days SAing teenaged girls together.
+
+It's interesting that Donald Barr and Jeffery Epstein happened to find each other, no? And that is just one of the many connections linking Epstein to US, British, and Israeli intelligence, the Uber rich, and the politically connected."
