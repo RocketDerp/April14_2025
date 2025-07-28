@@ -1483,3 +1483,14 @@ Few_Eye6528 2020-11-10
 
 * :::=== RoundSparrow_Commentary : Yes... MAGA, Taliban in Pakistan, Donald Trump are *badness itself*, the quesiton is **why are people attracted to the content created by Donald Trump** - why do people think it is fun all day every day on social media hate clubs to mock and insult Donald Trump? Poopy diapers, cheats at golf, sex with children messages, orange skin. Why are people so *egaged with the fiction media content* that Donald Trump creates as a Reality TV / Reality Media superstar? - Reddit comment says: "Trump is everything that is wrong with humanity" - this is in itself a Twitter-length Bluesky-short message reaction comment. That's what drives Donald Trump's power. This isn't thinking, it's pressing a button on a computer machine like White House is all a video screen game and not *real life*. This is [amusement and entertainment](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) attraction, *even if you hate upon Donald Trump*, you are still entertained like Darth Vader in Star Wars may entertain you and you wish to collect and wear his custome for Halloween parties! The problem of USA 2025 is not that different from Afghanistan 2025 or Pakistan 2025 with the Taliban - why are people attracted to fiction storytelling and badness itself? And how do you solve this? And [when did it start? Answer: March 2013 in USA](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mbcnyx/they_just_cant_handle_that_trump_is_probably/n5l6lyt/
+
+Turd_Schitter 2022-03-09
+
+"Wait... MAGA hogs humiliating themselves with their own stupidity in defense of a diaper-wearing, dementia-addled, fussy, bitchy pedophile game show host that hates them and their families?
+
+Well now I've seen everything."
+
+* :::=== RoundSparrow_Commentary : This social media consumer is *engaged*, they are thrilled at being able to insult a status symbol icon, front man of the White House. Donald Trump is Tony Clifton, and the audience is [eating the Surkovian onions and enjoys the burning sensation of hate itself](Surkovian_Onion_Eating.md). Donald Trump inpsires hate, and hate is engagement (not removal). That's how Surkovian governing works! Everybody hates Putin, but he has been in power for 25 years... [the *hate itself* is the key](../Martin_Luther_King_Jr_quotes0.md) to Putin's success! **TO BREAK THIS PATTERN** you have to educate, saturate, 184 page book from Neil Postman to every person age 12 to 120 (even if non-voters) in society. And make Neil Postman and Peter Pomerantsev **household names, and repeat the conversations every few days until everyone understand and comprehends mob mentality / [mass man (Marshall McLuhan terminology) behaviors](https://www.organism.earth/library/document/mcluhan-mcmanus) of media ecology** ===:::
