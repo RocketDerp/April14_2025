@@ -197,3 +197,11 @@ https://old.reddit.com/r/technology/comments/1mbp2my/trump_threatens_to_withold_
 stellae-fons 2020-08-04
 
 "This entire administration is trying to make life as miserable as possible for everyone as some kind of punishment."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mbp2my/trump_threatens_to_withold_billions_from_states/n5o1q6x/
+
+Q3tp 2018-04-03
+
+"Has this administration done anything to help any of the normal people? It's just crazy It's like they go out of their way to hurt as many Americans as possible."
