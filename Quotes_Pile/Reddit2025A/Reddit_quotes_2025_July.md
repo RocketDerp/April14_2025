@@ -1550,3 +1550,16 @@ https://old.reddit.com/r/PublicFreakout/comments/1mbi0q8/trump_on_epstein_island
 kakarot-3 2024-06-13
 
 "And if he confesses, what happens? All Republicans are fine with it and they’re the ones in control of Congress. Nothing changes. He’s gotten away with any and every thing he wants to get away with. At this point, I have no faith the system will do anything because the system was built to protect people like him"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mbk8w6/trump_79_demands_murdoch_94_is_deposed_before_he/n5mue4n/
+
+Extreme_Sherbert_967 2024-11-25
+
+"I would be inclined to agree if I didn’t live in Florida. I’ve seen them worship Harvard educated DeSantis only second to Trump. And he’s a weird dork just like JD."
+
+* :::=== RoundSparrow_Commentary : Putin himself does in no way *behave like* or have the branding of Donald Trump, but the Surkovian techniques of contradictory media work fine for Putin in Russia. We have the same brains in the USA as Russian brains. Even before Donald Trump was elected in November 2016, the March 2013 onward Internet Research Agency and Cambridge Analytica techniques were working over the population. A society facing scientific reality and truth would never self-harm by having more than 5% of people supporting Donald Trump. But people are living in alternate realities induced by the Russian information warfare. Fox News fiction storytelling is a technique of *media ecology*, it is a *cult of media*, like Scientology fiction storytelling - even if L Ron Hubbard is dead, the media itself works over the population. Jesus is dead, the fiction story works. Mohammad is dead, the Quran fiction story works. The [technique of Surkovian media Menace of Unreality works](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) independent of the person. ===:::
+
+
+
