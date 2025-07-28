@@ -1410,3 +1410,27 @@ Solomon_Grungy 2013-08-20
 "That would seem to be the kernel from which all of his wealth grew from. Blackmail, Extortion, Honeypots. In a machiavillian way I can understand how this type of person can succeed beyond the wildest dreams of a common person. The type of power this allows a person to wield. You never stop. It's not just wielding this leverage against one person. It grows endlessly. You use the leverage you have from one person to financially enable other businesses, get clean people involved, enact other scenarios and prepare to capture further compromising materials on new people, rise and repeat.
 
 It's really shocking to consider but it makes sense. Jeffrey ran the most prominent honeypot operation in History."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mb8oak/bill_clinton_getting_a_massage_from_epstein/n5l6wyt/
+
+CharleyNobody 2021-01-02
+
+"Epstein didn’t “weasel his way in” to Victorias Secret. He was hired as Les Wexner’s financial advisor in 1987. In July 1991, Wexner granted Epstein power of attorney and instated him as a trustee on the board of the  Wexner Foundation.
+
+Les Wexler didn’t just own Victorias Secret. He also owned Lerner’s, The Limited, Henri Bedel, White Barn Candle, Lane Bryant, Abercrombie and Fitch, Express, and Bath and Body Works. He also owns myriad smaller businesses like trucking companies.
+
+He has managed to keep himself out of the spotlight despite appearing to be the only client of Jeffrey Epstein. He is a major donor and supporter of Israel. Is he Mossad? That’s a question nobody will answer, especially Wexner.
+
+Some women sued Victoria’s Secret in 1990s because they say they were assaulted by Jeffrey Epstein (and one of the women included Ghislaine Maxwell in her lawsuit). Yet Wexner didn’t cut ties with Epstein until 18 months after Epstein was charged with sexual molestation of a minor in 2006/07.
+
+I sincerely doubt a man with the business acumen of Les Wexner sat around and let Epstein “misappropriate vast sums of money.” Wexner is no somnolent old clueless heir to a fortune. He built his empire with some help from his parents, but he was the one who made a powerhouse of multiple complex companies, not his family. He’s a very smart guy. He has been extremely active over the years in philanthropy at Ohio State University and in Jewish philanthropies.
+
+Wexner is no victim of Jeffrey Epstein anymore than Ghislaine Maxwell was. In 2012 CNN Money described Wexner as the longest serving CEO of a Fortune 500 company.He was on Harvard Business Review's Top 100 Best Performing CEOs in the World, ranked number 11 in 2015 and number 34 in 2016.
+
+Though Wexner cut ties with Epstein in 2007, he didn’t claim Epstein misappropriated funds until 2019 in a letter he addressed to the Wexner Foundation when Epstein was jailed a second time, a few days before Epstein’s death. Funny it took this savvy businessman 12 years to discover/publicize this supposed fraud.
+
+Wexner was Epstein’s financier, pure and simple. Without Wexner there would be no jets, no mansions, no island. Wexner was the top guy in this nest of spies. Epstein was the middle man doing the dirty work. It’s a story as old as time. Wexner will walk away unscathed,"
+
+* :::=== RoundSparrow_Commentary : I enjoy this kind of long-form Reddit comment, but since year 2015 I have found that hostile agents weaponize the spam filters of the Reddit server-side to filter out important links. What is designed to prevent spam links ends up getting comments black-holed because the filters are manipulated by outsiders to Reddit (feeding in important topic links with spam junk and have the links blacklisted, a type of information attack). At minmum, since links may not work without the comment being unpublished, the person should cite some authors names on any of the sources for this information. Because it is this style and tone of communictions that people accept without fact-checking because the labor clearly went into the writing. But it really should not be published without citing a book author or article, ideally a link. Unique proose on social media is popular, but frankly, all these kinds of public topics that get repeated day after day would be far better on a Wiki style system with refined editing and links for citations. People are in a media frenzy on these topics, accurate information deserves citation. (the specific CNN reference is great) ===:::
