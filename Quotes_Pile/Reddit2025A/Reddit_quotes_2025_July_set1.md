@@ -127,3 +127,13 @@ https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5n9
 survivor2bmaybe 2019-07-28
 
 "Every normal politician has one bad thing the media can harp on every time his or her name is brought up. Every normal presidency has one or two bad problems for the media to focus on. With this guy there’s some horrible new behavior or horrible new problem he’s causing in the country or the world everywhere you can point a camera. Honestly surprised the Epstein thing has such legs given that he’s doing his best to distract from it. Everything from threatening to prosecute Beyoncé to threatening to put the homeless in concentration camps to using Pentagon funds for his private jet to openly cheating at golf. At this point, he might have to start a war."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5n9zyn/
+
+drstelly2870 2014-12-09
+
+"AND NOW they are somehow ok with ALL of this STILL EXISTING but worse and now some seem to be ok with Trump maybe being a pedo. Well you know who got played by these gross trogolodytes??? All of US! Sensible people who have been arguing with these Neanderthals' when they had no bottom! They have been erecting nooses and driving their cars int crowds THIS WHOLE time and we have been "debating w/ facts" exhaustively online with these mole people!"
+
+* :::=== RoundSparrow_Commentary : This is why you focus on media itself. We have known the Rupert Murdoch Fox News problem. Why is baby boomer Jen Senko not good enough for social media users to repeat and repeat and keep repeating since March 2016 film release? Which is BEFORE November 2016 election. And Neil Postman's book is only 184 pages, get every single person in the nation from age 12 to 120 on the same page of why Fox News is bad, why TV news is bad, why mixing memes in the middle of Bluesky, Twitter, Reddit, YouTube, TikTok is bad... make this about *technology* and not about *political party*. And then once you get that going... you start to comprehend [what Surkov / Putin / Trump / Cambridge Analytica / Steve Bannon did with Operation Matthew 4:19](../../Operation_Matthew_4_19_on_monday_2024-03-31.md)... ===:::
