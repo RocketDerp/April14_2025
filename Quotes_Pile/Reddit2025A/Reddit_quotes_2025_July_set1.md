@@ -189,3 +189,11 @@ https://old.reddit.com/r/technology/comments/1mbp2my/trump_threatens_to_withold_
 Senior-bud 2019-11-16
 
 "He fears the learning and communication that the internet provides to people that he is trying to keep down and hold back."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mbp2my/trump_threatens_to_withold_billions_from_states/n5nuvwf/
+
+stellae-fons 2020-08-04
+
+"This entire administration is trying to make life as miserable as possible for everyone as some kind of punishment."
