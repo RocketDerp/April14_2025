@@ -1561,4 +1561,13 @@ Extreme_Sherbert_967 2024-11-25
 
 * :::=== RoundSparrow_Commentary : Putin himself does in no way *behave like* or have the branding of Donald Trump, but the Surkovian techniques of contradictory media work fine for Putin in Russia. We have the same brains in the USA as Russian brains. Even before Donald Trump was elected in November 2016, the March 2013 onward Internet Research Agency and Cambridge Analytica techniques were working over the population. A society facing scientific reality and truth would never self-harm by having more than 5% of people supporting Donald Trump. But people are living in alternate realities induced by the Russian information warfare. Fox News fiction storytelling is a technique of *media ecology*, it is a *cult of media*, like Scientology fiction storytelling - even if L Ron Hubbard is dead, the media itself works over the population. Jesus is dead, the fiction story works. Mohammad is dead, the Quran fiction story works. The [technique of Surkovian media Menace of Unreality works](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) independent of the person. It is an essential point to grasp that President and Vice President are replacable, interchangable, leaders like corporate executives. We should not be reliant on one unique person, We The People of over 300 million should be able to find dozens of people with reason thinking, honesty, sincerity, goodness. All of this Donald Trump and JD Vance nonsense of [they are eating the pets](https://www.bbc.com/news/articles/cgj447j5711o) is anti-reason thinking and mythological media (like Saudi Arabia and Mecca fiction ruling of a society), monomyth fiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mbnvgm/donald_trump_allegedly_tied_13yearold_girl_to_bed/n5nn1f9/
+
+jmessi1 2016-01-13
+
+"It looks like Murdock has turned on Trump. I suspect that All the catch and kill articles from his media companies are finding their way into open."
+
+* :::=== RoundSparrow_Commentary : Everything is **media ecology**. Everything about MAGA and Donald Trump is understood through Neil Postman, Marshall McLuhan, Rick Roderick, **music publicists** Howard Bloom, James Joyce, Joseph Campbell, Jean Erdman, **TV producer** Peter Pomerantsev, etc. The topics of [Finnegans Wake (Joyceans: Marshall McLuhan](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village), Joseph Campbell, Jean Erdman). ===:::
 
