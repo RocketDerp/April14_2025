@@ -154,3 +154,30 @@ Inflation was caused by the trumps klan and the epidemic. And don’t sit here a
 I will never blame Joe Biden for the inflation rates, I’ll forever blame the (Christian, “baby loving”, “I’m not racist”) klan and the old ass democrats that was running the senates, the executives. And blame Robert Murdoch’s media empire as well."
 
 * :::=== RoundSparrow_Commentary : Left out the Putin Media Invasion since March 2013: Cambridge Analytica, Internet Research Agency. Multiple NATO nations have reported Russian media influence, you gotta defend the USA against Russia enemy and not just attack the injured and manipulated Americans with friendly fire. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/ich_iel/comments/1mbdwad/ich_iel/n5lxd47/
+
+Schuhsuppe 2018-03-02
+
+"Auch interessant: Generation Ü40 2013: Neeeein Handys vergraueln doch du hängst da nurnoch rum! Geh an die frische Luft!
+
+Und heute muss man sie vor KI, Betrugsmaschen, Telegram und Bots warnen"
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mbqms1/clear_signs_of_economic_system_failure/n5o6hru/
+
+DisturbingPragmatic 2021-09-21
+
+"It's almost as if we live in a world which greatly rewards psychopathy/sociopathy and narcissistic personality disorder or something..."
+
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mbqms1/clear_signs_of_economic_system_failure/n5obcyv/
+
+Feuertotem 2019-07-31
+
+"Really don't need a trillionaire for that realization. This last decade really did a number on my opinion of humanity as a whole. And keep in mind , before that we had a time with a large number of suicide bombers. And somehow everything still got way worse."
