@@ -21,6 +21,6 @@ Twitter / Bluesky / Reddit / meme streaming. Every 2 hours different topics, no 
 
 # Recommended 6 minute video
 
-**Amusing Ourselves to Death** 1985 book summary on YouTube: https://www.youtube.com/watch?v=ETUGwC9jXCM
+**Amusing Ourselves to Death** 1985 book, modern introduction on YouTube: https://www.youtube.com/watch?v=ETUGwC9jXCM
 
 
