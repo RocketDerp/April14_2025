@@ -1446,3 +1446,19 @@ cataath 2014-01-13
 By all accounts it was Donald who found Epstein, not the other way around. Donald and Jeffrey also seemed to have similar interests; Donald Barr published a sci-fi novel called Space Relations, in which the protagonist travels to conduct negotiations on a slave planet, gets captured, becomes the property of a high society dominatrix. The two fall far each other and spend their days SAing teenaged girls together.
 
 It's interesting that Donald Barr and Jeffery Epstein happened to find each other, no? And that is just one of the many connections linking Epstein to US, British, and Israeli intelligence, the Uber rich, and the politically connected."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mb8oak/bill_clinton_getting_a_massage_from_epstein/n5kk6yu/
+
+Equal-Temporary-1326 2021-06-20
+
+"Yeah, I'm shocked to find someone on social media who doesn't judge everything based on their first reaction to an obvious click bait post."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mb8oak/bill_clinton_getting_a_massage_from_epstein/n5klbe3/
+
+"I don’t care if my Dad is on the Epstein list. They all deserve to go to jail."
+
+* :::=== RoundSparrow_Commentary : This is the ultimate outcome of Surkovian governing, information strip tease, the contradictory vaudeville politics. Now Donald Trump White House has a ***wildcard / blank check***, they can provide any list of names they want, and the audience is in such a frenzy over decades-deep mind-fuck on this keyword of Epstein. It's media cult behavior: suspect suicide, private jets, private island, billions of dollars, gumbo of famous names and icons. Trump being in the mix just adds to the absurd surreal Surkovian aspect, the known pattern of human brain flaws, human mind loopholes to penetrate. This is *jail happy* society, *deport immigrants, don't care about due process* block-happy social media behaviors. And Trump's mass dehumanization and destruction of food safety, environment (mother Earth), education system, university system, NATO, attacking Canadaa and Greenland, *future of the USA*... nobody cares, because everyone is looking at rear-view mirror of past decades of Epstein fuzzy memory and suspicious wihtout evidence (that's the whole point of private jet / private island, in the air over the oceans and on private property). This is core of what Rick Roderick in his 7 hour lecture builds up to: ["my kids will have live in more of it (in year 2013) than I will ever see (in 1993, his lifetime). So I am trying to understand it and think about it as much as I can, and a sense you get is one that resembles vertigo. How many of you have seen Vertigo, the great Alfred Hitchcock movie? You know, that sort of sickly sense that you are twisting above… sort of, abysmally too much of something. This seems to me a fine, sort of, mood characterisation for the postmodern trajectory. A sense of vertigo before all this information. Well if theses like the ones that I just described that Baudrillard holds are true… But of course the word “true” will no longer apply, because we will be in a setting in which you won’t want the true, you will want the truer than true. You won’t even… The false won’t even be a good enough lie for you, you’ll want the lie better than a lie. I mean, the truer than true explanation. You won’t just want Oliver Stone‘s film about JFK. You’ll want the film about how Oliver Stone himself participated in the plot to cover up the real assassins by making the film JFK. They want the truth about the truth about the truth and all the way down, interminably. Vertigo. That’s the sense you get looking down that chain of bizarre stories."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) ===:::
