@@ -66,6 +66,10 @@ In my 55 years alive and world travels, I agree with Joseph Campbell at age 83:
 
 blah blah blah. I may never revisit this page or fix the mistakes.I don't know. What I wrote on this page is incomplete, not what I agree with, more an attempt to shuffle around ideas that come from other people (I was thinking about [Asimov's Foundation book stories about the robots influencing](https://www.youtube.com/watch?v=1mKCKt3xRnw) human history for tens of thousands of years, laying a pattern out for [psychohistory](https://en.wikipedia.org/wiki/Foundation_universe#Psychohistory) shortly before I opened and created this page you are reading). 
 
+&nbsp;
+
+# Malala / Forest for the Trees
+
 I have a strong desire that humanity cherry-pick from all religions, all the public library, good ideas. Living under Donald Trump in July 2025 ... people are seeking bad, attracted to badness itself, and self-harm on a national scale in the USA. Just as I see in September 2023 the Palestine / Gaza society was self-harming on a national scale (and I am so sad to see social media users not quote / assert / reepeat with regularity Malala Yousafzai since October 8, 2013 publication of her book... the lack of attraction to great thinking and ideas about mass man / society / global behavior and reformation). 
 
 Asimov's Psychohistory is about avoiding major wars / chaos / self-harm. In my view, it isn't about Malala being the best, number one winner, it is that she clearly has her finger on exactly what Joseph Campbell said in year 1987 earlier in this document: "the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression? This is a problem that the world is going to have to face" - and Malala was born 10 years after that summer 1987 statement... her birthdate July 12, 1997.  She intuitvely expereinced this in Swat Valley Pakistan.
