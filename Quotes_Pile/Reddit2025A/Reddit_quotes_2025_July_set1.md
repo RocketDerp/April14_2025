@@ -181,3 +181,11 @@ https://old.reddit.com/r/MurderedByWords/comments/1mbqms1/clear_signs_of_economi
 Feuertotem 2019-07-31
 
 "Really don't need a trillionaire for that realization. This last decade really did a number on my opinion of humanity as a whole. And keep in mind , before that we had a time with a large number of suicide bombers. And somehow everything still got way worse."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mbp2my/trump_threatens_to_withold_billions_from_states/n5nv7ge/
+
+Senior-bud 2019-11-16
+
+"He fears the learning and communication that the internet provides to people that he is trying to keep down and hold back."
