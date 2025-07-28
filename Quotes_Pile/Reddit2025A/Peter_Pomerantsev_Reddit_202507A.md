@@ -1158,3 +1158,15 @@ LurkerInSpace 2015-04-10
 
 * :::=== RoundSparrow_Commentary : Yes. BBC Adam Curtis, **year 2014**: ["The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). I also think Russia has self-harmed itself, mind-fucked itself into anti-reality as it has the USA. They have created artificial monomyth religion faith systems void of compassion and love for out-groups, that's a global self-harm disaster. And anything short of a massive media ecology global cram leanring campaign (inclusive of full coverage of comparative mythology history of conflicts) is very unlikely to return people to science reality [as described by Carl Sagan in 1994](https://www.washingtonpost.com/archive/entertainment/books/1994/01/09/with-science-on-our-side/9e5d2141-9d53-4b4b-aa0f-7a6a0faff845/) / 1995. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mbk8w6/trump_79_demands_murdoch_94_is_deposed_before_he/n5mreu1/
+
+0002millertime 2020-09-29
+
+"It's all theatrics.
+
+Is Trump turning on Murdoch and Putin?
+
+No. He is not."
+
