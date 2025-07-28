@@ -137,3 +137,18 @@ drstelly2870 2014-12-09
 "AND NOW they are somehow ok with ALL of this STILL EXISTING but worse and now some seem to be ok with Trump maybe being a pedo. Well you know who got played by these gross trogolodytes??? All of US! Sensible people who have been arguing with these Neanderthals' when they had no bottom! They have been erecting nooses and driving their cars int crowds THIS WHOLE time and we have been "debating w/ facts" exhaustively online with these mole people!"
 
 * :::=== RoundSparrow_Commentary : This is why you focus on media itself. We have known the Rupert Murdoch Fox News problem. Why is baby boomer Jen Senko not good enough for social media users to repeat and repeat and keep repeating since March 2016 film release? Which is BEFORE November 2016 election. And Neil Postman's book is only 184 pages, get every single person in the nation from age 12 to 120 on the same page of why Fox News is bad, why TV news is bad, why mixing memes in the middle of Bluesky, Twitter, Reddit, YouTube, TikTok is bad... make this about *technology* and not about *political party*. And then once you get that going... you start to comprehend [what Surkov / Putin / Trump / Cambridge Analytica / Steve Bannon did with Operation Matthew 4:19](../../Operation_Matthew_4_19_on_monday_2024-03-31.md)... ===:::
+
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5njm5u/
+
+Middle_Breakfast_868 2021-10-11
+
+"The media and democrats were playing right in the klans’ hands. They were just attacking Joe like he wasn’t trying everything in his power to make it better for us. Joe and his cabinet was fighting tooth and nail against a the senates which are a bunch of bribed klansmen and weak democrats that still barely do shit. The whole country was on the topics of prices and not on the fact the minimum wage in America is has been SO DAMN LOW for ALMOST TWO DECADES NOW.
+
+Inflation was caused by the trumps klan and the epidemic. And don’t sit here and act like the media blamed trump when that’s a damn lie. Biden’s “medical decline” and inflation on eggs was the topic for 4 DAMN YEARS.
+
+I will never blame Joe Biden for the inflation rates, I’ll forever blame the (Christian, “baby loving”, “I’m not racist”) klan and the old ass democrats that was running the senates, the executives. And blame Robert Murdoch’s media empire as well."
