@@ -86,4 +86,14 @@ All of year 2015, the full year, Malala's book surely was on the public library 
 
 blah blah blah blah blah blah blah, can't someone else write this who is't so sick of living in this stew of Donald Trump hate-worship and [Donald Trump hate clubs since November 2012](https://www.theguardian.com/world/2012/nov/07/donald-trump-twitter-tirade-obama)? The hate and mass dehumanization just keeps getting worse every single month since November 2012 when Trump became rise to the center of attention was in motion. Every fucking day, every month, worse than the last. July 2025 USA is nightmare levels worse than ever.
 
+&nbsp;
+
+# Jen Senko / Fox News 2015
+
+"The film gained 947 backers on Kickstarter. People who noticed the campaign and had similar stories wrote to Senko."
+
+Jen Senko's Kickstater account shows "October 7, 2013" (Putin's Birthday, also October 7 is the day Fox News went online in 1996)... https://www.kickstarter.com/projects/jensenko/the-brainwashing-of-my-dad-documentary/posts/622014
+
+![Screenshot of Brainwashing Dad Kickstarter UUPDATE 5 posting by Jen Senko](images/Brainwashing_Dad_Kickstarter_UPDATE_5.png)
+
 
