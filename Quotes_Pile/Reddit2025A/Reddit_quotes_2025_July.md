@@ -1529,6 +1529,16 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mbcnyx/they_just_cant_handle_th
 
 win_awards 2022-06-09
 
-"Yes, but not as a joke. They genuinely *cannot** handle that. If they open their eyes to the truth for even a moment their self-image will completely implode. They are more motivated than you can possibly understand to grasp any straw, no matter how wispy, if it can keep them from confronting the fact that their moral superiority is an utter sham and they've been willing dupes to the most openly evil person to ever hold the US presidency."
+"Yes, but not as a joke. They genuinely *cannot* handle that. If they open their eyes to the truth for even a moment their self-image will completely implode. They are more motivated than you can possibly understand to grasp any straw, no matter how wispy, if it can keep them from confronting the fact that their moral superiority is an utter sham and they've been willing dupes to the most openly evil person to ever hold the US presidency."
 
 * :::=== RoundSparrow_Commentary : "If they open their eyes to the truth for even a moment their self-image will completely implode." - yes. Year 1995, Carl Sagan: “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we **tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful** to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mbi0q8/trump_on_epstein_island_i_never_had_the_privilege/n5m8w6i/
+
+Leading_Put- **2025-05-12 (recent account)**
+
+"I suspect his mental decline is seeping through and I hope he's on camera when he finally slips up and confesses. Too bad he doesn't do any actual work that'll cause his stress to increase symptoms smh"
+
+* :::=== RoundSparrow_Commentary : More social media [eating the Surkovian onions](Surkovian_Onion_Eating.md). Making this about the brains of Joe Biden and Donald Trump, fixated on figureheads. Does JD Vance have mental decline? Elon Musk mental decline? All of MAGA? This is a group problem, this is the topic of Marshall McLuhan - **mass man**, this is information war of *hearts and minds of the enemy* between Russia and NATO. MULTIPLE nations are reporting Russian media invasion, not just USA - but people can not stop fixating on the actors as trees, and step back and look at [the **validated factual** evidence](https://www.bbc.com/news/world-us-canada-45294192) of the March 2013 onward forest.... RFK Jr? The ["they are eating cats and dogs" was a GROUP effort with Springfield Ohio target](https://www.npr.org/2024/09/15/nx-s1-5113140/vance-false-claims-haitian-migrants-pets), this is not just ONE SINGLE brain of Donald J. Trump. ===:::
