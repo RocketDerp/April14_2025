@@ -1374,3 +1374,17 @@ https://old.reddit.com/r/politics/comments/1mb81mk/this_is_the_most_panicked_rep
 BossHawk8754 2023-08-26
 
 "We're living in unprecedented times so shit ain't exactly easy to predict at this point. We have absolutely no idea what is going to happen truthfully"
+
+&nbsp;
+
+# Monday July 28, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mbe97f/trump_in_rage_mode_as_epstein_storm_refuses_to/n5lutv7/
+
+Doogiesham 2012-06-26
+
+"Look I hate Trump but why is this blindly upvoted based on “this Reddit commenter said so”?"
+
+* :::=== RoundSparrow_Commentary : That's the problem with doctors at Cambridge Analytica, what they dove so deep into was out-group hate patterns. That's what the Internet Research Agency delivered as payloads. You don't need to hate Donald Trump as a person to *remove Donald Trump* from public office. And what people are doing (in this Reddit comment context) is adopting the techniques and behavors of Donald Trump, normalzing all the bad. Because Donald Trump sets such a low bar, all bad is now released and wide open. Gadness itself is at the top of society, Trickle Down Badness. ["For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost."](../Martin_Luther_King_Jr_quotes0.md) - people in July 2025 can not see the forest of hate as they hate on tree after tree, not recogizing that MAGA and Trump are hate magnets, inspiration of hate. Hate causes brian damage, and we are struated in society-wide hate. ===:::
