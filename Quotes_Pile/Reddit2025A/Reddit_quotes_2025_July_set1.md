@@ -31,3 +31,42 @@ Pitiful-Doubt4838 **2025-07-23 (new account)**
 "I'm very much looking forward to it coming out that he did, in fact, rape a 13 year old (and/or younger) and then the wild bombardment of justification about it to come form the Cult."
 
 :::=== RoundSparrow_Commentary : these young Reddit accounts giving "only the other side is a cult" when it is 100% of the population in **media cult** (not to be confused with a cult of a living person, Donald Trump himself as the cult object (which is a smaller cult), but the **cult of media content** created by Trumpism / MAGA / Republicans / right-wing / Putin / Kremlin / White House/ Rupert Murdoch). I really wish I had server-side access to Reddit to see who is upvoting these comments, browser strings, IP addresses, timestamps, account interaction of voting / reply comparisons... If you can't scream Neil Postman / Andrew Postman / Peter Pomerantsev / Adam Curtis / Marshall McLuhan / Rick Roderick / Mythology / Surkovian - [you too might be in a media cult](https://en.wikipedia.org/wiki/Maybe_You%27ve_Been_Brainwashed_Too) without self-awareness (and a drunkard can be self-aware he is a drunk, Rick Roderick 1993 admitted so). What we have is out-group hating upon out-group. [Hate corrupts minds](../Martin_Luther_King_Jr_quotes0.md), just look at the Holocaust and Middle East conflicts of out-group hate media consumption (Quran media vs. Bible media vs. Torah media vs. nonfiction media). Reddit comment saying "I'm very much looking forward to it coming out" also makes this about information strip tease (which will go on for years), not about removing the fiction-based White House, but addiciton to content, looking forward for more Donald Trump content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mbnvgm/donald_trump_allegedly_tied_13yearold_girl_to_bed/n5no5rc/
+
+andropogon09 2010-06-05
+
+" The difference between Trump and every other recent GOP President. If someone had alleged this about Ford, Reagan, or either Bush, it would've been dismissed out of hand. But with Trump, the response is, "Yeah, it could happen." "
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mbnvgm/donald_trump_allegedly_tied_13yearold_girl_to_bed/n5ntuuv/
+
+hammerSmashedNail 2023-06-29
+
+"The people that need to understand this information are already comfortable ignoring the sexual abuse scandals of priests. They’d rather every child is harmed than admit the people they value are not good people."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mblxn0/you_cant_hate_gay_people_and_be_christian/n5n58mw/
+
+EditEd2x 2014-12-17
+
+"That’s the part I don’t get. If Jesus died for all of our sins and they think being gay is a sin…then JC got them covered yo.
+
+As far as I know there are only 4 unforgivable sins. Rejecting god, hardening of the heart, blasphemy of the Holy Spirit and not showing forgiveness.
+
+So by the Bible’s own standards. Rejecting gay people covers 3 of the four unforgivable sins.
+
+Blasphemy of the Holy Spirit by attributing gays to satan when they are in fact gods children.
+
+Hardening of the heart by simply rejecting them.
+
+Showing no forgiveness basically by default if you harden your heart against people you are denying them any forgiveness to what you perceive as their sin.
+
+So TLDR If you don’t accept gay people you are the person your god warned you not to become."
+
+:::=== RoundSparrow_Commentary : We won't fix our Bible literacy problem with social media, repeating and repeating and repeating the verses that USA audiences of Church do not grasp or comprehend:  1) John 1:1 God is memes and only memes, language and only language, words and only words. 2) **"1 John 4:20"** - saying *I Love Jesus* is wrong, saying *I love God* is wrong, you have never *seen God* you have only consumed media through your ears and eyes, that is a book, that is words, you are not falling in love with real human beings but poetry itself! Hate of ANY LIVING person is wrong. That verse packs a whollop when paired with John 1:1 that God is words and only words. 3) "1 John 3:17" every social media platform should have made this a constant hashtag since June 2015 when Donald Trump started, and add Elon Musk into the loop too. 4) Romans 11:32 - see Finnegans Wake / James Joyce's entire body of work for exhaustive metaphors on that one. 5) Galatians 3:28 - there is no gender of male or female! Transgender... AOK. 6) Matthew 6:5 - [Donald Trump posing with The Bible June 2020 right before the November 2020 election](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church)... why the hell can't social media sustain focus of repeating until EVERY Christian in USA knows this verse, age 12 to 120! The Toxic Clergy in USA is sure not teaching Matthew 6:5 over and over regarding that Juune 2020 photograph opportunity and the $59.99 Donald Trump Bible. ===:::
+
