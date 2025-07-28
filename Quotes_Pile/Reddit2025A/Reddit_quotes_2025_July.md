@@ -1400,3 +1400,13 @@ LabradorDeceiver 2018-04-16
 I've heard some influencers and social media jerks try to spin it in the usual ways, to the point where I've read tweets that say things like, "I don't care if Trump raped kids; he's getting stuff done." Somehow that kind of rhetoric isn't having the same soothing effect on MAGA that it usually does.
 
 I'm a little surprised that no one has suggested "Trump is protecting Democrats!" In the MAGA mind, all Democrats are agents of Satan who hate this country and want to destroy it; there is no worse thing to be. Unspool that banner at a MAGA meeting and Trump is over."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mb8oak/bill_clinton_getting_a_massage_from_epstein/n5klx0y/
+
+Solomon_Grungy 2013-08-20
+
+"That would seem to be the kernel from which all of his wealth grew from. Blackmail, Extortion, Honeypots. In a machiavillian way I can understand how this type of person can succeed beyond the wildest dreams of a common person. The type of power this allows a person to wield. You never stop. It's not just wielding this leverage against one person. It grows endlessly. You use the leverage you have from one person to financially enable other businesses, get clean people involved, enact other scenarios and prepare to capture further compromising materials on new people, rise and repeat.
+
+It's really shocking to consider but it makes sense. Jeffrey ran the most prominent honeypot operation in History."
