@@ -152,3 +152,5 @@ Middle_Breakfast_868 2021-10-11
 Inflation was caused by the trumps klan and the epidemic. And don’t sit here and act like the media blamed trump when that’s a damn lie. Biden’s “medical decline” and inflation on eggs was the topic for 4 DAMN YEARS.
 
 I will never blame Joe Biden for the inflation rates, I’ll forever blame the (Christian, “baby loving”, “I’m not racist”) klan and the old ass democrats that was running the senates, the executives. And blame Robert Murdoch’s media empire as well."
+
+* :::=== RoundSparrow_Commentary : Left out the Putin Media Invasion since March 2013: Cambridge Analytica, Internet Research Agency. Multiple NATO nations have reported Russian media influence, you gotta defend the USA against Russia enemy and not just attack the injured and manipulated Americans with friendly fire. ===:::
