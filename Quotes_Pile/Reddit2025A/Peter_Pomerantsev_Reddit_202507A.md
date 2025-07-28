@@ -1148,3 +1148,10 @@ Living_The_Dream75 2021-03-22
 
 * :::=== RoundSparrow_Commentary :  Yes. Humor is the best mind-fuck, Putin and Surkov have proven that abusrd surreal contradictory is a proven mass mind exploit. This is why Adam Curtis 2014, Peter Pomerantsev 2014 have be augmented with electric media ecology lessons from Neil Postman 1985, "Amusing Ourselves To Death". Americans adore mocking, insutling, imitating, copying Donald Trump and MAGA. Mocking is not resisting. Compusive brain exploits. ===:::
   
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mawurr/trump_reportedly_offered_to_hand_crimea_and/n5im2i3/
+
+LurkerInSpace 2015-04-10
+
+"It represents a fundamental misunderstanding of Russia's war aims. It treats their public statements as being much more representative of their intentions than they actually are."
