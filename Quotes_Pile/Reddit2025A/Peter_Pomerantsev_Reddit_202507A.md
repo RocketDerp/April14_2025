@@ -1170,3 +1170,12 @@ Is Trump turning on Murdoch and Putin?
 
 No. He is not."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mbipct/trump_says_his_name_may_have_been_planted_in/n5ntzwd/
+
+ThePhoenix0829 2019-06-06
+
+"How many times has this story been changed, first it was he wasn't in the book then it was a made-up book Then it didn't exist and now apparently he's a plant in the book"
+
+* :::=== RoundSparrow_Commentary : Under Surkovian Governing, you keep changing the story as many times as you need to keep content engagement, and you have other stories ongoing on other media venues (stage platforms), and the leaders stay focused on ratings / popularity of the fiction stories. "To believe in something and stand by it in this world is derided, **the ability to be a shape-shifter celebrated**. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act. Surkov himself is the ultimate expression of this psychology." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014** ===:::
