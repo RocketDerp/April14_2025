@@ -1542,3 +1542,11 @@ Leading_Put- **2025-05-12 (recent account)**
 "I suspect his mental decline is seeping through and I hope he's on camera when he finally slips up and confesses. Too bad he doesn't do any actual work that'll cause his stress to increase symptoms smh"
 
 * :::=== RoundSparrow_Commentary : More social media [eating the Surkovian onions](Surkovian_Onion_Eating.md). Making this about the brains of Joe Biden and Donald Trump, fixated on figureheads. Does JD Vance have mental decline? Elon Musk mental decline? All of MAGA? This is a group problem, this is the topic of Marshall McLuhan - **mass man**, this is information war of *hearts and minds of the enemy* between Russia and NATO. MULTIPLE nations are reporting Russian media invasion, not just USA - but people can not stop fixating on the actors as trees, and step back and look at [the **validated factual** evidence](https://www.bbc.com/news/world-us-canada-45294192) of the March 2013 onward forest.... RFK Jr? The ["they are eating cats and dogs" was a GROUP effort with Springfield Ohio target](https://www.npr.org/2024/09/15/nx-s1-5113140/vance-false-claims-haitian-migrants-pets), this is not just ONE SINGLE brain of Donald J. Trump. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mbi0q8/trump_on_epstein_island_i_never_had_the_privilege/n5mcl8o/
+
+kakarot-3 2024-06-13
+
+"And if he confesses, what happens? All Republicans are fine with it and they’re the ones in control of Congress. Nothing changes. He’s gotten away with any and every thing he wants to get away with. At this point, I have no faith the system will do anything because the system was built to protect people like him"
