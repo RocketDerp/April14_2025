@@ -1388,3 +1388,15 @@ Doogiesham 2012-06-26
 "Look I hate Trump but why is this blindly upvoted based on “this Reddit commenter said so”?"
 
 * :::=== RoundSparrow_Commentary : That's the problem with doctors at Cambridge Analytica, what they dove so deep into was out-group hate patterns. That's what the Internet Research Agency delivered as payloads. You don't need to hate Donald Trump as a person to *remove Donald Trump* from public office. And what people are doing (in this Reddit comment context) is adopting the techniques and behavors of Donald Trump, normalzing all the bad. Because Donald Trump sets such a low bar, all bad is now released and wide open. Badness itself is at the top of society, Trickle Down Badness. ["For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost."](../Martin_Luther_King_Jr_quotes0.md) - people in July 2025 can not see the forest of hate as they hate on tree after tree, not recogizing that MAGA and Trump are hate magnets, inspiration of hate. Hate causes brian damage, and we are struated in society-wide hate and mockery. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mbe97f/trump_in_rage_mode_as_epstein_storm_refuses_to/n5lidjn/
+
+LabradorDeceiver 2018-04-16
+
+"That's because MAGA wants to put Clinton in jail for it. His own followers keep bringing it up this time.
+
+I've heard some influencers and social media jerks try to spin it in the usual ways, to the point where I've read tweets that say things like, "I don't care if Trump raped kids; he's getting stuff done." Somehow that kind of rhetoric isn't having the same soothing effect on MAGA that it usually does.
+
+I'm a little surprised that no one has suggested "Trump is protecting Democrats!" In the MAGA mind, all Democrats are agents of Satan who hate this country and want to destroy it; there is no worse thing to be. Unspool that banner at a MAGA meeting and Trump is over."
