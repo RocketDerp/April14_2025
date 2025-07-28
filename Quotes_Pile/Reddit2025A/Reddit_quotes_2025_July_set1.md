@@ -221,3 +221,22 @@ https://old.reddit.com/r/CrazyFuckingVideos/comments/1mbu35o/crazy_accident_in_t
 sugarplumbuttfluck 2019-11-11
 
 "I was telling someone this the other day. I had downloaded citizen because I wanted to know why the helicopters were circling and realized that these weirdos use emojis for categories of incidents. "🔪 Fatal stabbing at Taco Bell". I mean for fuck's sake y'all, that's deeply disturbing."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mbs8zo/ghislaine_maxwell_asks_supreme_court_to_toss_sex/n5ovbfs/
+
+junktrunk909 2017-02-18
+
+"Why would they bother with the charade here though? What difference does it make if Trump pardons her? He pardons terrorists who attacked the capital, corrupt politicians, all sorts of people who he shouldn't touch."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mbs8zo/ghislaine_maxwell_asks_supreme_court_to_toss_sex/n5p252e/
+
+Exldk 2012-03-22
+
+"If I had a penny for every time someone said that "Trump is now totally fucked" I'd have enough money to ignore constitution like Trump does.
+
+I absolutely detest the guy, but you gotta admit he has a way of slithering out of every single situation seemingly unscathed. I don't know whether I should laugh or cry at the pure ridiculousness of it. He made laws disappear, he made constitution disappear, he even made the entire FBI disappear. I'm in awe."
+
