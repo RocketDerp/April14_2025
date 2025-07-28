@@ -1569,5 +1569,5 @@ jmessi1 2016-01-13
 
 "It looks like Murdock has turned on Trump. I suspect that All the catch and kill articles from his media companies are finding their way into open."
 
-* :::=== RoundSparrow_Commentary : Everything is **media ecology**. Everything about MAGA and Donald Trump is understood through Neil Postman, Marshall McLuhan, Rick Roderick, **music publicists** Howard Bloom, James Joyce, Joseph Campbell, Jean Erdman, **TV producer** Peter Pomerantsev, etc. The topics of [Finnegans Wake (Joyceans: Marshall McLuhan](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village), Joseph Campbell, Jean Erdman). ===:::
+* :::=== RoundSparrow_Commentary : Everything is **media ecology**. Everything about MAGA and Donald Trump is understood through Neil Postman, Marshall McLuhan, Rick Roderick, **music publicist** Howard Bloom, James Joyce, Joseph Campbell, Jean Erdman, **TV producer** Peter Pomerantsev, etc. The topics of [Finnegans Wake (Joyceans: Marshall McLuhan](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village), Joseph Campbell, Jean Erdman). ===:::
 
