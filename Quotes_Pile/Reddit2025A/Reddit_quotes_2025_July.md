@@ -1512,3 +1512,13 @@ thatguy9684736255 2020-02-21
 "They don't really care about the truth. Same as when Elon was doing the Nazi salute. They just found a bunch of pictures of celebrities with their hands up. Like Taylor swift was just waving to the audience, but they don't care."
 
 * :::=== RoundSparrow_Commentary : No, they *do care*, they care about their fiction story (non reality, anti-reality, fiction) and mocking those that don't go along with thier current fiction storytelling. That's Quran vs. Torah in the Middle East, Quran vs. Bible, all fiction vs. fiction. That's what Russia and Cambridge Analytica weaponized in the human brain / mind in late 2012, early 2013. That's what [Operation Matthew 4:19](https://github.com/RocketDerp/April14_2025/blob/main/Operation_Matthew_4_19_on_monday_2024-03-31.md) taps into regarding crowd behaviors / mob mentality of out-group hate. Sports mentality of *winner takes all*. A healthy progrssive democracy is not a "winner takes all", but "love each other" isn't exactly in The Constitution, is it? Do people really think ddemocracy works if eveyrone *hates each other*? Go look at the history in the Middle East! The Old World Order (the "Old Testiment" order!, but the Founding Fathers were saying: ["Novus Ordo Sedorum."](https://www.greatsealusa.com/)... ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mbcnyx/they_just_cant_handle_that_trump_is_probably/n5lq7da/
+
+HughJorgens 2011-05-17
+
+"The problem has always been cable tv. It started in the 80s with religious stations. They were free or something, everybody had one or two. This is where the Satanic Panic came from, people started watching it all day and were talked into crazy things. In the 90s, Fox came along. Since the 90s, these fringe people have had a source of constant comfort and reassurance that they are correct, and that their hate is good, and that it's the Libs who are evil, not them. All cable tv is by definition entertainment. None of them are required to have fact based news. To fix the problem, you have to pop the bubble and make them live in reality."
+
+* :::=== RoundSparrow_Commentary : In 1985, a professor of education at New York Univerity / Manhattan (Donald Trump's home town) recognize this very problem with cable television. And he created a book called "Amusing Ourselves To Death" and published it in 1985. The United States of American in August 2025 needs to make this book and author a household name and get every single person age 12 to 120 to comrehend media ecology! This is not optional, we are living in the consequences of this education failure. We hae a massive media ecology literazy problem. With ChatGPT and Grok AI fiction content, it is only going to get worse in the future. ===:::
