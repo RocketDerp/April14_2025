@@ -205,3 +205,19 @@ https://old.reddit.com/r/technology/comments/1mbp2my/trump_threatens_to_withold_
 Q3tp 2018-04-03
 
 "Has this administration done anything to help any of the normal people? It's just crazy It's like they go out of their way to hurt as many Americans as possible."
+
+&nbsp;
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1mbu35o/crazy_accident_in_texas/n5owsam/
+
+LifeIsCoolBut 2021-05-02
+
+"Ngl the comments + stream of emojis makes this feel dystopian as fk"
+
+&nbsp;
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1mbu35o/crazy_accident_in_texas/n5p08zh/
+
+sugarplumbuttfluck 2019-11-11
+
+"I was telling someone this the other day. I had downloaded citizen because I wanted to know why the helicopters were circling and realized that these weirdos use emojis for categories of incidents. "🔪 Fatal stabbing at Taco Bell". I mean for fuck's sake y'all, that's deeply disturbing."
