@@ -103,3 +103,11 @@ https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5lx
 No-Group7343 2022-02-26
 
 "The media is owned by conservatives . . They control the narrative, that's why trump went after pbs"
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5m7biq/
+
+Any-Variation4081 2021-03-27
+
+"It always makes me sooooo mad when I see maga complain the media goes after Trump. No honey you dont like when the media actually tells the truth about trump.....when it finally decides to. If biden farted it was headlines for weeks. Trump can crap his own diaper and curse out a handicapped reporter and nothing from the media. One little independent paper will pick it up one tuesday afternoon and no one will see it. Trump gets away with murder. Biden tripped? In the news for weeks even months. Trump tripped entering air force 1 3x already this year and nothing. Not a word. He just as old as biden. Yet not a word on his age or health from the media. Thats all you heard about biden and he can speak and do anything better than trump does."
