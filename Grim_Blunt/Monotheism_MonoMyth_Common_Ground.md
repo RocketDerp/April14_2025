@@ -90,10 +90,32 @@ blah blah blah blah blah blah blah, can't someone else write this who is't so si
 
 # Jen Senko / Fox News 2015
 
+https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
 "The film gained 947 backers on Kickstarter. People who noticed the campaign and had similar stories wrote to Senko."
 
-Jen Senko's Kickstater account shows "October 7, 2013" (Putin's Birthday, also October 7 is the day Fox News went online in 1996)... https://www.kickstarter.com/projects/jensenko/the-brainwashing-of-my-dad-documentary/posts/622014
+Jen Senko's Kickstater posting UPDATE 5 shows "October 7, 2013" (Putin's Birthday, also October 7 is the day Fox News went online in 1996)... https://www.kickstarter.com/projects/jensenko/the-brainwashing-of-my-dad-documentary/posts/622014
 
 ![Screenshot of Brainwashing Dad Kickstarter UUPDATE 5 posting by Jen Senko](images/Brainwashing_Dad_Kickstarter_UPDATE_5.png)
+
+From what I see, "Sep 30 2013 - Oct 30 2013 (30 days)" was the kickstarter campaign dates.
+
+Jen Senko is starting this film funding September 2013 - right when Donald Trump is promoting Moscow Miss Universe 2013 and traveing there in November 2013.
+
+When did your *well informed* Internet users learn about this film project. Ideally they would have found out in the Kickstarter phase back in 2013... it raised $40,325 - which is not much. If just a single person, Jen Senko, worked on the film for one year... that isn't much of a salary after covering any expenses. Seems pretty clear with that low of a budget, that is strictly the labor and cost of making the film. Distributing it and promoting it is a more expense.
+
+July 29, 2015 (Traverse City Film Festival) ok - so it becomes known in the summer of 2015 - Fox News is the most popular. Did the *well informed* social media users catch on the [6 weeks prior June 16, 2015 start of offical Donald Trump climb to President](https://en.wikipedia.org/wiki/Donald_Trump_2016_presidential_campaign)?
+
+That's the problem I see with society, people *bitching* about Fox News influence on their family, but not reaching for articles / citations / references. For example, I have kept a close eye on one article on The Atlantic since September 16, 2020 "Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) - as the whole Tower of Babel, media ecology front and center. Alternate reality via langauge and meaning - that's hard-core Marshall McLuhan (University of Toronto) topic of media ecolgy. Finnegans Wake... as [in **year 1924 onward publication Woke... Wake** to media, media woke](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village).
+
+March 18, 2016 (Theatrical and streaming) - so this is before the November election. Now the film is out for anyone... but social media, *crickets*. A few mentions here and there, but not the sustained call to intellectual arms - let's all get beyond Jen Senko!
+
+I also this moonth (July 2025) have latched into my brain that Jen Senko is a **baby boomer**, and here she is, by her own self, kickstarter of a film about her own internal family - confronting what Reddit and Bluesky (of course, Bluesky only really big since November 2024, but that same set of Internet community wherevery they wree before) bith about constantly, *right-wing media**.
+
+And you have The Little Guy, Jen Senko, speaking Truth to Power... and social media doesn't give her the lip service, retweeting, repeating repeating repeat that Jen Senko needs. She should have been made a household name. No matter if you don't like the film, like Al Gore's Inconveint Truth, it's a LONG TERM ISSUE like Al Gore's Inconveint Truth.  Let Jen Senko inspire people to make more films, books, and stay focused on the very idea of distorted reality from right-wing media. (And Malala did just that in her October 8, 2013 book, right-wing radio "Radio Mullah" - that was covered all over the press in 2013 world wide). Malala is cofnrting right-wing media (radio) influence on her family in intimate detail in 2013, and so too was Jen Senko... you see?
+
+But social media internet society is not getting behind "The Litlte Guy", that's the problem with spirtual and religion.  People are far more enthusiastic about sports stars than people making books and films about the entire world *progress / progressive* improvements.  Millions of messages a day of people bitching about Fox News and Newsmax, why can't Jen Senko be the **baby boomer who stood up to the other baby boomers and spoke critical thinking**? And her inspire people to make their own films, books, podcasts if her work isn't satifying everyone?
+
+yes, this writing is poor. If I could do better, I would Brain damage from all these topics and information warfare. And I am FAR from the only person brain damaged by Trumpism / MAGA / Cambridge Analtyica media. Reminder: "Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/)
 
 
