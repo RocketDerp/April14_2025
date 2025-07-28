@@ -111,3 +111,19 @@ https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5m7
 Any-Variation4081 2021-03-27
 
 "It always makes me sooooo mad when I see maga complain the media goes after Trump. No honey you dont like when the media actually tells the truth about trump.....when it finally decides to. If biden farted it was headlines for weeks. Trump can crap his own diaper and curse out a handicapped reporter and nothing from the media. One little independent paper will pick it up one tuesday afternoon and no one will see it. Trump gets away with murder. Biden tripped? In the news for weeks even months. Trump tripped entering air force 1 3x already this year and nothing. Not a word. He just as old as biden. Yet not a word on his age or health from the media. Thats all you heard about biden and he can speak and do anything better than trump does."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5n3xjz/
+
+djquu 2016-08-17
+
+"All the media downplayed Trump weirdness, his brazenly apparent fascist rhetoric, the Epstein files etc etc. But Biden was old, Kamala didn't have charisma, and Trump would be better for Gaza.. and now I applaud when Colbert got cancelled and other censorship because they got what they deserve. Greedy ghouls."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mbg3vs/silent_inflation_crisis/n5n9cjn/
+
+survivor2bmaybe 2019-07-28
+
+"Every normal politician has one bad thing the media can harp on every time his or her name is brought up. Every normal presidency has one or two bad problems for the media to focus on. With this guy there’s some horrible new behavior or horrible new problem he’s causing in the country or the world everywhere you can point a camera. Honestly surprised the Epstein thing has such legs given that he’s doing his best to distract from it. Everything from threatening to prosecute Beyoncé to threatening to put the homeless in concentration camps to using Pentagon funds for his private jet to openly cheating at golf. At this point, he might have to start a war."
