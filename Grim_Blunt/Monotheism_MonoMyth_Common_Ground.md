@@ -131,8 +131,23 @@ Mythological fiction. All religions are science fiction.
 
 https://old.reddit.com/r/science/comments/1mbo1ar/a_new_sociological_study_offers_a_surprising_take/
 
+https://www.researchgate.net/publication/390308555_Beyond_Polarization_Right-Wing_News_as_a_Quasi-religious_Phenomenon
+
 https://journals.sagepub.com/doi/10.1177/07352751251326951
 
 First published online March 29, 2025
 
 "Research on U.S. political media has demonstrated that mainstream and right-wing news are qualitatively distinct in a variety of ways. However, the dominant paradigm of political polarization and its attendant assumptions have restricted researchers from putting these descriptive insights into new and potentially generative theoretical context. In this article, we propose a way forward, arguing for the merits of conceptualizing right-wing news as a quasi-religious phenomenon. Putting empirical findings in dialogue with core theoretical insights from the sociology of religion, we argue that the right-wing news ecosystem has epistemic, functional, and ecological features that are more characteristic of religion than its mainstream media counterpart. We illustrate the usefulness of these distinctions by applying them to the case of Fox News and their reporting of the 2020 presidential election. Finally, we discuss how our conceptual framework advances current and future research on mis/disinformation, international politics, and the structural causes and consequences of right-wing news media’s ascendance."
+
+"Although not a formal religious institution, we argue that the dominant approach to truth
+in the right-wing news ecosystem operates in much the same way. This is not to say that
+right-wing news organizations and audiences do not care about empirical knowledge or
+facts; but it is to say that the most important epistemic litmus test for truth claims in this
+media system is not whether such claims accurately represent empirically observable events
+in the world but, rather, to what extent they confirm or challenge the sacred tenets of the
+belief system. Empirical truths, to the extent they are recognized and reported on as such
+within right-wing media, are ultimately subordinate to more axiomatic, “self-evident,”
+sacred ones. This claim was recently supported by Pretus et al. (2023) in a study where they
+find misinformation sharing among right-wing participants is strongly associated with items
+reflecting sacred values."
+
