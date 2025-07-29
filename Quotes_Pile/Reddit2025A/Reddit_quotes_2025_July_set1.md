@@ -414,3 +414,10 @@ Then he got reelected in 2024, and now were here. I have lost count the number o
 
 I don't think there's anything he can do except maybe burning a bible that will get them to stop worshiping him."
 
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5uxij8/
+
+PM_ME_BOYSHORTS 2017-02-06
+
+"That doesn't even make sense. They wouldn't cancel the election, it would just change the candidates. You think we'd just not have a president? It would also require fact-checking before any real action were taken. And regardless, no matter what it was the MAGA chuds have clearly shown they don't care and/or wouldn't believe it."
