@@ -401,3 +401,16 @@ WilHunting2 2022-09-10
 "I agree with everything you said except he’s not cooked. The dude tried to overthrow the government on live TV and nothing happened.
 
 His supporters don’t even know this is happening. Fox News has them riled up about Obama right now."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5v0ipa/
+
+TheRealTurinTurambar 2017-08-21
+
+"I couldn't believe he got elected in 2016. Then 2016 - 2020 happened, then Jan 6th happened.
+
+Then he got reelected in 2024, and now were here. I have lost count the number of times I've thought to myself, "well, he's done it now!" only to see his followers suck right up to him.
+
+I don't think there's anything he can do except maybe burning a bible that will get them to stop worshiping him."
+
