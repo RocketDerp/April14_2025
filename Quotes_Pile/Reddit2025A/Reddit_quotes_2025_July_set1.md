@@ -339,3 +339,13 @@ det8924 2014-07-23
 
 "This whole Epstein thing is closing in on Trump because while the Clintons haven't been this upfront they have said they do support releasing the files. I think Bill knows he is in them but either retained enough distance from it to have plausible deniability (no paper trail other than he was at the island) or just simply knows if he comes out against releasing the files it just makes him look more guilty so you might as well just be out in front of it."
 
+
+&nbsp;
+
+https://old.reddit.com/r/movies/comments/1mc946m/palestinian_who_helped_make_oscarwinning_no_other/n5swj6g/
+
+Far_Advertising1005 2020-11-19
+
+"I dunno if it’s the leftovers of Manifest Destiny or whatever but millions of conservatives operate under the idea that might makes right and it’s simply too bad for the Palestinians.
+
+They’d only understand that’s not true if this started happening to them. You couldn’t make them understand with hypotheticals, probably partially because they don’t have the ability to use their imagination anyways"
