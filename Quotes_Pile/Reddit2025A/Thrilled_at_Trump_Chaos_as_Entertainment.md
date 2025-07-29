@@ -249,4 +249,4 @@ RainbowandHoneybee 2019-05-01
 
 "Just too funny. He tries to make other people look guity, and end up making himself look so much worse."
 
-Yes, ""Just too funny" - like Tony Clifton, like Surkov + Putin means to power for 25 years.
+Yes, "Just too funny" - like Tony Clifton, like Surkov + Putin means to power for 25 years.
