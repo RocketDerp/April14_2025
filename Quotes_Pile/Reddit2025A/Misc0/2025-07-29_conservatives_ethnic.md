@@ -36,7 +36,7 @@ Half + half = total, all, everyone
 
 Expand the context beyond "religion", (as the quote is saying, religion is not nonfiction, religion is not facts, it is science fiction).... Fox News is *fiction media, fiction storytelling* vs. factual news.  Joseph Campbell's quote could be applied to:
 
-1. Fox News and Newsmaxx and Saturday Night Live "Weekend Update" -- all fiction news.
+1. Fox News and Newsmax and Saturday Night Live "Weekend Update" -- all fiction news.
 
 2. People who use Reddit to get news to mock and react to Fox News and Newsmax audience. Calling them stupid idiots. That is the atheists in Joseph Campbell's equation of people who do not grasp metaphors.
 
