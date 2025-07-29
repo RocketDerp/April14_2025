@@ -12,7 +12,7 @@ Response:
 
 On the topic of defining conservatives: "it would be about attitudes towards the ethnic in-group vs the ethnic out-group."
 
-Earlier in the message, the topic of Malala Yousafzai was established, yet the reddit reply emphasizes ethic. As is clearly documented for nearly a dozen years in the book published October 8, 2013 titled "I Am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban" - ethic is not how conservatives operate.
+Earlier in the message, the topic of Malala Yousafzai was established, yet the reddit reply emphasizes ethnic. As is clearly documented for nearly a dozen years in the book published October 8, 2013 titled "I Am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban" - ethic is not how conservatives operate.
 
 >  the equivalent left wing-right wing comparison wouldn’t be about “whiteness,” it would be about attitudes towards the ethnic in-group vs the ethnic out-group. For the Taliban, the ethnic in-group are Pashtuns, 
 
