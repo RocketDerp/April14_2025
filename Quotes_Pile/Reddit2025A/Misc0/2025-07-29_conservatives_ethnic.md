@@ -26,12 +26,11 @@ Addiction to fiction content and fiction storytelling is core conservative value
 
 You will find it incredibly unpopular and egoism confronting to view this in terms of media ecology and not make it about ethnic / skin color (blacks vs. whites).  
 
-As Joseph Campbell described it, **everybody, 100.0% are wrong*, it is not popular at all to face up to the reality of the fiction attraction problem.
+As Joseph Campbell described it, ***everybody, 100.0% are wrong***, it is **not popular at all** to face up to the reality of the fiction attraction problems.
 
 Half + half = total, all, everyone
 
-“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.”
-― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
 &nbsp;
 
