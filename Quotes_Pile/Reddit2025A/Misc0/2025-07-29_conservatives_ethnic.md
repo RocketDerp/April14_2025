@@ -12,7 +12,7 @@ Response:
 
 On the topic of defining conservatives: "it would be about attitudes towards the ethnic in-group vs the ethnic out-group."
 
-Earlier int he message, the topic of Malala Yousafzai, yet the reddit reply emphasizes ethic. As is clearly documented for nearly a dozen years in the book published October 8, 2013 titled "I Am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban" - ethic is not how conservatives operate.
+Earlier in the message, the topic of Malala Yousafzai was established, yet the reddit reply emphasizes ethic. As is clearly documented for nearly a dozen years in the book published October 8, 2013 titled "I Am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban" - ethic is not how conservatives operate.
 
 >  the equivalent left wing-right wing comparison wouldn’t be about “whiteness,” it would be about attitudes towards the ethnic in-group vs the ethnic out-group. For the Taliban, the ethnic in-group are Pashtuns, 
 
@@ -48,7 +48,7 @@ Take for example "The original Terminator film, released in 1984, is a science f
 
 Take another science fiction story, Star Wars 1977, the location / setting is entirely fiction. There is almost no non-fiction content of any kind in that Star Wars 1977 film / story. The planets depicted, the food, everything is fiction.
 
-"Conservatives" are unable (unedicated) to distinguish fiction of the Bible, Quran, Torah story books in Pakistan or USA - they often revel in entirely fiction contents such as the character Allah / "God" in the story, without any proof or evidence, they are attracted to the fiction in a compulsive behavior. Unlike in USA with fiction story of the "Easter Bunny", they do not grasp that Allah / "God" is a metaphor (again, the Joseph Campbell equation above).
+"Conservatives" are unable (uneducated) to distinguish fiction of the Bible, Quran, Torah story books in Pakistan or USA - they often revel in entirely fiction contents such as the character Allah / "God" in the story, without any proof or evidence, they are attracted to the fiction in a compulsive behavior. Unlike in USA with fiction story of the "Easter Bunny", they do not grasp that Allah / "God" is a metaphor (again, the Joseph Campbell equation above).
 
 This is a literacy problem on a global level across long time periods, it goes beyond any geography or ethnic or race or skin color.
 
