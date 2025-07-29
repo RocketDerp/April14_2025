@@ -1179,3 +1179,28 @@ ThePhoenix0829 2019-06-06
 "How many times has this story been changed, first it was he wasn't in the book then it was a made-up book Then it didn't exist and now apparently he's a plant in the book"
 
 * :::=== RoundSparrow_Commentary : Under Surkovian Governing, you keep changing the story as many times as you need to keep content engagement, and you have other stories ongoing on other media venues (stage platforms), and the leaders stay focused on ratings / popularity of the fiction stories. "To believe in something and stand by it in this world is derided, **the ability to be a shape-shifter celebrated**. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act. Surkov himself is the ultimate expression of this psychology." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014** ===:::
+
+&nbsp;
+
+# Tuesday, July 29, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5v2ugd/
+
+Vyar 2016-03-20
+
+"It amazes me that we live in a world where a single overexcited scream or a confidently incorrect spelling of the word "potato" are things which have ended entire political careers, and yet somehow we also live in a world where Trump got elected twice.
+
+That Access Hollywood tape with Billy Bush should have been the end of it for him, but the dude incited a fucking insurrection against the US government (the kind of thing that reads like pure fiction until you're actually watching it happen live) and then went on to win re-election.
+
+It's like...I want to laugh at how absolutely ridiculous this all is, but I can't because it's a great tragedy and farce all at once and people are dying and things are only going to get worse before they get better."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5vb6z2/
+
+Vyar 2016-03-20
+
+"I dearly hope so, but sometimes I feel like 2016 was the start of an era that should be subtitled with the words "Hope is but the first step on the road to disappointment." I have been continually let down by almost every political event that has occurred since Trump's first campaign began."
+
