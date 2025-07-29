@@ -283,3 +283,15 @@ Not reddit, but anyway
 https://www.nytimes.com/2025/07/27/opinion/1984-cia-book-ban.html
 
 The NEW YORK CITY times talks about Orwell 1984 book and can't reference New York Universty Neil Postman's 1985 book (about 1984 Orwell) on entertainment president.
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/science/comments/1mbo1ar/a_new_sociological_study_offers_a_surprising_take/n5nmwtk/
+
+nim_opet 2016-01-13
+
+"They also insist on being called “entertainment” for legal purposes and explicitly state that “no rational viewer would understand it as news”, but here we are. Cults operate on mythology, not facts."
+
+
