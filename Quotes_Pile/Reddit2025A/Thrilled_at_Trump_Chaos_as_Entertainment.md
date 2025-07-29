@@ -241,3 +241,12 @@ https://old.reddit.com/r/PublicFreakout/comments/1mbi0q8/trump_on_epstein_island
 This isn't a court trial, this is just a list of Epstein clients (information strip tease), that in itself is not proof of crimes, only association. Social media users are mesmerized, all chasing after this list in media frenzy... when the ENTIRE White House needs to be held accountable, removed, for using Surkovian governing techniques. For the constant stream of lies and emotional manipulation, the constant mind-fucking of the population. Media addiction itself needs to be confronted, Fox News needs to be confronted, bullshit itself needs to be confronted. Donald Trump being in the White House is a massive symptom. Did [we learn NOTHING from the COVID-19 pandemic about people believing and trusting liars](https://www.bbc.com/news/world-us-canada-45294192), and we think RFK Jr isn't a threat with measles and other diseases? These are FACTUAL PROVABLE crimes against We The People, ignoring science medical in favor of lies and falsehoods to manipulate the population. The entire society needs to *sober up* from the media high of constantly mocking and insulting Donald Trump and face up to media addiction and Russian information warfare methods.
 
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mcc4gb/is_this_real_or_is_this_fake_news_i_cant_find_a/n5so29h/
+
+RainbowandHoneybee 2019-05-01
+
+"Just too funny. He tries to make other people look guity, and end up making himself look so much worse."
+
+Yes, ""Just too funny" - like Tony Clifton, like Surkov + Putin means to power for 25 years.
