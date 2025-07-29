@@ -234,9 +234,52 @@ junktrunk909 2017-02-18
 
 https://old.reddit.com/r/news/comments/1mbs8zo/ghislaine_maxwell_asks_supreme_court_to_toss_sex/n5p252e/
 
-Exldk 2012-03-22
+Exldk 2012-05-22
 
 "If I had a penny for every time someone said that "Trump is now totally fucked" I'd have enough money to ignore constitution like Trump does.
 
 I absolutely detest the guy, but you gotta admit he has a way of slithering out of every single situation seemingly unscathed. I don't know whether I should laugh or cry at the pure ridiculousness of it. He made laws disappear, he made constitution disappear, he even made the entire FBI disappear. I'm in awe."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mbqdif/joe_rogan_isnt_letting_go_of_epsteinthats_a/n5o3sk9/
+
+Future-Raspberry-780 **2025-02-21** (recent account)
+
+"Trump was already a pervert when they all endorsed him. He was on audio talking about grabbing women by their pussies. They all voted for that cretin after hearing it. Now they want to act surprised that he’s a predator."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mbqdif/joe_rogan_isnt_letting_go_of_epsteinthats_a/n5oe5nq/
+
+Face2FaceRecs 2017-08-06
+
+"It's increasing his ratings to talk about it and feign outrage that his listener base/trump's voter base is also feigning."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mbqdif/joe_rogan_isnt_letting_go_of_epsteinthats_a/n5ocs29/
+
+Face2FaceRecs 2017-08-06 (two root comments from same user)
+
+"Rogan is in part responsible for Trump being in office. He has constantly used his platform to push misinformation and Trump supporting biases.
+
+He's not talking about it because of any integrity, it's just about the ratings."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mbqdif/joe_rogan_isnt_letting_go_of_epsteinthats_a/n5o7fm4/
+
+butwhyisitso 2012-10-25
+
+"more professional wrestling drama bullshit
+
+Elon and Rogan are still helping Trump, its just important to create the appearance of criticism between elections."
+
+&nbsp;
+
+Not reddit, but anyway
+
+https://www.nytimes.com/2025/07/27/opinion/1984-cia-book-ban.html
+
+The NEW YORK CITY times talks about Orwell 1984 book and can't reference New York Universty Neil Postman's 1985 book (about 1984 Orwell) on entertainment president.
