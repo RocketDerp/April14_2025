@@ -1204,3 +1204,22 @@ Vyar 2016-03-20
 
 "I dearly hope so, but sometimes I feel like 2016 was the start of an era that should be subtitled with the words "Hope is but the first step on the road to disappointment." I have been continually let down by almost every political event that has occurred since Trump's first campaign began."
 
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5uzl5j/
+
+Jewrisprudent 2015-04-17
+
+"The only thing more tiring than his lack of consequences is the people who keep naively saying that THIS TIME he might actually face consequences.
+
+The dude is in power because enough of America has shown they don’t give any shits at all about what he does. He could literally start having sex with a newborn lamb in the middle of a presidential debate and his deplorable supporters would tell us it’s 1. a hoax video made by the liberal cameraman, 2. an act he was tricked into by the simultaneously inept and conniving ObamaBidenClinton, and 3. actually super patriotic to have sex with baby farm animals, and the only reason democrats aren’t doing it too is because they hate America.
+
+I hate him and his supporters, and I hope all of them who read this know what convictionless cowards I think they are."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5v5f8d/
+
+karlverkade 2013-10-16
+
+"The craziest thing to me is that I can understand people doing mental backflips to excuse a president who is giving them benefits. I don't condone it, but it's completely understandable. But with Trump he's consistently making their lives worse (taxes raised, rapists pardoned, no wall, bad economy, tariffs putting farmers out of jobs, laughingstock of the geopolitical landscape, etc). All he gives them is the feeling of being better than someone else/owning the libs. I guess that's all they actually want."
