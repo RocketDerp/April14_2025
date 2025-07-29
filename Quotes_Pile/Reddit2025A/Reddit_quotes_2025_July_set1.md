@@ -295,3 +295,16 @@ nim_opet 2016-01-13
 "They also insist on being called “entertainment” for legal purposes and explicitly state that “no rational viewer would understand it as news”, but here we are. Cults operate on mythology, not facts."
 
 
+&nbsp;
+
+# Tuesday, July 29, 2025
+
+.
+
+https://old.reddit.com/r/politics/comments/1mc096j/hegseths_secret_deal_to_get_trump_his_free_qatari/n5roza6/
+
+Easy_Feedback5361 2023-05-07
+
+"The mental gymnastics to justify this shady deal would win gold at the Olympics. If any other politician pulled this, they'd be crucified - but somehow Trump gets a free pass to treat government resources like his personal piggy bank. Absolutely wild that we're even debating whether a billionaire should reimburse taxpayers for his vanity projects."
+
+* :::=== RoundSparrow_Commentary : the mental gymnastics that media consumers in USA go thorugh to normalize living under Donald Trump White House. To not go to social media and post every 12 hours of evvery day: "Please Resign Donald Trump, please everyone - stop watching Fox News and Newsmax. We The People made a big mistake. We need to goodness and intelligence in our leaders." - but instead treat the USA July 2025 situation as sports entertainment and how there are two and only two possible sides to every problem and nobody needs to break free from two bad ideas and study mob mentality and group mental disorders. This is not [normal](https://en.wikipedia.org/wiki/HyperNormalisation), everyday We The People are normalizing it. ["MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" YouTube video](https://www.youtube.com/watch?v=09maaUaRT4M) ===:::
