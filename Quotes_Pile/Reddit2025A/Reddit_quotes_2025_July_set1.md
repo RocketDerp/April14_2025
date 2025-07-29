@@ -421,3 +421,15 @@ https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a
 PM_ME_BOYSHORTS 2017-02-06
 
 "That doesn't even make sense. They wouldn't cancel the election, it would just change the candidates. You think we'd just not have a president? It would also require fact-checking before any real action were taken. And regardless, no matter what it was the MAGA chuds have clearly shown they don't care and/or wouldn't believe it."
+
+&nbsp;
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1mcgb86/im_genuinely_lost_on_this_one/n5tw3q7/
+
+"People are weird and act like work friendships are a bad thing. You spend more time with these people than you do with your actual family. It’s normal."
+
+&nbsp;
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1mcgb86/im_genuinely_lost_on_this_one/n5u9oid/
+
+"it's kinda wild how many people are seemingly so adverse to being friends with coworkers. Like I'm not even saying you have to or anything but to be so against the idea you don't even entertain it is wild. Why would you not want to get along well with people that you work with? I can only see becoming friends as an extreme bonus of the job"
