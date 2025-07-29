@@ -316,3 +316,26 @@ https://old.reddit.com/r/BrandNewSentence/comments/1mcbxeg/alligator_alcatraz_is
 punktualPorcupine **2025-02-23** (new this year)
 
 "It’s in Oregon so there’s a 50/50 chance that they’re hippies or raging right-wingers about to invade federal land and stage a standoff over the price of horseshoes."
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mcc4gb/is_this_real_or_is_this_fake_news_i_cant_find_a/n5tkejl/
+
+kung-fu_hippy 2011-03-12
+
+" Absolutely. Conservatives in general don’t or won’t understand consent. I think Rush Limbaugh proved that with this doozy of a quote.
+
+“The left will promote and understand and tolerate anything, as long as there is one element: consent. If there is consent on both or all three or all four, however many are involved in the sex act, it's perfectly fine... But if the left ever senses and smells that there's no consent in part of the equation, then here come the rape police". "
+
+&nbsp;
+
+.
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mcc4gb/is_this_real_or_is_this_fake_news_i_cant_find_a/n5smzyz/
+
+det8924 2014-07-23
+
+"This whole Epstein thing is closing in on Trump because while the Clintons haven't been this upfront they have said they do support releasing the files. I think Bill knows he is in them but either retained enough distance from it to have plausible deniability (no paper trail other than he was at the island) or just simply knows if he comes out against releasing the files it just makes him look more guilty so you might as well just be out in front of it."
+
