@@ -68,6 +68,39 @@ It would be ignorant and stupid to deny the mass mind risks we are cultivating a
 
 &nbsp;
 
+# Why hate is such a crisis
+
+[MLK Jr's 1954 equation on all hate / all geography](../Quotes_Pile/Martin_Luther_King_Jr_quotes0.md) - my expereince of predicting the Arab Spring Internet revolution on December 16, 2009 while living in Austin, Texas... and my travel to Algeria (North Africa) at the start of December 2010 for the on-ground experience (I was in Algeria [before the Arab Spring became world famous December 17, 2010](https://en.wikipedia.org/wiki/Mohamed_Bouazizi))... and over to Amman, Jordan in March 2013 for the outbraek of the Syria civil war...
+
+... this experience, and media ecology from being in social media since Christmas of 1983 (first social media public radio, then in social media online computers)... media ecology. And the study of Neil Postman on electric media systems, Marshall McLuhan on electric media ...
+
+Maritn Luther King Jr. is correct about technology. "The real problem is that through our scientific genius we've made of the world a neighborhood, but through our moral and spiritual genius we've failed to make of it a brotherhood.", "I'm not going to put my ultimate faith in gadgets and contrivances. As a young man with most of my life ahead of me, I decided early to give my life to something eternal and absolute. Not to these little gods that are here today and gone tomorrow" ... 
+
+We urgently need to deal with the mass mind (Howard Bloom terminology), mass man (Marshall McLuhan term), mob mentality, out-group hate that is all over the world. We are no longer disconnected by distance, the airprorts and communications networks and weapon systems have all outpaced our grasp and understanding of mob mentality... ["MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL"](https://www.youtube.com/watch?v=09maaUaRT4M) ...
+
+&nbsp;
+
+### Our Mental Health response globally
+
+Our mental health systems globally have no concept of Donald Trump MAGA, information warfare, mob mentality, "how an entire population becomes mentally ill". Edward Bernays and Dr. Abrham Brill have been almost entirely ignored in regard to the emergency treatment of mental health outbreaks. Even after September 11, 2001 (9/11), terrorism was not equated with media (Quran / Mosque venue) iducuced mass psychosis / mob mentality / group cult thinking (Scientology, etc).
+
+&nbsp;
+
+### Technology powder-keg 
+
+We can all see insects, we see they really exist. Insects are not *science fiction*, very small creates can fly and swarm. This is in no way fiction, the ability to create stinging and attacking swarms of tiny inexpensive to reproduce insects is a fact of nature on planet Earth. You do not have to dream it up, we experience it. What humanity, so far, has not made common is the ability to enslave and control the destination of insects. Biting and stinging insects can deliver poisons. How far are we from enslaving biological development or matching / exceeding it with hardware of a non-biological nature, or hybrid?
+
+Land based crawling, air based flying, they are tiny and we already know about malaria, dengue fever, Lyme disease, and West Nile virus payload delivery is possible. This is not something we have to *dream up*, we just have to develop the technology of guidance systems and miniaturization... and the computer industry has been on non-stop development of miniaturization for a long time.
+
+We are not dealing with the egomania problems. And we do not have mental health emergency systems to deal with outbreaks of cults, street gangs of Internet meme consumers (distributed geographically), people mislead by confused information (put into echo-chambers of falsehoods that they must act now, a terrorism attack or political assassination has happened against their religion or government, anywhere in the world)...
+
+We are sitting on a nightmare of history of our own behavior when it comes to forming militant and military organizations all over the world and picking up the latest weapon systems be it year 1810 or year 2023 in Palestine and swarming against the out-group hate in terrorism driven programming of the mind.
+.
+
+.
+
+&nbsp;
+
 Unedited, raw, poorly written
 
 https://mastodon.social/@RoundSparrow/114704736838379351
