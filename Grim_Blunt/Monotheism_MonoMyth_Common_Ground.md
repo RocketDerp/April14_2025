@@ -119,3 +119,20 @@ But social media internet society is not getting behind "The Litlte Guy", that's
 yes, this writing is poor. If I could do better, I would... Brain damage from all these topics and information warfare. And I am FAR from the only person with (mass mind) brain damaged by Trumpism / MAGA / Cambridge Analtyica media. Reminder: ["Do You Speak Fox? How Donald Trump’s favorite news source became a language" By Megan Garber](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/)
 
 
+&nbsp;
+
+.
+
+# right-wing news as a quasi-religious phenomenon
+
+Mythological fiction. All religions are science fiction.
+
+"A new sociological study offers a surprising take on the state of American news: right-wing news media doesn’t just sit on the opposite end of the political spectrum from mainstream outlets—it operates more like a religion than a traditional news source."
+
+https://old.reddit.com/r/science/comments/1mbo1ar/a_new_sociological_study_offers_a_surprising_take/
+
+https://journals.sagepub.com/doi/10.1177/07352751251326951
+
+First published online March 29, 2025
+
+"Research on U.S. political media has demonstrated that mainstream and right-wing news are qualitatively distinct in a variety of ways. However, the dominant paradigm of political polarization and its attendant assumptions have restricted researchers from putting these descriptive insights into new and potentially generative theoretical context. In this article, we propose a way forward, arguing for the merits of conceptualizing right-wing news as a quasi-religious phenomenon. Putting empirical findings in dialogue with core theoretical insights from the sociology of religion, we argue that the right-wing news ecosystem has epistemic, functional, and ecological features that are more characteristic of religion than its mainstream media counterpart. We illustrate the usefulness of these distinctions by applying them to the case of Fox News and their reporting of the 2020 presidential election. Finally, we discuss how our conceptual framework advances current and future research on mis/disinformation, international politics, and the structural causes and consequences of right-wing news media’s ascendance."
