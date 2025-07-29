@@ -44,13 +44,13 @@ Expand the context beyond "religion", (as the quote is saying, religion is not n
 
 Expanding on number 3 on the list. 
 
-Take for example "The original Terminator film, released in 1984, is a science fiction action movie directed by James Cameron and starring Arnold Schwarzenegger" - there are a blend of fiction and nonfiction elements. The non-fiction setting: "The original Terminator film, released in 1984, is a science fiction action movie directed by James Cameron and starring Arnold Schwarzenegger" - but the *fiction* element is the terminator robot technology, artificial intelligence, the time travel technology.
+Take for example "The original Terminator film, released in 1984, is a science fiction action movie directed by James Cameron and starring Arnold Schwarzenegger" - there are a blend of fiction and nonfiction elements. The non-fiction setting: "The first Terminator movie, released in 1984, was primarily filmed in Los Angeles, California. Specific locations include the Griffith Observatory, Tech Noir (720 S Hill Street), and various streets and buildings in downtown Los Angeles. Some scenes were also shot in South Pasadena, Huntington Park, and Littlerock, California." - much of the setting depicted is nonfiction, but the *fiction* element is the terminator robot technology, artificial intelligence, the time travel technology.
 
-Take another science fiction story, Star Wars 1977, the location is entirely fiction. There is almost no non-fiction content of any kind in that film / story. The planets depicted, the food, everything is fiction.
+Take another science fiction story, Star Wars 1977, the location / setting is entirely fiction. There is almost no non-fiction content of any kind in that Star Wars 1977 film / story. The planets depicted, the food, everything is fiction.
 
-"Conservatives" are unable to distinguish fiction of the Bible, Quran, Torah story books in Pakistan or USA - they often revel in entirely fiction contents such as the character Allah / "God" in the story, without any proof or evidence, they are attracted to the fiction in a compulsive behavior. Unlike in USA with fiction story of the "Easter Bunny", they do not grasp that Allah / "God" is a metaphor (again,t he Joseph Campbell equation above).
+"Conservatives" are unable (unedicated) to distinguish fiction of the Bible, Quran, Torah story books in Pakistan or USA - they often revel in entirely fiction contents such as the character Allah / "God" in the story, without any proof or evidence, they are attracted to the fiction in a compulsive behavior. Unlike in USA with fiction story of the "Easter Bunny", they do not grasp that Allah / "God" is a metaphor (again,t he Joseph Campbell equation above).
 
-This is a literacy problem on a global basis, it goes beyond any geography or ethnic or race or skin color.
+This is a literacy problem on a global level across long time periods, it goes beyond any geography or ethnic or race or skin color.
 
 "Conservatives" can behave this way towards any media. Not just Levant Bible from 2000 years ago or Levant Quran from 1,360 years ago.  Rupert Murdoch media empire is in multiple places and multiple media venues, not just USA Fox News network. **But the core thing of conservatives is favoring fiction**, that Donald Trump is a magical perfect person, not a flawed human being. Conservatives treat Fox News and Truth Social media content as nonfiction, like treating the Easter Bunny as if it is not a metaphor.
 
