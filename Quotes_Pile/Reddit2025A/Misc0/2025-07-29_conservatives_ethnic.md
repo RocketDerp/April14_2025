@@ -22,7 +22,7 @@ Again, not ethnic, gender. But that's another characteristic of "conservatives",
 
 In the United States of America, conservatives can be entirely against white "hippies" in Berkeley California who created Unix computer software with the BSD free software license. "First released in 1978, it began as an improved derivative of AT&T's original Unix developed at Bell Labs, based on the source code."  This has **nothing to do with ethnic or skin color, conservatives in USA treat white men who are idealists ("hippies") as an out-group, even though the are the same race / ethnic** - BSD free software is nonfiction, and USA conservatives do not want science and progress of comprehension and understanding, they want people in USA to follow the imported Levant Bible stories in a very poor dehumanizing interpretation.
 
-Addiction to fiction content and fiction storytelling is core conservative value. As I said in the earlier message, in USA: Rupert Murdoch media network Fox News is *fiction storytelling**, like Saturday Night Live "Weekend Update" news, dramatized - it is not reason thinking factual news telling, Fox News is entertainment sports simulacra fiction.
+Addiction to fiction content and fiction storytelling is core conservative value. As I said in the earlier message, in USA: Rupert Murdoch media network Fox News is **fiction storytelling**, like Saturday Night Live "Weekend Update" news, dramatized - it is not reason thinking factual news telling, Fox News is entertainment sports simulacra fiction.
 
 You will find it incredibly unpopular and egoism confronting to view this in terms of media ecology and not make it about ethnic / skin color (blacks vs. whites).  
 
