@@ -1223,3 +1223,7 @@ https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a
 karlverkade 2013-10-16
 
 "The craziest thing to me is that I can understand people doing mental backflips to excuse a president who is giving them benefits. I don't condone it, but it's completely understandable. But with Trump he's consistently making their lives worse (taxes raised, rapists pardoned, no wall, bad economy, tariffs putting farmers out of jobs, laughingstock of the geopolitical landscape, etc). All he gives them is the feeling of being better than someone else/owning the libs. I guess that's all they actually want."
+
+* :::=== RoundSparrow_Commentary :  "with Trump he's consistently making their lives worse" - it makes more sense if you study comparative mythology and face up to Surkovian information warfare / Cambridge Analytica mind depth-charges to the subconsious. We are dealing with monomyth - Finnegans Wake 1924 onward, depth. I'm teaching in public for free on the Internet as hard as I can on these subjects: ["The fact of the crucifixion was read as the central fact of all history, and along with it certain other associated “facts” were accepted, such as in other mythological traditions would be interpreted psychologically"](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/) ===:::
+
+
