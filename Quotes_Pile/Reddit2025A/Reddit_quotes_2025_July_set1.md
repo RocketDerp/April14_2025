@@ -383,3 +383,21 @@ Chastain86 2011-08-17
 "I've told this story a handful of times, but I was listening to NPR on the morning just prior to that election, and the NPR reporter was interviewing people about how they were planning to vote. And they asked one guy, and he said, "Welp, I'm planning on votin' for Roy Moore... because sure he might fuck little girls, but Democrats fuck ERRBODY!"
 
 And that's how I learned that some people just cannot be saved."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5uxie2/
+
+FinTecTec 2022-11-23
+
+"Holy shit, this is an incredible interview. Weird how no US outlets are running this! It, at minimum, implicates Trump in several direct lies. He was "comping rooms" to Epstein's parents at his hotels, but they weren't that close? Fuck he might actually be cooked here honestly."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5uyoxr/
+
+WilHunting2 2022-09-10
+
+"I agree with everything you said except he’s not cooked. The dude tried to overthrow the government on live TV and nothing happened.
+
+His supporters don’t even know this is happening. Fox News has them riled up about Obama right now."
