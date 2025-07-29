@@ -7,6 +7,10 @@
 -- The Advanced Field Artillery Tactical Data System (AFATDS).
 --
 --          Telos Frogs, "Pup", Apprentice
+--
+--    in 1986 social media radio I was "Big Red" for the soda
+--    (my father worked in soda business, RC and Pepsi / RKO)
+--    in 1986 social media online I was often "Survivor"
 -- 
 
 with Ada.Text_IO;
