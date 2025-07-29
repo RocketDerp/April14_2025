@@ -358,3 +358,28 @@ amazing_rando 2011-10-24
 
 "Yes, Epstein was (allegedly) a hedge fund manager. He had no official legitimate business that would involve poaching service workers. Trump was absolutely aware of this and it basically confirms what people have been saying for years - that Mar-A-Lago was one of Epstein’s trafficking hubs, maybe even the primary source. Trump just got mad he took a girl he also wanted."
 
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5v8ik4/
+
+KhoolKhoolKhan **2025-06-20 (new account, named after "KKK")**
+
+"This is what most aren't realizing. Garland was not weak or overly cautious. He ignored the constitution, prosecuted the pleebs, and ran the clock out on democracy. This man was a co-conspirator plain and simple."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5v3udz/
+
+puterTDI 2010-08-29
+
+"honestly, at this point I'm convinced he would molest an 8 year old on stage and his base would still vote for him."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mcmiem/epsteins_brother_mark_told_a_bbc_interviewer/n5vbbp5/
+
+Chastain86 2011-08-17
+
+"I've told this story a handful of times, but I was listening to NPR on the morning just prior to that election, and the NPR reporter was interviewing people about how they were planning to vote. And they asked one guy, and he said, "Welp, I'm planning on votin' for Roy Moore... because sure he might fuck little girls, but Democrats fuck ERRBODY!"
+
+And that's how I learned that some people just cannot be saved."
