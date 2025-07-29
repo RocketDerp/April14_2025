@@ -68,3 +68,36 @@ Egomania abounds, people with their "one true fiction story", **story supremacy*
 &nbsp;
 
 P.S. Please excuse my writings, these topics are extremely difficult to put down in words (Joseph Campbell wrote more than 40 books, I recommend him over my Reddit comments). And I do not have endless time to spend composing this message, nor do I have a professional editor like Joseph Campbell does in his writing.
+
+&nbsp;
+
+.
+
+&nbsp;
+
+.
+
+&nbsp;
+
+### Prior message in thread
+
+> Above all else conservatives believe in social hierarchy.  For a black man to demonstrate noble qualities reserved for white men
+
+When I read this interpretation of "conservative", I really question if modern social media users think the Taliban in Swat Valley Pakistan are "liberals", and if any of them have ever heard of Malala Yousafzai. Do you consider Palestine terrorists to be "liberals", "leftists"? Is Saudi Arabia liberal?
+
+>  Above all else conservatives believe in social hierarchy.
+
+Above all else, "conservatives" believe in fiction over nonfiction. Quran science fiction, Mecca media theme park. Bible science fiction, Torah science fiction, Rupert Murdoch Fox News fiction. Donald Trump is a fiction Twitter content creator and Reality TV "The Apprentice" *fiction* creator.
+
+&nbsp;
+
+EDIT:
+
+it seems moderators have locked this posting, preventing me from reply to Archarchery
+
+>  Archarchery: left wing-right wing comparison wouldn’t be about “whiteness,” it would be about attitudes towards the ethnic in-group vs the ethnic out-group. For the Taliban, the ethnic in-group
+
+REPEATING what I said in the message you replied to:  I really question if modern social media users think the Taliban in Swat Valley Pakistan are "liberals", and if any of them have ever heard of Malala Yousafzai.
+
+Malala Yousafza does not describe what you say: "ethnic in-group vs the ethnic out-group". She describes: banning of nonfiction books about science. Gender of girls vs. boys, male vs. female, women vs. men. The **conservative** conflict is not about skin color, ethnic, racial. It is about *gender* and *science books*. I suggest you read Malala Yousafzai book from October 8, 2013.
+
