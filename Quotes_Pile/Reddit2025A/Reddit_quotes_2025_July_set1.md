@@ -349,3 +349,12 @@ Far_Advertising1005 2020-11-19
 "I dunno if it’s the leftovers of Manifest Destiny or whatever but millions of conservatives operate under the idea that might makes right and it’s simply too bad for the Palestinians.
 
 They’d only understand that’s not true if this started happening to them. You couldn’t make them understand with hypotheticals, probably partially because they don’t have the ability to use their imagination anyways"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mcl3g6/trump_gaggling_with_reporters_admits_virginia/n5uu96u/
+
+amazing_rando 2011-10-24
+
+"Yes, Epstein was (allegedly) a hedge fund manager. He had no official legitimate business that would involve poaching service workers. Trump was absolutely aware of this and it basically confirms what people have been saying for years - that Mar-A-Lago was one of Epstein’s trafficking hubs, maybe even the primary source. Trump just got mad he took a girl he also wanted."
+
