@@ -10,7 +10,7 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 
 ### This repository 
 
-2025-07-27 so far 975 Clones 263 Unique cloners
+2025-07-27 so far 975 Clones 263 Unique cloners     
 2025-07-28 1,003 Clones 233 Unique cloners
 
 Isn't that kind of suspect that the Unique cloners decreased after I added NSA / goverment intelligence agency content in [A00 subdirectory](A00)?
