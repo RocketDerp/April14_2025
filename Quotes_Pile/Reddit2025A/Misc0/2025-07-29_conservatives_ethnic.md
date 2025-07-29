@@ -62,7 +62,7 @@ Conservative is not about ethnic race superiority. Conservative is about egoism 
 
 The Bible is a retcon science fiction of the Torah. The Quran is a retcon science fiction story of The Bible.  Jesus, Mary, Adam, Eve - are all in the Quran / Mosque that Malala Yousafzai had in Swat Valley Pakistan with the Taliban.  But the Taliban will not admit that the Quran is ***fiction storytelling*** any more than Fox News audiences and Truth Social audiences will admit that they are consumers of **fiction storytelling**.
 
-Egomania abounds, people with their "one true fiction story", **story supremacy** - not racial supremacy, not ethnic supremacy, not just gender supremacy, but **fiction story supremacy**.  Be it Fox News (venue) fiction MAGA supremacy in USA or Quran Mosque (venue) / [Radio Mullah (venue F.M. radio)](https://foreignpolicy.com/2013/12/23/the-rise-of-radio-mullah/) fiction story supremacy in Taliban Swat Valley Pakistan.
+Egomania abounds, people with their "one true fiction story", **story supremacy** - not racial supremacy, not ethnic supremacy, not just gender supremacy, but **fiction story supremacy**.  Be it Fox News (venue) fiction story MAGA supremacy in USA … … … or … … … Quran Mosque (venue) / [Radio Mullah (venue F.M. radio)](https://foreignpolicy.com/2013/12/23/the-rise-of-radio-mullah/) fiction story supremacy in conservative Taliban Swat Valley Pakistan.
 
 &nbsp;
 
