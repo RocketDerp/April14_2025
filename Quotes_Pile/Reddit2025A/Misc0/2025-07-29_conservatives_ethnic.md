@@ -123,7 +123,7 @@ The topic gong on here:
 
 2. I mentioned Malala Yousafza in the message you replied to, immediate message context
 
-Conservatives in Swat Valley Pakistan who marry a child age 14 aren't "Obsession with the past" - they want to *birth* future children, in the future. Malala Yousafza's father Ziauddin, was educating girls in the community and was *not against* keeping knowledge of science and nonfiction from her.
+Conservatives in Swat Valley Pakistan who marry a child age 14 aren't "Obsession with the past" - they want to *birth* future children, in the future, their bloodline. Malala Yousafza's father Ziauddin, was educating girls in the community and was *against keeping knowledge* of science and nonfiction from girls.
 
 &nbsp;
 
