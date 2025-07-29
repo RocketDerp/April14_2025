@@ -100,3 +100,41 @@ REPEATING what I said in the message you replied to:  I really question if moder
 
 Malala Yousafza does not describe what you say: "ethnic in-group vs the ethnic out-group". She describes: banning of nonfiction books about science. Gender of girls vs. boys, male vs. female, women vs. men. The **conservative** conflict is not about skin color, ethnic, racial. It is about *gender* and *science books*. I suggest you read Malala Yousafzai book from October 8, 2013. I also suggest [media ecology of NYC study (Neil Postman NYU, Joseph Campbell Sarah Lawrence College, Howard Bloom music industy promoter, Donald Fagen Steely Dan, Edward Bernays)](https://www.youtube.com/watch?v=nnEBSY3leQQ) to grasp how F.M. Radio Mullah topic in Malala's book relates / translates to USA Donald Trump (New York City home town).
 
+
+&nbsp;
+
+.
+
+&nbsp;
+
+# another message reply
+
+&nbsp;
+
+> Archarchery: Obsession with the past is in general a right-wing trait.
+
+The topic gong on here:
+
+1. Epstein list abuse of children is a society hot topic
+
+2. I mentioned Malala Yousafza in the message you replied to, immediate message context
+
+Conservatives in Swat Valley Pakistan who marry a child age 14 aren't "Obsession with the past" - they want to *birth* future children, in the future. Malala Yousafza's father Ziauddin, was educating girls in the community and was *not against* keeping knowledge of science and nonfiction from her.
+
+&nbsp;
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013
+
+Abortion rights, abortion itself, very much a "conservative" focus. Baby making is in the *future*... not "the past".
+
+&nbsp;
+
+"Obsession with the past is in general a right-wing trait" - they why do they stop at "Young Earth", saying that dinosaurs were created as a test of faith by Allah / Yahweh ? If conservatives have what you claim, "Obsession with the past", why aren't the interested in knowing about human history before the advent of the **Torah science fiction story** in the Levant? Why would they not be interested in evolution of plants and animals that are from millions of years ago, or the Caves of Altamira fiction storytelling from Spain? "The [cave art at Altamira, Spain](https://www.youtube.com/watch?v=-SKLVtSODNI), dates back to the Upper Paleolithic period, with some of the earliest paintings created approximately 36,000 years ago, during the Aurignacian era. However, other paintings are as recent as 11,000 - 13,000 years old, indicating that the cave was utilized for artistic purposes across multiple periods." -- you can't see that *conservatives* fixate on fiction storytelling (Fox News, Quran, Radio Mullah, Newsmax, Reddit memes), not authentic "the past"? 
+
+I keep trying to tell you... you have to learn media ecology and view this from fiction storytelling (Fox News is fiction, Newsmax is fiction, Donald Trump Truth Social is fiction, Elon Musk Twitter is fiction, Swat Valley Radio Mullah is fiction, The Australian is fiction, New York Post is fiction) instead of a racial / ethnic / skin color issue...
+
+&nbsp;
+
+# 1968 !!!
+
+Media ecology wasn't even invented as a field until 1968: "Media ecology, as a distinct field of study, was formally introduced by Neil Postman in 1968. He coined the term and established it as a way to understand how communication technologies shape human experience and culture. While Postman is credited with the formal naming, the field draws heavily on the earlier work of Marshall McLuhan, who explored the impact of media on society and culture."
