@@ -216,6 +216,6 @@ MOYERS: So when these men talked about the eye of God being reason, they were sa
 
 CAMPBELL: That's what this first pyramid says. This is the pyramid of the world, and this is the pyramid of our society, and they are of the same order. This is God's creation, and this is our society.
 
-&npbs;
+&npsp;
 
 Source of Great Seal of the United States filed by George Lucas: The Power of Myth, published in 1988 - **page 36**
