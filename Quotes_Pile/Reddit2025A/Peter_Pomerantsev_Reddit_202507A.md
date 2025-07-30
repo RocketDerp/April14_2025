@@ -1292,10 +1292,18 @@ You want REAL ANSWERS?
 
 1. The Democatic political party make a licensing deal with Enter Shikari and start posting on every Democrat and Governor / Senator / Congressperson social media accounts the songs every 36 hours for the next 12 months. Clips, lyrics quotes, time-indexed link into the YouTube videos with lyric entry points, visual meme images with quotes, reaction videos. Not just the songs and song videos, but also there is ["Enter Shikari have released the first in a mini-series"](https://www.entershikari.com/posts/a-film-on-possibility?srsltid=AfmBOooZ1m6A85a8F7b4XVNwel8MXHe9LSipmTxNkbbaCHNmLip0dhdZ) and a book to quote. Emphasize the UK saving American like America saved France and Germany.
 
-2. Andrew Postman spoke up in February 2017 in public. Can you license the 184 page book from 1985, "Amusing Ourselves To Death" or bend fair use as best you can, and quote that book until EVERY PERSOn age 12 to 120 is on the same page. California / Hollywood / **HOLLYWOOD has something to say about media and medium** campaign.
+2. Andrew Postman spoke up in February 2017 in public. Can you license the 184 page book from 1985, "Amusing Ourselves To Death" or bend fair use as best you can, and quote that book until EVERY PERSON age 12 to 120 is on the same page. California / Hollywood / **HOLLYWOOD has something to say about media and medium** campaign.
 
 3. "Who is Peter Pomerantsev?", "What did Pomerantsev write in 2014?" messages, seed it. Package two dollar bills, $2, [paperclipped on an index-card](https://en.wikipedia.org/wiki/Index_card) with cool collectible artwork on them, and spend $131,313 (65656 [$2 bills](https://www.youtube.com/watch?v=kDw_YqRaRkU) bundled with collectable index card) handing them out in California cities and Portland Oregon and Seattle. Maybe network with local internet streamers of radio stations for handout events. Make Peter Pomerantsev Russian born, London raised, a household name. "What Did Adam Curtis say New Years Eve 2014 on BBC?"
 
+&nbsp;
 
+&nbsp;
 
+https://old.reddit.com/r/chaoticgood/comments/1mdcmf1/reporter_asks_trump_about_epstein_recruiting/n60nrir/
 
+Er3bus13 2020-12-10
+
+"His base only processes the propaganda,from fox news. The only real thing to learn from this is brainwashing dlfucking works and its terrifying."
+
+* :::=== RoundSparrow_Commentary : Believes that brainwashing works, but *only* the base via very old 1996 television Fox News technoloy, not the latest smartphone and Reddit social media technology, *Only the OTHERS are brainwashed by electric media*, no will or desire to provide a quote. No quote of March 2016 film from Jen Senko, no quote from Andrew Postman 2017, Neil Postman 1985, etc, etc. Just Twotter-length simple-think, but *ONLY the others are brainwasted into simple Twitter thinking*.  ***MAGA CALLS LIBERALS BRAINWASHED TOO!*** - a constant forest for the trees perspective problem. ===:::
