@@ -529,3 +529,15 @@ https://old.reddit.com/r/NoShitSherlock/comments/1mdfwcx/trump_is_cooked_after_a
 TylerHyena 2021-07-04
 
 "We’d like to say he’s cooked but his fanbase doesnt give a shit and never will as long as they can deflect and own the libs. He could readily admit he has a harem of 10-year old girls that he had sex with and they’ll just brush it off and carry on."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mdfwcx/trump_is_cooked_after_admitting_he_had_young/n61dbub/
+
+DolFan86 2022-08-18
+
+"It’s wild to me that the majority of republicans hate Trump yet fell in line because they’re scared of him for some unknown reason but when given this easy out to finally get out of MAGA these ass clowns double down with Trump.
+
+You would think invoking the 15th amendment or impeaching him for this would be a no brainer yet these idiots can’t even get out of their own way."
+
+* :::=== RoundSparrow_Commentary : People just don't understand how deep into the [subconsious the Cambridge Anlytica playload by the Kremlin](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) goes since March 2013. It has been drilled into the minds with local repeater, by echo chambers of egoism agreement. Reread the words of the Reddit comment here: "the majority of republicans hate Trump" - **who does not hate Donald Trump?** out-group hate is the very basis of current Levant religions, Mosque praches hate of Synagoge and Church, Church preaches hate of Mosque, Synsagoge preaches hate of Mosque. Who is NOT preaching out group hate that as ANY media preseence? Malala is the only one alive I can find who has any level of popularity, and that comes out of bullet in the head pitty of a little girl. Reread the words of the Reddit comment here: "the majority of republicans hate Trump" - Surkovian informatio warfare exploits hate. [We have known this problem domestically of the mental exploit, brain loophole, mind distortion since February 1954.. we *cracked the behavior code* of Jewish vs. Christian Nazi Germany shortly after World War Two](../Martin_Luther_King_Jr_quotes0.md). Putin and Surkov weaponzied it, [Peter Pomerantsev has been publishing about the menace **since 2014**](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
