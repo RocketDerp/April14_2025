@@ -465,3 +465,19 @@ mlorusso4 2017-02-13
 "Any president with even an ounce of common sense or awareness would know how stupid of an idea this is in normal times, let alone after the almost month he’s had. This shows he’s either a complete and total moron or he legitimately doesn’t care what people think"
 
 * :::=== RoundSparrow_Commentary : Eating the Surkovian onions. Thinking that the Donald Trump government is here to serve We The People with essentials of life (military defense, safe food supply, preventing exploitation and damage to the environment, stabe economy, medical health care system, etc)... no. Donald Turmp is playing Tony Clifton. [Surkovian onion breath reaction comments](Surkovian_Onion_Eating.md), people who do not *get it*, Donald Trump is an entertainment of self-harm to the USA, Russia won, Surkov won the information war since March 2013. "This shows he’s either a complete and total moron or he legitimately doesn’t care what people think" - is Twitter-length Bluesky-length thinking. TWO and ONLY TWO explinatoins, Both Sides logic (side 1, side 2), no other possible idea beyond 1 or 2 - such as **3**: Russia [inducing self-harm in USA popualtion via Internet meme warfare](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). Or **4:** Neil Postman media ecology "Amusing Ourselves to Death" 1985 book, home-grown media addiciton to Reality TV "The Apprentice" star. It is constant social media engagement that people get to make these tiny short reply messages any time day or night on social machine systems saying simplsitic answers and not reading any books or [explinations of Russian information warfare](https://www.nbcnews.com/news/investigations/russia-china-cuba-amplified-falsehoods-recent-hurricanes-us-official-s-rcna177672), let alone *defending* against as a civic duty. ===:::
+
+&nbsp;
+
+# Wednesday, July 30, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/Wellthatsucks/comments/1md1s4g/bf_left_his_ipad_open_to_a_fun_conversation_with/n5y6x2u/
+
+Lizalfos13 2017-10-02
+
+"A 33 yo man sadly. Though we’re both wow players and pokemon collectors so inner child shining through here in the worst of ways.
+
+Edit: even scarier this guy has a masters in psychology. Feeling luckier by the minute."
+
+"Thankfully for only 6 months. The masters degree in psychology had me fooled. Never acted that way with me or talked that way with me. Acts are hard to hold up it seems."
