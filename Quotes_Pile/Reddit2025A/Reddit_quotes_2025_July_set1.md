@@ -493,3 +493,11 @@ hambakmeritru 2017-11-29
 "I haven't seen any wavering in his support yet. It's hard to knock a cult leader off his stage when he has already been compared to a Messiah and has warned that the world will try to tarnish his reputation"
 
 * :::=== RoundSparrow_Commentary : Notable / observable that when social media users say "he has already been compared to a Messiah", nobody corrects or disputes this in replies. Widely accepted that we are living in mythology. But people do not seriously study ["Power of Myth" from George Lucas 1988 to Star Wars Audience (which covers USA government meme systems)](../Joseph_Campbell_Metaphors.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mdfwcx/trump_is_cooked_after_admitting_he_had_young/n61aksy/
+
+Responsible-Room-645 2024-01-02
+
+"According to my calculations, this is about the 58th time that the media has determined that Trump is “cooked”."
