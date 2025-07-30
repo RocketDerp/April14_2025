@@ -1294,7 +1294,7 @@ You want REAL ANSWERS?
 
 2. Andrew Postman spoke up in February 2017 in public. Can you license the 184 page book from 1985, "Amusing Ourselves To Death" or bend fair use as best you can, and quote that book until EVERY PERSOn age 12 to 120 is on the same page. California / Hollywood / **HOLLYWOOD has something to say about media and medium** campaign.
 
-3. "Who is Peter Pomerantsev?", "What did Pomerantsev write in 2014" seed it. Package two dollar bills, $2, [paperclipped on an index-card](https://en.wikipedia.org/wiki/Index_card) with cool collectable artwork on them, and spend $131,313 (65656 [$2 bills](https://www.youtube.com/watch?v=kDw_YqRaRkU) bundled with collectable index card) handing them out in California cities and Portland Oregon and Seattle. Maybe network with local internet streamers of radio stations for handout events. Make Peter Pomerantsev Russian born, Lodon raised, a houshold name. "What Did Adam Durtis say New Years Eve 2014 on BBC?"
+3. "Who is Peter Pomerantsev?", "What did Pomerantsev write in 2014?" messages, seed it. Package two dollar bills, $2, [paperclipped on an index-card](https://en.wikipedia.org/wiki/Index_card) with cool collectible artwork on them, and spend $131,313 (65656 [$2 bills](https://www.youtube.com/watch?v=kDw_YqRaRkU) bundled with collectable index card) handing them out in California cities and Portland Oregon and Seattle. Maybe network with local internet streamers of radio stations for handout events. Make Peter Pomerantsev Russian born, London raised, a household name. "What Did Adam Curtis say New Years Eve 2014 on BBC?"
 
 
 
