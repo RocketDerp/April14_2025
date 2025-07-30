@@ -1246,3 +1246,12 @@ ArrakeenSun 2015-12-05
 
 * :::=== RoundSparrow_Commentary : he is *constantly* talking about media, he created his own media empire "Truth Social", he brought the owner of Twitter into his life, he just made deals with CBS / Paramount and was covered by South Park. He is *the bad boy*, Playboy, [Notorious. And Tony Clifton](https://www.youtube.com/watch?v=Z9z0e1Wm64M) doesn't need to be "admired" in the classic sense as "good", Notorious is the rule he is playing ***because it works, the audience has elected Him to office and popularity (Pop culture, Pop music, Pop Life) and his hate clubs are more engaged than ever***. The human brain (crowds) is not logical or sensible, this is obesity (crowds) and alcoholism and joy riding a stolen car (audience, crowds) all via World Wide Web reactions of press systems, news systems, comment reaction systems, religion systems, military systems, trade and stock market systems, other elections in other nations, endless interacting and reacting to a man who can "read the room" of what mass mind button to push next for shock antics. Perpetual amusement, Neil Postman nailed it in year 1985. This is King of Pop, bigger than The Beatles + Mohammad + Jesus + [This is the Day of Someday](https://www.youtube.com/watch?v=bDmA8qQKhMY)... WE KNOW Neil Postman was correct. We are saturated in the evidence. :::===
 
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mcvbyw/trump_seriously_considering_sean_combs_pardon/n5wzbp9/
+
+Benchan123 2019-07-04
+
+"All the conservative and trump supporter were using diddy image on their campaign to talk about the evil Hollywood liberals. And now their hero will save him?? Wtf"
+
+* :::=== RoundSparrow_Commentary : For over a decade, [Surkov governing has been described by the BBC / Adam Curtis.](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). People on social media can not recognize this *mind blowing WTF Kremlin / White House* is not domestic home-grown USA methods of governing, and is Russian year 2012 techniques. ===:::
