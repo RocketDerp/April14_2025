@@ -513,3 +513,11 @@ anglerfishtacos 2015-07-03
 Not to mention, children that are trafficked are often children who have other issues going on, like drug addiction. There are a reasons why movies like “The Sound of Freedom” do not show the reality of trafficking, and are instead centered on small to cherubic face children. Because the only victims that conservative see as actual victims are perfect victims.
 
 Make no mistake that if the files do come out, it will then turn into a smear campaign against the children that were victimized. And that it was somehow their fault."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mdfwcx/trump_is_cooked_after_admitting_he_had_young/n61ftiw/
+
+ajr5169 2015-08-30
+
+"Exactly what I was thinking. People have been thinking for the last 9 years he's cooked, and yet he just keeps cooking. I've given up on thinking anything that comes out will hurt him in any significant way.
