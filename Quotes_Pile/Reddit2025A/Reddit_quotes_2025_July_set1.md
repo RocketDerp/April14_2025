@@ -501,3 +501,15 @@ https://old.reddit.com/r/NoShitSherlock/comments/1mdfwcx/trump_is_cooked_after_a
 Responsible-Room-645 2024-01-02
 
 "According to my calculations, this is about the 58th time that the media has determined that Trump is “cooked”."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mdfwcx/trump_is_cooked_after_admitting_he_had_young/n61gp7e/
+
+anglerfishtacos 2015-07-03
+
+"That’s something that I don’t think people are understanding about what is going to happen if the files do get out. Right now it’s just strict denial that he had knowledge of what he was up to you. But always the way that these cases go as they will next turn on the girls. Suddenly, these children will be deemed ones that were old souls, or they looked older than they actually were, or they were in places where it would be easy to mistake how old they are. It will become a whole screed about how there are too many expectations on men and are men just supposed to card every woman they come in contact with to ensure that they are 18 before they hit on them?
+
+Not to mention, children that are trafficked are often children who have other issues going on, like drug addiction. There are a reasons why movies like “The Sound of Freedom” do not show the reality of trafficking, and are instead centered on small to cherubic face children. Because the only victims that conservative see as actual victims are perfect victims.
+
+Make no mistake that if the files do come out, it will then turn into a smear campaign against the children that were victimized. And that it was somehow their fault."
