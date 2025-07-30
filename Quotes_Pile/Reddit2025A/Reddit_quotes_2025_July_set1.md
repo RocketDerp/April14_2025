@@ -521,3 +521,11 @@ https://old.reddit.com/r/NoShitSherlock/comments/1mdfwcx/trump_is_cooked_after_a
 ajr5169 2015-08-30
 
 "Exactly what I was thinking. People have been thinking for the last 9 years he's cooked, and yet he just keeps cooking. I've given up on thinking anything that comes out will hurt him in any significant way.
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mdfwcx/trump_is_cooked_after_admitting_he_had_young/n61bvfh/
+
+TylerHyena 2021-07-04
+
+"We’d like to say he’s cooked but his fanbase doesnt give a shit and never will as long as they can deflect and own the libs. He could readily admit he has a harem of 10-year old girls that he had sex with and they’ll just brush it off and carry on."
