@@ -38,7 +38,7 @@ https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 ### Drew Curtis in year 2007, May 2007
 
-"a lot of what people want isn't news, and we're talking about news sources giving up on their core mission - informing us. Journalism is straying into entertainment" - [Drew Curtis, May 2007]    (https://www.cbsnews.com/news/farks-drew-curtis-on-how-news-isnt-news/)
+"a lot of what people want isn't news, and we're talking about news sources giving up on their core mission - informing us. Journalism is straying into entertainment" - [Drew Curtis, May 2007](https://www.cbsnews.com/news/farks-drew-curtis-on-how-news-isnt-news/)    
 Year 2007 was when the Apple iPhone 1 first went on sale [June 29 2007](https://en.wikipedia.org/wiki/History_of_the_iPhone), a couple months after Drew Curtis made this interview statement.
 
 &nbsp;
