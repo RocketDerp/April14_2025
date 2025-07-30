@@ -1274,7 +1274,7 @@ https://old.reddit.com/r/Fauxmoi/comments/1md7m73/this_tweet_is_the_reason_i_sti
 
 &nbsp;
 
-&nbsp.
+&nbsp;
 
 https://old.reddit.com/r/goodnews/comments/1md64xc/california_governor_gavin_newsom_calls_to_fight/
 
@@ -1292,7 +1292,7 @@ You want REAL ANSWERS?
 
 1. The Democatic political party make a licensing deal with Enter Shikari and start posting on every Democrat and Governor / Senator / Congressperson social media accounts the songs every 36 hours for the next 12 months. Clips, lyrics quotes, time-indexed link into the YouTube videos with lyric entry points, visual meme images with quotes, reaction videos. Not just the songs and song videos, but also there is ["Enter Shikari have released the first in a mini-series"](https://www.entershikari.com/posts/a-film-on-possibility?srsltid=AfmBOooZ1m6A85a8F7b4XVNwel8MXHe9LSipmTxNkbbaCHNmLip0dhdZ) and a book to quote. Emphasize the UK saving American like America saved France and Germany.
 
-2. Andrew Postman spoke up in February 2017 in public. Can you license the 184 page book from 1985, "Amusing Ourselves To Death" or bend fair use as best you can, and quote that book until EVERY PERSOn age 12 to 120 is on the same page. California / Hollywood / HOLLYWOOD has something to say about media campaign.
+2. Andrew Postman spoke up in February 2017 in public. Can you license the 184 page book from 1985, "Amusing Ourselves To Death" or bend fair use as best you can, and quote that book until EVERY PERSOn age 12 to 120 is on the same page. California / Hollywood / **HOLLYWOOD has something to say about media and medium** campaign.
 
 3. "Who is Peter Pomerantsev?", "What did Pomerantsev write in 2014" seed it. Package two dollar bills, $2, [paperclipped on an index-card](https://en.wikipedia.org/wiki/Index_card) with cool collectable artwork on them, and spend $13,1313 handing them out in California cities and Portland Oregon and Seattle. Make Peter Pomerantsev Russian born, Lodon raised, a houshold name. "What Did Adam Durtis say New Years Eve 2014 on BBC?"
 
