@@ -1271,3 +1271,31 @@ https://old.reddit.com/r/Fauxmoi/comments/1md7m73/this_tweet_is_the_reason_i_sti
 "This tweet is the reason I still haven’t closed my twitter account"
 
 * :::=== RoundSparrow_Commentary : Rich white men sex acts, young girl sex, July 30, 2025 topic. Private jets, private islands, famous people, excusive venues, private golf clubs, private night clubs. Paul Allen Mercer Island 1998 lifestyle, Elon Musk lifestyle, Donald Trummp, Jeff Epstein lifestyle. "haven’t closed my twitter account" - nor why you haven't removed Donald Trump from the world stage, JD Vance (couch couch couch chanting memes), etc. Surkov won, Putin won. Neil Postman was correct in 1995, Andrew Postman was correct February 2017. Not just politics, Donald Trump is a media star who can grab the power and wealth and sexual topic interests of *anyone in the audience, regardless of gender*. This is an [unhinged media machine society, not just "politics". This story was correct March 27 2024...](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) ===:::
+
+&nbsp;
+
+&nbsp.
+
+https://old.reddit.com/r/goodnews/comments/1md64xc/california_governor_gavin_newsom_calls_to_fight/
+
+this is the MAGA Putin Trump Musk opposition's **best (strategically geographic distance, powerful economy) leader** in July 30, 2025 - after all year 2024 and year 2025, this is The Opposition best answer. And right to the front page of the meme addled meme addicts Reddit society.
+
+1. Fight fire with fire: Add more disinformation to Russian disinformation war.
+2. Add more surreal absurd detachment from reality to Donald Trump and MAGA detachment of reality.
+3. Add more Fox News to Fox News nation
+4. Add more absurd antics to MAGA, fight Surkovian governing with more absurd surreal fleeing from reality in favor of meme mockery.
+5. Add more dehumanization and "turn Palestine into a golf club and resort on the ocean" to the Donald Trump mass dehumanization.
+
+Always more bullshit is exactly what Surkovian information warfare induces. We are in a runaway monomyth.
+
+You want REAL ANSWERS?
+
+1. The Democatic political party make a licensing deal with Enter Shikari and start posting on every Democrat and Governor / Senator / Congressperson page the songs every 36 hours for the next 12 months.
+
+2. Andrew Postman spoke up in February 2017 in public. Can you license the 184 page book from 1985, "Amusing Ourselves To Death" or bend fair use as best you can, and quote that book until EVERY PERSOn age 12 to 120 is on the same page. California / Hollywood / HOLLYWOOD has something to say about media campaign.
+
+3. "Who is Peter Pomerantsev?", "What did Pomerantsev write in 2014" seed it. Package two dollar bills, $2, [paperclipped on an index-card](https://en.wikipedia.org/wiki/Index_card) with cool collectable artwork on them, and spend $13,1313 handing them out in California cities and Portland Oregon and Seattle. Make Peter Pomerantsev Russian born, Lodon raised, a houshold name. "What Did Adam Durtis say New Years Eve 2014 on BBC?"
+
+
+
+
