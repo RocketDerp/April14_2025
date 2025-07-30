@@ -484,3 +484,12 @@ Edit: even scarier this guy has a masters in psychology. Feeling luckier by the 
 
 "Honestly, that type of language referring to not only me but anyone was as shocking as the cheating reveal. This guy has a masters in psychology too, even scarier."
 
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1mdcmf1/reporter_asks_trump_about_epstein_recruiting/n60oczp/
+
+hambakmeritru 2017-11-29
+
+"I haven't seen any wavering in his support yet. It's hard to knock a cult leader off his stage when he has already been compared to a Messiah and has warned that the world will try to tarnish his reputation"
+
+* :::=== RoundSparrow_Commentary : Notable / observable that when social media users say "he has already been compared to a Messiah", nobody corrects or disputes this in replies. Widely accepted that we are living in mythology. But people do not seriously study ["Power of Myth" from George Lucas 1988 to Star Wars Audience (which covers USA government meme systems)](../Joseph_Campbell_Metaphors.md) ===:::
