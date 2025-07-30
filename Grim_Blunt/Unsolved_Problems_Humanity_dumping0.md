@@ -57,3 +57,23 @@ https://autistics.life/@RoundSparrow/114919207556423747
 
 6. Next, people will claim "we haven't abandoned books since year 2013" - without recognizing that #copyright laws are eating humanity alive. What people do, to avoid copyright #infringement and to earn profit, is publish new books. But these books largely say many things older and not profitable books already said... in a worse way. Put another way: instead of a Wikipedia style system of full edit history and refinement of ideas, we have ChatGPT and other generative AI systems creating unique words to avoid copyright infringement and create profit for newly created works.  Neil Postman's [1985](https://www.goodreads.com/work/quotes/2337731-amusing-ourselves-to-death-public-discourse-in-the-age-of-show-business) book, [1992](https://www.goodreads.com/work/quotes/1511641-technopoly-the-surrender-of-culture-to-technology) book, and [1995](https://www.goodreads.com/work/quotes/508006-the-end-of-education-redefining-the-value-of-school) books are important comprehension on these topics. We keep reinventing wheels, often rubbish wheel designs, to have cash flow for authors and egoism for authors... many good ideas and expressions are locked up in copyright or considered "boring" to Twitter meme-addicted society.
 
+&nbsp;
+
+.
+
+&nbsp;
+
+.
+
+# Some Progressive Ideas
+
+Some ideas on action July 30, 2025    
+California pushes back campaign   
+
+1. The Democratic political party make a licensing deal with Enter Shikari and start posting on every Democrat and Governor / Senator / Congressperson social media accounts the songs every 36 hours for the next 12 months. Clips, lyrics quotes, time-indexed link into the YouTube videos with lyric entry points, visual meme images with quotes, reaction videos. Not just the songs and song videos, but also there is ["Enter Shikari have released the first in a mini-series"](https://www.entershikari.com/posts/a-film-on-possibility?srsltid=AfmBOooZ1m6A85a8F7b4XVNwel8MXHe9LSipmTxNkbbaCHNmLip0dhdZ) and a book to quote. Emphasize the UK saving American like America saved France and Germany.
+
+2. Andrew Postman spoke up in February 2017 in public. Can you license the 184 page book from 1985, "Amusing Ourselves To Death" or bend fair use as best you can, and quote that book until EVERY PERSON age 12 to 120 is on the same page. California / Hollywood / **HOLLYWOOD has something to say about media and medium** campaign.
+
+3. "Who is Peter Pomerantsev?", "What did Pomerantsev write in 2014?" messages, seed it. Package two dollar bills, $2, [paperclipped on an index-card](https://en.wikipedia.org/wiki/Index_card) with cool collectible artwork on them, and spend $131,313 (65656 [$2 bills](https://www.youtube.com/watch?v=kDw_YqRaRkU) bundled with collectable index card) handing them out in California cities and Portland Oregon and Seattle. Maybe network with local internet streamers of radio stations for handout events. Make Peter Pomerantsev Russian born, London raised, a household name. "What Did Adam Curtis say New Years Eve 2014 on BBC?"
+
+4. "We Made a Mistake in year 2020" media campagin (August 2025 onward message campaign). "We made an error in 2020".  ... *we*, the *we the society, people*, and *we the Democrats*, and *we the social media*... .... mistakes / errors / were not thinking .... .... [On June 1, 2020 Donald Trump posed with The BIble in front of a Church](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church) --- **THE MISSTAKE WE MADE*** was not paying for media messages to teach / preach Bible verse Matthew 6:5 all of June 2 to June 30, all of August, September, October, up to the November 2020 election. Matthew 6:5 is not that much to learn, active teaching of Matthew 6:5 literacy to everyone in socity age 12 to age 120. See also "1 John 3:17", which is 1,800 years before Karl Marx.
