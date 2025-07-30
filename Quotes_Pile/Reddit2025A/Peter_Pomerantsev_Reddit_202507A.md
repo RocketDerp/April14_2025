@@ -1254,4 +1254,4 @@ Benchan123 2019-07-04
 
 "All the conservative and trump supporter were using diddy image on their campaign to talk about the evil Hollywood liberals. And now their hero will save him?? Wtf"
 
-* :::=== RoundSparrow_Commentary : For over a decade, [Surkov governing has been described by the BBC / Adam Curtis.](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). People on social media can not recognize this *mind blowing WTF Kremlin / White House* is not domestic home-grown USA methods of governing, and is Russian year 2012 techniques. ===:::
+* :::=== RoundSparrow_Commentary : For over a decade, [Surkov governing has been described by the BBC / Adam Curtis back in year 2014.](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). People on social media can not recognize this *mind blowing WTF Kremlin / White House* is not domestic home-grown USA methods of governing, and is Russian year 2012 techniques. ===:::
