@@ -14,7 +14,7 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 2025-07-28 1,003 Clones 233 Unique cloners   
 2025-07-30 1,033 Clones 221 Unique cloners    
 
-Ok, it dropped again, so I researched it... [seems 14 days it the reporting window, not lifetime of the repository](https://github.com/isaacs/github/issues/399)
+Ok, it dropped again, so I researched it... [seems 14 days is the reporting window, not lifetime of the repository](https://github.com/isaacs/github/issues/399)
 
 ~~Isn't that kind of suspect that the Unique cloners decreased after I added NSA / goverment intelligence agency content in [A00 subdirectory](A00)? Hummm....~~
 
