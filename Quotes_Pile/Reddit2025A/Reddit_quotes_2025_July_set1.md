@@ -433,3 +433,17 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1mcgb86/im_genuinely_lost_on_th
 https://old.reddit.com/r/ExplainTheJoke/comments/1mcgb86/im_genuinely_lost_on_this_one/n5u9oid/
 
 "it's kinda wild how many people are seemingly so adverse to being friends with coworkers. Like I'm not even saying you have to or anything but to be so against the idea you don't even entertain it is wild. Why would you not want to get along well with people that you work with? I can only see becoming friends as an extreme bonus of the job"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mcp1fh/trump_admin_blocks_investigation_into_epstein/n5w0kd5/
+
+"I mean the internet is barely people anymore - if you want to have your country back you need to start trusting in your own people a little bit, despite the 35% that may agree with him."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mcp1fh/trump_admin_blocks_investigation_into_epstein/n5vm0gk/
+
+Frost134 2014-05-02
+
+"The way they’re not even hiding the cover up shows they don’t plan on answering to voters again."
