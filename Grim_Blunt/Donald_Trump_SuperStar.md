@@ -18,8 +18,9 @@ Donald Trump is [KING OF POP](https://www.michaeljackson.com/news/why-michael-ja
 Donald Trump is POPULARITY ITSELF. No person has ever been more popularity of hate and mass dehumanization for people to bow down and throw their hate messages into the wishing well.
 
 Lyrics:
-"If you'd come today you could have reached a whole nation.
-Israel in 4 BC had no mass communication." #Israel  
+["If you'd come today you could have reached a whole nation.
+Israel in 4 BC had no mass communication."](https://www.youtube.com/watch?v=KJDgUoAQC8Y
+)
 
 2,029 years ago in year -4 the Levant / Holy Lands had no mass communications TCP/IP Internet media, the media, social media, news media. Donald Trump is King of Pop!
 
