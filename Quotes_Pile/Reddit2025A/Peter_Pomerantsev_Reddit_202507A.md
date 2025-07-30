@@ -1255,3 +1255,13 @@ Benchan123 2019-07-04
 "All the conservative and trump supporter were using diddy image on their campaign to talk about the evil Hollywood liberals. And now their hero will save him?? Wtf"
 
 * :::=== RoundSparrow_Commentary : For over a decade, [Surkov governing has been described by the BBC / Adam Curtis back in year 2014.](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). People on social media can not recognize this *mind blowing WTF Kremlin / White House* is not domestic home-grown USA methods of governing, and is Russian year 2012 techniques. ===:::
+
+&nbsp;
+
+Front page of Reddit July 30, 2025
+
+https://old.reddit.com/r/Fauxmoi/comments/1md7m73/this_tweet_is_the_reason_i_still_havent_closed_my/
+
+"This tweet is the reason I still haven’t closed my twitter account"
+
+* :::=== RoundSparrow_Commentary : Rich white men sex acts, young girl sex, July 30, 2025 topic. Private jets, private islands, famous people, excusive venues, private golf clubs, private night clubs. Paul Allen Mercer Island 1998 lifestyle, Elon Musk lifestyle, Donald Trummp, Jeff Epstein lifestyle. "* :::=== RoundSparrow_Commentary" - nor why you haven't removed Donald Trump from the world stage, JD Vance (couch couch couch chanting memes), etc. Neil Postman was correct in 1995, Andrew Postman was correct February 2017. Not just politics, Donald Trump is a media star who can grab the power and wealth and sexual topic interests of *anyone in the audience, regardless of gender*. This is an [unhinged media machine society, not just "politics". This story was correct March 27 2024...](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) ===:::
