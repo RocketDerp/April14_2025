@@ -481,3 +481,6 @@ Lizalfos13 2017-10-02
 Edit: even scarier this guy has a masters in psychology. Feeling luckier by the minute."
 
 "Thankfully for only 6 months. The masters degree in psychology had me fooled. Never acted that way with me or talked that way with me. Acts are hard to hold up it seems."
+
+"Honestly, that type of language referring to not only me but anyone was as shocking as the cheating reveal. This guy has a masters in psychology too, even scarier."
+
