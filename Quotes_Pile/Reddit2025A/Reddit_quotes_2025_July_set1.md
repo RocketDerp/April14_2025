@@ -455,3 +455,14 @@ https://old.reddit.com/r/Music/comments/1mcvbyw/trump_seriously_considering_sean
 FlappyBored 2014-04-29
 
 "Trump supporters right now online are saying that sleeping with 14 year olds is normal and not a big deal because ‘back in the 90s it’s what everyone did’."
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mcvbyw/trump_seriously_considering_sean_combs_pardon/n5x0jwn/
+
+mlorusso4 2017-02-13
+
+"Any president with even an ounce of common sense or awareness would know how stupid of an idea this is in normal times, let alone after the almost month he’s had. This shows he’s either a complete and total moron or he legitimately doesn’t care what people think"
+
+* :::=== RoundSparrow_Commentary : Eating the Surkovian onions. Thinking that the Donald Trump government is here to serve We The People with essentials of life (military defense, safe food supply, preventing exploitation and damage to the environment, stabe economy, medical health care system, etc)... no. Donald Turmp is playing Tony Clifton. [Surkovian onion breath reaction comments](Surkovian_Onion_Eating.md), people who do not *get it*, Donald Trump is an entertainment of self-harm to the USA, Russia won, Surkov won the information war since March 2013. ===:::
+
