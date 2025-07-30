@@ -1,6 +1,8 @@
-10 REM  hello_word.basic 
+10 REM  hello_word.bas
 20 REM  BASIC programming langauge
 30 REM  not sure if GitHub will like the ".basic" extension vs. ".bas"
 40 REM  I prefer the longer, so going for the longer at first attempt.
+50 REM  License: Public Domain world wide
+60 REM  Author: Stephen Alfred Gutknecht
 
 100 PRINT "Hello Word! RoundSparrow was here"
