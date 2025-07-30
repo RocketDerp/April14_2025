@@ -447,3 +447,11 @@ https://old.reddit.com/r/law/comments/1mcp1fh/trump_admin_blocks_investigation_i
 Frost134 2014-05-02
 
 "The way they’re not even hiding the cover up shows they don’t plan on answering to voters again."
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mcvbyw/trump_seriously_considering_sean_combs_pardon/n5xsmyk/
+
+FlappyBored 2014-04-29
+
+"Trump supporters right now online are saying that sleeping with 14 year olds is normal and not a big deal because ‘back in the 90s it’s what everyone did’."
