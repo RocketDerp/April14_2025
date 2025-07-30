@@ -22,7 +22,7 @@ Lyrics:
 Israel in 4 BC had no mass communication."](https://www.youtube.com/watch?v=KJDgUoAQC8Y
 )
 
-2,029 years ago in year -4 the Levant / Holy Lands had no mass communications TCP/IP Internet media, the media, social media, news media. Donald Trump is King of Pop!
+2,029 years ago in year -4 the Levant / Holy Lands had [no mass](https://en.wikipedia.org/wiki/The_Gutenberg_Galaxy) communications TCP/IP Internet media, the media, social media, news media. Donald Trump is King of Pop!
 
 https://www.youtube.com/watch?v=KJDgUoAQC8Y
 
