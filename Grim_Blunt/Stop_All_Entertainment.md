@@ -34,7 +34,7 @@ Cut out sports entertainment topics, video game topics, clear the media airwaves
 
 ## Building upon the September 9, 2014 story
 
-Beyond the ]September 9, 2014 "Russia and the Menace of Unreality" story](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)
+Beyond the [September 9, 2014 "Russia and the Menace of Unreality" story](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)
 
 Highlight:
 
