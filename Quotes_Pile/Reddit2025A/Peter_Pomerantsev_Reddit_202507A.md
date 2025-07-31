@@ -1359,3 +1359,16 @@ millos15 2013-01-04
 "Will Kentucky realize voting matters? Nah they will vote against themselves next time"
 
 * :::=== RoundSparrow_Commentary : Twitter-length Bluesky-length comment. Will social media consumers, "The Media" consumers, ever realize that voting is an act of *a few hours* of action taken to push buttons. And that the upvote button on Reddit social media, the Like button on Bluesky social media is **every day all day** and that billions of dollars (and the entire Elon Musk Twitter platform, Rupert Murdoch media empire, Donald Trump Truth Social) are all hammering to trick and manipulate minds *ever hour of every day, automated meme mills*? "realize voting matters?" - REALITY matters in EVERY AREA OF LIFE. Being able to distinguish fiction from non-fiction matters NO MATTER WHICH NATION you live in: Canada, United States of America, Palestine, Israel, Russia - **REALITY matters** no matter what time of day, day of week, voting day in elections or voting on social media! Media ecology literacy of religions and politics *matters*. Do you think billions of dollars are spent to market and advertise Corporate America and Political Parties is accidental spending of money? That years and years of mental programming doesn't go into that voting booth election day button push, and it is revealed in they tiny simplistic thinking Reddit comments of "Nah they will vote against themselves next time" -- Peter Pomerantsev's dozens and dozens of published article and several books MATTER! Neil Postman's massive library of published books matters! Marshall McLuhan matters, EVERY DAY OF EVERY YEAR, not just voting days in one single nation, the USA. :::===
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1me1y3z/fema_denies_grants_to_three_kentucky_counties_hit/n6637ak/
+
+Stinkstinkerton 2024-02-04
+
+"Persuading dumb ignorant Americans to vote against their own interests was one of the more diabolical yet brilliant maneuvers by conservatives years ago. It’s been refined to a fine art by this orange bag of shit and his Republican terrorist party."
+
+* :::=== RoundSparrow_Commentary : Persuading dumb ignorant Americans to react-comment on social media systems against their own interests was one of the more diabolical yet brilliant maneuvers by global conservatives in November 2012 and announced by conservatives as a world scheme in Deceber 2013 that no social media user can seem to [locate and cite](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/). It’s been refined to a fine art by Putin and the Kremlin who have convinced USA social media users that insutling and total mockery of meme systems is all tht matters, saying: "orange bag of shit and his Republican terrorist party" - barking at cluster of trees in domestic USA wihtout any view of the NATO forest since March 2013, to study and [coin a name such as "Operation Matthew 4:19"](../../Operation_Matthew_4_19_on_monday_2024-03-31.md) - the largest organized anti-reality meme trolling system in all human history. ===:::
+
+
+
