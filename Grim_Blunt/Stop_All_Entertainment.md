@@ -28,6 +28,8 @@ Cut out sports entertainment topics, video game topics, clear the media airwaves
 
 4. Make Neil Postman 1985 book a household name. His 1992 book, his September 1995 book. There are YouTube videos, books to quote. Make this about words of a dead man, a forgotten American, and how the Apple iPhone and iPad and Internet have changed everything. Don't make this about Donald Trump and MAGA, make this about *rescuing America* from a media feedback loop, Internet-driven "the media" social media total mockery.
 
+5. If you raelly dislike Neil Postman or such, try Texan Rick Roderick of Duke University 1993 for your study and material to repeat / perspective. He too is another dead man, a forgotten American, who has a lot to say about our August 2025 situation in USA. Video and transcript: https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
 &nbsp;
 
 ## Building upon the September 9, 2014 story
