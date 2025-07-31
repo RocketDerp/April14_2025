@@ -644,3 +644,17 @@ A_Refill_of_Mr_Pibb 2020-09-26
 "I'd rather be someone who over-reacted and was wrong if it means it doesn't end up this way, then someone who turned out to be right."
 
 * :::=== RoundSparrow_Commentary : Yes, agreed. call to intellectual arms. [What can we do in the 2nd half of 2025 situation in USA, ideas?](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mdko5y/trump_telling_a_10_year_old_girl_he_will_be/n62d4aj/
+
+Dizzy_Swing1626 2022-01-20
+
+"The GOP is, in no uncertain terms, enabling Trump and his history of sexual assault. Yet all of the headlines are about Trump. Enablers keep “victims victimised and reinforce the power and control of the abuser.” (Dr. Rachel Taylor, Abuse and the Enablers, 2023)
+
+Mike Johnson, who shut down the House to avoid a vote to release the files, is the parent who says, “don’t take about it.” Pam Bondi and Karoline Leavitt are the siblings who choose to further victimize rather than upset their own world. Vance and hundreds of other Republicans are the friends and neighbors who don’t look too closely because they don’t want to know…but they know.
+
+The Republican Party is shielded when we only focus on Trump. The entire party must be held accountable."
+
+* :::=== RoundSparrow_Commentary : not just enabling sexual, but lust for power, wealth. Glutton, greedy. Bible verse "1 John 3:17" ===:::
