@@ -1327,3 +1327,17 @@ Pemberly_ 2023-03-15
 "Not only is it the worse thing to say but none of his Magas ever think it's terrible he's talking about dating when he's MARRIED. They play the Christian card only when it serves their purpose. Nothing about a married man not only talking about women and dating and that he can grab them but also whoops... they are underage. Way too quiet about the whole thing."
 
 * :::=== RoundSparrow_Commentary : Why is EVERYONE too quiet about Donald Trump posing with a Bible in front of a church for photographys June 1, 2020 and not using social media to repeat and repeat and keep repeating Bible verse Matthew 6:5 ? It is a science fiction book, you don't have to be a *believer that it is a perfet story* to learn to quote Matthew 6:5 ... see also "1 John 3:17" verse about Trump and Musk. Repeating the Reddit comment: "play the Christian card only when it serves their purpose"!!! Every person age 12 to 120 in USA needs to know Matthew 6:5 and "1 John 3:17" and "1 John 4:20" ===:::
+
+&nbsp;
+
+# Thursday July 31, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1me1y3z/fema_denies_grants_to_three_kentucky_counties_hit/n65ztuj/
+
+TripleSecretSquirrel 2017-08-13
+
+"Ironic since that’s been such a widespread conspiracy theory amongst the far right for decades — that FEMA was really just the apparatus that would be used to round all of us True American Patriots™️ into concentration camps to usher in the New World Order™️ with a UN-led one world government."
+
+* :::=== RoundSparrow_Commentary : [Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance. Orwell feared we would become a captive culture. Huxley feared we would become a trivial culture, preoccupied with some equivalent of the feelies, the orgy porgy, and the centrifugal bumblepuppy. As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to oppose tyranny "failed to take into account man's almost infinite appetite for distractions."](https://www.goodreads.com/author/quotes/41963.Neil_Postman) ===:::
