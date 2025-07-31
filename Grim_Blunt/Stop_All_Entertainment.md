@@ -26,6 +26,8 @@ Cut out sports entertainment topics, video game topics, clear the media airwaves
 
 3. Instead of mocking MAGA and Donald Trump, post examples of "Menace of Unreality" behavior. How you witness people who seem to be consuming false information and repeating it, paraphrasing misunderstandings in their own words. Make this a topic about Russian war against Reality that started with the Ukraine war in 2014, not about insulting and mocking MAGA and dumb stupid idiots, but that we were outsmarted by Russia and you are alarmed, disturbed, concerned, and seeking people to be serious about the topic.
 
+4. Make Neil Postman 1985 book a household name. His 1992 book, his September 1995 book. There are YouTube videos, books to quote. Make this about words of a dead man, a forgotten American, and how the Apple iPhone and iPad and Internet have changed everything. Don't make this about Donald Trump and MAGA, make this about *rescuing America* from a media feedback loop, Internet-driven "the media" social media total mockery.
+
 &nbsp;
 
 ## Building upon the September 9, 2014 story
