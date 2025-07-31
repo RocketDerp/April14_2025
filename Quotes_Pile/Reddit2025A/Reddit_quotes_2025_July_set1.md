@@ -634,3 +634,13 @@ That was only the beginning...and it's been less than six months into MAGA's ter
 It's only going to get worse from here."
 
 * :::=== RoundSparrow_Commentary : "a full third of the country is cheering for stuff like this" - denial abounds. 1) not all nonvoters are not MAGA, and people under the legal age or otherwise not able to vote an be MAGA too, indoctrinated into Donald Trump / Rupert Murdoch media cult and Russia information warfare since March 2013. 2) One third is cheering: **liberals are dumb idiots and deserve to be punished for abortions and not following Trump orders**, 2) The rest are cheering: MAGA is dumb idiots. 3) Nobody is outside the total mockery of MAGA vs. people reacting with hate against MAGA. It is all media engagement, Bluesky vs. Twitter, Reddit vs. Facebook, subreddit vs. subreddit. THE POINT: It isn't just ONE THIRD. Anything short of remedial morality lessons, teaching Neil Postman 1985, teaching goodness and reality information warfare - is INSIDE the out-group hate patterns that started in March 2013. The situation is extremely grim. People (not just one-third, but everyone) are consuming media about the sitaution and not doing DRASTIC things like stopping all entertainment (video games, sports) on social media to assert FACTUAL educaiton and COMPREHENSION / UNDERSTANDING. [Why isn't Jen Senko a household name since March 2016?](https://www.nytimes.com/2016/03/18/movies/the-brainwashing-of-my-dad-review.html) A **baby boomer** who stood up to confront the problem. Even if you find her film weak, it is standing up for the *small person*, not the "big guy", and should inspire people to organize and make better presentations. Same with Malala's October 8, 2013 book and chapter on Radio Mullah in Pakstian. People are not staying sustianed on media ecology influence problems. [What can we do in the 2nd half of 2025 situation in USA, ideas?](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mdgsk2/trump_administration_says_its_going_to_start_to/n62nzok/
+
+A_Refill_of_Mr_Pibb 2020-09-26
+
+"I'd rather be someone who over-reacted and was wrong if it means it doesn't end up this way, then someone who turned out to be right."
+
+* :::=== RoundSparrow_Commentary : Yes, agreed. call to intellectual arms. [What can we do in the 2nd half of 2025 situation in USA, ideas?](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
