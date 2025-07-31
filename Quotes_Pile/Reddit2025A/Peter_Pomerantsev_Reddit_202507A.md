@@ -1350,3 +1350,12 @@ caseyanthonyftw 2013-06-15
 
 "I'm probably late to the game but it just occurred to me that they're scared of all the BS they spew (Obama death panels, Pizzagate) because it's what they would do themselves if they were in the same position of power. Lacking empathy, they can't imagine that someone else could possibly work for an organization for the sake of trying to do some good."
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1me1y3z/fema_denies_grants_to_three_kentucky_counties_hit/n661d85/
+
+millos15 2013-01-04
+
+"Will Kentucky realize voting matters? Nah they will vote against themselves next time"
+
+* :::=== RoundSparrow_Commentary : Twitter-length Bluesky-length comment. Will social media consumers, "The Media" consumers, ever realize that voting is an act of *a few hours* of action taken to push buttons. And that the upvote button on Reddit social media, the Like button on Bluesky social media is **every day all day** and that billions of dollars (and the entire Elon Musk Twitter platform, Rupert Murdoch media empire, Donald Trump Truth Social) are all hammering to trick and manipulate minds *ever hour of every day, automated meme mills*? "realize voting matters?" - REALITY matters in EVERY AREA OF LIFE. Being able to distinguish fiction from non-fiction matters NO MATTER WHICH NATION you live in: Canada, United States of America, Palestine, Israel, Russia - **REALITY matters** no matter what time of day, day of week, voting day in elections or voting on social media! Media ecology literacy of religions and politics *matters*. Do you think billions of dollars are spent to market and advertise Corporate America and Political Parties is accidental spending of money? That years and years of mental programming doesn't go into that voting booth election day button push, and it is revealed in they tiny simplistic thinking Reddit comments of "Nah they will vote against themselves next time" -- Peter Pomerantsev's dozens and dozens of published article and several books MATTER! Neil Postman's massive library of published books matters! Marshall McLuhan matters, EVERY DAY OF EVERY YEAR, not just voting days in one single nation, the USA. :::===
