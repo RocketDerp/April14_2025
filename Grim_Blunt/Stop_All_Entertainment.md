@@ -2,7 +2,17 @@
 
 Be serious and sustain serious on social media. People not participating on social media, start participating in a fashion of sounding alarm, posting repeat alerts.
 
-Cut out sports entertainment topics, video game topics, clear the media airwaves for serious factual discussion. Show concern that people are treating the White House as amusing and entertaining, that people are *enjoying* insulting and mocking Donald Trump, Elon Musk, JD Vance - and it is time to be serious and cut down the less-important amusement and entertainment topics in favor of people getting on the same page that it is a civic duty to understand and comprehend the changes in society.
+Why? Please take 6 to 12 minutes:
+
+1. Recommended 6 minute video: **Amusing Ourselves to Death** 1985 book, modern introduction on YouTube: https://www.youtube.com/watch?v=ETUGwC9jXCM
+
+2. Recommend reading from March 27, 2024 - before the November 2024 election. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+
+&nbsp;
+
+### Call for Intellectual Arms, being serious
+
+Cut out sports entertainment topics, video game topics, clear the media airwaves for serious factual discussion. Call for people to "end mental denial" of how bad things have become. Show concern that people are treating the White House as amusing and entertaining, that people are *enjoying* insulting and mocking Donald Trump, Elon Musk, JD Vance - and it is time to be serious and cut down the less-important amusement and entertainment topics in favor of people getting on the same page that it is a civic duty to understand and comprehend the changes in society.
 
 &nbsp;
 
