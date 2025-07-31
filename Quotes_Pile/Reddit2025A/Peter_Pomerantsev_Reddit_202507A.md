@@ -1307,3 +1307,14 @@ Er3bus13 2020-12-10
 "His base only processes the propaganda,from fox news. The only real thing to learn from this is brainwashing dlfucking works and its terrifying."
 
 * :::=== RoundSparrow_Commentary : Believes that brainwashing works, but *only* the base via very old 1996 television Fox News technoloy, not the latest smartphone and Reddit social media technology, *Only the OTHERS are brainwashed by electric media*, no will or desire to provide a quote. No quote of March 2016 film from Jen Senko, no quote from Andrew Postman 2017, Neil Postman 1985, etc, etc. Just Twotter-length simple-think, but *ONLY the others are brainwasted into simple Twitter thinking*.  ***MAGA CALLS LIBERALS BRAINWASHED TOO!*** ["according to Ben Shapiro, there's only one view allowed on most college campuses: a rabid brand of liberalism that must be swallowed hook, line, and sinker. In this explosive book, Ben Shapiro, a college student himself, reveals how America's university system is one of the largest brainwashing machines on the planet."](https://www.amazon.com/Brainwashed-Universities-Indoctrinate-Americas-Youth/dp/0785261486) - a constant forest for the trees perspective problem. ===:::
+
+&nbsp;
+
+"It still boggles my mind that a huge portion of America worships at the altar of the sleaziest guy around."
+
+https://old.reddit.com/r/PublicFreakout/comments/1mdko5y/trump_telling_a_10_year_old_girl_he_will_be/n62n85l/
+
+RKKP2015 2018-06-13
+
+* :::=== RoundSparrow_Commentary : Which is WHY it makes so much sense to focus on Fox News, media ecology (Neil Postman 1985 book "Amusing Ourselves to Death") and Russian Information Warfare that started a year before the Ukraine war, focus on Peter Pomerantsev. We, the people, can repeat and repeat: Blame fucking Putin. Take Surkov's public Febraury 2019 claim seriously! Stick to the topic, assert and repeat, [stop acting like Fox News doesn't fuck over family and what Surkov says to Americans in February 12, 2019 be taken seriously](https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793). ===:::
+
