@@ -1,4 +1,8 @@
-secret non-public removal, they do this in secrecy, no names, just disappear
+secret non-public removal, they do this in secrecy, no names, just disappear  
+System operators do not use social media to debate and educate in public for the sake of all mankind learning from human conflicts, System operators use a behind the scene secretive non-public system to disappear years of ideas. Absolute power of a machine to press one button and disappear entire published libraries. NYU media ecology professor Neil Postman was correct.
+
+&nbsp;
+
 
 July 31, 2025 at 8:19 AM
 
