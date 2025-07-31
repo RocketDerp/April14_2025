@@ -1341,3 +1341,12 @@ TripleSecretSquirrel 2017-08-13
 "Ironic since that’s been such a widespread conspiracy theory amongst the far right for decades — that FEMA was really just the apparatus that would be used to round all of us True American Patriots™️ into concentration camps to usher in the New World Order™️ with a UN-led one world government."
 
 * :::=== RoundSparrow_Commentary : [Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance. Orwell feared we would become a captive culture. Huxley feared we would become a trivial culture, preoccupied with some equivalent of the feelies, the orgy porgy, and the centrifugal bumblepuppy. As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to oppose tyranny "failed to take into account man's almost infinite appetite for distractions."](https://www.goodreads.com/author/quotes/41963.Neil_Postman) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1me1y3z/fema_denies_grants_to_three_kentucky_counties_hit/n665rt1/
+
+caseyanthonyftw 2013-06-15
+
+"I'm probably late to the game but it just occurred to me that they're scared of all the BS they spew (Obama death panels, Pizzagate) because it's what they would do themselves if they were in the same position of power. Lacking empathy, they can't imagine that someone else could possibly work for an organization for the sake of trying to do some good."
+
