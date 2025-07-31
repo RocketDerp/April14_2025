@@ -1404,3 +1404,12 @@ Jodid0 2024-03-24
 
 * :::=== RoundSparrow_Commentary : "No they aren't very smart, but their lack of intelligence does not even explain a fraction of the shit MAGA is doing." - yes, but you can't link or cite a single author or citation in your message. "akes them feel smart and superior to experts and actual intelligent people" - oh WHICH experts? Neil Postman? Peter Pomerantsev [2014: "Menace of Unreality", "Information Warfare"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Repeating: "their lack of intelligence does not even explain a fraction of the shit MAGA is doing" - yes, but Russian information warfare of no-idetntiy Reddit social media users to avoid links and citations sure does! Since march 2013. "He empowers them and makes them feel like they have everything all figured out" - just like media systems of the Levant Torah, Levant Quran, Levant Bible do. And I don't see Reddit teaching remedial Bible literacy lessons on how verse "1 John 3:17" should be known by every single American age 12 to 120 and repeated EVERY DAY on social media until everyone an cite the verse by heart... and apply it to Elon Musk and Donald Turmp. See also: "1 John 4:20" verse. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1me2e4g/no_other_option_russian_state_media_article/n66a2kl/
+
+dlebed 2014-05-10
+
+"Nothing new. RIA Novosti published an article "What Russia should do with Ukraine" on Apr 3rd, 2022, a few days after Russian army retreated from Kyiv, Chernihiv, and Sumy and the world have discovered massacre in Bucha and other terrible war crimes. That article called to a "Final solution to Ukrainian question" with a clear reference to Nazi genocide of Jews in Holocuast.
+
+This was Russian's intension from the very beginning of the full-scale invasion - to wipe our Ukraine as a nation."
