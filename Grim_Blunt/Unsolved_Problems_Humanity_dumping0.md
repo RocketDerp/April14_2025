@@ -45,7 +45,7 @@ The whole human race, over 8 billion people alive today, is not winning this gam
 
 https://autistics.life/@RoundSparrow/114919207556423747
 
-1. #MAGA understandings and comprehensions are bad. Bad is bad. There is no winning in USA that people believe liars, falsehoods, clever mob mentality manipulators.
+1. MAGA understandings and comprehensions are bad. Bad is bad. There is no winning in USA that people believe liars, falsehoods, misunderstandings, clever tricksters and mob mentality manipulators.
 
 2. Social media users show every day that they are thrilled MAGA is failures to insult and mock.
 
