@@ -1423,3 +1423,13 @@ dm783R29U3Cwp3d76R9 2020-09-14
 "It’s not Putin. Whole society is like that."
 
 * :::=== RoundSparrow_Commentary : [mob mentality of mass psychosis group thinking](https://www.youtube.com/watch?v=09maaUaRT4M) :::===
+
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1meb160/why_not_why/
+
+* :::=== RoundSparrow_Commentary : People asking how? Why? ***THAT IS THE POINT***, none of this USA voter makes sense unless you grasp Peter P's War Against Reality, people are not understanding this is *real*, no matter how much they claim they grasp. Until they have taken very serious Neil Postman 1985, Andrew Postman 2017, *media ecology* - they can not see the audience problem of mythology. Fiction vs. nonfiction. Amusing ourselves to entertainment death. We find it absurd surreal, the very title fo Peter P's 2014 book. And by people mocking and insutling MAGA in year 2025, we are only teaching that our faith is in mocking and insulting - which reinforces Donald Trump's trajectory! By mocking Trump, we are behaving like Trump. The answer is this warfare is: [Make Neil Postman a Household Name, Fix Bible Literacy problems of MAGA / Christian Nalitionalists](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
+
