@@ -549,3 +549,88 @@ https://old.reddit.com/r/politics/comments/1mdgsk2/trump_administration_says_its
 commit10 2012-08-07
 
 "I don't think you understand the gravity of what's happening yet. They're not going to be caring for them. They're going to be put into concentration camps where they'll be put into forced labour and they'll die in huge numbers."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mdgsk2/trump_administration_says_its_going_to_start_to/n61tu1r/
+
+JaceyLessThan3 2014-11-05
+
+"They are banking on AI obsoleting human workers. As far as care and feeding, I imagine they don't plan on keeping their prisoners around for long."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mdgsk2/trump_administration_says_its_going_to_start_to/n61r2sv/
+
+Deep_Seas_QA 2022-02-20
+
+"I just had to turn off NPR because they were having this discussion as though the trump administration is going to build mental health facilities and try to actually do this the right way. There is no way that this is what they are talking about, why would they be gutting medicaid if that is what they wanted? I have no doubt they will be putting these people in detention camps similar to the migrants. I think they are going to try to make them work on farms, similar to the US prison systems work program. It more or less says this in project 2025."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mdgsk2/trump_administration_says_its_going_to_start_to/n629kll/
+
+agooseyouhate 2022-01-19
+
+"I saw a LOT of people missing the part where the mentally ill were included when this news first dropped. 
+
+Saying "Rare Trump W!!1" and shit because they interpreted it as some sort of cozy rehab for addicts and getting unhoused people the help they need and finding them jobs. A lot of people, even some who hate Trump, are still not waking up to reality. It's there in 2025 as you point out. Sometimes I feel like I'm on another planet. 
+
+I hate what NPR has become."
+
+&nbsp;
+
+Spa_5_Fitness_Camp 2015-03-11
+
+"People are focusing on the wrong thing here. "Mentally ill" is the scary part. Why? Because there are multiple pushes at the state level to define things like "being liberal" as a mental illness. This is all part of their plan to "legalize" arresting political opposition and voters."
+
+&nbsp;
+
+.
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mdgsk2/trump_administration_says_its_going_to_start_to/n61l4jy/
+
+ChilledParadox 2012-08-18
+
+"Buddy I’ve been homeless and shouting about this for months now. We’ve known this was happening. I’ve been watching it happen in slow motion.
+
+Food banks near me are already half gutted. The soup kitchens are already serving less food. They took away programs for free government phones so you can’t get one as a homeless person anymore. The police have started harassing me for just sitting at the park in the day time to take a nap. They already took my food stamps and I have been in constant hunger for the last couple weeks and having constant panic attacks wondering what my options even are. I’m terrified to ask strangers for help on the street so I don’t even beg because I worry someone will report me for literally just being too poor to afford a house. I had to mail my ID in to the SS offices to get a new SS card and I’m basically hiding 24/7 until I get my ID back and I can’t even use fucking services until then. States started criminalizing homelessness years ago.
+
+I’m homeless because my parents beat and abused me for a decade until I escaped into college. My dorms closed during Covid and my only option was to go back to the street. I’ve worked as a janitor, in soup kitchens, in factories - doing shit jobs no one else will do - and they don’t even pay enough for me to take care of my medical debt, student loan debt, housing, or anything that might qualify as entertainment.
+
+I don’t feel like I deserve to go to prison because I was set up to fail. I graduated high school with a 4.3 GPA and a 35 ACT and took every AP class my school let me.
+
+Yet I can’t get a job because I have no work history and I can’t get work history because I have no work history and now my student loan debt is going to garnish wages from a job even if I did get one.
+
+So I’m homeless. I have no family or friends. I have diabetes and severe anxiety and depression issues.
+
+What do I even look forward to at this point?
+
+I haven’t had food stamps since last month and I’m constantly hungry.
+
+There is nothing to give me hope.
+
+Someone tell me, genuinely, why should I not just kill myself at this point? Genuinely what is the point of fighting and fighting my entire life just to end up here. When can I rest?"
+
+
+&nbsp;
+
+.
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mdgsk2/trump_administration_says_its_going_to_start_to/n61v2yw/
+
+joefred111 2013-08-22
+
+"Realllyy speedrunning Nazi Germany. This was one of the first things they did to "clean up" the country.
+
+Immigrants, minorities, the LBGT community, the homeless, and the handicapped (think about RFK Jr trying to make a list of autistic people) were rounded up for forced labor, sterilization, or worse.
+
+That was only the beginning...and it's been less than six months into MAGA's term, and a full third of the country is cheering for stuff like this.
+
+It's only going to get worse from here."
+
+* :::=== RoundSparrow_Commentary : "a full third of the country is cheering for stuff like this" - denial abounds. 1) not all nonvoters are not MAGA, and people under the legal age or otherwise not able to vote an be MAGA too, indoctrinated into Donald Trump / Rupert Murdoch media cult and Russia information warfare since March 2013. 2) One third is cheering: **liberals are dumb idiots and deserve to be punished for abortions and not following Trump orders**, 2) The rest are cheering: MAGA is dumb idiots. 3) Nobody is outside the total mockery of MAGA vs. people reacting with hate against MAGA. It is all media engagement, Bluesky vs. Twitter, Reddit vs. Facebook, subreddit vs. subreddit. THE POINT: It isn't just ONE THIRD. Anything short of remedial morality lessons, teaching Neil Postman 1985, teaching goodness and reality information warfare - is INSIDE the out-group hate patterns that started in March 2013. The situation is extremely grim. People (not just one-third, but everyone) are consuming media about the sitaution and not doing DRASTIC things like stopping all entertainment (video games, sports) on social media to assert FACTUAL educaiton and COMPREHENSION / UNDERSTANDING. [Why isn't Jen Senko a household name since March 2016?](https://www.nytimes.com/2016/03/18/movies/the-brainwashing-of-my-dad-review.html) A **baby boomer** who stood up to confront the problem. Even if you find her film weak, it is standing up for the *small person*, not the "big guy", and should inspire people to organize and make better presentations. Same with Malala's October 8, 2013 book and chapter on Radio Mullah in Pakstian. People are not staying sustianed on media ecology influence problems. ===:::
