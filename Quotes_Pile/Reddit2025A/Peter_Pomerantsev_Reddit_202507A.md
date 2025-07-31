@@ -989,7 +989,7 @@ It would be a stain on humanity if we just allow him to run out the clock instea
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1m8983z/the_official_democrats_account_on_twitter_holding/
 
-"Holding nothing back" *we win* meme for meme attitude. The crisis is not just one single person, Donald Trump, but [mob mentality of mass psychosis group thinking](). Induced by: media ecology literacy failure, Russian information warfare since March 2013 (including doctorates at Cambridge Analytica). What people are holding back is confronting the power of Elon Musk and Donald Trump: reactionary Twitter messages / reactionary meme-thinking. And this is one more *inside the Surkovian governing*, of appeasing to the crowd instead of lecturing people on morality and Neil Postman media ecology. Can't be "too preachy" and "too nerdy" and quote book professors on how Russian information warfare works. The framing of this, "the medium is the message" of the message frame on Reddit is ***"White People Twitter"*** of the Democrat political party. White skin color mind-fuck of Reddit audience. This is *eating the Surkovian onions, inside the simularcra of resistance*, not calling out mythological media behaviors - but being *inside without demonstrated ability to articulte self-awareness*. [Peter Pomerantsev 2014 ignored](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/).
+"Holding nothing back" *we win* meme for meme attitude. The crisis is not just one single person, Donald Trump, but [mob mentality of mass psychosis group thinking](https://www.youtube.com/watch?v=09maaUaRT4M). Induced by: media ecology literacy failure, Russian information warfare since March 2013 (including doctorates at Cambridge Analytica). What people are holding back is confronting the power of Elon Musk and Donald Trump: reactionary Twitter messages / reactionary meme-thinking. And this is one more *inside the Surkovian governing*, of appeasing to the crowd instead of lecturing people on morality and Neil Postman media ecology. Can't be "too preachy" and "too nerdy" and quote book professors on how Russian information warfare works. The framing of this, "the medium is the message" of the message frame on Reddit is ***"White People Twitter"*** of the Democrat political party. White skin color mind-fuck of Reddit audience. This is *eating the Surkovian onions, inside the simularcra of resistance*, not calling out mythological media behaviors - but being *inside without demonstrated ability to articulte self-awareness*. [Peter Pomerantsev 2014 ignored](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/).
 
 &nbsp;
 
@@ -1413,3 +1413,13 @@ dlebed 2014-05-10
 "Nothing new. RIA Novosti published an article "What Russia should do with Ukraine" on Apr 3rd, 2022, a few days after Russian army retreated from Kyiv, Chernihiv, and Sumy and the world have discovered massacre in Bucha and other terrible war crimes. That article called to a "Final solution to Ukrainian question" with a clear reference to Nazi genocide of Jews in Holocuast.
 
 This was Russian's intension from the very beginning of the full-scale invasion - to wipe our Ukraine as a nation."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1me2e4g/no_other_option_russian_state_media_article/n67djcy/
+
+dm783R29U3Cwp3d76R9 2020-09-14 
+
+"It’s not Putin. Whole society is like that."
+
+* :::=== RoundSparrow_Commentary : [mob mentality of mass psychosis group thinking](https://www.youtube.com/watch?v=09maaUaRT4M) :::===
