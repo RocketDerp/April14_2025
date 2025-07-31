@@ -1317,3 +1317,13 @@ https://old.reddit.com/r/PublicFreakout/comments/1mdko5y/trump_telling_a_10_year
 RKKP2015 2018-06-13
 
 * :::=== RoundSparrow_Commentary : Which is WHY it makes so much sense to focus on Fox News, media ecology (Neil Postman 1985 book "Amusing Ourselves to Death") and Russian Information Warfare that started a year before the Ukraine war, focus on Peter Pomerantsev. We, the people, can repeat and repeat: Blame fucking Putin. Take Surkov's public Febraury 2019 claim seriously! Stick to the topic, assert and repeat, [stop acting like Fox News doesn't fuck over family relationships and take what Surkov says to Americans in February 12, 2019 seriously](https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mdko5y/trump_telling_a_10_year_old_girl_he_will_be/n62iggt/
+
+Pemberly_ 2023-03-15
+
+"Not only is it the worse thing to say but none of his Magas ever think it's terrible he's talking about dating when he's MARRIED. They play the Christian card only when it serves their purpose. Nothing about a married man not only talking about women and dating and that he can grab them but also whoops... they are underage. Way too quiet about the whole thing."
+
+ :::=== RoundSparrow_Commentary : Why is EVERYONE too quiet about Donald Trump posing with a Bible in front of a church for photographys June 1, 2020 and not using social media to repeat and repeat and keep repeating Bible verse Matthew 6:5 ? It is a science fiction book, you don't have to be a *believer that it is a perfet story* to learn to quote Matthew 6:5 ... see also "1 John 3:17" verse about Trump and Musk. ===:::
