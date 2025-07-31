@@ -1433,3 +1433,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1meb160/why_not_why/
 
 * :::=== RoundSparrow_Commentary : People asking how? Why? [November 2015 - a year before election in 2016](https://www.politico.com/story/2015/11/donald-trump-mocks-new-york-times-reporter-serge-kovaleski-216219). ***THAT IS THE POINT I AM HAMMERING ON - HOW***, none of this USA voter behavior makes sense unless you grasp [Peter P's War Against Reality](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/), people are not understanding this is *real*, no matter how much they claim they grasp. Until they have taken very serious Neil Postman 1985, Andrew Postman 2017, *media ecology* - they can not see the audience problem of mythology. Fiction vs. nonfiction. Amusing ourselves to entertainment death. We find it absurd surreal, the very title fo Peter P's 2014 book. And by people mocking and insutling MAGA in year 2025, we are only teaching that our faith is in mocking and insulting - which reinforces Donald Trump's trajectory! By mocking Trump, we are behaving like Trump. The answer is this warfare is: [Make Neil Postman a Household Name, Fix Bible Literacy problems of MAGA / Christian Nalitionalists](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/OfficeSpeak/comments/1me80jj/trump_made_4725_wire_transfers_to_epstein/n68uqwr/
+
+zeny_two 2014-06-30
+
+"Exhibit A. Not a single attempt at a logical thought. Just insults."
+
