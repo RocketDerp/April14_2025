@@ -55,3 +55,16 @@ Point out that the USA Constitutions does not say "love one another", or promote
 Keep pointing out that the law doesn't say "love your neighbor", "love your enemy", "love one another". And that is what you are standing up for. It isn't in the laws. It is something the Church used to teach and understand, and Dr. Martin Luther King Jr was *part of that church*... but how is teaching it today in 2025? It is your civic duty to *point out* that life isn't enjoyable when people are waging war, such as Russia bombing Ukraine from the sky, and love and compassion teaching has to come from somewhere if the Church of 1954 is no longer around - then it is our civic duty on social media to speak up and assert, repeating.
 
 Do you really want to live in a heartless nation of bullies and haters who only love people they agree with because they all watch the same television news network? Love actually *does matter* for strangers. Medical services, safe food, decent housing. Do we really want to live in a nation of people trying to constantly trick each other out of their bank account money, manipulating the elderly and overworked minds in society, with artificial intelligence systems sending us fake information and people playing scams on us all the time? It takes a lot of fun and joy out of society when everyone is a shady salesperson or scammer trying to screw over their neighbors and fellow Americans.
+
+
+&nbsp;
+
+&nbsp;
+
+## Bible Literacy
+
+Make these verses known by everyone of every religion (or atheist) age 12 to 120:
+
+Matthew 6:5 - Trump posing with Bible   
+"1 John 3:17" - Wealth hoarding    
+"1 John 4:20" - "I love Jesus is wrong", hate of anyone is wrong.   
