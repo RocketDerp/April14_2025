@@ -1531,3 +1531,18 @@ Pegasus7915 2014-03-29
 "For his base? How about for us all. No one is stopping him from shaping it to his will. He might as well actually be the real fucking anti christ at this point. No one is actually resisting him. Oh sure, we all go out in the streets and yell a bit, but we don't actually take any real action to stop him. That would take too much work. We are so afraid of losing everything that we are just sitting passively while it is ripped away from us piece by piece."
 
 * :::=== RoundSparrow_Commentary : Exactly. So many keep parroting: one third of Americans, not ALL Americans. Reality is pulled into the black hole of MAGA / Trump. There is zero evidence anyone can escape it and find Peter Pomerantsev's 2014 book and articles and say it is Surkovian governing. Nobody is demonstrating self-awareness by describing Russia year 2012 techniques of simualcra, information war, and anti-reality. Adam Curtis 2014... uncited. ===:::
+
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mf4e88/donald_trump_fires_person_behind_jobs_numbers/n6ekgcf/
+
+FartyJizzums 2023-02-12
+
+"At first, I thought that this was funny. It shows his detachment from reality and his thin skin.
+
+But then I realized that this is terrifying and extremely bad news. This is how authoritarians work. They control the information as well as the narrative. They essentially have a stranglehold on the perception of reality itself within the country.
+
+Don't like the facts? Fire the person with the audacity to report it. Then, find a replacement that you can control. Job numbers are up all of a sudden. Imagine that."
+
+* :::=== RoundSparrow_Commentary : At firt, you were amused, then you went on scrolling Reddit the amusement mill and never studied Neil Postman's 1985 book "Amusing Ourselves to Death", seeing the forest of TOTAL USA (and NATO beyond) response to Putin + Trump since March 2013... and instead see only the tree of the day in front of you. Donald Trump playing Tony Clifon character engages the audience in total mockery. ===:::
