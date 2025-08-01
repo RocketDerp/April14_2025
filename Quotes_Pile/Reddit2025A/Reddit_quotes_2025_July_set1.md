@@ -658,3 +658,19 @@ Mike Johnson, who shut down the House to avoid a vote to release the files, is t
 The Republican Party is shielded when we only focus on Trump. The entire party must be held accountable."
 
 * :::=== RoundSparrow_Commentary : not just enabling sexual, but lust for power, wealth. Glutton, greedy. Bible verse "1 John 3:17" ===:::
+
+&nbsp;
+
+&nbsp;
+
+# Thursday July 31, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mefw2q/smithsonian_removes_trump_from_impeachment/n695rax/
+
+cakeorcake 2022-01-05
+
+"My thought exactly. Do we have any moral or intellectual integrity as a society?"
+
+* :::=== RoundSparrow_Commentary : The Constitution does not say "be honest to each other", "love one another". In 1776, that was the role of the clergy. Have you see the Middle East since October 7, 2023? Aclergy that can't recall to teach verse Matthew 6:5 when Donald Trump poses with the Bible? We The People need to stop react-commenting with this Twitter-length reactions about how badly intellectual integrity and morality have become in society and take over the role of clergy. Without love and copassion,what kind of health care system to you think we will continue in USA? It hasbecome *We The People*, social media's job to stop with the Tweeting one-line reaction comments and start remedial morality, remedial civis,and remedial comparative mythology teaching. And behave as if goodness itself matters. Because the popularity of hate shows popularity itself has become toxic. “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity...  No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945 ===:::
