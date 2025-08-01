@@ -113,6 +113,12 @@ I had seen these waves of technology media-driven changes before. I was a publis
 
 In North Africa it may have been university middle class women age 20 to 28 in 2009... the middle class home personal computer was having impact for an upstart in another part of the world that same year: "Malala Yousafzai did start blogging in 2009. At 11 years old, she began writing anonymously under the pseudonym "Gul Makai" for the BBC Urdu website. Her blog documented her experiences living under Taliban rule in the Swat Valley and expressed her desire to attend school, which had been banned for girls by the Taliban."
 
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+* REPEATING:  » All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the message. **Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments**. « - Marshall McLuhan, Quentin Fiore
+1967
+
 When Malala first came to my attention in the days following October 9, 2012 - I recognized right away how media ecology of living under a terrorism passport situaiton (unwelcome in the world) with world wide web Internet English skills had influnced her media ecology thinking.
 
 When I got into social media and interacted with strangers at age 13, it was tied to geography of a weak radio signal and you knew a voice. And you rode your bike and you met up with people at gatherings. And when you got a commodore 64 there were users groups. Not that many people went to users groups given that several retail stores sold the computers and clearly lots of people had them, but the large public schools did not have computer clubs or computers for general studends. But we formed them, maybe 12 to 80 people show up, regional within the city (wasn't the norm to travel across city to such an event monthly).
