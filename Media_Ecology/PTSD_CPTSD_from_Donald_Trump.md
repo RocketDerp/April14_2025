@@ -67,6 +67,18 @@ https://old.reddit.com/r/CringeTikToks/comments/1mezced/trump_supporter_says_joe
 
 The extreme frustration that other people tusted Fox News television and not you. The power of media systems to overpower *the little guy* with the billioniare *big guy* commercial art. See: Jen Senko's film and book,a baby boomer who stood up to Fox News and other media.
 
+# I could have done more
+
+I didn't even know about the measles being Russia manipulation of hearts and minds since year 2014. Hurricanes in year 2024, I could have done more to speak up!
+
+https://encyclopedia.ushmm.org/content/en/article/martin-niemoeller-first-they-came-for-the-socialists
+
+&nbsp;
+
+# If I had only read [that book](https://www.youtube.com/watch?v=5Au332OG-M4) in 2014!
+
+or watched that Adam Curtis New Years Eve 2014 video!
+
 &nbsp;
 
 &nbsp;
