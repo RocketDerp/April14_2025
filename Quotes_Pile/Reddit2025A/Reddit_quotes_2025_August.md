@@ -183,3 +183,25 @@ Reddit always sets up some unlikely scenario, gets let down by reality, then com
 If it's literally a handful of payments, it could be business or party related expenses. It could by reimbursements. It could be kiddy diddling. It could be 4000 payments (suspicious as hell) or 10 payments (not a lot considering who they are)."
 
 * :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. That's the whole basis of Fox News and Donald Trump success. Fiction is more popular than facts and truth. We have a media ecology crisis that spans decades. Neil Postman in 1985 published a book... It isn't that poeple aren't posting accurate information on Reddit, it is not popularity. People are not facing up that **Donald Trump is popular, mocking and hating Donald Trump is popular**. Non-fiction sincerity and science truth are not popular. Neil Postman in [1985 published a book...](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mezp5q/fbi_redacted_trumps_name_in_epstein_files/n6din1h/
+
+peepee2tiny 2021-11-28
+
+"What's the difference between this and a country like North Korea or Russia?
+
+Dictator rules with an iron fist and every check and balance in place is a farce with people too scared to say no. So everyone just tells the Emperor his clothes look nice and everyone carries on.
+
+America you are the laughing stock of the world. Just too bad the rest of the world has to sit and navigate Trump's global tariff circus while our investments are bouncing around."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1mf68yk/american_eagle_issues_a_statement_following/n6eu9z5/
+
+busangcf 2020-05-15
+
+"There were lots of people on this very subreddit just a day or two ago saying “it’s not that deep” and that people were looking for something to be mad at, so yes they do reasonably believe a lot of people are that stupid.
+
+Edit - actually there are people on this very thread still saying that, even after the gloating on linked in, even after knowing their CEO has ties to Trump, and even after the fucking White House weighing in. So YEAH, of course they believe people are that stupid."
