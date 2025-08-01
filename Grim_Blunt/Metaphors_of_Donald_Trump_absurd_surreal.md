@@ -63,28 +63,20 @@ because the word, having an aura of sacredness, is not to be used lightly
 and also because it calls to mind a fixed figure or image.    
 3:11
 But it is the purpose of such figures or images
-3:16
 to direct one's mind to an idea,
-3:20
-and, more to the point, to a story.
+and, more to the point, to a story.     
+
 3:24
 Not any kind of story,
-3:27
 but one that tells of origins and envisions of future,
-3:32
 a story that constructs ideals, prescribes rules of conduct,
-3:38
-provides a source of authority, and gives a sense of continuity and purpose.
+provides a source of authority, and gives a sense of continuity and purpose.    
 3:45
 A god, in the sense I'm using the word, is the name of a great narrative,
-3:52
 one that has sufficient credibility, complexity, and symbolic power,
-3:59
-so that it's possible to organize one's life and one's learning around it.
+so that it's possible to organize one's life and one's learning around it.    
 4:06
-Without such a transcendent narrative, life has no meaning.
-4:12
-Without meaning, learning has no purpose.
-4:16
-Without purpose, schools become houses of detention, not attention.
+Without such a transcendent narrative, life has no meaning.    
 
+4:12
+Without meaning, learning has no purpose. Without purpose, schools become houses of detention, not attention.
