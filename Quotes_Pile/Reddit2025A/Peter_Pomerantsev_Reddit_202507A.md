@@ -1475,4 +1475,4 @@ p_coletraine 2014-07-14
 
 Fucking seriously"
 
-* :::=== RoundSparrow_Commentary : Everything is media ecology. ===:::
+* :::=== RoundSparrow_Commentary : [Everything is media ecology](../../Media_Ecology/Everything_is_ME.md). ===:::
