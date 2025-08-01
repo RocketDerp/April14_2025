@@ -16,7 +16,8 @@ Dr. Carl Jung, After the Catastrophe, 1945
 
 # PTSD / CPTSD for families of Trump supporters
 
-And workplace co-workers, employees of Trump supporters, etc.
+And workplace co-workers, employees of Trump supporters, etc.   
+Church congregation of Trump supporting clergy.    
 
 &nbsp;
 
@@ -24,4 +25,15 @@ And workplace co-workers, employees of Trump supporters, etc.
 
 “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s **simply too painful to acknowledge, even to ourselves, that we’ve been taken**. Once you give a charlatan power over you, you almost never get it back.”
 ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark. Published in 1995, shortly before his death fro cancer. He knew about pain.
+
+&nbsp;
+
+## Flag image trauma 
+
+Trump supporters really waved a lot of flags in faces for what in reality was Putin values, Russia. A false flag symbolism in the brain attack of information warfare.
+
+## Red Hat trauma
+
+Seeing a red hat, regardless of what it says or images on it.
+
 
