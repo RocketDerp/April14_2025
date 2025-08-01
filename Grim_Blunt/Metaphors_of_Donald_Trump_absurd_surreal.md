@@ -75,15 +75,26 @@ A god, in the sense I'm using the word, is the name of a great narrative,
 one that has sufficient credibility, complexity, and symbolic power,
 so that it's possible to organize one's life and one's learning around it.    
 4:06
-Without such a transcendent narrative, life has no meaning.    
+Without **such a transcendent narrative**, life has no meaning.    
 
 4:12
 Without meaning, learning has no purpose. Without purpose, schools become houses of detention, not attention.
 
 &nbsp;
 
+...
+
 ## God to Serve: Donald Trump
 
-In that 1995 book, Postman was right, and we did not develop the god to serve (we already had it, the 1776 Great Seal of the Uniited States of America god, the world wide web public libray of Ben Franklin - ***cherry picking from every science fiction story in the public library, not just science ficiton Quran, Torah, Bible from Levant***)...and Doanld Trump *became the Big Brand capital-G God* that the Internet Research Agency since March 2013 created with Cambridge Anaytica depth-charge monomyth payloads of the mind.
+In that 1995 book, Postman was right, and we did not develop the god to serve (we already had it, the 1776 Great Seal of the Uniited States of America god, the world wide web public libray of Ben Franklin - ***cherry picking from every science fiction story in the public library, not just science ficiton Quran, Torah, Bible from Levant***)...and Doanld Trump *became the Big Brand capital-G God* that the Internet Research Agency [since March 2013](../Operation_Matthew_4_19_on_monday_2024-03-31.md) created with Cambridge Anaytica depth-charge monomyth payloads of the mind.
 
 * “Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens?” ― Neil Postman, The End of Education: Redefining the Value of School. September 1995 (Year 2 of [Eternal September](https://en.wikipedia.org/wiki/Eternal_September))
+
+&nbsp;
+
+USA, ["you may say to yourself: My God, What Have I Done?"](https://youtu.be/5IsSpAOD6K8?t=145)
+
+..
+
+* “The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens? Or a public imbued with confidence, a sense of purpose, a respect for learning, and tolerance? The answer to this question has nothing whatever to do with computers, with testing, with teacher accountability, with class size, and with the other details of managing schools. The right answer depends on two things and two things alone: the existence of **shared narratives** and the capacity of such narratives to provide an inspired reason for schooling.”
+― Neil Postman, The End of Education: Redefining the Value of School. September 1992.
