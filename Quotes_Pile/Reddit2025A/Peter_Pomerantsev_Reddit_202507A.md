@@ -1476,3 +1476,18 @@ p_coletraine 2014-07-14
 Fucking seriously"
 
 * :::=== RoundSparrow_Commentary : [Everything is media ecology](../../Media_Ecology/Everything_is_ME.md). ===:::
+
+&nbsp;
+
+# Friday August 1, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1metn9z/nothing_suspicious_about_that/n6d11q6/
+
+slowpokefastpoke 2023-02-02
+
+"Yeah it’s wild. People just take post titles at face value, not even watching the video or article that’s being linked, and spread it like wildfire.
+
+You can literally watch misinformation spread in real time on here."
+
