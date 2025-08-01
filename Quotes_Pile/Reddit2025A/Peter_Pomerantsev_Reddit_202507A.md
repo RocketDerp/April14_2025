@@ -1505,3 +1505,12 @@ https://old.reddit.com/r/comics/comments/1meziwr/everyone_loves_money/
 Comic about rich people who love money using screens to publish digital images of bling bling life.
 
 * :::=== RoundSparrow_Commentary : Infinite Jest mechanics of Trump and Putin, Surkovian governing. Trickle down content, trickle down images to media consumers. Yes, this is exactly what Donald Trump does to USA media addicts, smartphone addicts and HDTV addicts and iPad addicts eat this up. Seeing images of Donald Trump with his bling bling wealth on digital screens. That's the USA, folks. [Texan Rick Roderick, 1993, Duke University: "how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mf4e88/donald_trump_fires_person_behind_jobs_numbers/n6e9ie9/
+
+The_Navy_Sox 2022-09-21
+
+"Literally afraid of reality. How detached from reality do you have to be to believe Trump. Probably how people who pretend to be anti pedos voted for someone on the Epstein list."
+
