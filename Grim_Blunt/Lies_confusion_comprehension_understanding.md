@@ -64,7 +64,7 @@ Where the Spy vs. Spy sloshing of bullshit an falsehoods wreckes anyone actually
 
 Monomyth spirals into retcon monomyth, and nobody speaks the dead Latin Lanauge that Martin Luther in Germany translated to everyday people over 500 years ago. Get it?
 
-It isn't fun. Putin isn't having fun, Trump isn't having fun, Israel isn't having fun, Suda isn't having fun, Ukraine isn't having fun. None of you have convinced me you grasp compassion and love at the Joycean level of 1924 "on the same page" of world monomyth.
+It isn't fun. Putin isn't having fun, Trump isn't having fun, Israel isn't having fun, Sudan isn't having fun, Ukraine isn't having fun. None of you have convinced me you grasp compassion and love at the Joycean level of 1924 "on the same page" of world monomyth.
 
 This bullshit, deception,lies, is just not enjoyable. Whatever you are feeling is not joy or fun. It is egomania and it is fun toxic like some drug that wrecks the drug addict.
 
