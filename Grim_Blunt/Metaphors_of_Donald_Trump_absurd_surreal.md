@@ -98,3 +98,16 @@ USA, ["you may say to yourself: My God, What Have I Done?"](https://youtu.be/5Is
 
 * “The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens? Or a public imbued with confidence, a sense of purpose, a respect for learning, and tolerance? The answer to this question has nothing whatever to do with computers, with testing, with teacher accountability, with class size, and with the other details of managing schools. The right answer depends on two things and two things alone: the existence of **shared narratives** and the capacity of such narratives to provide an inspired reason for schooling.”
 ― Neil Postman, The End of Education: Redefining the Value of School. September 1992.
+
+&nbsp;
+
+&nbsp;
+
+## Public Library Cherry Picking
+
+The Great Seal of the United States of American,pyramid side, can be described as the Cherry Picking tool of the entire Pale Blue Dot Public Library. Fiction,nonfiction,unified. Metaphor and art.
+
+Why not cherry pick poetry from the voices of the public to create what Neil Postman is highlighting, a shared transcendednt narative? Why not the steppings of the pyramid climb with generations of music, A.M. radio 1967 vs. F.M. Radio 1981 vs. digital mastering 2003?
+
+
+www.WakeIndra.com
