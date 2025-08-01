@@ -713,3 +713,12 @@ blondebuilder 2013-09-07
 
 * :::=== RoundSparrow_Commentary : ANSWER: it started March 2013 when the Russian Internet Research Agency started to deploy information warfare payloads all over the Internet. And instead of rescuing Americans and fixing the Bible literacy problems, people reaction commented how things were getting worse.. "stripped away day-after-day watching" - unable to stop being amused at the surreal absurd Russian transformation of society. [Unable to cite and link a June 2, 2014 news story by Max Seddon](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) - which is 29 full months before the November 2016 election, for the 29 months each step of the way day-after-day watching. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1medtkh/trump_on_epstein_stealing_young_women_from/n69p9zq/
+
+subcow 2012-08-01
+
+"If we had any sense of standards in the country just that "ABC Fake news one of the worst" line alone would have him kicked out of office, ignoring everything else he has done."
+
+* :::=== RoundSparrow_Commentary : Everything is media ecology. ===:::
