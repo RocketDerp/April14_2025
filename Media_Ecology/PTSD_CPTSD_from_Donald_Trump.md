@@ -30,10 +30,16 @@ Church congregation of Trump supporting clergy.
 
 ## Flag image trauma 
 
-Trump supporters really waved a lot of flags in faces for what in reality was Putin values, Russia. A false flag symbolism in the brain attack of information warfare.
+Trump supporters really waved a lot of flags in faces since 2015 for what in reality (beyond the Kremlin war against reality) was Putin values, Russia systems. A false flag symbolism in the brain attack of information warfare... where the meaning is [corrupted or outright inverted](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/).
 
 ## Red Hat trauma
 
 Seeing a red hat, regardless of what it says or images on it.
 
+## Hearing or reading names
 
+"Donald Trump".
+
+### Broken holidays, broken families, broken homes
+
+Grief for the loss of opportunity and goodness itself being trashed.
