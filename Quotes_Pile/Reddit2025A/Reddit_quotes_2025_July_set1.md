@@ -685,5 +685,13 @@ Cruyelo 2012-08-29
 
 Mass protests would work, but so far people are still hoping for someone else to fix it for them. No one is coming to fix it, the civilians will have to fix it themselves."
 
-* :::=== RoundSparrow_Commentary : All our popular media shows some action hero or Superman or Thor saving the day. Social media has not sustained any serious protest. Just reacction commenting, eating the Surkovian onions. People are unwilling to [cut out entertainment and be serious](../../Grim_Blunt/Stop_All_Entertainment.md) about our media addiction to hate upon Donald Trump and mocking. ===:::
+* :::=== RoundSparrow_Commentary : All our popular media shows some action hero or Superman or Thor saving the day. Social media has not sustained any serious protest. Just reaction commenting, eating the Surkovian onions. People are unwilling to [cut out entertainment and be serious](../../Grim_Blunt/Stop_All_Entertainment.md) about our media addiction to hate upon Donald Trump and mocking. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1medtkh/trump_on_epstein_stealing_young_women_from/n68sr6q/
+
+Crackorjackzors 2009-11-12
+
+"I had the same question, like how random is that? I know that Trump and the WWE are close, but randomly seeing him at this press conference is funny."
 
