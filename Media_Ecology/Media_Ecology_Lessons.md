@@ -6,5 +6,6 @@ This page may eventually be split into other pages, for now a dumping ground. In
 
 YouTube video title: "Did I make a mistake??? The comments section has been LIGHTING UP!!!"    
 August 1, 2025    
+Topic: unusual natural voice that bewildered people thinking it has processing on it. Even a video news report was done at the time in 2013.  
 https://www.youtube.com/watch?v=LWuvwII03iM
 
