@@ -40,6 +40,10 @@ Seeing a red hat, regardless of what it says or images on it.
 
 "Donald Trump".
 
+## Encountering Fox News
+
+flipping channels, friend's house has it on TV, at a business encounter. Newsmax, etc.
+
 ### Broken holidays, broken families, broken homes
 
 Grief for the loss of opportunity and goodness itself being trashed.
