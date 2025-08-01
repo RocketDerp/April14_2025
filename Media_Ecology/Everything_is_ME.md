@@ -52,7 +52,7 @@ NOTE: I may have also encounterd this lecture, or a varation of this lecture, fr
 
 &nbsp;
 
-## Context Blidness, Filter Bubble
+## Context Blindness, Filter Bubble
 
 Consumers of the latest media can trap themselves in filter bubbles, getting entirely different views of the world from the media they consume. "Echo chambers".
 
@@ -65,4 +65,39 @@ Consumers of the latest media can trap themselves in filter bubbles, getting ent
 I have also used a term "Context Bewilderment", in reference to a description of social behavior from Dr. Martin Luther King Jr.
 
 * "I have almost reached the regrettable conclusion that the Negro's great stumbling block in his stride toward freedom is not the White Citizen's Counciler or the Ku Klux Klanner, but the white moderate, who is more devoted to "order" than to justice; who prefers a negative peace which is the absence of tension to a positive peace which is the presence of justice; who constantly says: "I agree with you in the goal you seek, but I cannot agree with your methods of direct action"; who paternalistically believes he can set the timetable for another man's freedom; who lives by a mythical concept of time and who constantly advises the Negro to wait for a "more convenient season." **Shallow understanding** from people of good will is more frustrating than absolute **misunderstanding** from people of ill will. **Lukewarm acceptance is much more bewildering than outright rejection.**" - April 16, 1963
+
+&nbsp;
+
+### When two Echo Chambers meet
+
+(Repeating) Consumers of the latest media can trap themselves in filter bubbles, getting entirely different views of the world from the media they consume. "Echo chambers".
+
+Campbell was a writer and had an IBM PC, And switching applicaitons between a word processor and a spreadsheet application - the commands were entirely different. A modern user might compare this weith switching between Ubuntu Linux and Microsoft Windows on the same computer. or between two different video games with completely different controls (a Nintedo Wii game console playing bowling or tennis simulation, say vs. Half Life on a PC computer with a keyboard).
+
+&nbsp;
+
+When two Echo Chambers meet...when different religions meet, different systems of religion, one based on female, one based on male...
+
+Joseph Campbell at age 83 in year 1987, Power of Myth book published 1988:
+
+[JOSEPH CAMPBELL](https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth): I have had a revelation from my computer about mythology. You buy a certain software, and there is a whole set of signals that lead to the achievement of your aim. If you begin fooling around with signals that belong to another system of software, they just won’t work.
+
+Similarly, in mythology—if you have a mythology in which the metaphor for the mystery is the father, you are going to have a different set of signals from what you would have if the metaphor for the wisdom and mystery of the world were the mother. And they are two perfectly good metaphors. Neither one is a fact. These are metaphors. It is as though the universe were my father. It is as though the universe were my mother. Jesus says, “No one gets to the father but by me.” The father that he was talking about was the biblical father. It might be that you can get to the father only by way of Jesus. On the other hand, suppose you are going by way of the mother. There you might prefer Kali, and the hymns to the goddess, and so forth. That is simply another way to get to the mystery of your life. You must understand that each religion is a kind of software that has its own set of signals and will work.
+
+If a person is really involved in a religion and really building his life on it, he better stay with the software that he has got. But a chap like myself, who likes to play with the software—well, I can run around, but I probably will never have an experience comparable to that of a saint.
+
+BILL MOYERS: But haven’t some of the greatest saints borrowed from anywhere they could? They have taken from this and from that, and constructed a new software.
+
+JOSEPH CAMPBELL: That is what is called the development of a religion. You can see it in the Bible. In the beginning, God was simply the most powerful god among many. He is just a local tribal god. And then in the sixth century, when the Jews were in Babylon, the notion of a world savior came in, and the biblical divinity moved into a new dimension.
+
+You can keep an old tradition going only by renewing it in terms of current circumstances. In the period of the Old Testament, the world was a little three-layer cake, consisting of a few hundred miles around the Near Eastern centers. No one had ever heard of the Aztecs, or even of the Chinese. When the world changes, then the religion has to be transformed.
+
+BILL MOYERS: But it seems to me that is in fact what we are doing.
+
+JOSEPH CAMPBELL: That is in fact what we had better do. But my notion of the real horror today is what you see in Beirut. There you have the three great Western religions, Judaism, Christianity, and Islam—and because the three of them have three different names for the same biblical god, they can’t get on together. They are stuck with their metaphor and don’t realize its reference. They haven’t allowed the circle that surrounds them to open. It is a closed circle. Each group says, “We are the chosen group, and we have God.”
+Look at Ireland. A group of Protestants was moved to Ireland in the seventeenth century by Cromwell, and it never has opened up to the Catholic majority there. The Catholics and Protestants represent two totally different social systems, two different ideals.
+
+BILL MOYERS: Each needs a new myth.
+
+JOSEPH CAMPBELL: Each needs its own myth, all the way. Love thine enemy. Open up. Don’t judge. All things are Buddha things. It is there in the myth. It is already there.
 
