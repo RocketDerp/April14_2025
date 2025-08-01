@@ -164,3 +164,22 @@ Upstairs_Addendum587 2022-11-20
 
 There's tons of really good reasons to think Trump is guilty of really terrible behavior regarding Epstein. Don't reach like this."
 
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1metn9z/nothing_suspicious_about_that/n6cznmt/
+
+Sega-Playstation-64 2021-01-10
+
+"This is one of my biggest issues with Reddit.
+
+Full disclosure, I fucking hate Trump and if I were a betting man, absolutely betting he had sex with underage women.
+
+That being said, I've seen about 15 posts now claiming Trump made 4700 payments to Epstein. That's not what they uncovered.
+
+Just as you said, Trump may have paid Epstein, but the number is unknown.
+
+Reddit always sets up some unlikely scenario, gets let down by reality, then complains about the world being rigged against them.
+
+If it's literally a handful of payments, it could be business or party related expenses. It could by reimbursements. It could be kiddy diddling. It could be 4000 payments (suspicious as hell) or 10 payments (not a lot considering who they are)."
+
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. That's the whole basis of Fox News and Donald Trump success. Fiction is more popular than facts and truth. We have a media ecology crisis that spans decades. Neil Postman in 1985 published a book... It isn't that poeple aren't posting accurate information on Reddit, it is not popularity. People are not facing up that **Donald Trump is popular, mocking and hating Donald Trump is popular**. Non-fiction sincerity and science truth are not popular. Neil Postman in [1985 published a book...](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) ===:::
