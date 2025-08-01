@@ -136,7 +136,20 @@ I_eat_mud_ 2021-12-07
 
 https://old.reddit.com/r/NoShitSherlock/comments/1meucu2/kamala_harris_appears_on_colbert_says_shes/n6c80do/
 
+MikeW226 2018-09-29
+
 "Could be in the form of a nightmare for all of us years from now. I've been wondering for awhile if the first female president would be not a Democrat, but a Kristi Noem or an MTG ...e.g, a repub female ...not a Democratic one. Maga's love 'em them politics-Barbies."
 
 * :::=== RoundSparrow_Commentary : Even Ivanka Trump as a figurehead, with others doing most of the work. Ivanka could choose to have less of a media presence, or behave just like Donald on media, a complete freedom. The key thing is exploiting the "no female is electable" expectation with a MAGA supporter, to emphasize that Hillary Clinton was just a terrible choice (despite her Secretary of State experience and statements about ["Information War" in early 2011 against Putin/Russia](https://communicationleadership.usc.edu/2011/03/06/secretary-clinton-and-the-information-war/). Could you imagine Ivanka running on a slogan of "my father made some mistakes, I will fix them"? ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1meucu2/kamala_harris_appears_on_colbert_says_shes/n6cgmov/
+
+ThunderChild247 2019-02-12
+
+"Aka the Thatcher problem. The right are only against women leaders to a point, but for a woman to get that far on the right they have to be more right-wing than a man would have to be to get that far, being almost performative.
+
+That’s how the UK’s had three female prime ministers, and all of which were right wing and awful people. Sadly I fear that if MAGA were to have a female leader, they’re more likely to be closer to Liz Truss than Margaret Thatcher. At least Thatcher was intelligent and right wing, as opposed to Liz Truss, who was right wing and… well…"
+
+* :::=== RoundSparrow_Commentary : I think dealing with Donald Trump / JD Vance / MAGA it is best to halt all domestic focus and every social media user comment on conservative media (inclusive of religion) and conservative behavior all over the world. Let Malala from Pakistan speak. Describe the problem in every other nation on Earth and let that create a silhouette of not discussing Donald Trump directly. Make it about the values, behavior of Putin Kremlin and Taliban - and you promote the values you desire and show examples of goodness itself. Stop treating it like a short-term domestic-only problem of media literacy and Fox News, even Rupert Murdoch goes beyond just TV media (has newspapers) and USA. THIS is taking the high road, education and teaching about what "conservative" means all over Earth and the history of it. And for God's sake, cite books and articles by people and when people react-comment to a paragraph quote of a book, respond by encouraging them to discuss the entire book (read the book).... instead of generating more off-the-cuff reactionary (shallow) social media messages. ===:::
