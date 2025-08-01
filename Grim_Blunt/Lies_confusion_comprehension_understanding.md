@@ -4,11 +4,15 @@
 
 Humans can not distinguish misunderstandings from lies. It is a global problem throughout history.
 
-And it is a mistake when we accept lies and manipulation, trick each other, becauses we are barely getting by with our grasp on truth and reality *without* manipulation. That's the point of Neil Postman and televisoin. "I do not mean to imply that television news **deliberately aims** to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result." - 1985
+And it is a mistake when we accept lies and manipulation, trick each other, because we are barely getting by with our grasp on truth and reality *without* manipulation. That's the point of Neil Postman and television. "I do not mean to imply that television news **deliberately aims** to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result." - 1985
 
-It is not deliberate, that's the reason I keep pointing to Neil Postman. We are tricked and bamboozled by our shallow superficial reactioons. We don't *need* someone trying to trick us, it happens because of the structure and venue.
+It is not deliberate, that's the reason I keep pointing to Neil Postman. We are tricked and bamboozled by our shallow superficial reactions. We don't *need* someone trying to trick us, it happens because of the structure and venue.
+
+&nbsp;
 
 ## Neil Postman 1985
+
+News articles mentioning Neil Postman’s1985 book and remarking how we seem to be “Amusing Ourselves to Death”:
 
 August 17, 2015     
 More than a full year before November 2016 election    
@@ -46,5 +50,4 @@ https://www.washingtonpost.com/opinions/2025/07/17/neil-postman-amusing-ourselve
 
 # Deception, Self-Deception
 
-Some ideas take hundreds of years and teams of thousands of people. Problems that were recognized but unsolved, such as germ theory. It wasn't until the invetion of microscope technology that we started to better undrestand diseases that seemed invisible.
-
+Some ideas take hundreds of years and teams of thousands of people. Problems that were recognized but unsolved, such as germ theory. It wasn't until the invention of microscope technology that we started to better understand diseases that seemed invisible.
