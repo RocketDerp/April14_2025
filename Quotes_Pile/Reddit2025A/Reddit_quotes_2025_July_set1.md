@@ -675,3 +675,15 @@ cakeorcake 2022-01-05
 
 * :::=== RoundSparrow_Commentary : The Constitution does not say "be honest to each other", "love one another". In 1776, that was the role of the clergy. Have you see the Middle East since October 7, 2023? A clergy that can't recall to teach verse Matthew 6:5 when Donald [Trump poses with the Bible](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church)? We The People need to stop react-commenting with these Twitter-length reactions about how badly intellectual integrity and morality have become in society and take over the role of clergy. Without love and compassion,what kind of health care system to you think we will continue in USA? It has become *We The People*, social media's job to stop with the Tweeting one-line reaction comments and start remedial morality, remedial civics,and remedial comparative mythology teaching. And behave as if goodness itself matters. Because the popularity of hate shows popularity itself has become toxic. “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity...  No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945 ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mefw2q/smithsonian_removes_trump_from_impeachment/n69c7wy/
+
+Cruyelo 2012-08-29
+
+"Americans are waiting for a hero to stand up, find a magical cure, and put Trump in prison. But you don't get rid of a dictator that easily. 
+
+Mass protests would work, but so far people are still hoping for someone else to fix it for them. No one is coming to fix it, the civilians will have to fix it themselves."
+
+* :::=== RoundSparrow_Commentary : All our popular media shows some action hero or Superman or Thor saving the day. Social media has not sustained any serious protest. Just reacction commenting, eating the Surkovian onions. People are unwilling to [cut out entertainment and be serious](../../Grim_Blunt/Stop_All_Entertainment.md) about our media addiction to hate upon Donald Trump and mocking. ===:::
+
