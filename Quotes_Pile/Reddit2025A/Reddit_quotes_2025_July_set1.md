@@ -721,4 +721,4 @@ subcow 2012-08-01
 
 "If we had any sense of standards in the country just that "ABC Fake news one of the worst" line alone would have him kicked out of office, ignoring everything else he has done."
 
-* :::=== RoundSparrow_Commentary : Everything is media ecology. ===:::
+* :::=== RoundSparrow_Commentary : [Everything is media ecology](../../Media_Ecology/Everything_is_ME.md). ===:::
