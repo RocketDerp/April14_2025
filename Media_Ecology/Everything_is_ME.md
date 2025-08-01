@@ -24,11 +24,14 @@ Media Ecology is all-inclusive. Where do the content creators *get their ideas*,
 
 &nbsp;
 
-# Where did the Torah media Synagogue venue come from?
+# Media Ecology of Religion
 
-Where did the Bible media Church venue come from?
+Where did the Torah media, Synagogue venue, come from?
 
-Where did the Quran media Mosque venue come from? Mecca media theme park (like Disney media theme park)
+Where did the Bible media, Church venue, come from?
+
+Where did the Quran media, Mosque venue, come from?     
+Mecca media theme park (like Disney media theme park)
 
 &nbsp;
 
