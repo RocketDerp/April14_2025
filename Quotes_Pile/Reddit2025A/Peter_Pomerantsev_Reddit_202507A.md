@@ -1546,3 +1546,25 @@ But then I realized that this is terrifying and extremely bad news. This is how 
 Don't like the facts? Fire the person with the audacity to report it. Then, find a replacement that you can control. Job numbers are up all of a sudden. Imagine that."
 
 * :::=== RoundSparrow_Commentary : At first, you were amused, then you went on scrolling Reddit the amusement mill and never studied Neil Postman's 1985 book "Amusing Ourselves to Death", seeing the forest of TOTAL USA (and NATO beyond) response to Putin + Trump since March 2013... and instead see only the tree of the day in front of you. Donald Trump playing Tony Clifon character engages the audience in total mockery. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mf8gh1/well_well_well/n6f8i4m/
+
+cpatkyanks24 2023-07-02
+
+"This guy is such a fucking loser, my god if people took their eye off of politics and their cult for five goddamn minutes they could see it as clear as day.
+
+In literally any other situation we mock people like this incessantly. Imagine you’re playing pickup basketball and every time you beat some guy one on one he rages away claiming that you got to the court before to rig the rims against him (even though you’re playing on the same rims). You’d stop playing with that guy, but these clowns instead go down and kiss his feet and say “of course master, we agree those rims were rigged and it was by Hillary and Biden!” "
+
+* :::=== RoundSparrow_Commentary : Study Tony Clifton, this kind of audience reaction (Reddit comment) "This guy is such a fucking loser". Surreal absurd comedy exploit of POTUS symbolism and White House symbolic systems is something USA can not resist mocking and joing the total mockery. It's been going on for over a decade. Late night comedy "Weekend Update SNL News" has paved the foundation for this. Neil Postman's 1985 book "Amusing Ourselves To Death" explains. I remember what it was like that people trusted Ronald Reagan in 1985 when Postman published that book, I turned age 16 in October 1985 in high school. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mf8gh1/well_well_well/n6fdluk/
+
+EnvyHotS 2015-06-20
+
+"Every day something new and absurd happens lmao. We live in a god damn clown country where the rules don’t matter"
+
+* :::=== RoundSparrow_Commentary : Twitter-length reaction thinking. "Absurd" is right in the title of the [year 2014 book](https://www.youtube.com/watch?v=5Au332OG-M4) that describes the population mind exploits. ===:::
