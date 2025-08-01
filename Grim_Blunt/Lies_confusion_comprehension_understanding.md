@@ -79,6 +79,6 @@ Yes, it is hopeless. Technology has outpaced spirituality. Dr. Martin Luther Kin
 
 We The People need to face up to [media ecology, on a global scale, all people in all gegraphic places](../Media_Ecology/Everything_is_ME.md).
 
-Yes, positive, is it *REPEATED as people repeat memes on Reddit? no.**   
+Yes, positive, is it *REPEATED as people repeat memes on Reddit? no.*   
 https://old.reddit.com/r/Fauxmoi/comments/1mefuoz/ms_rachel_for_the_washington_post_photographed_by/
 
