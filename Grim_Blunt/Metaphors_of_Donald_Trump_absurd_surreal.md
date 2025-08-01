@@ -36,12 +36,10 @@ must have a god to serve or, even better, several gods.
 If they have none, school is pointless.   
 0:21
 Nietzsche's famous remark is relevant here.
-0:26
 He said once:
-0:28
 'he who has a why to live, can bear with almost any how'
-0:35
-and this applies, I think, as much to learning as to living.
+and this applies, I think, as much to learning as to living.     
+
 0:40
 To put it as I said it before, there is no surer way to bring an end to schooling than for it to have no end.    
 0:52
@@ -57,6 +55,7 @@ But at the core of such schools, there is a transcendent spiritual idea
 that gives purpose and clarity to learning. To such schools the word God is spelt with a capital G.
 But there are schools that have been animated by a transcendent spiritual idea
 which may be called a god with a small g.    
+
 2:51
 Now I know it's risky for me to use this word, even with a small g,
 because the word, having an aura of sacredness, is not to be used lightly
