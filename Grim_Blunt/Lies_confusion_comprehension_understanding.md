@@ -60,7 +60,7 @@ There comes a time... July 31, 2025
 
 https://old.reddit.com/r/politics/comments/1mekr09/clinton_plan_emails_were_likely_made_by_russian/
 
-Where the Spy vs. Spy sloshing of bullshit an falsehoods wreckes anyone actually comprehending where it all started. The "Tower of Babel" Torah, Bible, Quran metaphor kicks in! Bullshit deception patterns of language communications start to create interference patterns and jam truth of the technique copycat methods.
+Where the Spy vs. Spy sloshing of bullshit and falsehoods wreckes anyone actually comprehending where it all started. The "Tower of Babel" Torah, Bible, Quran metaphor kicks in! Bullshit deception patterns of language communications start to create interference patterns and jam truth of the technique copycat methods.
 
 Monomyth spirals into retcon monomyth, and nobody speaks the dead Latin Lanauge that Martin Luther in Germany translated to everyday people over 500 years ago. Get it?
 
