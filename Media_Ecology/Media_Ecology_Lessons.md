@@ -14,6 +14,6 @@ https://www.youtube.com/watch?v=LWuvwII03iM
 ### Death of media content creators
 
 Professor of Rock    
-August 1, 2025
+August 1, 2025    
 Topic: Why do we care so much, take it so hard, when content creator star dies?    
 https://www.youtube.com/watch?v=Ai71CfcMKnY
