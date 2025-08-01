@@ -1497,3 +1497,11 @@ You can literally watch misinformation spread in real time on here."
 https://old.reddit.com/r/goodnews/comments/1mezef4/trump_was_not_happy_about_that_south_park_episode/
 
 * :::=== RoundSparrow_Commentary : South Park rage baiting Donald Trump echos still after 10 days since episode aired. People just don't get it. [Putin / Russia / Surkovian information warfare has defeated the United States of America with 5,000 patterns of fiction (South Park is fiction, Satan is fiction) monomyth](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) (Satan) rage-bait!!! Not a person in USA is escaping the rage bait who isn't dropping everything and being an intellectual patriot and calling out the monomyth out-group hate patterns of Levant adapted to social media screenplays! It isn't just old world order of Israel vs. Palestine, MonoMyth vs. MonoMyth, it is Trump/MAGA vs. Reddit/Bluesky etc, etc. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1meziwr/everyone_loves_money/
+
+Comic about rich people who love money using screens to publish digital images of bling bling life.
+
+* :::=== RoundSparrow_Commentary : Infinite Jest mechanics of Trump and Putin, Surkovian governing. Trickle down content, trickle down images to media consumers. Yes, this is exactly what Donald Trump does to USA media addicts, smartphone addicts and HDTV addicts and iPad addicts eat this up. Seeing images of Donald Trump with his bling bling wealth on digital screens. That's the USA, folks. [Texan Rick Roderick, 1993, Duke University: "how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) ===:::
