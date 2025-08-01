@@ -1,5 +1,7 @@
 # Reddit comments August 2025
 
+# Friday August 1, 2025
+
 https://old.reddit.com/r/news/comments/1mel44b/el_salvador_approves_indefinite_presidential/n6amm14/
 
 Val_Killsmore 2017-12-26
@@ -119,4 +121,14 @@ All these people from Trump all the way down to his stupidest, most vile backwat
 I'm not American and not even on the same continent but at some point hearing about the utter garbage coming from that country, you start to question why these ~~people~~ animals are allowed to exist on the same planet and in the same society as normal, adjusted people."
 
 * :::=== RoundSparrow_Commentary : MAGA society values: deport those you disagree with or do not grasp/understand (speak a different language, Spanish, etc). Dehumanizing people as "animals", saying that even animals do not have a right to exist on the planet, total domination dictatorship, even over elimination of entire species of animals. August 2025 USA thinking and [mass psychosis](https://www.youtube.com/watch?v=09maaUaRT4M). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1meucu2/kamala_harris_appears_on_colbert_says_shes/n6c9any/
+
+I_eat_mud_ 2021-12-07
+
+"MAGA is a deadly symptom, but it's not the disease. Almost everything we're experiencing today started because of Reagan. It's uncanny how the average American's life has been on a downward trajectory since his presidency. Trump and MAGA are the final death throes."
+
+* :::=== RoundSparrow_Commentary : In 1985, after witnessing the 1984 second term election of Ronald Reagan, a New York University professor of media ecology published a book about Twitter, Reddit, Fox News 1996 called "Amusing Ourselves To Death"... this book should be known by every single Amerian age 12 to 120 in August 2025, it is only 184 pages. ===:::
 
