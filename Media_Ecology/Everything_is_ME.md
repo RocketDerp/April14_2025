@@ -45,3 +45,7 @@ Topic is John Weir Perry Psychiatrist contacting Joseph Campbell at Sarah Lawren
 
 51 minute audio lecture:   
 https://www.wnyc.org/story/dr-joseph-campbell-inward-journey-schizophrenia-and-mythology/
+
+&nbsp;
+
+NOTE: I may have also encounterd this lecture, or a varation of this lecture, from the Joseph Campbell Foundation before locating it free on the WNYC website. "Lecture I.2.2 The Inward Journey" at JCF.
