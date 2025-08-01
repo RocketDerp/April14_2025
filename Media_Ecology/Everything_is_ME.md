@@ -126,5 +126,5 @@ Leary: "boot up, and change disks in their minds".. exact same metaphor as Josep
 
 Joseph Campbell's Compartive Mythology was translating rituals and subconsous from religion to religon, at a deeper mind and society level than translating spoken and written languages from langauge to language. Funeral ritual from [Tibet sky burial བྱ་གཏོར](https://en.wikipedia.org/wiki/Sky_burial) translation to say a [Finnegans Wake Tim Finnegan Funeral](https://www.youtube.com/watch?v=YdizZtOddC8)...
 
-Did Timothy Leary say "LSD might not be necessary now"... well Univesity of Toronto's Marshall McLuhan said ["So I have begun to feel that LSD may just be the lazy man's form of Finnegans Wake.”](https://www.youtube.com/watch?v=-f2F02gsYsk)  -and Joseph Campbell was a Joycean, as was his spouse [Jean Erdman](https://www.youtube.com/watch?v=WoiJVkdDbOo) - a pair of James Joyce enthusiasts!
+Did Timothy Leary say "LSD might not be necessary now"... well Univesity of Toronto's Marshall McLuhan said ["So I have begun to feel that LSD may just be the lazy man's form of Finnegans Wake.”](https://www.youtube.com/watch?v=-f2F02gsYsk)  - and Joseph Campbell was a Joycean, as was his spouse [Joycean Jean Erdman](https://www.youtube.com/watch?v=WoiJVkdDbOo) - a pair of James Joyce enthusiasts!
 
