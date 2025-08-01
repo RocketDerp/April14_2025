@@ -702,3 +702,14 @@ https://old.reddit.com/r/law/comments/1medtkh/trump_on_epstein_stealing_young_wo
 Mrzillydoo 2017-05-23
 
 "This timeline. It is so tired now to even reference Idiocracy, but jebus what are we doing here. How am I both completely befuddled at Hunter Hearst Helmsley in the background of a Presidential statement whilst also being completely unsurprised?!"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1medtkh/trump_on_epstein_stealing_young_women_from/n68ttug/
+
+blondebuilder 2013-09-07
+
+"What I want to know is: Has his supporters always been this morally bankrupt, or has it just been stripped away day-after-day watching him openly be increasingly evil?"
+
+* :::=== RoundSparrow_Commentary : ANSWER: it started March 2013 when the Russian Internet Research Agency started to deply information warfare payloads all over the Internet. And instead of rescuing Americans and fixing the Bible literacy problems, people reaction commented how things were getting worse.. "stripped away day-after-day watching" - unable to stop being amused at the surreal absurd Russian transofrmation of society. [Unable to cite and link a June 2, 2014 news story by Max Seddon](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) - which is 29 full months before the November 2016 election, for the 29 months each step of the way day-after-day watching. ===:::
+
