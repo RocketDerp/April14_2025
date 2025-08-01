@@ -1491,3 +1491,9 @@ slowpokefastpoke 2023-02-02
 
 You can literally watch misinformation spread in real time on here."
 
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mezef4/trump_was_not_happy_about_that_south_park_episode/
+
+* :::=== RoundSparrow_Commentary : South Park ragebaiting Donald Trump echos still after 10 days since episode aired. People just don't get it. [Putin / Russia / Surkovian information warfare has defeated the United States of America with 5,000 patterns of fiction (South Park is fiction, Satan is fiction) monomyth](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) (Satan) ragebait!!! Not a person in USA is escaping the rage bait who isn't dropping everything and being an intellectual patriot and calling out the monomyth out-group hate patterns of Levant adapted to scoial media screenplays! It insn't just old world order of Israel vs. Palestine, MonoMyth vs. MonoMyth, it is Trump/MAGA vs. Reddit/Bluesky etc, etc. ===:::
