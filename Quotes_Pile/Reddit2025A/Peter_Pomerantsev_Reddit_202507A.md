@@ -1451,3 +1451,15 @@ datNorseman 2014-10-10
 
 * :::=== RoundSparrow_Commentary : Exactly the type of media engagement Surkovian Governing,Donald Trump Tony Clifton inspires out of mutiple social media platforms. As if "right" politics, Putin in Ukraine isn't the very cause of the war. It's about sincerity reality vs. fiction bullshit and dehumanization. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1medtkh/trump_on_epstein_stealing_young_women_from/n68zxs7/
+
+znightmaree 2011-05-06
+
+"The brainwashing is insane. My mother in law was on the phone with my wife yesterday going on and on about how Trump just secured the biggest trade deal in history with Asia and that even the democrats are blown away at how incredible he is at making deals.
+
+They live in a COMPLETELY different reality. They are beyond saving. There are millions like them."
+
+* :::=== RoundSparrow_Commentary : "they" live in [5,000 copletely different realities, siwtching beween fiction channels](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) of streaming memes and news channels, cherry-picking the ficiton that ismost appealing, mocking and insutling how THE OTHER PEOPLE (THEY) are alldumb stupid iditos for not seeing the momentary reality appearing on the Internet screen of fiction content. And about the only way to become self-aware of the 5,000 forests perspective instead of just the trees... is to [invoke and repeat invoking Neil Postman's 1985 book](https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Lies_confusion_comprehension_understanding.md#neil-postman-1985) until everyone age 12 to 120 is on the same page of media ecology literacy. ===:::
+
