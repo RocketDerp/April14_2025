@@ -205,3 +205,14 @@ busangcf 2020-05-15
 "There were lots of people on this very subreddit just a day or two ago saying “it’s not that deep” and that people were looking for something to be mad at, so yes they do reasonably believe a lot of people are that stupid.
 
 Edit - actually there are people on this very thread still saying that, even after the gloating on linked in, even after knowing their CEO has ties to Trump, and even after the fucking White House weighing in. So YEAH, of course they believe people are that stupid."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1mf68yk/american_eagle_issues_a_statement_following/n6f0h4m/
+
+cocktail_wiitch 2020-04-24
+
+"Right exactly. Everything in advertising is intentional. Everyone knew exactly what the messaging was here, and they chose to release it anyway. DURING THIS TIME in our country's history with the culture/social wars on the verge of actually popping off and our government stacked with eugenists.They knew and they wanted the attention. And I'm tired of hearing people say we're just "being too sensitive"."
+
+* :::=== RoundSparrow_Commentary :  What Russia created for export and deployed since March 2013 is now  runaway monomyth patterns. They are artificial religions (fiction faiths) without compassion or love. It is weaponized out-group hate. And since year 2022, regurgitated by ChatGPT and other systems trained on all that social media. Russia isn't in control, people copy *what works*, Donald Trump's success using shit-talk and hate speaks for itself. All of humanity is in a race to the bottom of the human subconscious. ===:::
+
