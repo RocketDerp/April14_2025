@@ -118,9 +118,9 @@ JOSEPH CAMPBELL: Each needs its own myth, all the way. Love thine enemy. Open up
 Joseph Campbell's 1987 example of using "DW3" with MS-DOS / PC-DOS echos by an entirely different author.
 
 [Timothy Leary](https://en.wikipedia.org/wiki/Timothy_Leary); quoted in Bukatman 1993; page 139    
-"Computers are the most subversive thing I've ever done. [...] Computers are more addictive than heroin. [...] People need some way to activate, boot up, and change disks in their minds. In the 60s we needed LSD to expand reality and examine our stereotypes.With computers as our mirrors, LSD might not be necessary now"
+"Computers are the most subversive thing I've ever done. [...] Computers are more addictive than heroin. [...] People need some way to activate, boot up, and change disks in their minds. In the 60s we needed LSD to expand reality and examine our stereotypes. With computers as our mirrors, LSD might not be necessary now"
 
-"boot up, and change disks in their minds".. exact same metaphor as Joseph Campbell in 1987 being used. Switching software with our same brain hardware. A video game console changing from one game to another, changing out game cartridge, floppy disk, or optical disc.
+Leary: "boot up, and change disks in their minds".. exact same metaphor as Joseph Campbell in 1987 being used. Switching software with our same brain hardware. A video game console changing from one game to another, changing out game cartridge, floppy disk, or optical disc.
 
 **Timothy Finnegan**
 
