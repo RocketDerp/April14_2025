@@ -1441,3 +1441,13 @@ zeny_two 2014-06-30
 
 "Exhibit A. Not a single attempt at a logical thought. Just insults."
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mecj3x/the_viral_image_that_was_posted_here_about_the/n68ghfu/
+
+datNorseman 2014-10-10
+
+" "A word is the seed of action". There is so much truth to that in that our thoughts shape our ideas and eventually our actions. I respect this man. Fuck azaelia banks or whoever the fuck that is. She has no idea what being held captive as a PoW means or feels like, especially not for three years. I'm not the type to wish that upon her, but I hope she learns from her mistake. Regardless of politics, whether you support the right or left, I hope that you support the end of this war and the government(s) that keep continuing it. As well as all wars. Nobody should have to live though that. Thank you Oleksandr."
+
+* :::=== RoundSparrow_Commentary : Exactly the type of media engagement Surkovian Governing,Donald Trump Tony Clifton inspires out of mutiple social media platforms. As if "right" politics, Putin in Ukraine isn't the very cause of the war. It's about sincerity reality vs. fiction bullshit and dehumanization. ===:::
+
