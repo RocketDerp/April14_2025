@@ -63,6 +63,12 @@ https://old.reddit.com/r/CringeTikToks/comments/1mezced/trump_supporter_says_joe
 
 &nbsp;
 
+## I told you, warned you expereince
+
+The extreme frustration that other people tusted Fox News television and not you. The power of media systems to overpower *the little guy* with the billioniare *big guy* commercial art. See: Jen Senko's film and book,a baby boomer who stood up to Fox News and other media.
+
+&nbsp;
+
 &nbsp;
 
 # Tools for Media Cults 
