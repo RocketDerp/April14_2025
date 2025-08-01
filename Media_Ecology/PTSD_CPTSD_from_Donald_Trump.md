@@ -43,3 +43,8 @@ Seeing a red hat, regardless of what it says or images on it.
 ### Broken holidays, broken families, broken homes
 
 Grief for the loss of opportunity and goodness itself being trashed.
+
+### Hate of the other genders, sex hate
+
+Example:
+https://old.reddit.com/r/CringeTikToks/comments/1mezced/trump_supporter_says_joe_biden_is_forcing_him_to/
