@@ -1,4 +1,4 @@
-# Metaphtors of Donald Trump
+# Metaphors of Donald Trump
 
 Metaphors of Tony Clifton   
 Metaphors of Surkovian Putinism Governing
