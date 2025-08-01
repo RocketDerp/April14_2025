@@ -18,7 +18,7 @@ https://old.reddit.com/r/BeAmazed/comments/1mec9tz/kindness_before_the_cure/
 
 I'm here out of complete desperation of lost language. Microcosim macrocosim. 
 
-The Egg, do we need a narative USA?    
+The Egg, do we need a transcendent narative USA?    
 https://www.youtube.com/watch?v=h6fcK_fRYaI
 
 "The 'monstrous, irrational, and unnatural' motifs in folktale and myth are derived from the reservoirs of dream and vision. On the dream level such images represent the total state of the individual dreaming psyche. But clarified of personal distortions and profounded by poets, prophets, and visionaries, they become symbolic of the spiritual norm for Man the Microcosm. They are thus phrases from an image-language, expressive of a metaphysical, psychological, and sociological truth."     
