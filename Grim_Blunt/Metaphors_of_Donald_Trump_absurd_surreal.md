@@ -110,4 +110,8 @@ The Great Seal of the United States of American,pyramid side, can be described a
 Why not cherry pick poetry from the voices of the public to create what Neil Postman is highlighting, a shared transcendednt narative? Why not the steppings of the pyramid climb with generations of music, A.M. radio 1967 vs. F.M. Radio 1981 vs. digital mastering 2003?
 
 
-www.WakeIndra.com
+Click here for a shared narative seedcorn: www.WakeIndra.com
+
+Alternate link, direct to YouTube playlist: https://www.youtube.com/playlist?list=PLcYhoGnK9I9T-xAaCAUxfXspcL-fEk35l
+
+
