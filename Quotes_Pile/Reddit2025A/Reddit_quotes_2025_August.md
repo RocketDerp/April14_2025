@@ -216,3 +216,12 @@ cocktail_wiitch 2020-04-24
 
 * :::=== RoundSparrow_Commentary :  What Russia created for export and deployed since March 2013 is now  runaway monomyth patterns. They are artificial religions (fiction faiths) without compassion or love. It is weaponized out-group hate. And since year 2022, regurgitated by ChatGPT and other systems trained on all that social media. Russia isn't in control, people copy *what works*, Donald Trump's success using shit-talk and hate speaks for itself. All of humanity is in a race to the bottom of the human subconscious. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mf94xk/the_mystery_of_the_strong_economy_has_finally/n6fb7i9/
+
+Independent-End-2443 2020-10-22
+
+"All Trump needed to do in his second term was play golf and eat hamberders, and the economy would have been fine on its own. He would have been as popular as Reagan if he had just done nothing."
+
+* :::=== RoundSparrow_Commentary : Good news, a social media user who doesn't call Trump a do-nothing lazy man. Trump actually works incredibly hard for a man of age 79. Any YouTube creator will tell you the huge amount of labor being on-stage and creating content. Horrifc news: nota soul recognizes that the labor is slef-harm and has all the behavior of Putin / Russia Surkovian governing turned towards normlaizing self-harm of the future. ===:::
