@@ -82,3 +82,32 @@ We The People need to face up to [media ecology, on a global scale, all people i
 Yes, positive, is it *REPEATED as people repeat memes on Reddit? no.*   
 https://old.reddit.com/r/Fauxmoi/comments/1mefuoz/ms_rachel_for_the_washington_post_photographed_by/
 
+&nbsp;
+
+## Simply the television
+
+If it were simply the television, I'd turnit off and not watch TV.   
+If it were simply Reddit, I'd stop using Reddit.  
+If it were simply TikTok, I'd stop using TikTok.   
+If it were simply Russia and  Ukraine, I'd stop for my mental health.   
+But it is not. And October 7, 2023 in the Middle East, right where I had spent years living next to Palestine in Jordan and analyzing this as a long-term problem... was a harsh reminder. Palestie rejected Malala from Pakistan, and *she* was talking about reality that should have attracted anyone. But it did not. And the reality of Hamas Terrorism 2023 is the Reality of USA Donald Trump - in terms of acceptance and rejection of goodness (Palestine rejecting Malala since yeaer 2013, USA society rejecting goodness since year 2014).
+
+When I got into social media and interacted with strangers at age 13, it was tied to geography of a weak radio signal and you knew a voice. And you rode your bike and you met up with people at gatherings. And when you got a commodore 64 there were users groups. Not that many people went to users groups given that several retail stores sold the computers and clearly lots of people had them, but the large public schools did not have computer clubs or computers for general studends. But we formed them, maybe 12 to 80 people show up, regional within the city (wasn't the norm to travel across city to such an event monthly).
+
+My point is that social media actually was a way for me to meet adults outside my middle school and high school. And the computer using adults at that time tended to be book readers, publiclibrary users. To understand computers and learn, you would read a book. And magazines exploded with word processing and printer advancements.
+
+I traveled, I met real people. I was not "terminally online" in my parent's basement, I was selling computers and doing home delivery and I got an after-school job at age 16 with adults in an office where (Telos Federal Systems apprentice) everyone had a masters degree or doctorate. And after graduating from high school and working for Slater Steel, I negotiated in the interview taht I could trave to compuer conferences training sessions on bleeding edge software. Which I did. I selected PARTS Workbench,Smalltalk development forapp and took two different week-long trips to California for conferences. If founded the Fort Wayne OS/2 users group, we met at Central Soya.
+
+With my published books, and Compuserve participation - I was given IBM's highest OS/2 Ambassadora award for OS/2 at a lavish Indy 500 ceremony. I was recruited to work in Philedlphia for SAP (lotsof IBM influence at SAP, founded by ex IBM people).I worked so many hours at SAP,that all my social was just with other workers, it was very rapid growth in those years. Relocated to Dallas/Fort Worth after having taken a business trip as SAP was growing so rapidly that the American Airlines training centers for teaching was the fastst way to have near-airport training centers. While in Dallas, I got back into users groups and the first saturday swap meets and the dfw.single Usenet group I was organizing movie outings and get togethers.
+
+Then I relocated to Seattle out of choice, I could have gone to Houston (or stay in Dallas) as an alternate. I knew practically nothing about the Pacific Northwest, so I did lots of exploring. Got into VW clubs and took weekend trips out to the Olympics west and mountains east, and went to Canada for a VW weekend event. My job sent me to Alaska and Portland as a consultant. 
+
+And in November 1999, I moved full time into a RV and relocated to Arizona for the winter to work, and I had never been there and explored several cities that winter. After September 2001, my wife and I moved full time into an RV and went all over the USA.
+
+I had developed a strong sense of what magazines said vs real world, what social media said vs. real world. I would read hundreds of movie reviews from non-professional writers and compare with my own experience. I would read dozens of resturant reviews on dozens of places before using our RV to go out to eat.. And you got a sense of how many differnt people of different ages and experiences described  things on the Internet. I did this for years and years, upgraded and changed RV sizes and styles like 7 times.
+
+I lived overseas from December 2010 to 2014. And like Peter P described after returning to London from Russia, I realized that the Arab Spring I had seen from December 2009 online to living in Africa December 2010 was starting to happein and change in USA in 2014. 
+
+Online and real-world were no longer reality. And then, the non-reality of the Internet started to take over USA reality. The yard signs and automobile stickers of Donald Trump 2015 and 2016 became Reality TV "The Apprentice" and Reality TV fiction "Fox News" and Reality Social media in the real world.
+
+this needs editing editing rewriting, maybe split into another page.
