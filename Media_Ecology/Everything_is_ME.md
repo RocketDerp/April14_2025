@@ -109,3 +109,15 @@ BILL MOYERS: Each needs a new myth.
 
 JOSEPH CAMPBELL: Each needs its own myth, all the way. Love thine enemy. Open up. Don’t judge. All things are Buddha things. It is there in the myth. It is already there.
 
+&nbsp;
+
+&nbsp;
+
+## Timothy Leary 
+
+Joseph Campbell's 1987 example of using "DW3" with MS-DOS / PC-DOS echos by an entirely different author.
+
+Timothy Leary; quoted in Bukatman 1993; page 139    
+"Computers are the most subversive thing I've ever done. [...] Computers are more addictive than heroin. [...] People need some way to activate, boot up, and change disks in their minds. In the 60s we needed LSD to expand reality and examine our stereotypes.With computers as our mirrors, LSD might not be necessary now"
+
+"boot up, and change disks in their minds".. exact same metaphor as Joseph Campbell in 1987 being used. Switching software with our same brain hardwarwe. A video game console changing from one game to another, changing out game cartridge, floppy disk, or optical disc.
