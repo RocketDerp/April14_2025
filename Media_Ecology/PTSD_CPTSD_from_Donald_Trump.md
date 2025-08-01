@@ -18,5 +18,10 @@ Dr. Carl Jung, After the Catastrophe, 1945
 
 And workplace co-workers, employees of Trump supporters, etc.
 
+&nbsp;
 
+# The Inner Pain and Anguish
+
+“One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s **simply too painful to acknowledge, even to ourselves, that we’ve been taken**. Once you give a charlatan power over you, you almost never get it back.”
+― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark. Published in 1995, shortly before his death fro cancer. He knew about pain.
 
