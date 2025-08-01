@@ -78,9 +78,9 @@ Campbell was a writer and had an IBM PC, And switching applicaitons between a wo
 
 When two Echo Chambers meet...when different religions meet, different systems of religion, one based on female, one based on male...
 
-Joseph Campbell at age 83 in year 1987, Power of Myth book published 1988:
+Joseph Campbell at age 83 in year 1987, [Power of Myth book published 1988](https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth):
 
-[JOSEPH CAMPBELL](https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth): I have had a revelation from my computer about mythology. You buy a certain software, and there is a whole set of signals that lead to the achievement of your aim. If you begin fooling around with signals that belong to another system of software, they just won’t work.
+JOSEPH CAMPBELL: I have had a revelation from my computer about mythology. You buy a certain software, and there is a whole set of signals that lead to the achievement of your aim. If you begin fooling around with signals that belong to another system of software, they just won’t work.
 
 Similarly, in mythology—if you have a mythology in which the metaphor for the mystery is the father, you are going to have a different set of signals from what you would have if the metaphor for the wisdom and mystery of the world were the mother. And they are two perfectly good metaphors. Neither one is a fact. These are metaphors. It is as though the universe were my father. It is as though the universe were my mother. Jesus says, “No one gets to the father but by me.” The father that he was talking about was the biblical father. It might be that you can get to the father only by way of Jesus. On the other hand, suppose you are going by way of the mother. There you might prefer Kali, and the hymns to the goddess, and so forth. That is simply another way to get to the mystery of your life. You must understand that each religion is a kind of software that has its own set of signals and will work.
 
