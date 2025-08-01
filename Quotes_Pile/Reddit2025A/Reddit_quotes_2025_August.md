@@ -50,3 +50,73 @@ GringottsWizardBank 2021-07-09
 
 * :::=== RoundSparrow_Commentary : "Liberal mediais a myth", yes (nonfiction media is unpopular) .. but no, we are still free to choose in August 2025. Nonfiction media is still on the shelf, largely ignored. The crisis is global and we need to look outside the USA to see the patterns. [Fiction vs. nonfiction. Conservaties are attracted to fiction](Misc0/2025-07-29_conservatives_ethnic.md). Bluntly: people lack courage, bravery, balls to sustain repeating that the problem is *amusement entertainment* vs. nonfiction. People would rather spend time complaining about how terrible news is, hours each day complaining, than actually seek out books on media ecology and quote them. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1meus51/trump_to_blame_for_high_cost_of_living_americans/n6chsi0/
+
+dhrisc 2020-10-13
+
+"I hate to be like this, but i do agree. I dont care how many "self-report" surveys and puff piece interviews and hot takes i encounter about some sort of justified anxiety or anger - people will contort themselves anyway necessary and say anything to preserve their egos and image and justify the way they act. Trump is a sick symptom of a sick society that incentivizes selfishness, cynicism and self-righteousness at almost every turn."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1meu7lv/judges_detail_horrors_theyve_experienced_since/n6cmf4p/
+
+yesrushgenesis2112 2016-09-14
+
+"As I said the last time we talked about this during your last manic episode, I hope you are able to seek and receive treatment. Good luck to you."
+
+* :::=== RoundSparrow_Commentary : This is political discourse in year 2025: Donald Trump had dementia, etc, etc. Thought-terminating behaviors. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1meu7lv/judges_detail_horrors_theyve_experienced_since/n6cospf/
+
+DistillateMedia 2017-03-30
+
+"Are you fucking serious?
+
+Conspiratorial thinking?
+
+There's a real life conspiracy happening right now where a Russian asset is in the Whitehouse covering for an international pedophile ring.
+
+I think a little conspiratorial thinking is warranted.
+
+And yes, I have been building my own conspiracy you might say to combat it.
+
+It's really not outlandish or unrealistic, especially if you knew my background, the family I come from, and the many friends I've made in life.
+
+You clearly only want to discredit me though.
+
+I have a feeling this isn't about my safety.
+
+And I don't care what happens to me on my quest to save my country.
+
+It's a rational decision many have made before to wager their life for the greater good, and a real chance at happiness."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1meu7lv/judges_detail_horrors_theyve_experienced_since/n6cnyqq/
+
+DistillateMedia 2017-03-30
+
+"Do you believe people with mental health conditions are somehow unable to engage in intelligence activities just like anyone else?
+
+Do you not see how my bipolar disorder could actually be an advantage in this process for me?
+
+Just cause I have a mental health condition doesn't mean I haven't actually been busting my ass since day one on this."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1meu7lv/judges_detail_horrors_theyve_experienced_since/n6cb2aj/
+
+xTiming- 2012-01-04
+
+"America does need a mass deportation event...
+
+All these people from Trump all the way down to his stupidest, most vile backwater supporter need to be deported to Mars on an experimental Musk rocket.
+
+I'm not American and not even on the same continent but at some point hearing about the utter garbage coming from that country, you start to question why these ~~people~~ animals are allowed to exist on the same planet and in the same society as normal, adjusted people."
+
+* :::=== RoundSparrow_Commentary : MAGA society values: deport those you disagree with or do not grasp/understand (speak a different language, Spanish, etc). Dehumanizing people as "animals", saying that even animals do not have a right to exist on the planet, total domination dictatorship, even over elimination of entire species of animals. August 2025 USA thinking and [mass psychosis](https://www.youtube.com/watch?v=09maaUaRT4M). ===:::
+
