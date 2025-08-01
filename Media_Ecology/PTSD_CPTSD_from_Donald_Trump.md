@@ -32,6 +32,14 @@ Church congregation of Trump supporting clergy.
 
 Trump supporters really waved a lot of flags in faces since 2015 for what in reality (beyond the Kremlin war against reality) was Putin values, Russia systems. A false flag symbolism in the brain attack of information warfare... where the meaning is [corrupted or outright inverted](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/).
 
+Front page of Reddit on inverted media experiences of friends who say they are fans of media stories but actually behave hate-filled and dehumanizing:     
+https://old.reddit.com/r/CuratedTumblr/comments/1mew0w9/peace_and_love/
+
+<img width="562" height="767" alt="image" src="https://github.com/user-attachments/assets/73259386-eb96-4368-921d-369055540cdf" />
+
+
+&nbsp;
+
 ## Red Hat trauma
 
 Seeing a red hat, regardless of what it says or images on it.
