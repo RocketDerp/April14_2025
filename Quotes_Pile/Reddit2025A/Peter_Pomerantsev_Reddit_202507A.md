@@ -1514,3 +1514,10 @@ The_Navy_Sox 2022-09-21
 
 "Literally afraid of reality. How detached from reality do you have to be to believe Trump. Probably how people who pretend to be anti pedos voted for someone on the Epstein list."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mf4e88/donald_trump_fires_person_behind_jobs_numbers/n6eao1p/
+
+The_Navy_Sox 2022-09-21
+
+"He literally determines reality for his base. It would be fascinating to watch if I wasn't American. It's just depressing seeing how subservient so.many Americans are, and how much they yearn to be tread on by Trump."
