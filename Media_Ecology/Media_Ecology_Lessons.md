@@ -4,5 +4,7 @@ This page may eventually be split into other pages, for now a dumping ground. In
 
 ### Year 2013 capability of audio engineering
 
+YouTube video title: "Did I make a mistake??? The comments section has been LIGHTING UP!!!"    
+August 1, 2025    
 https://www.youtube.com/watch?v=LWuvwII03iM
 
