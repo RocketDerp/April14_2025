@@ -51,3 +51,21 @@ https://www.washingtonpost.com/opinions/2025/07/17/neil-postman-amusing-ourselve
 # Deception, Self-Deception
 
 Some ideas take hundreds of years and teams of thousands of people. Problems that were recognized but unsolved, such as germ theory. It wasn't until the invention of microscope technology that we started to better understand diseases that seemed invisible.
+
+&nbsp;
+
+## Spy vs. Spy, Active Measures
+
+There comes a time... July 31, 2025
+
+https://old.reddit.com/r/politics/comments/1mekr09/clinton_plan_emails_were_likely_made_by_russian/
+
+Where the Spy vs. Spy sloshing of bullshit an falsehoods wreckes anyone actually comprehending where it all started. The "Tower of Babel" Torah, Bible, Quran metaphor kicks in! Bullshit deception patterns of language communications start to create interference patterns and jam truth of the technique copycat methods.
+
+Monomyth spirals into retcon monomyth, and nobody speaks the dead Latin Lanauge that Martin Luther in Germany translated to everyday people over 500 years ago. Get it?
+
+It isn't fun. Putin isn't having fun, Trump isn't having fun, Israel isn't having fun, Suda isn't having fun, Ukraine isn't having fun. None of you have convinced me you grasp compassion and love at the Joycean level of 1924 "on the same page" of world monomyth.
+
+This bullshit, deception,lies, is just not enjoyable. Whatever you are feeling is not joy or fun. It is egomania and it is fun toxic like some drug that wrecks the drug addict.
+
+
