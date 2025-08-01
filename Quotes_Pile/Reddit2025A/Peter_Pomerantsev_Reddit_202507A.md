@@ -1545,4 +1545,4 @@ But then I realized that this is terrifying and extremely bad news. This is how 
 
 Don't like the facts? Fire the person with the audacity to report it. Then, find a replacement that you can control. Job numbers are up all of a sudden. Imagine that."
 
-* :::=== RoundSparrow_Commentary : At firt, you were amused, then you went on scrolling Reddit the amusement mill and never studied Neil Postman's 1985 book "Amusing Ourselves to Death", seeing the forest of TOTAL USA (and NATO beyond) response to Putin + Trump since March 2013... and instead see only the tree of the day in front of you. Donald Trump playing Tony Clifon character engages the audience in total mockery. ===:::
+* :::=== RoundSparrow_Commentary : At first, you were amused, then you went on scrolling Reddit the amusement mill and never studied Neil Postman's 1985 book "Amusing Ourselves to Death", seeing the forest of TOTAL USA (and NATO beyond) response to Putin + Trump since March 2013... and instead see only the tree of the day in front of you. Donald Trump playing Tony Clifon character engages the audience in total mockery. ===:::
