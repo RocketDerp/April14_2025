@@ -695,3 +695,10 @@ Crackorjackzors 2009-11-12
 
 "I had the same question, like how random is that? I know that Trump and the WWE are close, but randomly seeing him at this press conference is funny."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1medtkh/trump_on_epstein_stealing_young_women_from/n68ybba/
+
+Mrzillydoo 2017-05-23
+
+"This timeline. It is so tired now to even reference Idiocracy, but jebus what are we doing here. How am I both completely befuddled at Hunter Hearst Helmsley in the background of a Presidential statement whilst also being completely unsurprised?!"
