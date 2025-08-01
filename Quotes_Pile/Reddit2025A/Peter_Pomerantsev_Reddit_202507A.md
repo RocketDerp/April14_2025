@@ -1521,3 +1521,13 @@ https://old.reddit.com/r/politics/comments/1mf4e88/donald_trump_fires_person_beh
 The_Navy_Sox 2022-09-21
 
 "He literally determines reality for his base. It would be fascinating to watch if I wasn't American. It's just depressing seeing how subservient so.many Americans are, and how much they yearn to be tread on by Trump."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mf4e88/donald_trump_fires_person_behind_jobs_numbers/n6ebt2h/
+
+Pegasus7915 2014-03-29
+
+"For his base? How about for us all. No one is stopping him from shaping it to his will. He might as well actually be the real fucking anti christ at this point. No one is actually resisting him. Oh sure, we all go out in the streets and yell a bit, but we don't actually take any real action to stop him. That would take too much work. We are so afraid of losing everything that we are just sitting passively while it is ripped away from us piece by piece."
+
+* :::=== RoundSparrow_Commentary : Exactly. So many keep parroting: one third of Americans, not ALL Americans. Reality is pulled into the black hole of MAGA / Trump. There is zero evidence anyone can escape it and find Peter P's 2014 book and articles and say it is Surkovian goveerning. Nobody is demonstrating self-awareness by describing Russia year 2012 techniques of simualcra and anti-reality. Adam Curtis 2014... uncited. ===:::
