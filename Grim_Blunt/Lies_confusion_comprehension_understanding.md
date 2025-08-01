@@ -116,8 +116,7 @@ In North Africa it may have been university middle class women age 20 to 28 in 2
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
-* REPEATING:  » All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the message. **Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments**. « - Marshall McLuhan, Quentin Fiore
-1967
+* REPEATING:  » All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the message. **Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments**. « - Marshall McLuhan, Quentin Fiore 1967
 
 When Malala first came to my attention in the days following October 9, 2012 - I recognized right away how media ecology of living under a terrorism passport situaiton (unwelcome in the world) with world wide web Internet English skills had influnced her media ecology thinking.
 
@@ -142,7 +141,9 @@ And in November 1999, I moved full time into a RV and relocated to Arizona for t
 
 I had developed a strong sense of what magazines said vs real world, what social media said vs. real world. I would read hundreds of movie reviews from non-professional writers and compare with my own experience. I would read dozens of resturant reviews on dozens of places before using our RV to go out to eat.. And you got a sense of how many differnt people of different ages and experiences described  things on the Internet. I did this for years and years, upgraded and changed RV sizes and styles like 7 times.
 
-I lived overseas from December 2010 to 2014. And like Peter P described after returning to London from Russia, I realized that the Arab Spring I had seen from December 2009 online to living in Africa December 2010 was starting to happein and change in USA in 2014. 
+I lived overseas from December 2010 to 2014. And like [Peter Pomerantsev described after returning to London from Russia](https://www.youtube.com/watch?v=5Au332OG-M4), I realized that the Arab Spring I had seen from December 2009 online to living in Africa December 2010 was starting to happein and change in USA in 2014. 
+
+* REPEATING:  » All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the message. **Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments**. « - Marshall McLuhan, Quentin Fiore 1967
 
 Online and real-world were no longer reality. And then, the non-reality of the Internet started to take over USA reality. The yard signs and automobile stickers of Donald Trump 2015 and 2016 became Reality TV "The Apprentice" and Reality TV fiction "Fox News" and Reality Social media in the real world.
 
