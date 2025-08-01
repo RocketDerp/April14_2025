@@ -79,3 +79,10 @@ Without such a transcendent narrative, life has no meaning.
 
 4:12
 Without meaning, learning has no purpose. Without purpose, schools become houses of detention, not attention.
+
+&nbsp;
+
+## God to Serve: Donald Trump
+
+In that 1995 book, Postman was right, and we did not develop the god toserve (we already had it, the 1776 Great Seal of the Uniited States of America god, the world wide web public libray of Ben Franklin - ***cherry picking from every science fiction story in the public library, not just science ficiton Quran, Torah, Bible from Levant**)...and Doanld Trump became the God that the Internet Research Agency since March 2013 created with Cambridge Anaytica depth-charge monomyth payloads of the mind.
+
