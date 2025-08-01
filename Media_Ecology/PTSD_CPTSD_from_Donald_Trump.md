@@ -63,9 +63,13 @@ https://old.reddit.com/r/CringeTikToks/comments/1mezced/trump_supporter_says_joe
 
 &nbsp;
 
-## I told you, warned you expereince
+## I told you, warned you experience
 
 The extreme frustration that other people tusted Fox News television and not you. The power of media systems to overpower *the little guy* with the billioniare *big guy* commercial art. See: Jen Senko's film and book,a baby boomer who stood up to Fox News and other media.
+
+## Trusting People who Trust Trump
+
+Dealing with all the anxiety of having to trust people who obiviously trust Fox News at face value and trust that Donald Trump was good for the future of the USA. The generalized society-wide anxiety of sitting on a time-bomb of trusting a man who trusts Putin.
 
 # I could have done more
 
