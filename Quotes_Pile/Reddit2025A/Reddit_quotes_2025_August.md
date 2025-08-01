@@ -130,5 +130,13 @@ I_eat_mud_ 2021-12-07
 
 "MAGA is a deadly symptom, but it's not the disease. Almost everything we're experiencing today started because of Reagan. It's uncanny how the average American's life has been on a downward trajectory since his presidency. Trump and MAGA are the final death throes."
 
-* :::=== RoundSparrow_Commentary : In 1985, after witnessing the 1984 second term election of Ronald Reagan, a New York University professor of media ecology published a book about Twitter, Reddit, Fox News 1996 called "Amusing Ourselves To Death"... this book should be known by every single Amerian age 12 to 120 in August 2025, it is only 184 pages. ===:::
+* :::=== RoundSparrow_Commentary : In 1985, after witnessing the 1984 second term election of Ronald Reagan, a New York University professor of media ecology published a book about Twitter, Reddit, Fox News 1996 called "Amusing Ourselves To Death"... this book should be understood by every single American age 12 to 120 in August 2025, it is only 184 pages. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1meucu2/kamala_harris_appears_on_colbert_says_shes/n6c80do/
+
+"Could be in the form of a nightmare for all of us years from now. I've been wondering for awhile if the first female president would be not a Democrat, but a Kristi Noem or an MTG ...e.g, a repub female ...not a Democratic one. Maga's love 'em them politics-Barbies."
+
+* :::=== RoundSparrow_Commentary : Even Ivanka Trump as a figurehead, with others doing most of the work. Ivanka could choose to have less of a media prescence, or behave just like Donald on media, a complete freedom. The key thing is exploiting the "no female is electable" expectation with a MAGA supporter, to empahsize that Hillary Clinton was just a terrible choice (despite her Secretary of State experience and statements about ["Information War" in early 2011 against Putin/Russia](https://communicationleadership.usc.edu/2011/03/06/secretary-clinton-and-the-information-war/). Could you imaagine Ivanka running on a slogan of "my father made some mistakes, I will fix them"? ===:::
 
