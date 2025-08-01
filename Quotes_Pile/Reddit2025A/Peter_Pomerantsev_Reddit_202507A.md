@@ -1463,3 +1463,16 @@ They live in a COMPLETELY different reality. They are beyond saving. There are m
 
 * :::=== RoundSparrow_Commentary : "they" live in [5,000 copletely different realities, siwtching beween fiction channels](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) of streaming memes and news channels, cherry-picking the ficiton that ismost appealing, mocking and insutling how THE OTHER PEOPLE (THEY) are alldumb stupid iditos for not seeing the momentary reality appearing on the Internet screen of fiction content. And about the only way to become self-aware of the 5,000 forests perspective instead of just the trees... is to [invoke and repeat invoking Neil Postman's 1985 book](https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Lies_confusion_comprehension_understanding.md#neil-postman-1985) until everyone age 12 to 120 is on the same page of media ecology literacy. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1medtkh/trump_on_epstein_stealing_young_women_from/n69corh/
+
+p_coletraine 2014-07-14
+
+"What I’ve noticed is social media and big box news channels surgically curate what their audience even consumes. I casually asked a heavily right leaning conservative acquaintance of mine what they thought about the trump/epstein situation and all the allegations that are being tossed at him about children, etc., etc. response?
+
+“Oh, huh? I haven’t really seen anything on that…what are you talking about?”
+
+Fucking seriously"
+
+* :::=== RoundSparrow_Commentary : Everything is media ecology. ===:::
