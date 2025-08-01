@@ -14,7 +14,7 @@ https://old.reddit.com/r/BeAmazed/comments/1mec9tz/kindness_before_the_cure/
 
 &nbsp;
 
-# Why am I here? GitHub
+# [Why am I here?](https://www.youtube.com/watch?v=5IsSpAOD6K8)... GitHub
 
 I'm here out of complete desperation of lost language. Microcosim macrocosim. 
 
