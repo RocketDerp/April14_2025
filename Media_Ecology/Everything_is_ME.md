@@ -120,4 +120,6 @@ Joseph Campbell's 1987 example of using "DW3" with MS-DOS / PC-DOS echos by an e
 [Timothy Leary](https://en.wikipedia.org/wiki/Timothy_Leary); quoted in Bukatman 1993; page 139    
 "Computers are the most subversive thing I've ever done. [...] Computers are more addictive than heroin. [...] People need some way to activate, boot up, and change disks in their minds. In the 60s we needed LSD to expand reality and examine our stereotypes.With computers as our mirrors, LSD might not be necessary now"
 
-"boot up, and change disks in their minds".. exact same metaphor as Joseph Campbell in 1987 being used. Switching software with our same brain hardwarwe. A video game console changing from one game to another, changing out game cartridge, floppy disk, or optical disc.
+"boot up, and change disks in their minds".. exact same metaphor as Joseph Campbell in 1987 being used. Switching software with our same brain hardware. A video game console changing from one game to another, changing out game cartridge, floppy disk, or optical disc.
+
+Joseph Campbell's Compartive Mythology was translating rituals and subconsous from religion to religon, at a deeper mind and society level than translating spoken and written languages from langauge to language. Futural ritual from Tibet sky burial translation to say a [Finnegans Wake Tim Finnegan Funeral](https://www.youtube.com/watch?v=YdizZtOddC8)...
