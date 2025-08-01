@@ -153,3 +153,14 @@ ThunderChild247 2019-02-12
 That’s how the UK’s had three female prime ministers, and all of which were right wing and awful people. Sadly I fear that if MAGA were to have a female leader, they’re more likely to be closer to Liz Truss than Margaret Thatcher. At least Thatcher was intelligent and right wing, as opposed to Liz Truss, who was right wing and… well…"
 
 * :::=== RoundSparrow_Commentary : I think dealing with Donald Trump / JD Vance / MAGA it is best to halt all domestic focus and every social media user comment on conservative media (inclusive of religion) and conservative behavior all over the world. Let Malala from Pakistan speak. Describe the problem in every other nation on Earth and let that create a silhouette of not discussing Donald Trump directly. Make it about the values, behavior of Putin Kremlin and Taliban - and you promote the values you desire and show examples of goodness itself. Stop treating it like a short-term domestic-only problem of media literacy and Fox News, even Rupert Murdoch goes beyond just TV media (has newspapers) and USA. THIS is taking the high road, education and teaching about what "conservative" means all over Earth and the history of it. And for God's sake, cite books and articles by people and when people react-comment to a paragraph quote of a book, respond by encouraging them to discuss the entire book (read the book).... instead of generating more off-the-cuff reactionary (shallow) social media messages. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1metn9z/nothing_suspicious_about_that/n6cqbbs/
+
+Upstairs_Addendum587 2022-11-20
+
+"Epstein is perhaps the closest things we've had to a bipartisan frustration among voters with the Trump administration that has ever existed and liberals on Reddit seem intent on shooting themselves in the dick by putting up false and easily debunked headlines and dropping them on the front page.
+
+There's tons of really good reasons to think Trump is guilty of really terrible behavior regarding Epstein. Don't reach like this."
+
