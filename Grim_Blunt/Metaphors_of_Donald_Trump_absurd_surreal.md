@@ -31,9 +31,9 @@ https://www.youtube.com/watch?v=vnypvUQl6TI&t=38s
 
 For school to make sense, the young, their parents, and their teachers
 0:10
-must have a god to serve or, even better, several gods.
+must have a god to serve or, even better, several gods.    
 0:17
-If they have none, school is pointless.
+If they have none, school is pointless.   
 0:21
 Nietzsche's famous remark is relevant here.
 0:26
@@ -43,61 +43,24 @@ He said once:
 0:35
 and this applies, I think, as much to learning as to living.
 0:40
-To put it as I said it before,
-0:44
-there is no surer way to bring an end to schooling than for it to have no end.
+To put it as I said it before, there is no surer way to bring an end to schooling than for it to have no end.    
 0:52
-Now by a god to serve,
-0:55
-I do not necessarily mean the God,
-1:00
-who is supposed to have created the world,
-1:03
-and whose moral instructions, as described in sacred books,
-1:08
-have given countless people a reason for living,
-1:12
-and, more to the point, a reason for learning.
+Now by a god to serve, I do not necessarily mean the God, who is supposed to have created the world, and whose moral instructions, as described in sacred books, have given countless people a reason for living, and, more to the point, a reason for learning.     
 1:16
-In the Western world,
-1:18
-beginning in the 13th century and for 500 years afterwards,
-1:24
-that God was sufficient justification for the founding of institutions of learning,
-1:31
-from grammar schools, where children were taught to read the Bible,
-1:37
-to great universities, where men were trained to be ministers of God.
-1:43
-Even today, there are some schools in the West,
-1:48
-and most in the Islamic world, whose central purpose
-1:52
-is to serve and celebrate the glory of God.
+In the Western world, beginning in the 13th century and for 500 years afterwards, that God was sufficient justification for the founding of institutions of learning, from grammar schools, where children were taught to read the Bible, to great universities, where men were trained to be ministers of God. Even today, there are some schools in the West, and most in the Islamic world, whose central purpose is to serve and celebrate the glory of God.    
 1:58
-Now, wherever this is the case, there is no school problem.
-2:03
-Certainly, there is no school crisis.
-2:06
-There may be some disputes over what subjects best promote piety, obedience, and faith.
+Now, wherever this is the case, there is no school problem. Certainly, there is no school crisis. There may be some disputes over what subjects best promote piety, obedience, and faith.      
 2:14
-There may be students who are skeptical, even teachers who are nonbelievers.
+There may be students who are skeptical, even teachers who are nonbelievers.   
 2:21
 But at the core of such schools, there is a transcendent spiritual idea
-2:29
-that gives purpose and clarity to learning.
-2:33
-To such schools the word God is spelt with a capital G.
-2:39
+that gives purpose and clarity to learning. To such schools the word God is spelt with a capital G.
 But there are schools that have been animated by a transcendent spiritual idea
-2:47
-which may be called a god with a small g.
+which may be called a god with a small g.    
 2:51
 Now I know it's risky for me to use this word, even with a small g,
-2:58
 because the word, having an aura of sacredness, is not to be used lightly
-3:06
-and also because it calls to mind a fixed figure or image.
+and also because it calls to mind a fixed figure or image.    
 3:11
 But it is the purpose of such figures or images
 3:16
