@@ -560,3 +560,13 @@ Complete-Royal-3973 2022-01-17
 "US people why haven’t you shut down your country let the rich service themselves they do not care about protest they do not care about you Shut it down"
 
 * :::=== RoundSparrow_Commentary : Social media users can't even *shut down enertainment and sports*, and [be serious with nonfiction education](../../Grim_Blunt/Stop_All_Entertainment.md). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mfw53x/were_officially_in_donald_trumps_mad_king_era/n6koj4y/
+
+Shigglyboo 2008-10-20
+
+"I’m starting to worry that he literally plans to kill us all. Because a planet without trump doesn’t deserve ti exist in his mind. He’s literally got nothing to lose and he cares about nothing."
+
+* :::=== RoundSparrow_Commentary : The evidence is that Donald Trump and MAGA works very hard, to *harm the future of the USA*. The statement "he cares about nothing" implies he is doing nothing. Donald Trump is cheerleading on the destruction of goodness itself, he is laboring very hard to hurt humanity / eliminate humanism. ===:::
