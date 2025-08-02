@@ -460,3 +460,11 @@ https://old.reddit.com/r/pics/comments/1mfxk6n/ahmed_semir_abdulal_has_died_from
 Ill-Walrus5475 2020-04-03
 
 "Pro Zionists will still claim it's fake and make fun of them. It's absolute insanity what's happening before our own eyes."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfzadv/marjorie_taylor_greene_says_shes_done_with_the_gop/n6ktq2v/
+
+AdventurousSeaSlug 2020-09-26
+
+"Listen she's still racist, she's still crazy, she still hates poor people, and other women. This is not some weird dollar-store Ebenezer Scrooge story. It's just that she's finally wised up to the fact that those kids in that club that she thinks is *just so cool*? They hate her too."
