@@ -498,3 +498,11 @@ hackingdreams 2010-03-12
 Look at what they did to the money laundering rules to allow the Felon in the White House to get himself out from under the Russians. Look at the rampant bribery by domestic agents and foreign governments, blowing the Emoluments clauses to pieces.
 
 The corruption is unending and complete. There's no way they're letting their king go down when they can just redact the files and burn the evidence in burn bags."
+
+&nbsp;
+
+https://old.reddit.com/r/StandUpComedy/comments/1mftpwr/hitler_on_theo_vons_podcast_from_marc_marons/n6jttk5/
+
+xyakks 2013-10-18
+
+"Hitler would just appear at the White House shaking hands with the American president. And he would be put in charge of some government program and America's elected president would say that he is a good guy, the best."
