@@ -25,4 +25,15 @@ https://www.youtube.com/watch?v=Ai71CfcMKnY
 
 2,437,903 views     
 January 19, 2024    
-https://www.youtube.com/watch?v=3Lj6JQcPooo
+https://www.youtube.com/watch?v=3Lj6JQcPooo   
+
+&nbsp;
+
+### Politics is fiction games 
+
+Fiction outsells nonfiction. By adding more fiction to government, more adventure and "choose your own reality", popularity increases. Popularity yields more name recognition and voting and power, both soft power (celebrity fame) and hard power. [Everything is media ecology](Everything_is_ME.md).
+
+https://old.reddit.com/r/politics/comments/1mfmjca/farright_extremists_using_games_platforms_to/
+
+ToDo: Look for postings in other subreddits that might get more engagement.
+
