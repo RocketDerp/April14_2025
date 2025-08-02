@@ -372,4 +372,48 @@ Appeasement and negotiations do not work when people/groups like trump and maga 
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfoxe7/trumps_domestic_use_of_military_set_to_get_worse/n6iy9d8/
+
+hecate37 2014-07-24
+
+"There are only two regimes, democracy and tyranny. Here are the methods of reducing democracy to tyranny. They are all against the Constitution.
+
+Control of public information and opinion - It begins with withholding information, and leads to putting out false or misleading information. A government can develop ministries of propaganda under many guises. They typically call it "public information" or "marketing".
+
+Vote fraud used to prevent the election of reformers - It doesn't matter which of the two major party candidates are elected if no real reformer can get nominated, and when news services start knowing the outcomes of elections before it is possible for them to know, then the votes are not being honestly counted.
+
+Undue official influence on trials and juries - Nonrandom selection of jury panels, exclusion of those opposed to the law, exclusion of the jury from hearing argument on the law, exclusion of private prosecutors from access to the grand jury, and prevention of parties and their counsels from making effective arguments or challenging the government.
+
+Usurpation of undelegated powers - This is usually done with popular support for solving some problem, or to redistribute wealth to the advantage of the supporters of the dominant faction, but it soon leads to the deprivation of rights of minorities and individuals.
+
+Seeking a government monopoly on the capability and use of armed force - The first signs are efforts to register or restrict the possession and use of firearms, initially under the guise of "protecting" the public, which, when it actually results in increased crime, provides a basis for further disarmament efforts affecting more people and more weapons.
+
+Militarization of law enforcement - Declaring a "war on crime" that becomes a war on civil liberties. Preparation of military forces for internal policing duties.
+
+Infiltration and subversion of citizen groups that could be forces for reform - Internal spying and surveillance is the beginning. A sign is false prosecutions of their leaders.
+
+Suppression of investigators and whistleblowers - When people who try to uncover high level wrongdoing are threatened, that is a sign the system is not only riddled with corruption, but that the corruption has passed the threshold into active tyranny.
+
+Use of the law for competition suppression - It begins with the dominant faction winning support by paying off their supporters and suppressing their supporters' competitors, but leads to public officials themselves engaging in illegal activities and using the law to suppress independent competitors.
+
+Subversion of internal checks and balances - This involves the appointment to key positions of persons who can be controlled by their sponsors, and who are then induced to do illegal things. The worst way in which this occurs is in the appointment of judges that will go along with unconstitutional acts by the other branches.
+
+Creation of a class of officials who are above the law - This is indicated by dismissal of charges for wrongdoing against persons who are "following orders".
+
+Increasing dependency of the people on government - The classic approach to domination of the people is to first take everything they have away from them, then make them compliant with the demands of the rulers to get anything back again.
+
+Increasing public ignorance of their civic duties and reluctance to perform them - When the people avoid doing things like voting and serving in militias and juries, tyranny is not far behind.
+
+Use of staged events to produce popular support - Acts of terrorism, blamed on political opponents, followed immediately with well-prepared proposals for increased powers and budgets for suppressive agencies. Sometimes called a Reichstag plot.
+
+Conversion of rights into privileges - Requiring licenses and permits for doing things that the government does not have the delegated power to restrict, except by due process in which the burden of proof is on the petitioner.
+
+Political correctness - Many if not most people are susceptible to being recruited to engage in repressive actions against disfavored views or behaviors, and led to pave the way for the dominance of tyrannical government.
+
+Avoiding tyranny - The key is always to detect tendencies toward tyranny and suppress them before they go too far or become too firmly established. **The people must never acquiesce in any violation of the Constitution.** Failure to take corrective action early will only mean that more severe measures will have to be taken later, perhaps with the loss of life and the disruption of the society in ways from which recovery may take centuries.
+
+/s."
+
 
