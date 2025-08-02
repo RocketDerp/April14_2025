@@ -31,7 +31,20 @@ Elections have become countdowns like the world cup every 4 years.
 
 It is too boring to repeat the same topic every day of health care. But people repeat rich mensex games of Epstein over and over. People repeat "donnie dementia diapers" over and over. "Sleep Joe Biden" over andover (which means: boring Joe Biden, not thrilling antics like Trump and Fox News).
 
+&nbsp;
 
+# This won't make front page
+
+This post won't make the front page... but look at the comments. Just look at the reactionary shit-takes people have on these topics. Mental exploit words kick in reactions. 
+
+https://old.reddit.com/r/politics/comments/1mfmsyt/trump_melts_down_in_unhinged_revenge_rant_they/
+
+Unhinged from what? Unhinged from truth, reality, goodness.    
+
+
+&nbsp;
+
+.
 
 &nbsp;
 
