@@ -64,7 +64,7 @@ https://old.reddit.com/r/CuratedTumblr/comments/1mfq1kx/watching_movies_with_a_d
 
 &nbsp;
 
-# Sports Mentalty
+### Sports Mentalty
 
 Reddit posting front page top: Michelle Obama cooks ESPN: "If I watch ESPN for an hour it's like watching The Real Housewives of Atlanta. It's the same drama, they're yelling at each other, they don't get along. Stephen A. Smith would be a great Real Housewife. What's the difference? It's just drama."
 
@@ -72,4 +72,10 @@ https://old.reddit.com/r/nba/comments/1mfucgc/michelle_obama_cooks_espn_if_i_wat
 
 
 Media ecology discussion assignment: Rectangle simulacra, armies of medical doctors servicing the ultra rich for entertainment. They could be traveling the world building hospitals, these athletic superment, but people want fiction framed rectangle screens and rectangle FIFA / NBA / NFL. Why not watch children play in the neighborhood and have exercise and make real world friendship, why are people only interested in rich people's lives? Mhythological gods?
+
+### Faulty Notification Technology?
+
+https://old.reddit.com/r/Wellthatsucks/comments/1mftfz5/terrible_notification_to_get_on_take_off/
+
+Media ecology discussion topic: Study the comments here about experiences getting faulty notifications.  Deeper... did the person spreading this on Reddit just want a discussion, have flight anxiety or lost bag anxiety, and wanted to share... did they likley know that the indicator may be faulty? Is it like car drivers complaining about weather or traffic, despite being a routine topic, just as conversation starters?
 
