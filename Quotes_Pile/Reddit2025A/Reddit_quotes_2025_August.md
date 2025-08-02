@@ -550,3 +550,13 @@ artful_todger_502 2021-03-13
 "How long are the adults in the room going to allow this syph-addled, raging toddler to free-range torch the earth?
 
 He's clearly the most dangerous threat to the world today. I would ask any Republican to remember, this is the world you are leaving to your younger family members. This is your legacy. You have blacklisted your entire genealogy."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mfw53x/were_officially_in_donald_trumps_mad_king_era/n6kc1lp/
+
+Complete-Royal-3973 2022-01-17
+
+"US people why haven’t you shut down your country let the rich service themselves they do not care about protest they do not care about you Shut it down"
+
+* :::=== RoundSparrow_Commentary : Social media users can't even *shut down enertainment and sports*, and [be serious with nonfiction education](../../Grim_Blunt/Stop_All_Entertainment.md). ===:::
