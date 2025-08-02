@@ -344,6 +344,13 @@ If you watch some interviews with trump supporters it's quite clear there is a l
 
 I watched someone close to me fall down this rabbit hole during COVID. It was fascinating and terrifying all at the same time."
 
-* :::=== RoundSparrow_Commentary : "I watched someone close to me fall down this rabbit hole during COVID" - Reddit users have [had since August 24, 2018 to recall and repost and repeat that Russia](https://www.bbc.com/news/world-us-canada-45294192) was mind-fucking people about measles and COVID - **all the way back to year 2014 Twitter. Factual, hard, evidence** validated by outstanding Johns Hopkins University and George Washington Unviersity. Americans can not fight an inforamtion war, and will not cite an information war, and have lost an information war to Russia! There were no calls to intellectual arms to take on Russia in an inforamtion war to spread disease, people just attacked Americans in friendly fire, hate for hate. [Exactly what Putin intended](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) with the **year 2014 onward** Twitter messages! ===:::
+* :::=== RoundSparrow_Commentary : "I watched someone close to me fall down this rabbit hole during COVID" - Reddit users have [had since August 24, 2018 to recall and repost and repeat that Russia](https://www.bbc.com/news/world-us-canada-45294192) was mind-fucking people about measles and COVID - **all the way back to year 2014 Twitter. Factual, hard, evidence** validated by outstanding Johns Hopkins University and George Washington Unviersity. Americans can not fight an inforamtion war, and will not cite an information war, and have lost an information war to Russia! There were no calls to intellectual arms to take on Russia in an inforamtion war to spread disease, people just attacked Americans in friendly fire, hate for hate. [Exactly what Putin intended](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) with the **year 2014 onward** Twitter messages! Doanld Trump didn't even announce he was running for POTUS until early 2015. Russia was already mind-fucking people over vaccination in YEAR 2014, we have factaul evidence! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfoxe7/trumps_domestic_use_of_military_set_to_get_worse/n6izh8e/
+
+yourrealfather696969 2021-05-05
+
+"Why? It doesn't matter. They covered the Russian election conspiracy ad nauseum and it went nowhere. People (specifically trump voters) need to feel the pain of their decisions. It's the only thing that even has a chance of cutting through their propaganda bubble."
 
