@@ -358,13 +358,17 @@ yourrealfather696969 2021-05-05
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mfoxe7/trumps_domestic_use_of_military_set_to_get_worse/n6iztvm/
+
+Energy_Sudden 2020-01-26
+
 "This right here would be the most significant thing to happen in trumps presidency yet. This would be basically our last chance to fight for our rights and freedom. Based on the response orange boy and the armed forces get they will know how far we can be pushed. Americans would need to do absolutely whatever needs to be done to combat and stop this. And yes, I mean the absolutely whatever needs to be done that you think I mean.
 
 I am extremely studied in WW2 and Hitlers and the nazis path to absolute power over Germany. The transition from their paramilitary force the brownshirts to the SS was the start of when hitler got REALLY bold; doing whatever he wanted to Germans, as well as too his international neighbors. 
 
 Appeasement and negotiations do not work when people/groups like trump and maga have the fervor that they do. Id bet you everything is got that hardline MAGAts view the political fight as an existential crisis. Germany did nothing but expand when Europe defended and retreated. Germany only lost ground when the allies stopped defending and started seeking out the fight."
 
-* :::=== RoundSparrow_Commentary : "right here would be the most significant thing to happen in trumps presidency" - yet Bluesky and Reddit social media will be full of chanting *JD Vance, couch couch sex* and *Esptein magical sex list*, and not in any way address the problem of addiciton to rich men sex lives as a problem of **media addiction** in the audience (not just one-third of voters, but even those not legally age to vote, even the opposition on Bluesky and Reddit). ===:::
+* :::=== RoundSparrow_Commentary : "right here would be the most significant thing to happen in trumps presidency" - yet Bluesky and Reddit social media will be full of chanting *JD Vance, couch couch sex* (year 2024) and *Esptein magical sex list* (year 2025), and not in any way address the problem of addiction to rich men sex lives (information strip tease) as a problem of **media infromation addiction** in the audience (not just one-third of voters, but even only people legally age to vote, even the opposition on Bluesky and Reddit). NOTE: this is example of a non-Twitter length long-form comment. What it lacks is links to books, links to articles, links to citations and references. ===:::
 
 &nbsp;
 
