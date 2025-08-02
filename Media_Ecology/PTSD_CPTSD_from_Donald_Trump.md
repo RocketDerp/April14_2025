@@ -86,7 +86,7 @@ The intellectual artists, the commercial artists, did not defend against Russia 
 Watching your nation fall for Russian mind games of creative fiction media arts:   
 https://old.reddit.com/r/politics/comments/1mfr6vw/magas_new_russiagate_evidence_likely_made_up_by/
 
-How could Americans, of all people, forgotten that Russia was a hostile enemy? The PTSD / CPTSD of such a mental blunder to trust and believe Russia.
+How could Americans, of all people, forgotten that Russia was a hostile enemy? The PTSD / CPTSD of such a mental blunder to trust and believe Russia. Putin has been a **dictator** for 25 years, Putin was a KGB office, the last possible source of information you trust is the Kremlin!
 
 &nbsp;
 
