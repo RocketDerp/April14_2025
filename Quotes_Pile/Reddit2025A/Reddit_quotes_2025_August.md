@@ -232,3 +232,15 @@ https://old.reddit.com/r/clevercomebacks/comments/1mfpn3x/trump_dont_buy_tireshi
 
 * :::=== RoundSparrow_Commentary : Increasingtly, more and more dates are removed from the screenshots and completely "redesigned" versions of Truth Social and Twitter are posted. Less reality, less sense of time. Reddit had no image hosting years back, it was off-site previously.Long-form discussion was core to Reddit (like Usenet, long-form, not like text messaging and Twitter). The media ecology has changed to stream of timeless reactions. It is a good thing people post old content if framed as a reminder and how people are suffering from recency bias. Alas,that is not the context bewilderment being confronted, it is not framed as a reminder. This serves Trump... intentional (self-aware audience) or otherwise. ===:::
 
+&nbsp;
+
+# Saturday August 2, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mfq83z/whats_the_p_really_stand_for_in_gop/
+
+Front page Reddit posting, topics; Pizzagate, underage children sexual abuse and exploitation.
+
+* :::=== RoundSparrow_Commentary : People attracted to out-group hate are attracted to this Reddit headline. Pizzagate was based upon calling Democrats sexual abusers of children, and [was taken seriously (Comet Ping Pong, among other wildcard locations)](https://en.wikipedia.org/wiki/Pizzagate_conspiracy_theory). What attracts people to Pizzagate is false information, information strip tease, bullshit and misunderstandings. Revealed also is that since October 8, 2013 - the book by Malala from Pakistan about how *young girls all over the world are being exploited by not being taken seriously and given voices*, and suffer from sexual exploitation and abuse. But this does not attract people who are addicted to messages of fiction about Comet Ping Pong and Pizza shop basements. What people in USA do not want to face is: Neil Postman was correct in year 1985, our media consumpton of fiction trash content is the problem, we are attracted to Fantasy Island private jets and Private Islands and rich men on the stage. Someone sincere like Bernie Sanders with thought-out and good ideas is treated the same way Malala has been treated since the release of her book October 8, 2013. Nonfiction is treated as boring. Climate change science, pandemic medical science, measles outbreak science, is treated as boring and grey-rocked like Malala. **Malala wants to adress the addiction to fiction, and Reddit society is not attracted to that topic. Pizzagate topic and Donald Trump Truth Social are fiction content, mythology, like the Quran.** “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Octoer 8, 2013 ===:::
+
