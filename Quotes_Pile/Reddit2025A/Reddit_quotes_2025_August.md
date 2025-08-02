@@ -354,3 +354,18 @@ yourrealfather696969 2021-05-05
 
 "Why? It doesn't matter. They covered the Russian election conspiracy ad nauseum and it went nowhere. People (specifically trump voters) need to feel the pain of their decisions. It's the only thing that even has a chance of cutting through their propaganda bubble."
 
+&nbsp;
+
+&nbsp;
+
+"This right here would be the most significant thing to happen in trumps presidency yet. This would be basically our last chance to fight for our rights and freedom. Based on the response orange boy and the armed forces get they will know how far we can be pushed. Americans would need to do absolutely whatever needs to be done to combat and stop this. And yes, I mean the absolutely whatever needs to be done that you think I mean.
+
+I am extremely studied in WW2 and Hitlers and the nazis path to absolute power over Germany. The transition from their paramilitary force the brownshirts to the SS was the start of when hitler got REALLY bold; doing whatever he wanted to Germans, as well as too his international neighbors. 
+
+Appeasement and negotiations do not work when people/groups like trump and maga have the fervor that they do. Id bet you everything is got that hardline MAGAts view the political fight as an existential crisis. Germany did nothing but expand when Europe defended and retreated. Germany only lost ground when the allies stopped defending and started seeking out the fight."
+
+* :::=== RoundSparrow_Commentary : "right here would be the most significant thing to happen in trumps presidency" - yet Bluesky and Reddit social media will be full of chanting *JD Vance, couch couch sex* and *Esptein magical sex list*, and not in any way address the problem of addiciton to rich men sex lives as a problem of **media addiction** in the audience (not just one-third of voters, but even those not legally age to vote, even the opposition on Bluesky and Reddit). ===:::
+
+&nbsp;
+
+
