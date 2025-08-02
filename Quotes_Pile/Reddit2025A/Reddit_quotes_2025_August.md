@@ -276,3 +276,11 @@ https://old.reddit.com/r/politics/comments/1mfsuq1/trump_gushes_over_karoline_le
 Reddit posting title: "Trump gushes over Karoline Leavitt: ‘It’s that face, it’s that brain, it’s those lips, the way they move!’"
 
 * :::=== RoundSparrow_Commentary : [Every hour of every day since July 7, 2025 FBI Memo](https://www.cnn.com/2025/07/07/politics/jeffrey-epstein-suicide-client-list-justice), the social media society of USA has been gushing over the sex lives of men with private jets, private islands, rich men sex "information strip tease".  Donald Trump is creating the fiction [content of bling life](https://www.youtube.com/watch?v=qMxX-QOV9tI), bling bling, golf courses in Scotland, jet set life, sex topics. And Americans adore the Donald Trump performance of 79 year old icky man playing [Tony Clifton performance](https://www.youtube.com/watch?v=eyAWBJULFso). People in USA have joined right in with the White House MAGA mocking of reality, forming a Total Mockery nation. We are in **over 25 days nonstop media frenzy on Donald Trump sex life** topics. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfsb1o/the_us_is_complicit_in_genocide_lets_stop/
+
+Reddit posting title: "The US is complicit in genocide. Let’s stop pretending otherwise"
+
+* :::=== RoundSparrow_Commentary : Read the comments on this news article (which is not a USA news source, but UK). USA society is complicity in the war against reality that [Peter Pomerantsev described in year 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/), Americans no longer assert reason thinking. We are living in as much Mythology as Quran and Mecca Palestine or Torah and Synagogue Israel media systems. USA is complicty in giving up intellectual world leadership, abandoning non-fiction authors like **[Peter Pomerantsev 2019](https://www.goodreads.com/work/quotes/65073585-this-is-not-propaganda-adventures-in-the-war-against-reality)**. And if you read and analyze (think about) the Reddit comments to this "pretending" statement, you do not see people recognize the forest for the trees, when the War Against Reality started, who started it, how it was going in year 2019 vs. year 2025, etc. ===:::
