@@ -468,3 +468,21 @@ https://old.reddit.com/r/politics/comments/1mfzadv/marjorie_taylor_greene_says_s
 AdventurousSeaSlug 2020-09-26
 
 "Listen she's still racist, she's still crazy, she still hates poor people, and other women. This is not some weird dollar-store Ebenezer Scrooge story. It's just that she's finally wised up to the fact that those kids in that club that she thinks is *just so cool*? They hate her too."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfzadv/marjorie_taylor_greene_says_shes_done_with_the_gop/n6kty3c/
+
+SGD316 2016-01-01
+
+"Before everyone knee jerks - hot take - she's coming around to more common sense positions.
+
+Some of even the dumbest members of our congress who are on the right are realizing there's a non-zero chance things could very badly for them in the next two years."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mfv981/trumps_name_redacted_in_epstein_files_by_1000_fbi/n6kg8ik/
+
+Shinagami091 2017-03-20
+
+"I would be careful about putting too much stock into what she says. She’s a known perjurer and likely won’t hesitate to lie to get herself out of prison. There’s plenty of evidence to suggest she’s working with Trumps DOJ to that end such as the meeting with the assistant head of the DOJ and being moved to a low security prison all of a sudden. It’s enough to cast doubt onto anyone she names, unless it’s Trump."
