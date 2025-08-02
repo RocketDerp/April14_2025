@@ -71,6 +71,15 @@ The extreme frustration that other people tusted Fox News television and not you
 
 Dealing with all the anxiety of having to trust people who obiviously trust Fox News at face value and trust that Donald Trump was good for the future of the USA. The generalized society-wide anxiety of sitting on a time-bomb of trusting a man who trusts Putin.
 
+## Compettion, "winner takes all"
+
+The never-ending competititon, even when competititon ended, it goes on.
+
+There shouldn't be a competittion between no health care and health care. Between homelessand having a home. Dog eat dog attraction to dog fighting violence. Attraction to domination and cruelty. Seeing mob mentality and runaway sports addiction values applied to society at large, the body politic as a sport of toxic poisoning for attention seeking.
+
+Still having the memroies before year 2013, even seeing a film before year 2013, that depicts a reality of real life that wasn't constant self-harm and pranks against goodness. The siege against goodness. The enshitification of society / government intoa antics crutely competititon.
+
+
 # I could have done more
 
 I didn't even know about the measles being Russia manipulation of hearts and minds since year 2014. Hurricanes in year 2024, I could have done more to speak up!
