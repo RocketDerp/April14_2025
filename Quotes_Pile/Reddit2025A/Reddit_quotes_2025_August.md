@@ -268,3 +268,11 @@ https://old.reddit.com/r/law/comments/1mfsms1/a_reporter_asked_going_forward_why
 Front page of Reddit: A reporter asked, "Going forward, why should anyone trust the numbers? and President Trump answered, "You’re right. Why should anyone trust numbers?"
 
 * :::=== RoundSparrow_Commentary : war against truth, war against science, war against facts, war against nonfiction, [war against reality](https://www.goodreads.com/work/quotes/65073585-this-is-not-propaganda-adventures-in-the-war-against-reality). The reporter and social media users are all avoiding: Neil Postman 1985, Carl Sagan 1994 / 1995, Andrew Postman 2017, Malala Yousafzai 2013, [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/), Peter Pomerantsev 2019 books. And instead react-commenting to this and not taking up intellectual arms and using social media systems to assert education, teaching, learning, study, comprehension, understanding via thoughful authors. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfsuq1/trump_gushes_over_karoline_leavitt_its_that_face/
+
+Reddit posting title: "Trump gushes over Karoline Leavitt: ‘It’s that face, it’s that brain, it’s those lips, the way they move!’"
+
+* :::=== RoundSparrow_Commentary : [Every hour of every day since July 7, 2025 FBI Memo](https://www.cnn.com/2025/07/07/politics/jeffrey-epstein-suicide-client-list-justice), the social media society of USA has been gushing over the sex lives of men with private jets, private islands, rich men sex "information strip tease".  Donald Trump is creating the fiction [content of bling life](https://www.youtube.com/watch?v=qMxX-QOV9tI), bling bling, golf courses in Scotland, jet set life, sex topics. And Americans adore the Donald Trump performance of 79 year old icky man playing Tony Clifton performance. People in USA have joined right in with the White House MAGA mocking of reality, forming a Total Mockery nation. We are in **over 25 days nonstop media frenzy on Donald Trump sex life** topics. ===:::
