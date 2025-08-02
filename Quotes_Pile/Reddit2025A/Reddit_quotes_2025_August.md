@@ -597,3 +597,10 @@ Stemoftheantilles 2022-07-29
 
 "Closed minded people tend to miss major themes or ideas that are represented in media. Even if it is pretty explicit. These are the same guys who think “conservatism is the new punk”. They just do not understand their own ideology or seem to have any media literacy at all lol."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfup8k/were_officially_in_donald_trumps_mad_king_era/n6k3exf/
+
+pervocracy 2010-07-07
+
+"Yeah, it's not the most important thing but it really creeps me out how all communications from this administration have this weird smug, snide tone. Even the extremely dry announcements about minor regulatory changes have to be sneering and politicized."
