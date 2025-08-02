@@ -79,6 +79,15 @@ There shouldn't be a competittion between no health care and health care. Betwee
 
 Still having the memroies before year 2013, even seeing a film before year 2013, that depicts a reality of real life that wasn't constant self-harm and pranks against goodness. The siege against goodness. The enshitification of society / government intoa antics crutely competititon.
 
+## having been defeated by Russia and nobody defended
+
+The intellectual artists, the commercial artists, did not defend against Russia in the March 2013 onward meme warfare. Many will feel shame and CPTSD for having lost a mental manipulation war and knowing nobody with the talents and gifts of art really tried to raise awareness of key authors (Peter P) and teachers (Neil Postman) while happily joining in with the mocking and insutling humanism via graphics arts.
+
+Watching your nation fall for Russian mind games of media arts:   
+https://old.reddit.com/r/politics/comments/1mfr6vw/magas_new_russiagate_evidence_likely_made_up_by/
+
+&nbsp;
+
 
 # I could have done more
 
