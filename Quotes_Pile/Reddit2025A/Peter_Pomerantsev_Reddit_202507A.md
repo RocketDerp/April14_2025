@@ -1568,3 +1568,13 @@ EnvyHotS 2015-06-20
 "Every day something new and absurd happens lmao. We live in a god damn clown country where the rules don’t matter"
 
 * :::=== RoundSparrow_Commentary : Twitter-length reaction thinking. "Absurd" is right in the title of the [year 2014 book](https://www.youtube.com/watch?v=5Au332OG-M4) that describes the population mind exploits. ===:::
+
+&nbsp;
+
+# Saturday, August 2, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mfdzyl/funny_how_anyone_in_maga_can_still_support_trump/
+
+* :::=== RoundSparrow_Commentary : what do social media users witness every day? Fiction. "Realty TV" of "The Apprentice" is fiction entertainment. People addicted to memes and entertainment still support Donald Trump because they still support ficton storytelling. Pizzagate was fiction, Donald Trump's story about Epstein is still fiction. Every social media platform is full of fiction and sports-like competitive coverage of one fiction bullshit vs. another fiction bullshit. Calm, intellectual, sensible nonfiction is treated as boring and worthless. That's how Russia won the information war since March 2013. ===:::
