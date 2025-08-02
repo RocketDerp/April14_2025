@@ -648,3 +648,12 @@ Mootskicat 2016-03-28
 "Well the USA is at war with Republicans, so of course they will say or do whatever they can to steal any and all power to force us into a Christian nationalist country.  I fucking hate Republicans."
 
 * :::=== RoundSparrow_Commentary : Hate of Americans... the reactio to a Twitter message, hate of Americans. "I fucking hate Republicans" - that's the core of MAGA and Donald Trump. Hate upon liberals, hate upon Canada, hate upon Mexicans, hate upon Democrats. That's the one thing social media users in USA all agree on: hate. A faith in hate is exactly what Putin's information warfare since March 2013 was cultivating and exploitng. Faith in hate itself, mass dehumanization of the out-groups. [MLK Jr spelled all this out in 1954, learning from and studying World War Two Nazi Germany](../Martin_Luther_King_Jr_quotes0.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mg1yx9/he_was_caught_on_video_cheating_on_the_golf/
+
+"He was caught on video cheating on the golf course; he cheated on his taxes, he cheated on his business loans, he cheated on his wives, he cheated on the business contractor that he stiffed through forty years of business, and he tried to cheat on the 2020 election."
+
+The comments to this post...
+
