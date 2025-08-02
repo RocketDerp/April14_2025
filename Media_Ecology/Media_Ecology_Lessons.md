@@ -37,3 +37,20 @@ https://old.reddit.com/r/politics/comments/1mfmjca/farright_extremists_using_gam
 
 ToDo: Look for postings in other subreddits that might get more engagement.
 
+&nbsp;
+
+### The comedy venue
+
+The late-night after-hours forbidden anti-Church.   
+Well, the Church speaks of Hell and sin, which is dark, and Church promotes that Heaven and Eden are good and Earth is bad (media ecology of planets, outer space).  
+Truth to power. Avoidance of truth. Egoism. 
+Getting fired for criticizing those in power, getting paid and popularity for criticizing (the comedian).
+
+August 2, 2025 front page of Reddit social media    
+Title: "Bill Burr goes after Billionaires, ‘Horrible racist‘ Conservatives, ‘Treasonous idiot‘ Ben Shapiro, and ‘Disease‘ Fox News"     
+https://old.reddit.com/r/PublicFreakout/comments/1mfe87g/bill_burr_goes_after_billionaires_horrible_racist/
+
+Does this create a simulacra of resistance?   
+Proxy of saying what people will not stand up in democracy (population, We The People) and say?   
+Is he CALLING on the audience to have bravery and courage to repeat what is beinng said, or just satiating the inner desire and creating spectators / passive office (See Rick Roderick "Self Under Siege" lectures which touches on this media ecology topicc of spectacle media consumers)
+
