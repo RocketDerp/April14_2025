@@ -434,3 +434,11 @@ https://old.reddit.com/r/pics/comments/1mfxk6n/ahmed_semir_abdulal_has_died_from
 Jartipper 2010-02-15
 
 "So Hamas’ founding charter mentioning that the god of Islam granted them ownership over the land where Israel sits doesn’t factor to you?"
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mfxk6n/ahmed_semir_abdulal_has_died_from_starvation_in/n6kj61i/
+
+stingingsensation 2017-03-23
+
+"That place is a cesspool of Zionist bots, every criticism levelled at Israel is full of comments mentioning Hamas and releasing hostages. I’m pretty sure bombing people attempting to receive aid is not aiding any attempts to free hostages who are/were residing in a region which has been bombed to shit by the state who are claiming to value their lives."
