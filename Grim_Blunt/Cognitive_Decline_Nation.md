@@ -8,6 +8,7 @@ Reactionary mindset, conditioned training to be reactive.
 
 1. Neil Postman
 2. Carl Sagan
+3. David Foster Wallace
 
 Exactly what is the university experience?
 
@@ -23,6 +24,14 @@ It isn't about being lazy. Sports fanatics are not lazy. Amped up, hyperactive, 
 Connetators in sports are audience cheerleaders. Applause signs for the at-home audience.  Graphics and animation cue the audience.
 
 Unplanned, shocking government actions give a sports media environment to the White House.
+
+Sports fans are not lazy. They are fixated. Us vs. them is about being thrilled that othrs make bad choices and coaches give bad advice, the dramatic pressure of havig a huge audience and the clock going in only one direction. Everything is a countdown to the next level of competittion, the playoffs, the championship, the next season of the sport.
+
+Elections have become countdowns like the world cup every 4 years. 
+
+It is too boring to repeat the same topic every day of health care. But people repeat rich mensex games of Epstein over and over. People repeat "donnie dementia diapers" over and over. "Sleep Joe Biden" over andover (which means: boring Joe Biden, not thrilling antics like Trump and Fox News).
+
+
 
 &nbsp;
 
@@ -203,3 +212,10 @@ is based on intelligence which is a good
 elitism and if you don't like it I'll
 6:51
 punch the out of you
+
+
+&nbsp;
+
+Cracking under the pressure. The USA is a pressure cooker of hate. Out-group hate.
+
+The hate of Canadians in 2025 is so blatent, so obvious, it's outright domestic abuse behavior. It is drug abuse and food abuse behavior on a national scale. It's playing games with a weapon like playing with a gun in the house because guns are cool. It is so obvious sickening behavior to attack Canada like Trump and MAGA opened 2025. Predatory agressive behavior. Egomania nation, USA.
