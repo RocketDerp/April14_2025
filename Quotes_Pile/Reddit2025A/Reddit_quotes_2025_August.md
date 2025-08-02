@@ -516,3 +516,28 @@ MeanEstablishment499 2021-04-03
 "It's just wild to me how everyone from the Rogan camp who got popular, famous, and wealthy all just turned to shit. Literally every single one of them. It's like they started with their schtick, got popular for it but couldn't come up with any better content so they just keep doing the same shit over and over. Like Bert still fucking does the Machine crap and takes off his shirt on stage, like bro it's not even funny anymore. Theo is the same, just sounds like he's trying so hard to be funny and it's cringe."
 
 * :::=== RoundSparrow_Commentary : Study "mass man" from Marshall McLuhan, study "hive mind", study media ecology, study "mob mentality" - study religions / cults, group thinking. Shared media consumption. Study indoctrination into media cults (Bible, Star Wars, Quran, Fox News, Elon Musk Twitter, Torah, L Ron Hubbard, Radio Mullah in Swat Valley Pakistan) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mfu2k0/america_has_the_most_corrupt_political_system_in/n6juc5r/
+
+wetterfish 2018-12-27
+
+"Objectively speaking, everything he’s saying is absolutely true. The problem is that nobody who voted for Trump will care what he has to say because he has a D by his name. 
+
+On top of that, if he had an R by his name and said those things, Trump voters would call him a RINO and say he should be banished from the party. 
+
+He correctly identifies the root of the problems, but America is so uneducated and toxic when it comes to civics that his words more likely to produce anger and skepticism than action."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mfxu4i/trump_says_hes_not_intended_to_release_the/n6kkmzp/
+
+radium_eye 2015-02-02
+
+"So what he's saying, logically, is that Democrats had the files and never released them because they would hurt Democrats. By his own reasoning, what's in them must be poised to hurt him and the GOP or else he'd release them, then, right?
+
+I know it's just shoots and fucking ladders in his brain and logic ain't the main player in the game. The word salad has only worsened in the last few years. Christ. though, the headache inducing depravity of his incessant bullshit gets under my skin"
+
+* :::=== RoundSparrow_Commentary : fixated on Donald Trump as *one single brain*, unable to see the forest for the single tree. Mutliple NATO nations have been reporting an [information war since year 2013, incluidng hard evidence of Twitter used to spread measles](https://www.bbc.com/news/world-us-canada-45294192), but social media users fixate on one single person age 79 and the "word salad". MAGA is not just one brain, it is hundreds of millions of people voters and non-voters (MAGA includes people not even able to legally vote, underage, etc). Getting under your skin is exactly what Surkovian information warfare does. And fixated users (fixated on domestic Augusst 2025) can't see that it is multiple NATO nations and goes back to March 2013. ===:::
+
