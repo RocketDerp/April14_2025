@@ -73,18 +73,24 @@ https://old.reddit.com/r/nba/comments/1mfucgc/michelle_obama_cooks_espn_if_i_wat
 
 Media ecology discussion assignment: Rectangle simulacra, armies of medical doctors servicing the ultra rich for entertainment. They could be traveling the world building hospitals, these athletic superment, but people want fiction framed rectangle screens and rectangle FIFA / NBA / NFL. Why not watch children play in the neighborhood and have exercise and make real world friendship, why are people only interested in rich people's lives? Mhythological gods?
 
+&nbsp;
+
 ### Faulty Notification Technology?
 
 https://old.reddit.com/r/Wellthatsucks/comments/1mftfz5/terrible_notification_to_get_on_take_off/
 
 Media ecology discussion topic: Study the comments here about experiences getting faulty notifications.  Deeper... did the person spreading this on Reddit just want a discussion, have flight anxiety or lost bag anxiety, and wanted to share... did they likley know that the indicator may be faulty? Is it like car drivers complaining about weather or traffic, despite being a routine topic, just as conversation starters?
 
+&nbsp;
+
 ### Ban / Block
 
 https://old.reddit.com/r/politics/comments/1mfwflr/trumps_media_takeover_isnt_about_bias_its_about/
 
+**"Trump's Media Takeover Isn't About Bias, It's About Silencing Dissent"**
+
 Social media has given every person a taste of leveraged machine power: banning people, blocking people. No need to burn physical books on paper like 1930's Nazi Germany... the block button doesn't require flame and paper. Egoism / egomania / echo chambers / [filter bubbles](https://en.wikipedia.org/wiki/Filter_bubble). Seilencing and grey-rocking those who disent.  Since October 8, 2013 - Malala has been routimely grey-rocked by social media users - she provides non-fiction content of progressive reformation. Malala's sincere non-fiction is popular in the rise of Donald Trump / MAGA / Putin invasion of Ukraine (February 2014 onward). What's wrong with what Malala Yousafzai has to say? It doesn't go with the flow of using powerful machines to dehumanize and block and silence those in "the others" groups. Donald Trump and [Radio Mullah media behavior](https://www.lhschools.org/Downloads/Malala%2038-65.pdf) follow the same year 2012 onward trajectory. People are not willing to face up that what Donald Trump is doing, blocking and silencing people he disagrees with, is commonplance in Bluesky social media year 2024, Reddit social media, etc. Marshall McLuhan educated society about this, such as [this 1977 interview on television: "all forms of violence are a quest for (Text sourced from https://www.organism.earth/library/document/mcluhan-mcmanus) identity. When you live out on the frontier, you have no identity. You’re a nobody. Therefore, you get very tough. You have to prove that you are somebody. And so you become very violent. And so identity is always accompanied by violence. This seems paradoxical to you? That ordinary, ordinary people find the need for violence as they lose their identities. So it’s only the threat to people’s identity that makes them — terrorists, hijackers: these are people minus identity. They are determined to make it somehow, to get coverage, to get noticed."](https://www.organism.earth/library/document/mcluhan-mcmanus)
 
-If people can not even share unicode messages on computer without burning books / blocking each other, what hope does humanity have for traveling in the same airports together, sharing a cinema together, sharing a sports stadium, sharing a city, eating next to each other. People praise the block button (book burning, silencing of what they disagree with in modern digital forms) as "fixing" the egomania and agression issues. Machines are not fixing the human problems, people are blocking it out, a form of phychological denial that world peace is not *optional*.
+If people can not even share unicode messages on computer without burning books / blocking each other, what hope does humanity have for traveling in the same airports together, sharing a cinema together, sharing a sports stadium, sharing a city, eating next to each other ([breaking bread](https://en.wikipedia.org/wiki/Let_us_break_bread_together) together). People praise the block button (book burning, silencing of what they disagree with in modern digital forms) as "fixing" the egomania and agression issues. Machines are not fixing the human problems, people are blocking it out, a form of phychological denial that world peace is not *optional*.
 
 * "The wise saying, "The pen is mightier than sword” was true. **The extremists are afraid of books and pens. The power of education frightens them**." - July 12, 2013. Malala Yousafzai: 16th birthday speech.
