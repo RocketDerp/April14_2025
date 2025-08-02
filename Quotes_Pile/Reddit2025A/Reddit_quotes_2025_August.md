@@ -248,8 +248,9 @@ Front page Reddit posting, topics; Pizzagate, underage children sexual abuse and
 
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1mfksy0/irl_side_quests/
 
-Front page of Reddit: topics video game vs. real-life, adult going into a bar 
+Front page of Reddit, topics: fiction video game vs. real-life, adult going into a bar 
 
-* :::=== RoundSparrow_Commentary : USA society can not distinguish reality from fiction. Nonfiction from fiction. And the kind of content that is popular in a bar, exciting thrilling stories, vs being serious about the threat the Donald Trump MAGA movement is. Reality is considered boring and unattractive, storytelling in a taven to a style and tone of presentation - attractive. Everything is media ecology. [Donald Trump is King of Popularity](../../Grim_Blunt/Donald_Trump_SuperStar.md). This isn't just a young adult first time at a tavern, people in Florida The Villages where I have lived with my retired father before his death, were the same in year 2015 / 2016 / 2017 as MAGA was skyrockteing in popularity because it is a video screen game (like Oblivian in this Reddit posting). My father would play the MAGA fiction game via Fox News HDTV, not via a personal computer, but MAGA is still fiction-based content cosplay / attraction. Mythological. ===:::
+* :::=== RoundSparrow_Commentary : USA society can not distinguish reality from fiction. Nonfiction from fiction. And the kind of content that is popular in a bar, exciting thrilling stories, vs being serious about the threat the Donald Trump MAGA movement is. Reality is considered boring and unattractive, storytelling in a tavern to a style and tone of presentation - attractive. Everything is media ecology. [Donald Trump is King of Popularity](../../Grim_Blunt/Donald_Trump_SuperStar.md). This isn't just a young adult first time at a tavern, people in Florida The Villages where I have lived with my retired father before his death, were the same in year 2015 / 2016 / 2017 as MAGA was skyrocketing in popularity because it is a video screen game (like Oblivion in this Reddit posting). My father would play the MAGA fiction game via Fox News HDTV, not via a personal computer, but MAGA is still fiction-based content cosplay / attraction. Mythological. ===:::
+
 
 
