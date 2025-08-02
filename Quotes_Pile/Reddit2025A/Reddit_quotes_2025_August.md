@@ -506,3 +506,13 @@ https://old.reddit.com/r/StandUpComedy/comments/1mftpwr/hitler_on_theo_vons_podc
 xyakks 2013-10-18
 
 "Hitler would just appear at the White House shaking hands with the American president. And he would be put in charge of some government program and America's elected president would say that he is a good guy, the best."
+
+&nbsp;
+
+https://old.reddit.com/r/StandUpComedy/comments/1mftpwr/hitler_on_theo_vons_podcast_from_marc_marons/n6k6avj/
+
+MeanEstablishment499 2021-04-03
+
+"It's just wild to me how everyone from the Rogan camp who got popular, famous, and wealthy all just turned to shit. Literally every single one of them. It's like they started with their schtick, got popular for it but couldn't come up with any better content so they just keep doing the same shit over and over. Like Bert still fucking does the Machine crap and takes off his shirt on stage, like bro it's not even funny anymore. Theo is the same, just sounds like he's trying so hard to be funny and it's cringe."
+
+* :::=== RoundSparrow_Commentary : Study "mass man" from Marshall McLuhan, study "hive mind", study media ecology, study "mob mentality" - study religions / cults, group thinking. Shared media consumption. Study indoctrination into media cults (Bible, Star Wars, Quran, Fox News, Elon Musk Twitter, Torah, L Ron Hubbard, Radio Mullah in Swat Valley Pakistan) ===:::
