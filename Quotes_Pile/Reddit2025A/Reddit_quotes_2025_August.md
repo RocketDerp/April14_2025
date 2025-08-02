@@ -638,3 +638,13 @@ https://old.reddit.com/r/agedlikemilk/comments/1mfxftk/gerrymandering_for_me_not
 KobePippenJordan_esq 2022-07-26
 
 * :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. Mocking and insulting "the other" outsells actual learning of media ecology and teaching how to distinguish fiction from nonfiction, and how some topics are far more important than other topics. But USA society (meme consumers) doesn't want to win an information war that requiries facing up to the addiction to fiction. "All these accounts are paid propagandists" - people who are addicted to Fox News do not get paid for their fiction consumption, people who flock to Quran / Torah / Mecca / Torah / Holy Lands do not get paid for their science fiction consumption. In fact, people *fund* the fiction media. Hollywood makes huge profits. Mecca theme park of science fiction is not a poor economic choice, it profits in power and wealth. Don't assume *true believers* of the Torah and Quran and Bible and Donald Trump Truth Social are all getting paid money. Are you paid to make comments on Reddit? You do it out of media addiction motivations, just like the Taliban in Swat Valley Pakistan that Malala describes in her October 8, 2013 **nonfiction book**. Fiction outsells, people *pay for* fiction, are not *paid to* consume fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mfxftk/gerrymandering_for_me_not_for_thee/n6kh3fs/
+
+Mootskicat 2016-03-28
+
+"Well the USA is at war with Republicans, so of course they will say or do whatever they can to steal any and all power to force us into a Christian nationalist country.  I fucking hate Republicans."
+
+* :::=== RoundSparrow_Commentary : Hate of Americans... the reactio to a Twitter message, hate of Americans. "I fucking hate Republicans" - that's the core of MAGA and Donald Trump. Hate upon liberals, hate upon Canada, hate upon Mexicans, hate upon Democrats. That's the one thing social media users in USA all agree on: hate. A faith in hate is exactly what Putin's information warfare since March 2013 was cultivating and exploitng. Faith in hate itself, mass dehumanization of the out-groups. [MLK Jr spelled all this out in 1954, learning from and studying World War Two Nazi Germany](../Martin_Luther_King_Jr_quotes0.md) ===:::
