@@ -225,3 +225,10 @@ Independent-End-2443 2020-10-22
 "All Trump needed to do in his second term was play golf and eat hamberders, and the economy would have been fine on its own. He would have been as popular as Reagan if he had just done nothing."
 
 * :::=== RoundSparrow_Commentary : Good news, a social media user who doesn't call Trump a do-nothing lazy man. Trump actually works incredibly hard for a man of age 79. Any YouTube creator will tell you the huge amount of labor being on-stage and creating content. Horrifc news: nota soul recognizes that the labor is slef-harm and has all the behavior of Putin / Russia Surkovian governing turned towards normlaizing self-harm of the future. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mfpn3x/trump_dont_buy_tireshis_buy_them_from_china/
+
+* :::=== RoundSparrow_Commentary : Increasingtly, more and more dates are removed from the screenshots and completely "redesigned" versions of Truth Social and Twitter are posted. Less reality, less sense of time. Reddit had no image hosting years back, it was off-site previously.Long-form discussion was core to Reddit (like Usenet, long-form, not like text messaging and Twitter). The media ecology has changed to stream of timeless reactions. It is a good thing people post old content if framed as a reminder and how people are suffering from recency bias. Alas,that is not the context bewilderment being confronted, it is not framed as a reminder. This serves Trump... intentional (self-aware audience) or otherwise. ===:::
+
