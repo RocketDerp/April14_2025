@@ -628,3 +628,13 @@ https://old.reddit.com/r/politics/comments/1mfup8k/were_officially_in_donald_tru
 AceofKnaves44 2020-04-03
 
 "I know Trump is incompetent and refuses to actually learn how the government works but this feels extreme even for him. The bankrupting of Americans feels like everything is going according to someone’s plan."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mfxftk/gerrymandering_for_me_not_for_thee/n6kfzhi/
+
+"All these accounts are paid propagandists"
+
+KobePippenJordan_esq 2022-07-26
+
+* :::=== RoundSparrow_Commentary : Fiction outsels nonfiction. Mocking and insulting "the other" outsells actual learning of media ecology and teaching how to distinguish fiction from nonfiction, and how some topics are far more important than other topics. But USA society (meme consumers) doesn't want to win an information war that requiries facing up to the addiction to fiction. "All these accounts are paid propagandists" - people who are addicted to Fox News do not get paid for their fiction consumption, people paid to Quran / Torah / Mecca / Torah / Holy Lands do not get paid for their science fiction consumption. In fact, people *fund* the fiction media. Hollywood makes huge profits. Don't assume *true believers* of the Torah and Quran and Bible and Donald Trump Truth Social are all gettind paid money. Are you paid to make comments on Reddit? You do it out of media addiction motivations, just like the Taliban in Swat Valley Pakistan that Malala describes in her October 8, 2013 **nonfiction book**. Fiction outsells, people *pay for* fiction, are not *paid to* consume fiction. ===:::
