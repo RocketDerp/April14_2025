@@ -486,3 +486,15 @@ https://old.reddit.com/r/law/comments/1mfv981/trumps_name_redacted_in_epstein_fi
 Shinagami091 2017-03-20
 
 "I would be careful about putting too much stock into what she says. She’s a known perjurer and likely won’t hesitate to lie to get herself out of prison. There’s plenty of evidence to suggest she’s working with Trumps DOJ to that end such as the meeting with the assistant head of the DOJ and being moved to a low security prison all of a sudden. It’s enough to cast doubt onto anyone she names, unless it’s Trump."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mfv981/trumps_name_redacted_in_epstein_files_by_1000_fbi/n6kcoh5/
+
+hackingdreams 2010-03-12
+
+"There is no bottom, no. They've already handed out the pickaxes and the shovels, seeing how far they can dig down.
+
+Look at what they did to the money laundering rules to allow the Felon in the White House to get himself out from under the Russians. Look at the rampant bribery by domestic agents and foreign governments, blowing the Emoluments clauses to pieces.
+
+The corruption is unending and complete. There's no way they're letting their king go down when they can just redact the files and burn the evidence in burn bags."
