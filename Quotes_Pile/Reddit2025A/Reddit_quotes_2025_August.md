@@ -417,3 +417,20 @@ Avoiding tyranny - The key is always to detect tendencies toward tyranny and sup
 /s."
 
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mfxk6n/ahmed_semir_abdulal_has_died_from_starvation_in/n6kgt9z/
+
+Bros2550 2019-04-28
+
+"This is all religions' fault. If they stopped all this stupid conflicts and tried to rationalize for once this could be stopped. Makes me so mad people can change their entire lives based on something that a druggie, 2000 years ago, lived in their imagination."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mfxk6n/ahmed_semir_abdulal_has_died_from_starvation_in/n6kk0v1/
+
+Jartipper 2010-02-15
+
+"So Hamas’ founding charter mentioning that the god of Islam granted them ownership over the land where Israel sits doesn’t factor to you?"
