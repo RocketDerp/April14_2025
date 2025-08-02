@@ -54,7 +54,9 @@ Does this create a simulacra of resistance?
 Proxy of saying what people will not stand up in democracy (population, We The People) and say?   
 Is he CALLING on the audience to have bravery and courage to repeat what is beinng said, or just satiating the inner desire and creating spectators / passive office (See Rick Roderick "Self Under Siege" lectures which touches on this media ecology topicc of spectacle media consumers)
 
-# Pleasing to audience, animals 
+&nbsp;
+
+### Pleasing to audience, animals 
 
 Animal content is huge in modern audiences. Kitten and puppy photos. In the 1970's posting wtih an automobile was hot, but now it is posing in a photograph with an animal.
 
