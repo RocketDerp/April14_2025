@@ -61,3 +61,15 @@ Is he CALLING on the audience to have bravery and courage to repeat what is bein
 Animal content is huge in modern audiences. Kitten and puppy photos. In the 1970's posting wtih an automobile was hot, but now it is posing in a photograph with an animal.
 
 https://old.reddit.com/r/CuratedTumblr/comments/1mfq1kx/watching_movies_with_a_decent_amount_of_knowledge/
+
+&nbsp;
+
+# Sports Mentalty
+
+Reddit posting front page top: Michelle Obama cooks ESPN: "If I watch ESPN for an hour it's like watching The Real Housewives of Atlanta. It's the same drama, they're yelling at each other, they don't get along. Stephen A. Smith would be a great Real Housewife. What's the difference? It's just drama."
+
+https://old.reddit.com/r/nba/comments/1mfucgc/michelle_obama_cooks_espn_if_i_watch_espn_for_an/
+
+
+Media ecology discussion assignment: Rectangle simulacra, armies of medical doctors servicing the ultra rich for entertainment. They could be traveling the world building hospitals, these athletic superment, but people want fiction framed rectangle screens and rectangle FIFA / NBA / NFL. Why not watch children play in the neighborhood and have exercise and make real world friendship, why are people only interested in rich people's lives? Mhythological gods?
+
