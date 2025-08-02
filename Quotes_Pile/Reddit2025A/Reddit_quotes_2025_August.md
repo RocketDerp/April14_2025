@@ -541,3 +541,12 @@ I know it's just shoots and fucking ladders in his brain and logic ain't the mai
 
 * :::=== RoundSparrow_Commentary : fixated on Donald Trump as *one single brain*, unable to see the forest for the single tree. Mutliple NATO nations have been reporting an [information war since year 2013, incluidng hard evidence of Twitter used to spread measles](https://www.bbc.com/news/world-us-canada-45294192), but social media users fixate on one single person age 79 and the "word salad". MAGA is not just one brain, it is hundreds of millions of people voters and non-voters (MAGA includes people not even able to legally vote, underage, etc). Getting under your skin is exactly what Surkovian information warfare does. And fixated users (fixated on domestic August 2025) can't see that it is [multiple NATO nations](https://neweasterneurope.eu/2024/09/09/russia-in-the-trenches-of-cognitive-warfare/) and goes back to March 2013. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mfw53x/were_officially_in_donald_trumps_mad_king_era/n6k91zk/
+
+artful_todger_502 2021-03-13
+
+"How long are the adults in the room going to allow this syph-addled, raging toddler to free-range torch the earth?
+
+He's clearly the most dangerous threat to the world today. I would ask any Republican to remember, this is the world you are leaving to your younger family members. This is your legacy. You have blacklisted your entire genealogy."
