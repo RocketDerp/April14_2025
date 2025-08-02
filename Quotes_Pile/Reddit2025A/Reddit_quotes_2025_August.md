@@ -604,3 +604,27 @@ https://old.reddit.com/r/politics/comments/1mfup8k/were_officially_in_donald_tru
 pervocracy 2010-07-07
 
 "Yeah, it's not the most important thing but it really creeps me out how all communications from this administration have this weird smug, snide tone. Even the extremely dry announcements about minor regulatory changes have to be sneering and politicized."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfup8k/were_officially_in_donald_trumps_mad_king_era/n6k6azm/
+
+DarrenEdwards 2010-01-06
+
+"Gonna get more expensive and harder to remove by each passing day that he consolidates the power he's taken and grants new emergency power every day. He is building a military loyal to him who ignore congress and the judicial branch with ability to mask up and use deadly force. He's there for life."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfup8k/were_officially_in_donald_trumps_mad_king_era/n6k851u/
+
+kathryn2a 2018-12-09
+
+"Trump’s the Queen of Hearts. It’s like he idolized Jim Jones , Hitler and every other evil person in history and then groomed Americans to follow his evil path. He rallied at the states and school districts that had the highest high school drop out rates over the lS 20 years. These folks lack basic knowledge in U.S. History and Civics because that’s generally upper class an curriculum. Harvard is offering free classes in these areas. To let Trump take advantage of America’s lack of information. Read people!"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfup8k/were_officially_in_donald_trumps_mad_king_era/n6kmi2c/
+
+AceofKnaves44 2020-04-03
+
+"I know Trump is incompetent and refuses to actually learn how the government works but this feels extreme even for him. The bankrupting of Americans feels like everything is going according to someone’s plan."
