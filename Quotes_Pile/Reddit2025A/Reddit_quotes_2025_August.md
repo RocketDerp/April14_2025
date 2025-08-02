@@ -323,3 +323,27 @@ https://old.reddit.com/r/politics/comments/1mfoxe7/trumps_domestic_use_of_milita
 vroart 2017-03-21
 
 "fascism can't work is the media doesn't work for it. Yes, they were cynical about it and believed "it'd be easier to cover trump, than handle a biden speech on checks notes, " "rise of fascism?" lame! Yawn! And they did that cynically, thinking they could handle it, and then way over their own heads."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfoxe7/trumps_domestic_use_of_military_set_to_get_worse/n6iuwf2/
+
+maggie250 2019-02-18
+
+"The right also spent the last few years attacking mass media and calling it fake news.
+
+They targeted a lot of their base where they already were: Facebook and Twitter.
+
+Over and over they pumped out the same hate and fear and "blame the woke left" agenda, coupled with fear mongering (immigrants are taking our jobs, vaccines are bad, COVID wasn't real, etc) which slowly eroded their trust in media.
+
+So, no, many didn't read Project 2025. By the time this was a thing the right had already eroded their trust and fed them a bunch of false narrative that the left lies, along with mainstream media.
+
+If you watch some interviews with trump supporters it's quite clear there is a lack of critical thinking skills and an inability to do research for a range of opinions.
+
+I watched someone close to me fall down this rabbit hole during COVID. It was fascinating and terrifying all at the same time."
+
+* :::=== RoundSparrow_Commentary : "I watched someone close to me fall down this rabbit hole during COVID" - Reddit users have [had since August 24, 2018 to recall and repost and repeat that Russia](https://www.bbc.com/news/world-us-canada-45294192) was mind-fucking people about measles and COVID - **all the way back to year 2014 Twitter. Factual, hard, evidence** validated by outstanding Johns Hopkins University and George Washington Unviersity. Americans can not fight an inforamtion war, and can nit cite an information war, and have lost an information war to Russia! There were no calls to intellectual arms to take on Russia in an inforamtion war to spread disease, people just attacked Americans in friendly fire, hate for hate. [Exactly what Putin intended](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) with the 2014 onward Twitter messages! ===:::
+
+
