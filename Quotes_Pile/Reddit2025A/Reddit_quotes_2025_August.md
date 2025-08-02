@@ -570,3 +570,30 @@ Shigglyboo 2008-10-20
 "I’m starting to worry that he literally plans to kill us all. Because a planet without trump doesn’t deserve ti exist in his mind. He’s literally got nothing to lose and he cares about nothing."
 
 * :::=== RoundSparrow_Commentary : The evidence is that Donald Trump and MAGA works very hard, to *harm the future of the USA*. The statement "he cares about nothing" implies he is doing nothing. Donald Trump is cheerleading on the destruction of goodness itself, he is laboring very hard to hurt humanity / eliminate humanism. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfup8k/were_officially_in_donald_trumps_mad_king_era/n6jyt7g/
+
+Rhysati 2016-03-07
+
+"You have a faith I wish I could believe in. I have absolutely no hope that even if the list comes out with photographic, video, audio, satellite images, dna, fingerprints, retinal scans, teeth imprints, and Trump directly says openly that he molested children....that anything will happen as a result."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfup8k/were_officially_in_donald_trumps_mad_king_era/n6kr4cb/
+
+eeyore134 2011-09-18
+
+"The whole of the Republican party, which is pretty much just MAGA now, needs to go. No allowing them to backtrack and say "Well, we never knew the guy." after everything comes out when Trump dies. No more going back to being what we laughably consider our conservative party. They need to be gone. They've shown their hand and it involves nothing but cruelty, hardship, and control. Let Democrats, who are far more what real conservatives should be, slide into the void the GOP leaves. Let progressives fill the hole Democrats leave. Then give us ranked choice, get rid of the electoral college, get money and media out of politics, and let other parties play on the field.
+
+None of this will ever happen, though."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mfup8k/were_officially_in_donald_trumps_mad_king_era/n6lapfq/
+
+Stemoftheantilles 2022-07-29
+
+"Closed minded people tend to miss major themes or ideas that are represented in media. Even if it is pretty explicit. These are the same guys who think “conservatism is the new punk”. They just do not understand their own ideology or seem to have any media literacy at all lol."
+
