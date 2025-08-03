@@ -21,6 +21,9 @@ If your favorite part of the story is that there is a heaven after death and eve
 
 Why can't people in North America find Bible verse "1 John 3:17" and say that is their favorite verse in the face of Donald Trump and MAGA movement?
 
+Why can't a verse like "1 John 4:20" be what people repeat in the face of "I hate Mexicans", and "I love Jesus but hate liberals"... why is it that people flock to the hate passages and badness itself and avoidance of goodness.
+
+
 ## Not just one book
 
 If we can't find the goodness in a book people claim is important and assert the goodness....
