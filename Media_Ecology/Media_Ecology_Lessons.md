@@ -125,4 +125,6 @@ Video duration: 8.5 minutes
 YouTube title: "Let's Type RATS! from COMPUTE! Magazine - Commodore 64 - Issue 38, July 1983 - Early 3D Maze Game"    
 https://www.youtube.com/watch?v=FgXNfmq8RyE
 
-Experience example: the experience of waiting two full months to get corrections to a mistake in the printing / instructions... and having to pay money for the magazine issue with corrections.  
+Highlight 1: the experience of waiting two full months to get corrections to a mistake in the printing / instructions... and having to pay money for the magazine issue with corrections.  
+
+Highlight 2: YouTube community comments such as "Typing in programs like this is why I can type so fast and accurately today. It was the BEST typing tutor! :)" are worth a glance.
