@@ -674,3 +674,65 @@ https://old.reddit.com/r/goodnews/comments/1mg87dd/the_wwe_summer_slam_crowd_boo
 "The WWE Summer Slam crowd booing relentlessly when Donald Trump comes on screen"
 
 * :::=== RoundSparrow_Commentary : Donald Trump is playing Andy Kaufman wrestling, Tony Clifton audience. The heel in wrestling. A wrecking ball of USA. People can not resist mocking and insulting Donald Trump, they sure aren't fighting ignorance of Donald Trump by [stopping entertainment and being serious about education.](../../Grim_Blunt/Stop_All_Entertainment.md) - Malala's rise on the world stage since year 2012 parallels MAGA / Trump in timing, but the ignorance shit has been far more popular than actually promoting Quran education to MAGA terrorists and giving actual young girls a voice to stand up to sexual predators and learn about progress in the world of nonfiction non-staged "summer slam" theatrics (Surkovian governing media techniques). ===:::
+
+&nbsp;
+
+# Sunday August 3, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mgfybu/antitrump_podcast_dethrones_joe_rogan_for_top/
+
+* :::=== RoundSparrow_Commentary : [Everything is media ecology, podcasts are what got us into this second term](../../Media_Ecology/Everything_is_ME.md) this problem is so much bigger than one man, Donald Trump. MAGA / Republicans need rescued. Russia needs rescued from Ukraine war. Israel and Palestine need to be rescued from [fetishment as defined by Joseph Campbell](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mgfybu/antitrump_podcast_dethrones_joe_rogan_for_top/n6ooaap/
+
+darnj 2010-08-24
+
+"Also this podcast does many short (10-20 minute) episodes in a day. They're measuring by "views", I'm guessing if you look at minutes watched/listened to it wouldn't be close.
+
+Also I know I've seen this exact "MidasTouch topples Rogan" article months ago. It's why I looked them up in the first place. Seeing this exact same article pop up again with today's date seems fishy.
+
+Personally I thought the podcasts were pretty low quality - very clickbaity and completely loaded with ads."
+
+* :::=== RoundSparrow_Commentary : [Everything is media ecology, podcasts are what got us into this second term](../../Media_Ecology/Everything_is_ME.md) - that is thinking in Media Ecology. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mgfybu/antitrump_podcast_dethrones_joe_rogan_for_top/n6oxe4z/
+
+Level_Investigator_1 2020-11-24
+
+"I think both of you are correct. Weirdly it is brilliant cause they really do focus on stuff that one wishes Dem politicians would do. They also aren’t high quality as they are putting out a lot of content and it does hit you at social media speed. There is a ton of ads. I usually skip the first 3 mins of every episode and then find there is at least one other 3 min segment in a 15-20 min short. That’s kinda nuts for a podcast.
+
+I very much like these guys still… wish they didn’t so heavily optimize for money making. Most pods give you more for your time vs commercials."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mgfybu/antitrump_podcast_dethrones_joe_rogan_for_top/n6orqvl/
+
+baldycoot 2013-06-04
+
+"I’m vehemently anti-Trump, but I find the MeidasTouch published pieces to be over-the-top in titles and content, and I stopped watching after they developed a pattern of saying “he said XYZ,” then show the clip, in which he doesn’t explicitly say “XYZ,” and then they follow with “as you can see - he said XYZ”
+
+And they’ll do ten minutes of talking head before showing the five second clip. If it’s that damning, show the clip up front and let it speak for itself.
+
+Fox tactics for Dems? Great, it’s just more stupid in the end.
+
+They weren’t like this before. Success twists."
+
+* :::=== RoundSparrow_Commentary : Someone who isn't promoting ["hate Trump" and just as Dr. Martin Luther King Jr says in 1954](../Martin_Luther_King_Jr_quotes0.md), has objectivity that Fox News for Democrats is adding to the media ecology crisis. We had 4 years with Biden and the situation of anti-reality only worsened. Fictiono addiction is every day of every area of society problem. ===:::
+
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mgfybu/antitrump_podcast_dethrones_joe_rogan_for_top/n6ovl6q/
+
+"Democrats lost two presidential elections because they played by the rules of the game while Republicans did every thing in their power to win . It's time the Democrats put in an effort to win elections because Trump's ministry of justice controls the us media."
+
+thehigheststrange 2022-05-26
+
+* :::=== RoundSparrow_Commentary : complete ignorance of the Apple iPhone / iPad / social media influence on society. Neil Postman was correct in 1985 when Ronald Regan **entertainer President** had been elected a second term in office. That was a decade before Fox News. This is about humanity globally, multiple NATO nations, and Fox News has been online since 1996. "they played by the rules of the game" - they did NOT play the Media Ecology game that Steve Bannon played with Cambridge Analytica, and Democrats did NOT beg every American to qutoe and quote and quote Christopher Wylie 2019 book (while Biden was in office!) on social media and podcasts **where it [calls out a trade-war](../Cambridge_Analytica_Quotes.md) in year 2019**. Nor did Democrats repeat repeating Matthew 6:5 verse to the face of the clergy [June 1, 2020 until November 7, 2020](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church) along with "1 John 3:17" about Trump - EVERYTHING IS MEDIA ECOLOGY in this Surkovian war! ===:::
+
