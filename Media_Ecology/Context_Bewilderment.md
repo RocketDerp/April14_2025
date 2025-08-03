@@ -15,8 +15,8 @@ Search phrase (quotation marks were not around phrase on Google)
 
 response:
 
-"Woodstock, Georgia is not generally considered a historically Muslim area in the same way some cities in countries like the United Arab Emirates might be labeled
-. 
+"Woodstock, Georgia is not generally considered a historically Muslim area in the same way some cities in countries like the United Arab Emirates might be labeled.
+
 However, Islam has had a presence in Georgia for a long time, dating back to the 7th century, with Tbilisi even serving as the capital of an Islamic emirate for a time."
 
 
