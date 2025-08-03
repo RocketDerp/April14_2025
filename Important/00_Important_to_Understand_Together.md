@@ -1,7 +1,8 @@
+# Please
 
-1. Humanity already had World War one, World War Two, Ukraine War since 2014, Information Warfare lost since 2013
+1. Humanity already had World War One, World War Two, Ukraine War since 2014, Information Warfare lost since 2013
 
-2. Humanity has not solved the religion conflicts of fiction vs. nonfictioon
+2. Humanity has not solved the religion conflicts of fiction vs. nonfictioon. The metaphor crisis.
 
 3. Repeating and repeating and reminding and getting everyone on same page, the annoyance, "too preachy" barrier of egoism, remdiders together.
 
