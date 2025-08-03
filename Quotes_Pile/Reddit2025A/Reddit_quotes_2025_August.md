@@ -860,3 +860,13 @@ https://old.reddit.com/r/Fauxmoi/comments/1mgnboi/rosie_odonnell_on_trump_its_wo
 Rosie O’Donnell on Trump: “It’s worse every day. I feel like we’re in a dystopian nightmare & no one is doing anything about it… He’s a criminal con man… There’s no way you can look at the facts about this man & believe in him still. You have to have willful blindness.”
 
 * :::=== RoundSparrow_Commentary : FRONT PAGE of Reddit. Why can't anyone cite Peter Pomerantsev? It has been **going on since year 2014** ...  “It’s worse every day. I feel like we’re in a dystopian nightmare". Why can't anyone cite Peter Pomerantsev? The information warfare itself seems to keep people from seeing it is MULTIPLE NATO NATIONS, not just Donald Trump, it is [hundreds of millions of people and **hard factual validated evidence** of Russia manipulating people via Twitter](https://www.bbc.com/news/world-us-canada-45294192). We know RFK Jr. and Trump family are gullible to media, why can't we focus and cite Peter Pomerantsev since year 2014? Or even [Adam Curtis in 2014 BBC](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mgkun9/trump_rages_at_racist_sleazebag_charlamagne_tha/n6phpa4/
+
+WateredDown 2010-04-01
+
+"Trump is the opposite of everything they claim to love, he is what they claim to hate; a sinful effeminate ultra rich coastal elite pedophile, vain and smug with thin skin, constantly playing the victim and taking no personal responsibility. But he does represent everything they actually love. Selfishness, Hatred, spite, dominance - a strict social hierarchy and a mocking, gleeful rejection of empathy. Being a whiny little bitch matches just fine with their likes, they've convinced themselves its manly."
+
+* :::=== RoundSparrow_Commentary : Exactly ass-backwards, inverted in the human mind. This is a literacy issue. The Middle East has this problem, and Malala in Swat Valley Pakstian published a book October 8, 2013. Why aren't people on social media taking this seriously and teaching / educating / raising their voices about Malala's book and the ""Trump is the opposite of everything they claim to love, he is what they claim to hate" problem, to get people to see the Forest for the Trees? Or New York City Sarah Lawrence College professor on [the ass-backwards inverted reading literacy problem](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/)? People keep baring at tree after tree, day after day, and ignoring this is a massive scale forest global problem. **WE NEED BIG GUNS, LIKE MALALA, not more social media reaction comments!** ===:::
