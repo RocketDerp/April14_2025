@@ -799,3 +799,21 @@ Evelyn-Bankhead 2023-09-30
 
 * :::=== RoundSparrow_Commentary : Internet superhighway vs. public street highways. The widespread adoption of MAGA hate rituals, ritualistic hate behaviors taken to symbolism / symbolic mind depth. [Hate as sustained core faith](https://www.youtube.com/watch?v=Iww5eeEjxiI), hate of Donald Trump, hate of Elon Musk, hate of people as a role model of Trumpism White House / USA public discourse (Neil Postman 1985) since year 2013. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mgjzvw/so_it_begins/n6p55f8/
+
+Ciccio178 2020-04-10
+
+"The only freedoms they're interested in is gun ownership. Anything else needs to be highly regulated. Your hobbies, your health, your sexuality? All under their control."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mgjzvw/so_it_begins/n6peu6r/
+
+tke377 2014-02-04
+
+"Willingly they will hand them over too. Outrage at the fake stories about democrats but I’m sure they will do some mental gymnastics to explain how trump has their best interests in mind"
+
+* :::=== RoundSparrow_Commentary : Americans have had their hearts and minds damaged by Russian information warfare since March 2013, and nobody has stood up to it on social media. People just insult the mentally injured, the brain damage get mocked as sport, instead of rescued. **Rural people in USA did not have New York City Media Ecology Teaching from NYU's Neil Postman**, how can you expect them to stand up to [Cambridge Analytica and the Kremlin's 5,000 artifical reality screen games undefended](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/)? The able-minded commercial artists and media practitioners should have DEFENDED America with Neil Postman intellectual arms, but instead, people went *hate for hate* and adopted MAGA values and MAGA behaviors of insulting ("Leopards Ate My Face", LOL LOL LOL LMAO) the out-group. The very problem of the Middle East Levant, that George Lucas filmed in 1986/87 to his Star Wars Audience in "Power Of Myth" series and book. We have fallen down the pyramid of the Great Seal of the USA, like Tim Finnegan ladder fall. ===:::
+
