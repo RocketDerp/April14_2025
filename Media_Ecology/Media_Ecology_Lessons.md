@@ -138,3 +138,9 @@ BBC discusison of televsion comedy show from USA:
 https://www.youtube.com/watch?v=CA_jnbyJMDE      
 Topics: Large number of episodes, decade-long content, anti-war meaning / purpose / intention, futility of war, character Radar, comfort in war zone, USA war that was winning war (developing South Korea as a future alley like Japan after World War Two... in opposition to Vietnam war of the show poduction)   
 
+&nbsp;
+
+### Internet age restriction, identity 
+
+Current event of August 3, 2025 perspective given recent UK legal changes regarding underage media. Now USA-centered Reddit social media community discussing promotion by USA politicians.    
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mgjzvw/so_it_begins/
