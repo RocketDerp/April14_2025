@@ -736,3 +736,21 @@ thehigheststrange 2022-05-26
 
 * :::=== RoundSparrow_Commentary : complete ignorance of the Apple iPhone / iPad / social media influence on society. Neil Postman was correct in 1985 when Ronald Regan **entertainer President** had been elected a second term in office. That was a decade before Fox News. This is about humanity globally, multiple NATO nations, and Fox News has been online since 1996. "they played by the rules of the game" - they did NOT play the Media Ecology game that Steve Bannon played with Cambridge Analytica, and Democrats did NOT beg every American to qutoe and quote and quote Christopher Wylie 2019 book (while Biden was in office!) on social media and podcasts **where it [calls out a trade-war](../Cambridge_Analytica_Quotes.md) in year 2019**. Nor did Democrats repeat repeating Matthew 6:5 verse to the face of the clergy [June 1, 2020 until November 7, 2020](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church) along with "1 John 3:17" about Trump - EVERYTHING IS MEDIA ECOLOGY in this Surkovian war! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mgfybu/antitrump_podcast_dethrones_joe_rogan_for_top/n6ohcp3/
+
+WebMD_PhD July 9, 2013
+
+"Trump Admin Collapses! MAGA Turns on Trump!.... They are very clickbait and rehash the same shit every video. They are only farming views off the fact that Trump sucks and everyone hates him.... They could be a lot better, but Network News wont't say shit so I will allow it. I just wish they had better titles but clicks needs farming i guess."
+
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. This is why it is popular, fiction. Anti-reality. Copycat to MAGA, copycat opposition. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mgfybu/antitrump_podcast_dethrones_joe_rogan_for_top/n6onyvl/
+
+Mall_of_slime **2025-05-01 (recent account)**
+
+"It’s like daily fantasy sports schedule but for politics. It’s not going to be everyone’s cup of tea. However, if you want to touch base with the train wreck that is the most pathologically corrupt US administration there’s ever been, it can sum up events rather quickly."
+
