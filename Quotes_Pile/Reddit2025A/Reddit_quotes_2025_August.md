@@ -754,3 +754,10 @@ Mall_of_slime **2025-05-01 (recent account)**
 
 "It’s like daily fantasy sports schedule but for politics. It’s not going to be everyone’s cup of tea. However, if you want to touch base with the train wreck that is the most pathologically corrupt US administration there’s ever been, it can sum up events rather quickly."
 
+&nbsp;
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1mgh6r8/in_tv_show_homeland_local_artist_were_hired_to/n6ojz2v/
+
+demonicpudding 2014-03-28
+
+"I remember the outrage in Pakistan when Homeland depicted the capital Islamabad as some dirty Agrabah-esque desert marketplace, when Islamabad is literally a planned city that's beautiful and green and organized. There seemed to have been zero research done on every front, and it just played into the silly stereotypes that people have."
