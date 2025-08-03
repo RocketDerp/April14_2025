@@ -157,4 +157,5 @@ Is he (Charles Cornell) gullible how much wealth goes into Superbowl advertising
 Is this a form of mental exploit. to subconsciously lodge it into the minds? Isn't that the very foundation of James Joyce's Finnegans Wake story... *Wake Up, Woke, Woke to media ecology*? "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
 
 ... ["Left its seeds while I was sleeping..  And the vision that was planted in my brain...
-still remains"](https://www.youtube.com/watch?v=W4ZJ3xhbijo)
+still remains"](https://www.youtube.com/watch?v=W4ZJ3xhbijo)    
+2025-08-03 3,878,502 views since January 22, 2025
