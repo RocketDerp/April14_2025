@@ -152,7 +152,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1mgjzvw/so_it_begins/
 "They Ruined One Of The Greatest Songs Ever Written"   
 https://www.youtube.com/watch?v=WQcymjDarNs   
 
-Is he (Charles Cornell) gullible how much wealth goes into Superbowl advertising? Is this how earworms are implanted, older target demographic with wealth who knows the song would have it lodged in their mind. That's the themes of Media Ecology of Finnegans Wake, ("Earwicker" is the name of the character, "Earworm" meme themes, Bible verse John 1:1 earworms).
+Is he (Charles Cornell) [gullible how much](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) wealth goes into Superbowl media advertising? Is this how earworms are implanted, older target demographic with wealth who knows the song would have it lodged in their mind. That's the themes of Media Ecology of Finnegans Wake, ("Earwicker" is the name of the character, "Earworm" meme themes, Bible verse John 1:1 earworms).
 
 Is this a form of mental exploit. to subconsciously lodge it into the minds? Isn't that the very foundation of James Joyce's Finnegans Wake story... *Wake Up, Woke, Woke to media ecology*? "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
 
