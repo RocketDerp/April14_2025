@@ -770,3 +770,20 @@ Front page of Reddit on Sunday School day...
 
 * :::=== RoundSparrow_Commentary : "Idiot" is used as an insult. Marshall McLuhan teaching media ecology to the general population [addressed the word "Idiot", and how he (professor at University of Toronto) was an Idiot](https://www.youtube.com/watch?v=2JIj0Bqbdhk). MORE IMPORTANT: Who in the world cites to non-idiot? Why are people like Malala uncited / ignored by 90% of population? Why isn't 90% of the world giving examples of 25 top non-idiots list? **Thought-terminating behavior** of name-calling people "idiot" is actually what empowers Trump and Putin's information warfare, Trump is playing a character like Tony Clifton. ===:::
  
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mgkmbh/ask_grandpa_what_he_did_in_the_1940s/n6pbxsf/
+
+Lt_Cochese 2022-07-30
+
+"Kind of ironic that white people were so worried about others ruining this country. And then they went ahead and did it because a blah man was elected and gay people could marry. None of it affecting them one bit."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mgkmbh/ask_grandpa_what_he_did_in_the_1940s/n6pp8c2/
+
+holzmann_dc 2024-07-09
+
+"Say what you will but her generation, all over the planet really, is more polarized than ever and a substantial number of them are trending towards authoritarianism and fascism. It's no longer about voting for those who will us all up. It's about voting for the person on "my side" who will "own" my opponent."
+
+* :::=== RoundSparrow_Commentary : This is August 2025 seeing the forest for the trees. This is a global problem, which is why dealing with Epstein via Malala and dealing with October 7, 2023 via Malala in Pakstian demonstrates that we have common problems with young girls being sexually exploited by elders. Systemic problems of education, comprehension, literacy. Life exptectancy via media adances have changed humanity all over the world, mariage at age 14 no longer makes the sense like year 1775 (when people had more children and much higher mortality). :::===
