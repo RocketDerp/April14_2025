@@ -128,3 +128,13 @@ https://www.youtube.com/watch?v=FgXNfmq8RyE
 Highlight 1: the experience of waiting two full months to get corrections to a mistake in the printing / instructions... and having to pay money for the magazine issue with corrections.  
 
 Highlight 2: YouTube community comments such as "Typing in programs like this is why I can type so fast and accurately today. It was the BEST typing tutor! :)" are worth a glance.
+
+&nbps;
+
+### Fiction to highlight reality
+
+BBC discusison of televsion comedy show from USA:  
+"1980: Graham Chapman Reviews M*A*S*H* | Did You See...? | Classic TV Review | BBC Archive"     
+https://www.youtube.com/watch?v=CA_jnbyJMDE      
+Topics: Large number of episodes, decade-long content, anti-war meaning / purpose / intention, futility of war, character Radar, comfort in war zone, USA war that was winning war (developing South Korea as a future alley like Japan after World War Two... in opposition to Vietnam war of the show poduction)   
+
