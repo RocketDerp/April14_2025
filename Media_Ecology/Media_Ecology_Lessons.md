@@ -103,3 +103,11 @@ https://en.wikipedia.org/wiki/Rock_music_and_the_fall_of_communism
 
 David Foster Walace's Infinite Jest on this theme...
 
+&nbsp;
+
+### The experience of society depiction in fiction
+
+Having society depicted on mass media / TV shows / films of fiction.   
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1mgh6r8/in_tv_show_homeland_local_artist_were_hired_to/n6ojkvk/
+
