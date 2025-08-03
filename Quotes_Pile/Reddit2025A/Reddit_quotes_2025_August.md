@@ -761,3 +761,12 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1mgh6r8/in_tv_show_homela
 demonicpudding 2014-03-28
 
 "I remember the outrage in Pakistan when Homeland depicted the capital Islamabad as some dirty Agrabah-esque desert marketplace, when Islamabad is literally a planned city that's beautiful and green and organized. There seemed to have been zero research done on every front, and it just played into the silly stereotypes that people have."
+
+&nbsp;
+
+Front page of Reddit on Sunday School day...
+
+https://old.reddit.com/r/facepalm/comments/1mggpy2/who_are_they_talking_about/
+
+* :::=== RoundSparrow_Commentary : "Idiot" is used as an insult. Marshall McLuhan teaching media ecology to the general population [addressed the word "Idiot", and how he (professor at University of Toronto) was an Idiot](https://www.youtube.com/watch?v=2JIj0Bqbdhk). MORE IMPORTANT: Who in the world cites to non-idiot? Why are people like Malala cited? Why isn't 90% of the world giving examples of 25 top non-idiots list? Thought-terminating behavior of calling people "idot" is actually what empoers Trump and Putin's information warfare, Trump is playing a character like Tony Clifton. ===:::
+ 
