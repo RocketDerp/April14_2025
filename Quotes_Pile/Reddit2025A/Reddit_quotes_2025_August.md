@@ -817,3 +817,20 @@ tke377 2014-02-04
 
 * :::=== RoundSparrow_Commentary : Americans have had their hearts and minds damaged by Russian information warfare since March 2013, and nobody has stood up to it on social media. People just insult the mentally injured, the brain damage get mocked as sport, instead of rescued. **Rural people in USA did not have New York City Media Ecology Teaching from NYU's Neil Postman**, how can you expect them to stand up to [Cambridge Analytica and the Kremlin's 5,000 artifical reality screen games undefended](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/)? The able-minded commercial artists and media practitioners should have DEFENDED America with Neil Postman intellectual arms, but instead, people went *hate for hate* and adopted MAGA values and MAGA behaviors of insulting ("Leopards Ate My Face", LOL LOL LOL LMAO) the out-group. The very problem of the Middle East Levant, that George Lucas filmed in 1986/87 to his Star Wars Audience in "Power Of Myth" series and book. We have fallen down the pyramid of the Great Seal of the USA, like Tim Finnegan ladder fall. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mgjzvw/so_it_begins/n6p8qj5/
+
+MornGreycastle 2017-08-03
+
+"Fascism always has an in-group that is protected but not constrained and an out-group that is constrained but not protected. Fascists are never about actual freedom. That's just something they claim in bad faith to get in power. Also, they constantly shrink whose in the in-group because they need a constant enemy to motivate the people to keep them in power. That need for an enemy means someone who was secure in the in-group must now be vilified once the old "enemy" is defeated."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mgjzvw/so_it_begins/n6pc29c/
+
+Prestigious_Ocelot77 2021-08-29
+
+"THIS!!!! The in-group vs out-group dynamic is the core of fascism. Its why they seem to almost flaunt the hypocrisy. This is why they love cops and constantly complain "cops cant do thier job" They want cops to come into any situation identify the 'out-group people' and take them away."
+
+ :::=== RoundSparrow_Commentary : Translating August 2025 to 1955 publication: “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the **dogma that gave every man importance only in so far as the tribe was important and he was a member** of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45 ===:::
