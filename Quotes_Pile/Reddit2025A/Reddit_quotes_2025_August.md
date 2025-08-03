@@ -797,5 +797,5 @@ Evelyn-Bankhead 2023-09-30
 
 "Meanwhile, trucks with Fuck Biden and Kamala Swallows flags drive past grade schools."
 
-* :::=== RoundSparrow_Commentary : Internet superhigway vs. public street highways. The adoption of MAGA hate rituals. Hate as core faith, hate of Donald Trump, hate of Elon Musk, hate of people as a role model of Trumpism White House. ===:::
+* :::=== RoundSparrow_Commentary : Internet superhighway vs. public street highways. The adoption of MAGA hate rituals. [Hate as sustained core faith](https://www.youtube.com/watch?v=Iww5eeEjxiI), hate of Donald Trump, hate of Elon Musk, hate of people as a role model of Trumpism White House / USA public discourse (Neil Postman 1985) since year 2013. ===:::
 
