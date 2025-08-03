@@ -160,6 +160,6 @@ Is this a form of mental exploit. to subconsciously lodge it into the minds? Isn
 still remains"](https://www.youtube.com/watch?v=W4ZJ3xhbijo)    
 2025-08-03 3,878,502 views since [January 22, 2025](https://www.npr.org/programs/all-things-considered/2025/01/22/all-things-considered-for-january-22-2025)   
 
-Bing AI output on [HCE Earwicker John 1:1 topic Sunday, August 8, 2025](../Quotes_Pile/BingAI/Earwicker_John11_verse.md)
+Bing AI output on [HCE Earwicker John 1:1 topic Sunday, August 3, 2025](../Quotes_Pile/BingAI/Earwicker_John11_verse.md)
 
 
