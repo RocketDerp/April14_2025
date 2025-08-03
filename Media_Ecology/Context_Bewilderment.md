@@ -35,7 +35,7 @@ Ford vs. Chevy owners, brand loyalty example of *insult the others*.
 
 &nbsp;
 
-# The Big Picture, frame size, pizza size
+## The Big Picture, frame size, pizza size
 
 Tite: "Internet Shocked By Teacher's Answer"    
 Topic: fractions and context changes, half a small pizza vs. half a much larger pizza.   
