@@ -903,3 +903,18 @@ Anyway, I do feel for the people who were fooled into marching in lock step with
 
 * :::=== RoundSparrow_Commentary : These narratives about conservative values are appealing until you study Levant faiths - including Islam / Quran / Mecca - and read Malala's book from October 8, 2013. Or as I did, traveled to North Africa during the Arab Spring in 2010... and start to really see people's relationship with fiction media consumption. Jen Senko's film released March 2016. How many societies in the world have really adopted authentic factual news, history, and science thinking - and for how long. The Europe middle ages religion may not be believed today in 2025 as it was in year 1450, but Edward Bernays in 1920's provided a very American replacement to the Church... and in domestic Russia, Putin has been kept in power for 25 years by creating fiction. How many conservatives all over the world do you find don't favor some fiction storytelling from Rupert Murdoch's global media empire or Saudi Arabia's Mecca or all the things covered in Carl Sagan's 1995 book? [Remember what Carl Jung said 1945, Germans were NOT self-aware of what they were experience, peer pressure and conformity are huge influences on believing fiction throughout human history.](../Doctors/Carl_Jung.md). Do people sincerely think JD Vance and Donald Trump can distinguish fact from fiction? They are clearly drawn to fiction. Did the pandemic not show people this was a bigger anti-science problem than many realized? Fiction seduces minds. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mgql3v/this_is_in_extremely_poor_taste_rod_stewarts_tour/n6ra39z/
+
+Afro_Thunder69 2020-07-06
+
+"Which is my opinion whenever John Lennon comes up and everyone goes "but he wrote a song about how he beat his wife!" Like yeah, he was very open about it and that song is about how he's gotten better since those days of being shitty, it's an apology song. Plus subsequent interviews where he speaks about being regretful for being so shitty."
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mgql3v/this_is_in_extremely_poor_taste_rod_stewarts_tour/n6r9wtf/
+
+PapaTeeps 2024-06-06
+
+"One of the most toxic factors of the modern Internet is how many people seem to simply refuse to believe in the idea of redemption, remorse, or growth. They look at people like they are static, unchanging individuals who cannot ever improve themselves and will be forever defined by the worst moments of their lives."
