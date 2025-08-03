@@ -833,4 +833,30 @@ Prestigious_Ocelot77 2021-08-29
 
 "THIS!!!! The in-group vs out-group dynamic is the core of fascism. Its why they seem to almost flaunt the hypocrisy. This is why they love cops and constantly complain "cops cant do thier job" They want cops to come into any situation identify the 'out-group people' and take them away."
 
- :::=== RoundSparrow_Commentary : Translating August 2025 to 1955 publication: “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the **dogma that gave every man importance only in so far as the tribe was important and he was a member** of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45 ===:::
+* :::=== RoundSparrow_Commentary : Translating August 2025 to 1955 publication: “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the **dogma that gave every man importance only in so far as the tribe was important and he was a member** of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mgjzvw/so_it_begins/n6paded/
+
+wowlookanotherone 2021-07-01
+
+"I've been on the retail side of the industry for over a decade, and it was truly shocking to see so many people vote against their own self interests.
+
+Felt like my brain short circuited the first time I heard a bunch of company owners talk.about voting R. Those business tax credits aren't enough to save you from being demonized by Christian Nationalists, homie"
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mgjzvw/so_it_begins/n6plequ/
+
+Apo11onia 2021-10-08
+
+"literally website blockers and parental controls have existed for 20+ years. i thought conservatives were all about parents raising their kids and not the government."
+
+&nbp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mgnboi/rosie_odonnell_on_trump_its_worse_every_day_i/
+
+Rosie O’Donnell on Trump: “It’s worse every day. I feel like we’re in a dystopian nightmare & no one is doing anything about it… He’s a criminal con man… There’s no way you can look at the facts about this man & believe in him still. You have to have willful blindness.”
+
+* :::=== RoundSparrow_Commentary : FRONT PAGE of Reddit. Why can't anyone cite Peter Pomerantsev? It has been **going on since year 2014** ...  “It’s worse every day. I feel like we’re in a dystopian nightmare". Why can't anyone cite Peter Pomerantsev? The information warfare itself seems to keep people from seeing it is MULTIPLE NATO NATIONS, not just Donald Trump, it is [hundreds of millions of people and **hard factual validated evidence** of Russia manipulating people via Twitter](https://www.bbc.com/news/world-us-canada-45294192). We know RFKJr and Trump family are gullible to media, why can't we focus and cite Peter Pomerantsev since year 2014? Or even [Adam Curtis in 2014 BBC](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)? ===:::
