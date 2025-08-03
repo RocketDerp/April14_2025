@@ -918,3 +918,29 @@ https://old.reddit.com/r/Music/comments/1mgql3v/this_is_in_extremely_poor_taste_
 PapaTeeps 2024-06-06
 
 "One of the most toxic factors of the modern Internet is how many people seem to simply refuse to believe in the idea of redemption, remorse, or growth. They look at people like they are static, unchanging individuals who cannot ever improve themselves and will be forever defined by the worst moments of their lives."
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mgql3v/this_is_in_extremely_poor_taste_rod_stewarts_tour/n6qyblu/
+
+thewholeprogram 2011-05-16
+
+"I think the hate mainly comes because it’s AI. Had this just been old photos edited together to have Ozzy with other dead musicians with heavenly effects it probably wouldn’t be received as bad"
+
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1mgtkie/trump_is_fucking_pissed/n6rbi93/
+
+Lord_Lion 2020-03-21
+
+"I think thats kinda the missing piece that the general public doesn't get. ALL of the legacy media is complicit. Not just "stupid", or "missing the point". They are softening headlines, softballing interviews, not asking obvious follow up questions. Giving an unlimited number of "oopsies". We're well into silencing voices of criticism and dissent. Were moving to the point any anything outside of overt fawning isnt allowed.
+
+There is an agenda being pushed. Its terrifying and fascist. Its NOT democratic or American, but it uses those facades to mask ita true dangerous intentions."
+
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1mgtkie/trump_is_fucking_pissed/n6r983t/
+
+SekhmetScion 2023-06-01
+
+"Unfortunately, until he faces ANY consequences for his actions, it doesn't matter. His followers are a cult and he's surrounded by enablers. Those enablers are just as bad as him, if not worse, because they know all this shit and what he's doing to the country, yet continue to defend him."
