@@ -8,7 +8,12 @@ Sunday August 3, 2025 morning result
 
 Opens with "Georgia, Untied States of America" context, second paragraph shifts to nation of Georgia.
 
-This search was done without login to Google.
+This search was done without login to Google. 
+Search phrase (quotation marks were not around phrase on Google)   
+"Woodstock too which is a historically Muslim area"   
+( [phrase origin](https://old.reddit.com/r/Damnthatsinteresting/comments/1mgh6r8/in_tv_show_homeland_local_artist_were_hired_to/n6oq9bv/) ]     
+
+response:
 
 "Woodstock, Georgia is not generally considered a historically Muslim area in the same way some cities in countries like the United Arab Emirates might be labeled
 . 
