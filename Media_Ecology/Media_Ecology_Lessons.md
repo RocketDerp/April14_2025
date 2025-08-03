@@ -129,7 +129,7 @@ Highlight 1: the experience of waiting two full months to get corrections to a m
 
 Highlight 2: YouTube community comments such as "Typing in programs like this is why I can type so fast and accurately today. It was the BEST typing tutor! :)" are worth a glance.
 
-&nbps;
+&nbsp;
 
 ### Fiction to highlight reality
 
