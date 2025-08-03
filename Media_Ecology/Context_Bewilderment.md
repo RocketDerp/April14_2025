@@ -30,3 +30,14 @@ However, Islam has had a presence in Georgia for a long time, dating back to the
 Declaring everything from Newsweek to be bad. Simplsitic approach to fact-checking, validation, comprehension of information. Corporate brand loyalty.
 
 Ford vs. Chevy owners, brand loyalty example of *insult the others*.
+
+&nbsp;
+
+&nbsp;
+
+# The Big Picture, frame size, pizza size
+
+Tite: "Internet Shocked By Teacher's Answer"    
+Topic: fractions and context changes, half a small pizza vs. half a much larger pizza.   
+https://www.youtube.com/watch?v=6DnyCvMHgDo
+
