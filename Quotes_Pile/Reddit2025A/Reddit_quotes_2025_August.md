@@ -787,3 +787,15 @@ holzmann_dc 2024-07-09
 "Say what you will but her generation, all over the planet really, is more polarized than ever and a substantial number of them are trending towards authoritarianism and fascism. It's no longer about voting for those who will us all up. It's about voting for the person on "my side" who will "own" my opponent."
 
 * :::=== RoundSparrow_Commentary : This is August 2025 seeing the forest for the trees. This is a global problem, which is why dealing with Epstein via Malala and dealing with October 7, 2023 via Malala in Pakstian demonstrates that we have common problems with young girls being sexually exploited by elders. Systemic problems of education, comprehension, literacy. Life exptectancy via media adances have changed humanity all over the world, mariage at age 14 no longer makes the sense like year 1775 (when people had more children and much higher mortality). :::===
+
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mgjzvw/so_it_begins/n6p5wc2/
+
+Evelyn-Bankhead 2023-09-30
+
+"Meanwhile, trucks with Fuck Biden and Kamala Swallows flags drive past grade schools."
+
+* :::=== RoundSparrow_Commentary : Internet superhigway vs. public street highways. The adoption of MAGA hate rituals. Hate as core faith, hate of Donald Trump, hate of Elon Musk, hate of people as a role model of Trumpism White House. ===:::
+
