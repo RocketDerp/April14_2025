@@ -657,3 +657,12 @@ https://old.reddit.com/r/law/comments/1mg1yx9/he_was_caught_on_video_cheating_on
 
 The comments to this post...
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mg1x0u/austin_church_vandalized_and_pride_flag_torn_down/n6log34/
+
+condensermike 2016-10-04
+
+"Deregulation of the news media have resulted in a 24/7 right-wing propaganda machine that has churned out millions of radicalized citizens who were already predisposed to hate on a mass level."
+
+* :::=== RoundSparrow_Commentary : It's not just deregulation. As the cold war showed, if you outlaw media, it just makes a black market of underground media (in USSR). You have to fundamentally face up to the media ecology lessons that George Lucas filmed in summer of 1986 and summer of 1987 that was published in the 1988 book "Power of Myth". ***Summer 1987, age 83 professor***: "they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future." - how has that proven with 9/11 2001, October 7, 2023 - and the starvation of August 1, 2025? *This is our role model of morality*? Donald Trump holding the $59.99 Bible and not a single USA clergy making front-page with verse Matthew 6:5? We have a massive media ecology literacy problem. Social media is worse than what Neil Postman described in his 1985 book "Amusing Ourselves To Death"... **WE THE PEOPLE MUST BE EDUCATED ON ART SYMBOLISM, MONOMYTH SELF-AWARENESS**. ===:::
