@@ -94,3 +94,12 @@ Social media has given every person a taste of leveraged machine power: banning 
 If people can not even share unicode messages on computer without burning books / blocking each other, what hope does humanity have for traveling in the same airports together, sharing a cinema together, sharing a sports stadium, sharing a city, eating next to each other ([breaking bread](https://en.wikipedia.org/wiki/Let_us_break_bread_together) together). People praise the block button (book burning, silencing of what they disagree with in modern digital forms) as "fixing" the egomania and agression issues. Machines are not fixing the human problems, people are blocking it out, a form of phychological denial that world peace is not *optional*.
 
 * "The wise saying, "The pen is mightier than sword” was true. **The extremists are afraid of books and pens. The power of education frightens them**." - July 12, 2013. Malala Yousafzai: 16th birthday speech.
+
+&nbsp;
+
+### Underground forbiden media
+
+https://en.wikipedia.org/wiki/Rock_music_and_the_fall_of_communism
+
+David Foster Walace's Infinite Jest on this theme...
+
