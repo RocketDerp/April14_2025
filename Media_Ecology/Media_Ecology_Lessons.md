@@ -158,4 +158,5 @@ Is this a form of mental exploit. to subconsciously lodge it into the minds? Isn
 
 ... ["Left its seeds while I was sleeping..  And the vision that was planted in my brain...
 still remains"](https://www.youtube.com/watch?v=W4ZJ3xhbijo)    
-2025-08-03 3,878,502 views since January 22, 2025
+2025-08-03 3,878,502 views since [January 22, 2025](https://www.npr.org/programs/all-things-considered/2025/01/22/all-things-considered-for-january-22-2025)   
+
