@@ -885,3 +885,18 @@ https://old.reddit.com/r/PublicFreakout/comments/1mgnd7k/oklahoma_state_trooper_
 
 "Look at OP’s post history. This seems to be his MO. Wondering if this is one of those Russian propaganda accounts."
 
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mgtfdk/oh_my_god/n6ra0xt/
+
+UnknownCubicle 2016-06-20
+
+"I was raised in a conservative household by 2 parents who grew up in conservative households. They believed that taking the cost of the government social safety nets and putting it directly into the pockets of the citizens was a net benefit to everybody.
+
+You need to remember that there is a huge contingent of true believers that really, truly believe that given more resources via less tax, people would naturally be generous to their fellow man within their communities, making a tangible difference to friends, colleagues and neighbors.
+
+These are good people who started with a naive premise and have worked backward to make their perception of reality fit.
+
+Now, the GOP leadership, on the other hand? Mustache-twirlingly evil bastards. As Dr. Cox from Scrubs said, "Bastard coating a bastard center." They have used the simple, if flawed logic of "I could give more money to the homeless dude on the street if Uncle Sam didn't take so much" to morph into "FUCK EVERYBODY I'LL GET MINE AND BROWN PEOPLE ARE RAPISTS, BUT NOT THE GOOD KIND LIKE DEAR LEADER!!"
+
+Anyway, I do feel for the people who were fooled into marching in lock step with evil, but that does not excuse their evil actions. The American Nuremberg trials will be tragic."
