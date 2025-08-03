@@ -944,3 +944,12 @@ https://old.reddit.com/r/chaoticgood/comments/1mgtkie/trump_is_fucking_pissed/n6
 SekhmetScion 2023-06-01
 
 "Unfortunately, until he faces ANY consequences for his actions, it doesn't matter. His followers are a cult and he's surrounded by enablers. Those enablers are just as bad as him, if not worse, because they know all this shit and what he's doing to the country, yet continue to defend him."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mgset0/they_listen_to_propaganda_willingly/
+
+"They listen to propaganda willingly"
+
+* :::=== RoundSparrow_Commentary : A complete failure of education and comprehension of media ecology. Neil Postman, 1985: "I do not mean to imply that television news **deliberately aims** to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result". Just look at all the horse-shit entertainment memes on every media platform and click bait content that gets retweeted, upvoted (Reddit) and shared? People do not grasp the forest for the trees, they do what has been going on in the Middle East / Levant:  Palestine Mosque with ***fiction*** Quran MOCKS and insults the Israel Torah Mystagogue with ***fiction*** Torah, and the inverse mocking too! Fiction vs. fiction vs fiction. Bluesky fiction mocking Twitter fiction year 2025! Malala is one of the very few standing up and recognizing not to take nonfiction comprehension *for granted*, our human brains throughout history in every geography have a TERRIBLE track record of favoring authentic science. That is why Comparative Mythology [is essential learning for ALL people](../Joseph_Campbell_Quotes.md)!"They listen to propaganda willingly" - the problem is COMPUSION, addiction, to fiction. ===:::
+* 
