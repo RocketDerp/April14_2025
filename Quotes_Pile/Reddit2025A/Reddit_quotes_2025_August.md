@@ -878,3 +878,10 @@ https://old.reddit.com/r/AdviceAnimals/comments/1mgk7ak/kimjong_trump/n6qeplt/
 HMWWaWChChIaWChCChW 2018-11-27
 
 "Unfortunately Trump probably sees shit like this and it gets him excited. Everyone thinks he’s Putin’s puppet. I think he went on a dictator tour in his first presidency and decided that’s what he wants, that’s why he does what he does. That and to stay out of prison."
+
+&nbsp
+
+https://old.reddit.com/r/PublicFreakout/comments/1mgnd7k/oklahoma_state_trooper_firing_an_ar15_while/n6q44ye/
+
+"Look at OP’s post history. This seems to be his MO. Wondering if this is one of those Russian propaganda accounts."
+
