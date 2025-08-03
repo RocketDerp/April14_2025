@@ -853,10 +853,10 @@ Apo11onia 2021-10-08
 
 "literally website blockers and parental controls have existed for 20+ years. i thought conservatives were all about parents raising their kids and not the government."
 
-&nbp;
+&nbsp;
 
 https://old.reddit.com/r/Fauxmoi/comments/1mgnboi/rosie_odonnell_on_trump_its_worse_every_day_i/
 
 Rosie O’Donnell on Trump: “It’s worse every day. I feel like we’re in a dystopian nightmare & no one is doing anything about it… He’s a criminal con man… There’s no way you can look at the facts about this man & believe in him still. You have to have willful blindness.”
 
-* :::=== RoundSparrow_Commentary : FRONT PAGE of Reddit. Why can't anyone cite Peter Pomerantsev? It has been **going on since year 2014** ...  “It’s worse every day. I feel like we’re in a dystopian nightmare". Why can't anyone cite Peter Pomerantsev? The information warfare itself seems to keep people from seeing it is MULTIPLE NATO NATIONS, not just Donald Trump, it is [hundreds of millions of people and **hard factual validated evidence** of Russia manipulating people via Twitter](https://www.bbc.com/news/world-us-canada-45294192). We know RFKJr and Trump family are gullible to media, why can't we focus and cite Peter Pomerantsev since year 2014? Or even [Adam Curtis in 2014 BBC](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)? ===:::
+* :::=== RoundSparrow_Commentary : FRONT PAGE of Reddit. Why can't anyone cite Peter Pomerantsev? It has been **going on since year 2014** ...  “It’s worse every day. I feel like we’re in a dystopian nightmare". Why can't anyone cite Peter Pomerantsev? The information warfare itself seems to keep people from seeing it is MULTIPLE NATO NATIONS, not just Donald Trump, it is [hundreds of millions of people and **hard factual validated evidence** of Russia manipulating people via Twitter](https://www.bbc.com/news/world-us-canada-45294192). We know RFK Jr. and Trump family are gullible to media, why can't we focus and cite Peter Pomerantsev since year 2014? Or even [Adam Curtis in 2014 BBC](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)? ===:::
