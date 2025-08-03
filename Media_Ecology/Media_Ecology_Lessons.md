@@ -111,3 +111,8 @@ Having society depicted on mass media / TV shows / films of fiction.
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1mgh6r8/in_tv_show_homeland_local_artist_were_hired_to/n6ojkvk/
 
+### Binary counting, digital computers
+
+Video duration: 16 minutes   
+YouTube Title: "Learn How to Count Like a Madman (Or a Computer)!"   
+https://www.youtube.com/watch?v=CQkhzfnqdFg
