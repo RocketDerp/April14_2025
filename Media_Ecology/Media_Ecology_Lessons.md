@@ -163,3 +163,10 @@ still remains"](https://www.youtube.com/watch?v=W4ZJ3xhbijo)
 Bing AI output on [HCE Earwicker John 1:1 topic Sunday, August 3, 2025](../Quotes_Pile/BingAI/Earwicker_John11_verse.md)
 
 
+&nbsp;
+
+### Media performance rituals
+
+Rituals of a live music performance discussion:   
+
+https://old.reddit.com/r/meirl/comments/1mhdczv/meirl/
