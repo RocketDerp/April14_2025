@@ -39,3 +39,14 @@ People who get sports games and TV series and that's enough to satisfy them livi
 These are bad things, badness itself, anti-compassion, anti-empathy, anti-goodness. 
 
 Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love. Living in a toxic ocean of hate, mass dehumanization is not romantic. those war films that depict one coule falling in love while others die and suffer is not inspiring when it has become the normal, the pattern, and happens over and over in mutiple places of geography and time.
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+Monday August 4, 2025
+
+Mob mentality of various kinds in year 2015 resulted in Donald Trump being a constant center of attention and being President in 2016. In year 2025, that has not stopped. The attraction to negative and discarding of goodness.
