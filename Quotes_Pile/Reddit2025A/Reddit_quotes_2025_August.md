@@ -1139,3 +1139,19 @@ https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_electi
 JamesLikesIt 2015-08-02
 
 "This is the real problem. People think that if Trump isn’t around, things will go get better. I mean maybe a little, but a Trump is just the result of much larger issues. He’s shown that systems can be gamed and that the general populous really is just dumb and easy to manipulate. "
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6wrk7m/
+
+Slow_Investment_2211 2023-06-25
+
+"I don’t think voting is going to matter now it seems. It feels like we are now Russia. Sure, we will have elections, but the results are pre-determined."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6wz09o/
+
+NewFraige 2013-12-01
+
+"I don’t understand how anyone could’ve possibly thought we would have free and fair elections moving forward. We are in deep and the average American doesn’t seem to realize it."
