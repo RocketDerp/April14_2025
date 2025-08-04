@@ -1155,3 +1155,13 @@ https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_electi
 NewFraige 2013-12-01
 
 "I don’t understand how anyone could’ve possibly thought we would have free and fair elections moving forward. We are in deep and the average American doesn’t seem to realize it."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6x7wew/
+
+LEDKleenex 2018-03-12
+
+"It's crazy to me that people forgot about 2020 where Trump and republicans not only attempted a coup, but tried to kill mail-in ballots in an attempt to steal the election. Some people think it's a conspiracy that they tampered with votes in 2024 despite many irregularities. We've been saying it's going to happen for midterms, and 2028, there's an outline of how they're going to do it all laid out before our eyes, but everyone is just going to throw their hands up and hope someone else deals with it as these traitors take over the country."
+
+* :::=== RoundSparrow_Commentary : Exactly: "It's crazy to me that people forgot about 2020"... the group behavior, the mob mentality, of everyone shifting topics and no sense of priority or imporance. Epstein is a list of information everyone has landed on. If We The People had focused on the **uneality MAGA was living in with fiction**. For example, why [since March 2016 can't social media repeat and keep repeating Jen Senko's film](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad)? Why not repeat and repeat the harm Fox News is causing and how **people are unfocused and not serious about important topics**. People know [Fox News has wrecked](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) families, "but everyone is just going to throw their hands up and hope someone else deals with it as these traitors take over the country." We have a media ecology crisis, Bible Literacy, Fox News, Newsmax, Elon Musk Twitter, and we (the social media users react-commenting to each move and shake of Donald Trump) are not invoking Neil Postman, baby boomer Jen Senko, and other teachers! ===:::
