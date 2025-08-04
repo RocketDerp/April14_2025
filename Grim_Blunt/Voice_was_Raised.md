@@ -132,3 +132,29 @@ https://old.reddit.com/r/worldnews/comments/1mh6b4y/suicide_crisis_in_south_kore
 No guns killed those people in South Korea. Careless machines did not kill them. People made itto age 65, they were not murdered and killed in war, unprevented disease, house fires from unsafe conditions.
 
 Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love and compassion.
+
+&nbsp;
+
+&nbsp;
+
+"Americans have been the world champions of acting like they would fight for justice. You can find millions of them online with all kinds of claims of what they would do in a fascist regime.
+
+Difference here is the fact that America in fact is the only place where a way to actually do something is literally written in their constitution. So not only are they the kings of virtue signaling and delusion, they have the way and tools to actually take action, unlike any other of those countries. Yet still.... nothing.
+
+So all the claims that Americans are spineless cowards are completely valid when you take those things into account. If there is a singular country or populace that deserves blame for being passive and cowards, it is America. Beyond a doubt."
+
+https://old.reddit.com/r/dankmemes/comments/1mhaaf5/towards_peace/n6v8lop/
+
+Americans have public library, created Internet, social media, writing. But what you do not witness with Donald Trump is people willing to shut down amusement, entertainment. Sports, video games, films, TV shows. Rich people go on with thier entertainemnt and so do the poor. Trickle Down entertainment of Reality TV star Donald Trump is the mechanism of enslavement. Neil Postman was correct in 1985. People ar willing to die for murder, gun for gun, weapon for weapon, bomb for bomb, terrorist suicide bombers and suicide gunmen. But you do not witness people willing to die of starvation without sports entertainment to be spectators. Film spectators, passive audience. People won't even admit that free thinking and not being able to turn off the entertainment news of Donald Trump antics (Donald Trump playing Tony Clifton) is absent in 2024 social media, 2025 social media. You will not see people bow down and beg to MAGA for compassion. Not cowering in fear, but cowering in compassion. If I had watched Fox News,not channged the channel, my brain would be like you. I hope someone would bow down and rescue me instead of *kick the MAGA peole when they are down and believe Russian falsehoods*, lost their minds to an informaiton war.
+
+Because faith in goodness isn't in the gun and violence. That's faith in badness. That's what Donald Trump is, Trump is badness itself. Badness walking and talking, a symbol of hate attraction and dehumanizaiton attraction.
+
+
+Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love and compassion.
+
+* "I do not mean to imply that television news **deliberately aims** to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the **inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying **we (in 1985) are losing our sense of what it means to be well informed**. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+pairs with
+
+* “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... **No one knew what was happening to him, least of all of the Germans**, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945
