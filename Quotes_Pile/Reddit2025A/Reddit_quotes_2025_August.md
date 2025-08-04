@@ -1211,3 +1211,15 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mhnwfi/this_is_happening_as_we_
 Hendrik_the_Third 2022-05-23
 
 "MAGA is not accepting a loss, they will cheat, wrestle or force themselves to a putin style "republic". It could get very messy."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhh3sq/netanyahu_moves_to_fire_attorney_general/n6wsns1/
+
+sapntaps 2013-08-31
+
+"Theme of humanity’s history…..
+
+What happened to the secular utopia tribe of 100 people that lived in peace with no violence? Some king down the road didn’t like they existed and killed them all "
+
+* :::=== RoundSparrow_Commentary : If only that cycle became a topic of global education. The pattern of our own destruction of utopia. And we all recognized it as a mutual pattern all over history on Earth. “History, Stephen said, is a nightmare from which I am trying to awake.” ― James Joyce, Ulysses (published March 1918 onward). ===:::
