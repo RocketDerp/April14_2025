@@ -149,6 +149,10 @@ Media ecology wasn't even invented as a field until 1968: "Media ecology, as a d
 
 &nbsp;
 
+&nbsp;
+
+### Monday August 4, 2025
+
 > Vx0w (7 month recent Reddit user): Actually, MAGA seems to believe bad things happen to bad people, but they also believe they can do no wrong and everyone else is bad people.
 
 Conservatives all across the globe are characterized by their attraction to fiction. They adore and flock to fiction storytelling. They are not big on authentic truth, standing up for sincerity and honestly, and favor Radio Mullah and Fox News information sources over authentic verifiable nonfiction.
