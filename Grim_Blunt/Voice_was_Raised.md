@@ -94,3 +94,16 @@ Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people li
 
 Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love and compassion. Malala Yousafzai recognized in Swat Valley Pakistan that people did not see it. Malala saw what mob mentality in Pakistan did not see: “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945
 
+&nbsp;
+
+&nbsp;
+
+Now I have studied media ecology. Inclusive of the making of the Aja studio album by Steely Dan, and attendance of Steely Dan live performances before the death of Walter Becker (died in 2017). I saw Steely dan in California, Colorado, Flordia, Illinois (3 times), Texas ... between year 2004 and 2010. I have studied many who cover their songs, many live performance recordings, etc.
+
+I have seen the labor that goes into creating 4 minutes of music. I have seen the labor that goes into 93 minutes of a film or 43 minutes of a television episode.
+
+I have seen the labor that goes into a book and into a graphic novel and worlds of art.
+
+And my words will never be good enough. This page I am composing right now will never satisfy the public mind. It is truth that I am drowned in all the shit of all the world and I am broken by it, and everyone seems broken by it, and even those who labor and edit and refine their communications to the perfect song stillfail to get people to see how bad and terrible the flocking to shit, the seeking of shit, the seeking of Taliban and seeking of Donald Trump has become. 
+
+Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love and compassion. Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not grasp they are attracted to shit, reepat shit, and show desire as if shit is how they interpret the words of others, that Donald Trump or Hitler or Hamas in Palestine or Taliban in Swat Valley Pakistan or Putin in Moscow - is desirable. Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love and compassion.
