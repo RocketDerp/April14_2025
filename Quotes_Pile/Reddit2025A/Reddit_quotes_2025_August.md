@@ -991,9 +991,18 @@ Totally-Real-Guy **2025-02-01** (account created after Trump returned to office)
 
 # Monday August 4, 2025
 
+&nbsp;
+
 https://old.reddit.com/r/TikTokCringe/comments/1mhbgfk/new_footage_shows_donald_trumps_caddie_dropping_a/
 
 "New footage shows Donald Trump’s caddie dropping a golf ball near the hole during a round at Trump National Golf Club Bedminster"
 
 * :::=== RoundSparrow_Commentary : The clergy has Heaven-washed Donald Trump, our attraction to shit has been forgiven by Jesus in the sky, the clergy has washed away our sin of attraction to shit. It is us being the ball servants here, we are all cheating our future by not stopping entertianment, ball games, sports, video games, superficial clickbait news. [The answer is for all of us to [sotp the media frenzy, to be serious and stop enteratinment until we all can face and grasp Neil Postman's 1985 book](../../Grim_Blunt/Stop_All_Entertainment.md). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1mhgoq2/i_dont_get_it/n6w2ete/
+
+arestheblue 2009-04-28
+
+"Its gotta be tough being a spy in the US right now. You work hard...prostitute yourself to some old white guy who needs to freebase viagra to get an erection, you finally get some actionable intel on which US Seals are located where, and then Trump just spouts it all on national TV, making all of your sacrifices worth nothing."
