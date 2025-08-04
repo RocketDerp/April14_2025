@@ -1006,3 +1006,11 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1mhgoq2/i_dont_get_it/n6w2ete/
 arestheblue 2009-04-28
 
 "Its gotta be tough being a spy in the US right now. You work hard...prostitute yourself to some old white guy who needs to freebase viagra to get an erection, you finally get some actionable intel on which US Seals are located where, and then Trump just spouts it all on national TV, making all of your sacrifices worth nothing."
+
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1mhc3aa/musks_doge_wasted_217b_paying_300k_federal/
+
+"Musk’s DOGE Wasted $21.7B Paying 300K+ Federal Workers to Do Nothing, Senate Report Finds"
+
+* :::=== RoundSparrow_Commentary : people are not asserting and staying focused on this. Absent sustained topic: sabotage, self-harm. People are unwilling to discuss authors like [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) how reality is being subverted, that anti-reality is being witnessed. USA population seens entirely unable to recognize information warfare, Surkovian governing. And people on social media are watching dots fly by the screen (pixels), without connecting the dots. People see tree after tree and not the big picture of the total forest since March 2013. This behaviotr of not connecting trees to forest big picture is by no means limited to topics of Elon Musk DOGE and Donald Trump White House, the same thing went on with anti-reality anti-science during the pandemic where people seem entirely unable on social media to sustain confrontation with falsehoods by citing factual hard evidence off Twitter about Russia: https://www.bbc.com/news/world-us-canada-45294192 - it as if being absolutely dishonest, "The Big Lie", is a blindspot in human minds / crowd behavior. But WE KNOW of "The Big Lie", the complete and absolute black lie (as opposed to a "white lie" deception) is a Surkovian exploit. To a point of saturation of non-reality itself. The only answer I keep landing on is media ecology itself, we are all the way back in to 1985 Neil Postman "Amusing Ourselves To Death" explinations of why people can't connect dots of events. ===:::
