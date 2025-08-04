@@ -987,3 +987,13 @@ Totally-Real-Guy **2025-02-01** (account created after Trump returned to office)
 
 "I love how liberals are convinced this will bury him with his base. His base. Who is made up of the evangelical Christian right. Who follow the church, an institution who has, per capita, more pedophilia accusations against them than any other institution. Yet they still pour money into their coffers and don’t speak out in protest. The same base who supports guns ad nauseam, despite their neighbor’s children getting slaughtered by them in class rooms. This won’t even be a blip on their moral radar."
 
+&nbsp;
+
+# Monday August 4, 2025
+
+https://old.reddit.com/r/TikTokCringe/comments/1mhbgfk/new_footage_shows_donald_trumps_caddie_dropping_a/
+
+"New footage shows Donald Trump’s caddie dropping a golf ball near the hole during a round at Trump National Golf Club Bedminster"
+
+* :::=== RoundSparrow_Commentary : The clergy has Heaven-washed Donald Trump, our attraction to shit has been forgiven by Jesus in the sky, the clergy has washed away our sin of attraction to shit. It is us being the ball servants here, we are all cheating our future by not stopping entertianment, ball games, sports, video games, superficial clickbait news. [The answer is for all of us to [sotp the media frenzy, to be serious and stop enteratinment until we all can face and grasp Neil Postman's 1985 book](../../Grim_Blunt/Stop_All_Entertainment.md). ===:::
+
