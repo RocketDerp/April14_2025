@@ -1252,3 +1252,15 @@ _Kzero_ 2013-08-28
 
 "Doesn't matter. Nothing will be done, and MAGA will still praise him. This is a nightmare world we live in now."
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mho423/florida_reports_21_cases_of_ecoli_infections/n6xrccg/
+
+Judgementpumpkin 2018-12-16
+
+"You can’t try to explain truths to them, they get so offended and incredibly angry. Got verbally abused by the idiots in my life in an attempt to civilly reason with them. After getting shit on, I don’t care anymore, they can suffer their own consequences/ dig their own graves.
+
+The brainwashing is real."
+
+&nbsp;
+
