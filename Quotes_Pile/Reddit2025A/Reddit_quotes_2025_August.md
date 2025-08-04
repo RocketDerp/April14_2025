@@ -1223,3 +1223,14 @@ sapntaps 2013-08-31
 What happened to the secular utopia tribe of 100 people that lived in peace with no violence? Some king down the road didn’t like they existed and killed them all "
 
 * :::=== RoundSparrow_Commentary : If only that cycle became a topic of global education. The pattern of our own destruction of utopia. And we all recognized it as a mutual pattern all over history on Earth. “History, Stephen said, is a nightmare from which I am trying to awake.” ― James Joyce, Ulysses (published March 1918 onward). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhh3sq/netanyahu_moves_to_fire_attorney_general/n6w5i9x/
+
+ChuckVader 2012-10-30
+
+"The silver lining to all of this is that it's becoming clear that laws don't matter. When laws don't dictate who's in charge, violence does. That usually doesn't end well for wannabe despots."
+
+* :::=== RoundSparrow_Commentary : "silver lining" is that the entire Internet can't come together and assert Malala and other intelligent leaders... and strokes the violence technology again. Faith in hate, faith in killing, fatih in war. Social media society can't even shut down entertainment and amusements and be serious to save lives, too engaged. **October 7, 2023** terrorism was exactly this "silver lining" thinking by terrorists. And Malala's book was published a decade earlier, they sure didn't promote it in Palestine for a decade every day. Because people think violence is the secret answer every time. The back-pocket reserve solution. Technology is eating us alive, we believe ficiton and flock to falsehoods. "it's becoming clear that laws don't matter." - it's become clear that people believe ChatGPT and trust Donald Trump, that **trust does not matter** - and you don't fix truth with killings. You fix it with education and literacy on how to distinguish fiction from nonfiction. That's what Malala from Pakistan is saying about Terrorism, and that is what I am saying after being in USA social media since 1983. ===:::
+
