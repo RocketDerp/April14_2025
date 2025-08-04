@@ -161,4 +161,12 @@ Conservatives all across the globe are characterized by their attraction to fict
 
 Believing in fiction, telling their own self fiction. They have never been educated or don't comprehend how to distinguish fiction from nonfiction. Instead, billionaires like Rupert Murdoch educate them via television and news networks all over the world with fiction storytelling. They rarely take the problem of how the human brain works world wide (regardless of gender, race or nation) in the struggle of distinguishing fiction from reality seriously.
 
+&nbsp;
+
 “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+&nbsp;
+
+"Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America. 2019
+
