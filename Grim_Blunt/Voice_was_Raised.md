@@ -68,3 +68,10 @@ https://old.reddit.com/r/politics/comments/1mhcc2a/can_someone_please_tell_me_ho
 The ansewr is people are attracted to badness. The whole society is flocking to shit.
 
 Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love. She reads history and other people's ideas and concludes: we are liing in failure to comprehending. We don't undrestand love and compassion. Malala recognizes that what we are teaching children and what we are favoring is shit. Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love. 
+
+&nbsp;
+
+Terrorism is bad. Hamas terrorism in Palestine is bad.   
+War is bad, homelessness is bad, starvation is bad.  
+
+Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love. 
