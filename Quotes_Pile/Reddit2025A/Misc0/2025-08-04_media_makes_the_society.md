@@ -2,7 +2,7 @@ The Media Makes the Society
 
 Garbage media into human minds, is garbage education and teaching into human minds. Garbage in, garbage out, and people in USA flock to shit garbage junk media. You see it all over /r/All and in every echo chamber you read- people flocking to trash media.
 
-Donald Trump is the product of a clickbait shallow media systems society. Donald Trump at age 79 does not comprehend what memes and symbols he shuffles, he just knows how to draw attention to the worst trash and garbage. Which Jeffrey Epstein is the worst trash and garbage media content and dehumanization use of technology, that attracts the audience of Donald Trump, so Donald Trump instructs the FBI to release the July 7, 2025  "Epstein nothingburger" memo. [Because calling Russia a "nothingburger"/ "hoax" worked before in getting the audience riled up](https://thehill.com/homenews/media/340118-cnns-van-jones-okeefe-russia-nothingburger-video-a-hoax/) and having their minds *reset to avoid being factual and sincere*. The audience can not resist the shit of Donald Trump, the hate of Donald Trump, filling minds with trash and sinking the whole population into Donald Trump behaviors and values.
+Donald Trump is the product of a clickbait shallow media systems society. Donald Trump at age 79 does not comprehend what memes and symbols he shuffles, he just knows how to draw attention to the worst trash and garbage. Which Jeffrey Epstein is the worst trash and garbage media content and dehumanization use of technology, that attracts the audience of Donald Trump, so Donald Trump instructs the FBI to release the July 7, 2025  "Epstein nothingburger" memo. [Because calling Russia a "nothingburger" / "hoax" worked before in getting the audience riled up](https://thehill.com/homenews/media/340118-cnns-van-jones-okeefe-russia-nothingburger-video-a-hoax/) and having their minds *reset to avoid being factual and sincere*. The audience can not resist the shit of Donald Trump, the hate of Donald Trump, filling minds with trash and sinking the whole population into Donald Trump behaviors and values.
 
 Donald Trump at age 79 does not comprehend what memes and symbols he shuffles, he just knows to find the fastest and most reactive media delivery systems. Donald Trump knows where to stand and how to arrange icons, symbols, memes to educate and teach to the audience. The meme consumers do the rest, the people of /r/All and every media platform line up to copy and duplicate and distribute the Donald Trump misunderstandings as *content*.
 
@@ -15,14 +15,23 @@ Donald Trump at age 79 does not comprehend what memes and symbols he shuffles, h
 
 &nbsp;
 
-Donald Trump media content, trickle down trash and garbage, is what Carl Sagan was warning us about in year 1995. Three decades later in USA August 2025, it is the foundation of what people in USA feed into their brains.. trash junk lies and falsehoods from Donald Trump.  And we behave as a total nation like people who have consumed such junk trash media. Donald Trump  is a role model of hate and misunderstandings.  Garbage media into human minds, is garbage education and teaching into human minds.
+Donald Trump media content, trickle down trash and garbage, is what Carl Sagan was warning us about in year 1995. Three decades later in USA August 2025, it is the foundation of what people in USA feed into their brains.. trash junk lies and falsehoods from Donald Trump on fast media networks.  And we behave as a total nation like people who have consumed such junk trash media. Donald Trump is a role model of hate and misunderstandings.  Garbage media into human minds, is garbage education and teaching into human minds.
 
 &nbsp;
 
 This is a nation of hell.  Every media platform pumps out shit content to appease an audience that will not face the society-wide every-day all-day attraction to shit ideas and trash concepts. We have learned, aquired, educated ourselves into mental states of craving more Donald Trump trash and shit. Nobody has been able to stop this feedback loop of shit and hate between the USA media consumer audience (Reddit inclusive, Bluesky inclusive, etc, etc) and Donald Trump. We have trashed our nation by means of educating ourselves with Donald Trump content. Trump is our teacher, and we have been attentive students who adopted hate and dehumanization values of the teacher.
 
-That is how teaching works. That is how learning works. Repetitive ideas from Donald trump into our brains.  And the USA shows this brain damage, mass psychosis. 
+That is how teaching works. That is how learning works. Repetitive ideas from Donald trump into our brains.  And the USA shows this brain damage, mass psychosis abounds in 2025. 
 
 Instead of sharing Carl Sagan, Malala Yousafzai, Hannah Arendt, and other excellent good content in the face of Donald Trump since year 2015, we in the USA society have flocked to the shit and hate and put them into our minds. That is how education and learning works, and the USA has learned to *become Donald Trump in total*, a nation with attraction to hate and misunderstandings of a 79 year old mind. Junk shit /r/All role model teacher.
 
+It is impossible to think clearly any more, there is no thinking, there is enslavement in USA to junk messages and trash ideas and foul understandings. We have become since year 2025 to behave like Donald Trump and saturate each other with the terrible ideas and thinking. No writing, no teacher, no book from all the public library written in any year of all humanity, has been able to stop this cycle. We are a wasteland now in the USA. The only thing you can communiate is hate and trash ideas, languge only serves to repeat and mirror Donald Trump's media spotlight. All messages and ideas orbig around Donald Trump and anyone you communicate to only accepts shit and trash ideas. USA society in total has adopted hate and dehumanization as deepest faith, hate for Donald Trump, hate from Donald Trump.
+
 The Media Makes the Society
+
+Media made this August 2025 USA society.
+
+The Media Makes the Society. We learn from each other via communications networks, and what we have learned from information systems is Donald Trump mindset.
+
+The Media Makes the Society
+
