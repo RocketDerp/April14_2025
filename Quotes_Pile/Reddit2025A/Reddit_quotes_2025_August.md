@@ -1194,3 +1194,12 @@ bravesthrowaway67 2019-08-07
 
 The man has zero logical consistency."
 
+&nbsp;
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1mhk6aa/i_dont_get_it/n6x7sj5/
+
+Timbalabim 2014-08-28
+
+"If you’re reading this and thinking, “that’s pretty much the stupidest thing ever,” that’s because it is, and this is the type of person far too many Americans thought would be good in the White House, after a term not so long ago that was just as stupid."
+
+* :::=== RoundSparrow_Commentary : Yes, Tony Clifton works on USA society. ===:::
