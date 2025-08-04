@@ -1112,4 +1112,30 @@ YoBoyDooby 2020-11-28
 
 "If we had only had 10 years of warnings or hundreds of examples of horrific behavior."
 
-Published as a *massive warning. [September 9, 2014 Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)** - that people will not face up to. The problem is bigger than just Donald Trump and all of NATO. Ukraine has been warning us over and over.
+* :::=== RoundSparrow_Commentary : Published as a **massive warning. [September 9, 2014 Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)** - that people will not face up to. The problem is bigger than just Donald Trump and all of NATO. Ukraine has been warning us over and over. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6wk6fc/
+
+Thund3rbolt 2012-04-27
+
+"Our freedoms are dispersing at lightning speed. I don't want to scare people but I'm seeing a future developing before our eyes where this regime strips away all rights for citizens. A future where opposing or even criticizing will punish people or send people to prison. I've never been more worried about what's coming."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6wrvvv/
+
+Underp0pulation 2015-05-21
+
+"It’s not trump’s plan per se, it’s the plan of all the anti democracy people behind him. Even if trump left office tomorrow, they are still working on this agenda."
+
+* :::=== RoundSparrow_Commentary : It is [Putin's plan, announced loudly and clearly and documented in English December 20, 2013](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/). Which is right before the Ukraine war in February 2014. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6x1ap6/
+
+JamesLikesIt 2015-08-02
+
+"This is the real problem. People think that if Trump isn’t around, things will go get better. I mean maybe a little, but a Trump is just the result of much larger issues. He’s shown that systems can be gamed and that the general populous really is just dumb and easy to manipulate. "
