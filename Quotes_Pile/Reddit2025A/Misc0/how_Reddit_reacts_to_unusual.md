@@ -29,3 +29,21 @@ I haven’t left out a single thing, im open and honest. If I knew I fucked up, 
 I can’t get a new inhaler without seeing my doctor first. I’m 22, and poor. I’ve been out of work since the procedure because I’ve had complications. So I have to go see my doctor before I can get a new inhaler, and I legit don’t have insurance (fight in progress right now), so if anyone wants to help cover the doctors appointment/inhaler, my cash app is adminjasmin. I can even share proof that that’s where the money is going
 
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhatShouldIDo/comments/1mhtj1u/final_update_my_boyfriend_disappeared/n6yoebr/
+
+https://old.reddit.com/user/chazrbaratheon89
+
+"You sound exhausting as a person"
+
+&nbsp;
+
+https://old.reddit.com/r/WhatShouldIDo/comments/1mhtj1u/final_update_my_boyfriend_disappeared/n6yp82l/
+
+"I agree, these people are pretty disgusting. It takes less effort to say nothing if you're skeptical than to prove you're a dumb ass."
+
