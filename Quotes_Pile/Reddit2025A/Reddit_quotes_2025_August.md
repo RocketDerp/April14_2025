@@ -559,7 +559,7 @@ Complete-Royal-3973 2022-01-17
 
 "US people why haven’t you shut down your country let the rich service themselves they do not care about protest they do not care about you Shut it down"
 
-* :::=== RoundSparrow_Commentary : Social media users can't even *shut down enertainment and sports*, and [be serious with nonfiction education](../../Grim_Blunt/Stop_All_Entertainment.md). ===:::
+* :::=== RoundSparrow_Commentary : Social media users can't even *shut down entertainment and sports*, and [be serious with nonfiction education](../../Grim_Blunt/Stop_All_Entertainment.md). ===:::
 
 &nbsp;
 
@@ -1053,3 +1053,28 @@ If you want to test it out it's very easy. Simply get a new social media account
 If we want things to change, the propaganda networks are the top priority."
 
 * :::=== RoundSparrow_Commentary : Now that is thinking in terms of media ecology relative to the roots of conservatives vs. liberals, fiction vs. nonfiction. What is absent: links to authors, books, articles on the subject. Reddit owners (those who pay to operate and create the server code and run the spam filters) actively unpublish comments with links in the name of "spam filtering", even with Reddit accounts created in year 2014 like this one making the comment. Messages are just disappeared in the name of not having spam links. Even when linking BBC and other major news sites in comments. Everything is Media Ecology. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mhhdfc/empty_spaces_exposed/n6x912r/
+
+Renovatio_  2009-12-28
+
+"Finally someone who fucking gets it.
+
+The worm story wasn't released by some journalist expose.
+
+RFK himself said he had the brain worm, in the deposition regarding his divorce. For, like you said, made him incapable of paying alimony.
+
+Its clear as day this was a scam RFK pulled to deny his ex-wife what she was entitled to. He's a liar. He lies about everything. He's willing to lie about his own health to fuck over someone. Imagine what else he'd lie about."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6wnnc6/
+
+Rare-Forever2135 2023-09-07
+
+"Why aren't all the so-called patriots in a complete meltdown and uproar?"
+
+* :::=== RoundSparrow_Commentary : All the *so-called patriots* are on social media systems predictably mocking and insulting the Tony Clifton performance of the White House. Eating the Surkovian Onions since year 2013 and cheering on the surreal absurd content creation of Donald Trump.  Social media users can't even *shut down entertainment and sports*, and [be serious with nonfiction education](../../Grim_Blunt/Stop_All_Entertainment.md). Reddit society believes that the answer to Donald Trump and MAGA bullshit is *add more bullshit and fiction* to the fiction stew. Instead of calling out that the fiction itself is toxic and we need to rebuild the entire kitchen processes after having our media spiked by Russian information warfare. ===:::
+
