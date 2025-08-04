@@ -142,3 +142,19 @@ I keep trying to tell you... you have to learn media ecology and view this from 
 # 1968 !!!
 
 Media ecology wasn't even invented as a field until 1968: "Media ecology, as a distinct field of study, was formally introduced by Neil Postman in 1968. He coined the term and established it as a way to understand how communication technologies shape human experience and culture. While Postman is credited with the formal naming, the field draws heavily on the earlier work of Marshall McLuhan, who explored the impact of media on society and culture."
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+> Vx0w (7 month recent Reddit user): Actually, MAGA seems to believe bad things happen to bad people, but they also believe they can do no wrong and everyone else is bad people.
+
+Conservatives all across the globe are characterized by their attraction to fiction. They adore and flock to fiction storytelling. They are not big on authentic truth, standing up for sincerity and honestly, and favor Radio Mullah and Fox News information sources over authentic verifiable nonfiction.
+
+> they also believe they can do no wrong and everyone else is bad people.
+
+Believing in fiction, telling their own self fiction. They have never been educated or don't comprehend how to distinguish fiction from nonfiction. Instead, billionaires like Rupert Murdoch educate them via television and news networks all over the world with fiction storytelling. They rarely take the problem of how the human brain works world wide (regardless or race or nation) in the struggle of distinguishing fiction from reality seriously.
+
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
