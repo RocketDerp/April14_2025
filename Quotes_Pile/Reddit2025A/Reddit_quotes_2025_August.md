@@ -1101,3 +1101,15 @@ gooie 2012-02-05
 Like why isnt the existing publicly known information enough to conclude hes a creep?"
 
 * :::=== RoundSparrow_Commentary : "I dont get it. What more do we need to see to realize this man is not fit for president" - people are not taking the situation seriously. War against truth, war against science, war against facts, war against nonfiction, [war against reality](https://www.goodreads.com/work/quotes/65073585-this-is-not-propaganda-adventures-in-the-war-against-reality). Social media users are all avoiding: Neil Postman 1985, Carl Sagan 1994 / 1995, Andrew Postman 2017, Malala Yousafzai 2013, [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/), Peter Pomerantsev 2019 books. And instead react-commenting to this since 2015 when Trump announced and not taking up intellectual arms and using social media systems to assert education, teaching, learning, study, comprehension, understanding via thoughful authors. People know that learning is slow and tedious, how difficult it was for teachers in grade school... and just wont use social media to do the ***civic duty*** of pateintly repeating the same material over and over until everyone understands. Learning takes time and patience. React commenting is eating the Surkovian onions. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6woc01/
+
+YoBoyDooby 2020-11-28
+
+"If we had only had 10 years of warnings or hundreds of examples of horrific behavior."
+
+Published as a *massive warning. [September 9, 2014 Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)** - that people will not face up to. The problem is bigger than just Donald Trump and all of NATO. Ukraine has been warning us over and over.
