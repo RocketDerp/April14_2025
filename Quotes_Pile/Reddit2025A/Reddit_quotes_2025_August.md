@@ -978,3 +978,12 @@ https://old.reddit.com/r/goodnews/comments/1mgxc64/trump_is_now_being_accused_of
 Bogaigh 2015-05-15
 
 * :::=== RoundSparrow_Commentary : But would not provide the Tony Clifton style inspiration for hate, mocking, dehumanization, entertainment, absurd surreal amusement. In other words, inanimate carbon rod doesn't proide ficton stories. Only factual existance. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mgzgfj/he_likes_beautiful_women_as_much_as_i_do_and_many/n6slvye/
+
+Totally-Real-Guy **2025-02-01** (account created after Trump returned to office)
+
+"I love how liberals are convinced this will bury him with his base. His base. Who is made up of the evangelical Christian right. Who follow the church, an institution who has, per capita, more pedophilia accusations against them than any other institution. Yet they still pour money into their coffers and don’t speak out in protest. The same base who supports guns ad nauseam, despite their neighbor’s children getting slaughtered by them in class rooms. This won’t even be a blip on their moral radar."
+
