@@ -158,3 +158,12 @@ Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people li
 pairs with
 
 * “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... **No one knew what was happening to him, least of all of the Germans**, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945
+
+&nbsp;
+
+We climed, as humanity in USA, to 1985. We reached the comprehension of Neil Postman 1985. we reached the comprehension of Joseph Campbell in 1986 and 1987 (published in 1988, Power of Myth). We have been able to reasonable preserve these teachings to year 2025. But we re not facing the truth of non-violence. We are not willing to [shut down sports and entertainment on social media and be serious about goodness](Stop_All_Entertainment.md)
+
+There is a kind of sickness of sports mentality in Russia attacking Ukraine since February 2014 that still is ongoing in August 2025. There is a sickness of sports mentality that MAGA and Trump White House, Rupert Murdoch news network, in crushing human lives. "Winner takes all" mentality of sports.
+
+We can't have joy and fun in helping others? In asserting real world nonfiction learning? If the most fun possible is dominating and wrecking the lives of others (Putin role model, Donald Trump role model)
+
