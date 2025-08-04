@@ -14,9 +14,13 @@ Social media users can't stand anyone who doesn't conform to the meme of the mon
 
 I clearly witness the desires of USA society 2025: dehumanize those who disagree. That's the core values, hate and dehumanization. Donald Trump leads everyone, all inclusive, you have to be entirely unable to communicate to not see the anti-huamnism values.
 
-# Quotes
+# Quotes as my voice, borrowed citations
 
 I have done for years and years since 2015 where what I did was just quote authors and quote books. And people would deny their relevant context to the Donald Trump forest situation since 2015. People would stop calling the writing ranting (because it was from authors, not my own writing), but still not enage the concept or idea.
+
+I also found that when people disagree with an idea in a realtively short (one to three paragraphs) quote, they do not reach for the entire book (written by an author that is not me on social media context), or ask for additional context from the source author - they disagree immediately with shallow and superficial reactions in social media. Unwilling to ponder if the author had more to say in an **entire book of say 184 pages, and not just the 2 or 3 paragraphs being quoted**. [Context Bewilderment abounds in year 2025 USA](../.../Media_Ecology/Context_Bewilderment.md). People become very fixated on the social media culture of reaction and not comrephension or understanding. Especially when I focus on quotes from dead authors of past decades, they seem to not regonize the changes of media ecology driven by Internet digital computing advances. Donald Trump / MAGA media content since year 2014 has created a society full of **constant context shock**.
+
+&nbsp;
 
 #### Repulsive ideas
 
