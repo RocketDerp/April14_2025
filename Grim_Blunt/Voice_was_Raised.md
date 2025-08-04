@@ -32,7 +32,9 @@ Malala Yousafzai is saying that things suck, that this is bad, and why are we no
 
 And Martin Luther King Jr in 1954 was saying in Gerogia USA that things suck, this is bad, and why are we not attracted to goodness and betterment.
 
-Here in 2025, people are so satisfied with some tiny drops of goodness, some TV show, or a few hours with loved ones each week... that they can tolerate Donald trump and Putin and Middle East war and Sudan and all the things going on around them?
+Here in 2025, people are so satisfied with some tiny drops of goodness, some TV show, or a few hours with loved ones each week... that they can tolerate Donald Trump's understanding of love and compassion... and Putin and Middle East war and Sudan and all the things going on around them?
+
+Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love. She reads history and other people's ideas and concludes: we are liing in failure to comprehending. We don't undrestand love and compassion. Malala recognizes that what we are teaching children and what we are favoring is shit. Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love. 
 
 People who get sports games and TV series and that's enough to satisfy them living in a world where people are attracted to Donald trump year 2015, 2016, 2017, 2018, 2019, 2020, 2021, 2022, 2023, 2024, 2025. And all the people attracted to the MAGA movement and values.
 
