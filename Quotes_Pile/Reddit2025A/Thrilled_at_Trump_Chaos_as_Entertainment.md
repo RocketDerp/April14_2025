@@ -254,3 +254,17 @@ RainbowandHoneybee 2019-05-01
 "Just too funny. He tries to make other people look guity, and end up making himself look so much worse."
 
 Yes, "Just too funny" - like Tony Clifton, like Surkov + Putin means to power for 25 years.
+
+&nbsp;
+
+&nbsp;
+
+# Monday, August 4, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mho423/florida_reports_21_cases_of_ecoli_infections/n6xso7r/
+
+rockmasterflex 2012-09-05
+
+"Only 21? My death pool has at least 200 confirmed cases by November. Cmon idiots in Florida buy more raw milk!"
