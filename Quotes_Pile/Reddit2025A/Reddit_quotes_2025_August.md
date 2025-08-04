@@ -1089,3 +1089,15 @@ Stennick 2014-08-19
 NONE of that matters or has mattered at all. In fact all of that is known and he won the last election rather handedly. Releasing the Epstein files would do nothing. I'm not saying don't release them but to somehow think it would hurt him in the least is misplaced hope at best."
 
 * :::=== RoundSparrow_Commentary : Did the Taliban shooting a little girl on her school bus in Pakisan end the faith in Radio Mullah? Nope. You have to address this at a global scale and ask the whole world to rescue you using intellectual education and literacy reformation. This is a world-wide problem. All the things described in this Reddit comment show that people are attracted to *badness itself*, it is beyond time for remedial moality lessons of good from bad. Imported Levant Quran to Pakstain isn't working, imported Bible to USA isn't working... we need to catch up to 1950's Martin Luther King Jr and Malala from year 2009 onward, we need to be looking in the entire public library as Malala is saying. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6wtwxc/
+
+gooie 2012-02-05
+
+"I dont get it. What more do we need to see to realize this man is not fit for president. He is already liable for rape.
+
+Like why isnt the existing publicly known information enough to conclude hes a creep?"
+
+* :::=== RoundSparrow_Commentary : "I dont get it. What more do we need to see to realize this man is not fit for president" - people are not taking the situation seriously. War against truth, war against science, war against facts, war against nonfiction, [war against reality](https://www.goodreads.com/work/quotes/65073585-this-is-not-propaganda-adventures-in-the-war-against-reality). Social media users are all avoiding: Neil Postman 1985, Carl Sagan 1994 / 1995, Andrew Postman 2017, Malala Yousafzai 2013, [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/), Peter Pomerantsev 2019 books. And instead react-commenting to this since 2015 when Trump announced and not taking up intellectual arms and using social media systems to assert education, teaching, learning, study, comprehension, understanding via thoughful authors. People know that learning is slow and tedious, how difficult it was for teachers in grade school... and just wont use social media to do the ***civic duty*** of pateintly repeating the same material over and over until everyone understands. Learning takes time and patience. React commenting is eating the Surkovian onions. ===:::
