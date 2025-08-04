@@ -1027,3 +1027,29 @@ To be honest I think this goes beyond hyper individualism and has to do more wit
 
 * :::=== RoundSparrow_Commentary : Bring in media ecology: people adore complicated fiction. Avoid complicated nonfiction. A *shared fiction* binds people together, enjoying the same film or TV show or all watching Fox News fiction and having the same set of storytelling to discuss. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1mheujb/woman_votes_for_trump_and_her_undocumented_dad/n6w4u4j/
+
+theavengerbutton 2015-11-02
+
+"Going to r/conservative, they have entire conversations about trying to figure out what his angle is. Like every time there's a new round of tariff threats they are over there like, "X country supplies us with this commodity and we already have a good tariff deal with them, so it doesn't make much sense for us to be trying to strike out a new deal". And then someone else comes along like, "it's probably something else, X country has been known to make deals with China, so we should be punishing them". And then finally someone is like, "I trust that he knows what he is doing even if I don't see what his goals are. We are winning!" "
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1mheujb/woman_votes_for_trump_and_her_undocumented_dad/n6watru/
+
+TheTodosModos 2014-08-01
+
+"
+> We all knew, she should have too.
+
+I wish it was that simple but the truth is, people will continue working against their own interests and becoming slaves to right-wing goals forever, until we can shift the impact of right-wing propaganda.
+
+We shouldn't act surprised to see people like the one in the video. We will continue seeing them over and over. The answer why isn't very complicated. We're being bombarded by right-wing propaganda everyday, non-stop, in pretty much all mediums of communication. 
+
+If you want to test it out it's very easy. Simply get a new social media account and start scrolling. See how long it takes before you fall into one of these networks. Thank goodness you and I can tell what's up. Millions of Americans won't.
+
+If we want things to change, the propaganda networks are the top priority."
+
+* :::=== RoundSparrow_Commentary : Now that is thinking in terms of media ecology and conservatives vs. liberals, fiction vs. nonfiction. What is absent: links to authors, books, articles on the subject. Reddit owners (those who pay to operate and create the server code and run the spam filters) activelly unpublish comments with links in the name of "spam filtering", even with Reddit accounts created in year 2014 like this one making the comment. Messages are just disappeared in the name of not having spam links. Even when linking BBC and other major news sites in comments. Everything is Media Ecology. ===:::
