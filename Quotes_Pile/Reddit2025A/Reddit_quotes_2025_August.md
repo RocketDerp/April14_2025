@@ -1271,3 +1271,11 @@ sarhoshamiral 2008-05-27
 "So much things can be said but I just feel bad for the kids with idiot parents. Hopefully they grow up to be better but somehow I doubt it given our education system.
 
 We are 100% living through the prefix to Idiocracy movie right now especially after seeing the literal destruction Trump is doing to White House itself and stuff like this on top of it."
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1mhlz3t/the_real_reason_why_maga_loves_him/n6xewh8/
+
+Mexicali76 2019-03-27
+
+"I’ll never forgive the idiots that thought a second go-around with this piece of trash was a good idea. Now he may never leave. I am so fucking tired of this guy dominating the news and lowering the bar every day for the last 10 years. Get out of my face."
