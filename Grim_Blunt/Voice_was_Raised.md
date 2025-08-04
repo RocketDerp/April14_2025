@@ -52,3 +52,19 @@ Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people li
 Monday August 4, 2025
 
 Mob mentality of various kinds in year 2015 resulted in Donald Trump being a constant center of attention and being President in 2016. In year 2025, that has not stopped. The attraction to negative and discarding of goodness.
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+Just now someone broke the rules on Reddit and posted 
+
+https://old.reddit.com/r/politics/comments/1mhcc2a/can_someone_please_tell_me_how_loomer_is_relevant/     
+"Can someone please tell me how Loomer is relevant to anything? She just seems like this barnacle with no real political affiliation but is always somehow in the news. I dont get it."
+
+The ansewr is people are attracted to badness. The whole society is flocking to shit.
+
+Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love. She reads history and other people's ideas and concludes: we are liing in failure to comprehending. We don't undrestand love and compassion. Malala recognizes that what we are teaching children and what we are favoring is shit. Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love. 
