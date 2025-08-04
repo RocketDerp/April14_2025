@@ -116,3 +116,19 @@ pairs with
 * “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... **No one knew what was happening to him, least of all of the Germans**, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945
 
 Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love and compassion.
+
+&nbsp;
+
+In USA 2025, you see praising of weapons, constant messages and communications that what we need is armed revolution. Why aren't the 2nd ammendment gun enthusiasts shooting all the people they disagre with commentary.
+
+All a failure to study and comprehending the field of comparative mythology. Thoughout human history, people have been willing to die for god, heaven, afterlife. Kill, murder, genocide, war for god.  Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love and compassion. It isn't about the afterlife.
+
+Men are not free from mental enslavement with or without a gun. Religon clergy exploits people. Compassion is the only death worth standing up for. Teaching and educating compassion, advancing the humanism.
+
+What does the transition to peace look like?
+
+https://old.reddit.com/r/worldnews/comments/1mh6b4y/suicide_crisis_in_south_korea_nearly_10_aged_65/
+
+No guns killed those people in South Korea. Careless machines did not kill them. People made itto age 65, they were not murdered and killed in war, unprevented disease, house fires from unsafe conditions.
+
+Malala Yousafzai does what Dr. Martin Luther King Jr did... she treats people like they do not understand or comprehend love and compassion.
