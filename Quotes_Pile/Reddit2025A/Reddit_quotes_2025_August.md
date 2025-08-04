@@ -1264,3 +1264,10 @@ The brainwashing is real."
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mho423/florida_reports_21_cases_of_ecoli_infections/n6ygd5d/
+
+sarhoshamiral 2008-05-27
+
+"So much things can be said but I just feel bad for the kids with idiot parents. Hopefully they grow up to be better but somehow I doubt it given our education system.
+
+We are 100% living through the prefix to Idiocracy movie right now especially after seeing the literal destruction Trump is doing to White House itself and stuff like this on top of it."
