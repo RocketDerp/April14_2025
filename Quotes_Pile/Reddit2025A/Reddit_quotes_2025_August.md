@@ -1178,3 +1178,8 @@ teamdiabetes11 2018-04-17
 
 * :::=== RoundSparrow_Commentary : USA social media society can't even repeat and repeat Stephen Colbert when a viris invades North America in January 2020... people had *years* of COVID-19 pandemic and even measles ongoing in Texas in 2025... to just repeat and repeat and repeat on social media this [The Late Show with Stephen Colbert link to YouTube from May 4, 2019 - HOW HARD IS IT TO BE SERIOUS, SOCIAL MEDIA USERS?](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) - is it not ENTERTAINING enough to share with your friends until every USA person gets on the same goddamn page? EXACTLY: "their brain trying to get them to comprehend the dire reality they are now in. Americans continue to be asleep at the wheel at best, and actively engaged in these acts, at worse." ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1mhk6aa/i_dont_get_it/
+
+* :::=== RoundSparrow_Commentary : Social media won't connect the dots to [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and Adam [Curtis 2014 BBC broadcast](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). Too egaged in the media machines total mockery, reaction-commenting to each tree, to call out that this is a NATO-wide forest since March 2013. Eating the Surkovian onions and commenting about how they taste, instead of calling out the forest of onions being fed over and over to the audience. ===:::
