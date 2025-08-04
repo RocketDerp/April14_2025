@@ -1234,3 +1234,13 @@ ChuckVader 2012-10-30
 
 * :::=== RoundSparrow_Commentary : "silver lining" is that the entire Internet can't come together and assert Malala and other intelligent leaders... and strokes the violence technology again. Faith in hate, faith in killing, fatih in war. Social media society can't even shut down entertainment and amusements and be serious to save lives, too engaged. **October 7, 2023** terrorism was exactly this "silver lining" thinking by terrorists. And Malala's book was published a decade earlier, they sure didn't promote it in Palestine for a decade every day. Because people think violence is the secret answer every time. The back-pocket reserve solution. Technology is eating us alive, we believe ficiton and flock to falsehoods. "it's becoming clear that laws don't matter." - it's become clear that people believe ChatGPT and trust Donald Trump, that **factual truth does not matter** to far too many people - and you don't fix truth and science comprehension with killings. You fix interpretation  with education and literacy on how to distinguish fiction from nonfiction. That's what Malala from Pakistan is saying about Terrorism, and that is what I am saying after being in USA social media since 1983. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mhoh9s/unearthed_footage_shows_trump_bragging_about/n6xq72b/
+
+staebles 2016-08-31
+
+"Wouldn't matter, the Access Hollywood tape was enough to end anyone's career and that was before he was elected the first time."
+
+* :::=== RoundSparrow_Commentary : If anything, the Access Hollywood 2016 information has added to the entertainment and surreal absurd, leading to more attraction for [media addiction society. Roger Waters (of Pink Floyd fame) in 1992 wrote an entire album based on Neil Postman's 1985 book](https://www.youtube.com/watch?v=zpotZUiKLbU)... and focused on "western women" as a lyric topic. ===:::
+
