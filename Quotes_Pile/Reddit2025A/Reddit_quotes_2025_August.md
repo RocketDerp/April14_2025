@@ -1078,3 +1078,14 @@ Rare-Forever2135 2023-09-07
 
 * :::=== RoundSparrow_Commentary : All the *so-called patriots* are on social media systems predictably mocking and insulting the Tony Clifton performance of the White House. Eating the Surkovian Onions since year 2013 and cheering on the surreal absurd content creation of Donald Trump.  Social media users can't even *shut down entertainment and sports*, and [be serious with nonfiction education](../../Grim_Blunt/Stop_All_Entertainment.md). Reddit society believes that the answer to Donald Trump and MAGA bullshit is *add more bullshit and fiction* to the fiction stew. Instead of calling out that the fiction itself is toxic and we need to rebuild the entire kitchen processes after having our media spiked by Russian information warfare. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6wtma9/
+
+Stennick 2014-08-19
+
+"And then what? Why would the Epstein files mean anything when a literal insurrection didn't mean anything? How are we ten years into this thing and people still think things like files, and evidence or anything else matters. He was impeached twice, he waged war on the United States, he's on record as sexually abusing people, he's on record saying he would have sex with his own daughter, he's on record as paying off a woman in hush money that he cheated on his wife with, he's mentioned wanting to ignore the constitution and be president for a third term, he's bankrupt four times, married several times, he's a new york billionaire who dodged the draft.
+
+NONE of that matters or has mattered at all. In fact all of that is known and he won the last election rather handedly. Releasing the Epstein files would do nothing. I'm not saying don't release them but to somehow think it would hurt him in the least is misplaced hope at best."
+
+* :::=== RoundSparrow_Commentary : Did the Taliban shooting a little girl on her school bus in Pakisan end the faith in Radio Mullah? Nope. You have to address this at a global scale and ask the whole world to rescue you using intellectual education and literacy reformation. This is a world-wide problem. All the things described in this Reddit comment show that people are attracted to *badness itself*, it is beyond time for remedial moality lessons of good from bad. Imported Levant Quran to Pakstain isn't working, imported Bible to USA isn't working... we need to catch up to 1950's Martin Luther King Jr and Malala from year 2009 onward, we need to be looking in the entire public library as Malala is saying. ===:::
