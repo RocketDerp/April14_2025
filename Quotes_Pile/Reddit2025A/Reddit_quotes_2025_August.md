@@ -953,3 +953,28 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mgset0/they_listen_to_propagand
 
 * :::=== RoundSparrow_Commentary : A complete failure of education and comprehension of media ecology. Neil Postman, 1985: "I do not mean to imply that television news **deliberately aims** to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result". Just look at all the horse-shit entertainment memes on every media platform and click bait content that gets retweeted, upvoted (Reddit) and shared? People do not grasp the forest for the trees, they do what has been going on in the Middle East / Levant:  Palestine Mosque venue with ***fiction*** Quran story MOCKS and insults the Israel Synagogue venue with ***fiction*** Torah story, and the inverse mocking too! Fiction vs. fiction vs fiction. Bluesky fiction mocking Twitter fiction year 2025! People are not serious nor attracted to nonfiction!  Malala is one of the very few standing up and recognizing not to take nonfiction comprehension *for granted*, our human brains throughout history in every geography have a TERRIBLE track record of favoring authentic science. That is why Comparative Mythology [is essential learning for ALL people](../Joseph_Campbell_Quotes.md)!"They listen to propaganda willingly" - the problem is COMPUSION, addiction, to fiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mgxc64/trump_is_now_being_accused_of_getting_epstein/n6s9btw/
+
+InfernalGout 2015-05-05
+
+"I work with a guy who's heavy into conspiracies. He gives credence to the earth being flat, the moon landing a fake, and Michelle Obama a man, among other equally outlandish claims, but Trump being responsible for Epstein's death and his name being all over the files is somehow a bridge too far 🤷‍♂️"
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mgxc64/trump_is_now_being_accused_of_getting_epstein/n6s89dw/
+
+ZestycloseLeg6614 **2025-08-01 (new account)**
+
+"Yeah I feel like I’m in bizzaro land, we knew this years ago…"
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mgxc64/trump_is_now_being_accused_of_getting_epstein/n6s06o9/
+
+"An inanimate carbon rod would make a better president"
+
+Bogaigh 2015-05-15
+
+* :::=== RoundSparrow_Commentary : But would not provide the Tony Clifton style inspiration for hate, mocking, dehumanization, entertainment, absurd surreal amusement. In other words, inanimate carbon rod doesn't proide ficton stories. Only factual existance. ===:::
