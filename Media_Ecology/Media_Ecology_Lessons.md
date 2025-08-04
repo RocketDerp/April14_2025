@@ -183,3 +183,14 @@ https://old.reddit.com/r/todayilearned/comments/1mhkcb3/til_that_in_1984_steven_
 
 Title: TIL that in 1984, Steven Tyler and Joe Perry of Aerosmith heard a song on the radio. Tyler liked it and told Perry that they should do a cover version. Perry turned to Tyler and said "That's us, fuckhead." Tyler's didn't remember writing or performing their '75 song "You See Me Crying"
 
+&nbsp;
+
+### popularity 
+
+Title: "The 70s Sci-Fi Movie That Created A Tiny Uprising"   
+https://www.youtube.com/watch?v=eIlYwDiw_kg
+
+Film about war against a species, network, visual story telling. War with nature. Networked human intelligence.   
+
+Is this subconsious authentic nightmare for you and others you know?
+
