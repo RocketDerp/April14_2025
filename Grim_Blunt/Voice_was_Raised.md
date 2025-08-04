@@ -165,5 +165,6 @@ We climed, as humanity in USA, to 1985. We reached the comprehension of Neil Pos
 
 There is a kind of sickness of sports mentality in Russia attacking Ukraine since February 2014 that still is ongoing in August 2025. There is a sickness of sports mentality that MAGA and Trump White House, Rupert Murdoch news network, in crushing human lives. "Winner takes all" mentality of sports.
 
-We can't have joy and fun in helping others? In asserting real world nonfiction learning? If the most fun possible is dominating and wrecking the lives of others (Putin role model, Donald Trump role model)
+We can't have joy and fun in helping others? In asserting real world nonfiction learning? If the most fun possible in ("maximum Putnization of the world") dominating and wrecking the lives of others (Putin role model, Donald Trump role model)?
 
+Malala and MLK Jr treat this all as a gross misunderstanding, a mass scale falure of comprehension of love and compassion. The rest of the clergy Heaven-wash the shit people are attracted to. Eden-washing, Heaven awaits, what shit.
