@@ -34,3 +34,38 @@ I keep searching and searching for social media users to say:
 
 But I do not witness it. People criticize my voice, wish me silent, wish me to shut up. But why are they not repeating Malala and Jen Senko? Why not dusting off Carl Sagan 1995 book every day and repeating that this is improtant to grasp and we need to change paths and direction? Why is Neil Postman not being repeated and repeated like people repeat information about sports teams and sprots games?
 
+&nbsp;
+
+&nbsp;
+
+# Abandonment of Truth, Giving up on Science  
+
+Malala in Swat Valley Pakistan came to world attention 2012 - and her blogs went back years before that, so you could read what she had to say even though she was in the hospital being treated for her gunshots.
+
+Malala's book was published October 8, 2013 - and it is full of words about science truth, education, learning, and interpretation of poetry of the Quran storytelling (which is imported from very far away, Mecca is across the world from Swat Valley, Pakistan - similar to how California USA is far away from Bible origins in the Levant).
+
+### Monday August 4, 2025 Trump fiction
+
+https://old.reddit.com/r/BlackPeopleTwitter/comments/1mhhtm0/trumps_plan_in_simple_words/
+
+Fiction outsells nonfiction. Style of presentation triumps over reality and truth and compassion. People thrilled at being able to manipulate via advertising, marketing, and systemic influence (government information systems of reporting jobs in this Reddit (and other media platform Twitter content) posting topic).
+
+&nbsp;
+
+### Treating this as a world-wide conservative international unreality
+
+The global war against reality, against science, against underrstanding - in favor of fiction. Conservative International 2013 movement.
+
+1. Menace of Unreality described to the world September 9, 2014 - more than a decade ago. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+2. Look back a year before that publication at December 20, 2013 publication about how this was an international movement. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+3. Evidence going back to 2014 Twitter messages seeding unreality, fiction, against science on medical diseases, measles and COVID-19: https://www.bbc.com/news/world-us-canada-45294192 -- validated by Johns Hipkins University and George Washington University. **Again, factual evidence gong back to year 2014**.
+
+See what we have been swiming in since 2013? We are swiming upstream and the billionaires of the world are dumping falsehoods and **exploiting fiction addictions** since year 2013.
+
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013
+
+So we have known that fiction Quran storytelling was being used this way in far-away place of Swat Valley, Pakistan. And we have known of the Fox News network problem. And here it was leveled up formally as a globla international network (see #2 on list above).
+
