@@ -1168,6 +1168,8 @@ LEDKleenex 2018-03-12
 
 &nbsp;
 
+### ⚡⚡⚡ ⚡⚡⚡ ↯↯↯ We Are Here
+
 https://old.reddit.com/r/politics/comments/1mhj7c5/trump_plan_to_end_free_elections_in_2026_and_2028/n6wxsxk/
 
 teamdiabetes11 2018-04-17
