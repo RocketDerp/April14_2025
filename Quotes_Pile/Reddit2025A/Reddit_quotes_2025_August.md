@@ -1182,7 +1182,7 @@ teamdiabetes11 2018-04-17
 
 https://old.reddit.com/r/ExplainTheJoke/comments/1mhk6aa/i_dont_get_it/
 
-* :::=== RoundSparrow_Commentary : Social media won't connect the dots to [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and Adam [Curtis 2014 BBC broadcast](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). Too egaged in the media machines total mockery, reaction-commenting to each tree, to call out that this is a NATO-wide forest since March 2013. Eating the Surkovian onions and commenting about how they taste, instead of calling out the forest of onions being fed over and over to the audience. ===:::
+* :::=== RoundSparrow_Commentary : Social media won't connect the dots to [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and Adam [Curtis 2014 BBC broadcast](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). Too egaged in the media machines total mockery, reaction-commenting to each tree, to call out that this is a NATO-wide forest since March 2013. Eating the Surkovian onions and commenting about how they taste, instead of calling out the forest of onions being fed over and over to the audience. **AN IMPORTANT POINT TO CONSIDER: Making this a constant repeating social media front-page trending hashtag topic GETS THE ENTIRE WORLD TO SEE THE PROBLEM, and not ONLY DOMESTIC MAGA. IT BECOMES A GLOBAL CRY FOR HELP!** ===:::
 
 &nbsp;
 
@@ -1203,3 +1203,11 @@ Timbalabim 2014-08-28
 "If you’re reading this and thinking, “that’s pretty much the stupidest thing ever,” that’s because it is, and this is the type of person far too many Americans thought would be good in the White House, after a term not so long ago that was just as stupid."
 
 * :::=== RoundSparrow_Commentary : Yes, Tony Clifton works on USA society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mhnwfi/this_is_happening_as_we_speak/n6xoru5/
+
+Hendrik_the_Third 2022-05-23
+
+"MAGA is not accepting a loss, they will cheat, wrestle or force themselves to a putin style "republic". It could get very messy."
