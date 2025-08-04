@@ -997,7 +997,7 @@ https://old.reddit.com/r/TikTokCringe/comments/1mhbgfk/new_footage_shows_donald_
 
 "New footage shows Donald Trump’s caddie dropping a golf ball near the hole during a round at Trump National Golf Club Bedminster"
 
-* :::=== RoundSparrow_Commentary : The clergy has Heaven-washed Donald Trump, our attraction to shit has been forgiven by Jesus in the sky, the clergy has washed away our sin of attraction to shit. It is us being the ball servants here, we are all cheating our future by not stopping entertianment, ball games, sports, video games, superficial clickbait news. [The answer is for all of us to [sotp the media frenzy, to be serious and stop enteratinment until we all can face and grasp Neil Postman's 1985 book](../../Grim_Blunt/Stop_All_Entertainment.md). ===:::
+* :::=== RoundSparrow_Commentary : The clergy has Heaven-washed Donald Trump, our attraction to shit has been forgiven by Jesus in the sky, the clergy has washed away our sin of attraction to shit. It is us being the ball servants here, we are all cheating our future by not stopping entertianment, ball games, sports, video games, superficial clickbait news mockery. The answer is for all of us to [stop the media frenzy, to be serious and stop enteratinment until we all can face and grasp Neil Postman's 1985 book](../../Grim_Blunt/Stop_All_Entertainment.md). ===:::
 
 &nbsp;
 
