@@ -1183,3 +1183,14 @@ teamdiabetes11 2018-04-17
 https://old.reddit.com/r/ExplainTheJoke/comments/1mhk6aa/i_dont_get_it/
 
 * :::=== RoundSparrow_Commentary : Social media won't connect the dots to [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and Adam [Curtis 2014 BBC broadcast](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). Too egaged in the media machines total mockery, reaction-commenting to each tree, to call out that this is a NATO-wide forest since March 2013. Eating the Surkovian onions and commenting about how they taste, instead of calling out the forest of onions being fed over and over to the audience. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1mhk6aa/i_dont_get_it/n6wrzsv/
+
+bravesthrowaway67 2019-08-07
+
+"He claims the Russia investigation proves there was no collusion and exonerates him completely, but also that investigation was a corrupt witch hunt meant to prevent him from becoming president, despite becoming president twice.
+
+The man has zero logical consistency."
+
