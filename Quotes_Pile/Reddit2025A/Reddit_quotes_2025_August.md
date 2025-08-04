@@ -1244,3 +1244,11 @@ staebles 2016-08-31
 
 * :::=== RoundSparrow_Commentary : If anything, the Access Hollywood 2016 information has added to the entertainment and surreal absurd, leading to more attraction for [media addiction society. Roger Waters (of Pink Floyd fame) in 1992 wrote an entire album based on Neil Postman's 1985 book](https://www.youtube.com/watch?v=zpotZUiKLbU)... and focused on "western women" as a lyric topic. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mhoh9s/unearthed_footage_shows_trump_bragging_about/n6xspdb/
+
+_Kzero_ 2013-08-28
+
+"Doesn't matter. Nothing will be done, and MAGA will still praise him. This is a nightmare world we live in now."
+
