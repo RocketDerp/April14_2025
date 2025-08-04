@@ -170,3 +170,16 @@ Bing AI output on [HCE Earwicker John 1:1 topic Sunday, August 3, 2025](../Quote
 Rituals of a live music performance discussion:   
 
 https://old.reddit.com/r/meirl/comments/1mhdczv/meirl/
+
+&nbsp;
+
+### Recorded media, brains unprepared
+
+Our minds and brains did not evolve on Earth prepared for recorded photographs, video, audio.
+
+Discussion:
+
+https://old.reddit.com/r/todayilearned/comments/1mhkcb3/til_that_in_1984_steven_tyler_and_joe_perry_of/
+
+Title: TIL that in 1984, Steven Tyler and Joe Perry of Aerosmith heard a song on the radio. Tyler liked it and told Perry that they should do a cover version. Perry turned to Tyler and said "That's us, fuckhead." Tyler's didn't remember writing or performing their '75 song "You See Me Crying"
+
