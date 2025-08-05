@@ -26,3 +26,9 @@ https://old.reddit.com/r/politics/comments/1mgnumk/the_us_government_has_declare
 
 https://old.reddit.com/r/WorkReform/comments/1mia7gv/stop_looking_left_and_right_look_up/
 
+&nbsp;
+
+"Premium isn't always better" metaphors   
+Media ecology ideas?   
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1mia5aj/its_just_going_to_ask_you_some_questions_on_the/
+
