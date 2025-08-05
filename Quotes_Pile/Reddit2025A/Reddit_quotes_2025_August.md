@@ -1387,3 +1387,14 @@ sugarlessdeathbear 2015-04-28
 
 * :::=== RoundSparrow_Commentary : An alterate ***fiction reality***, and [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) described it out over a decade ago. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhi50g/the_medias_urge_to_be_fair_to_trump_is_killing/n6zfxl6/
+
+TheRyanFlaherty 2016-04-05
+
+"Since they realized that’s not what their viewership wants, and viewership equals money, which is now the goal (in my instances). It’s no longer journalism.
+
+It’s awful, but it reflects the average American as much as nothing else. It wouldn’t be as much as an issue of people had critical thinking skills….this wouldn’t be the product provided if people wanted to read more than a headline or blurb and engage in a discourse beyond the surface level that potentially challenges their viewpoints. (Fwiw the right may be most guilty, but I’ve noticed this sub devolve into this description as well)"
+
+* :::=== RoundSparrow_Commentary : Obviously I've mentioned Neil Postman 1985, Andrew Postman February 2017 seveal times this past two months. Add another data point: **"a lot of what people want isn't news, and we're talking about news sources giving up on their core mission - informing us. Journalism is straying into entertainment" - Drew Curtis Fark .com website - May 2007** - which is only weeks before the introduction of the Apple iPhone to society (which accelerated Neil Postman's focus, making small-format meme content core). ===:::
