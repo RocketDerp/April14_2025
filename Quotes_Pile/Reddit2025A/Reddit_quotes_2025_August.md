@@ -1614,3 +1614,85 @@ https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_
 TolBrandir 2023-03-14
 
 "I had a very hard time watching that movie. It was like watching Handmaid's Tale. I just had to stop watching because it was way, way too much like reality."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n72gk8h/
+
+TheOgrrr 2020-12-10
+
+"It's like the movie "Idiocracy". Everyone laughed "LOL, like that will ever happen!" No fucking shit Sherlock, Not even two decades later and here we fucking are."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n72i00m/
+
+IndependentEgg8370 2023-11-06
+
+"Dude NZ response was insane. They actually had cases where they tracked shit to the exact points of physical contact down to like elevator buttons along the infected persons route in the country to make sure it was sanitized lol. I was reading about it and found it wild in response to the U.S. response. I mean someone I know mocked me in a church when I wore masks by fucking ripping up a ziplock sandwich back and faux making a mask during a meeting."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n722yxe/
+
+robot_pirate 2010-08-02
+
+"Who would have thought we'd need to codify anti-vandalism measures for the federal government? Between this and USPS destroying newly purchased mail sorters in the first Trump term, it really makes you wonder who this administration serves."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n7282hp/
+
+DigNitty 2012-10-12
+
+"I honestly couldn’t come up with more creative comprehensive ways of dismantling America than this admin has.
+
+The security nets, the public trust, the legal enforcement, the world power,
+
+All just dissolving"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n728mus/
+
+markth_wi 2011-01-25
+
+"Not anyone in the United States, except a few hyper-wealthy guys with fascist ambition. Otherwise one could argue this is the single most amazing act of inter-state espionage and propaganda success in human history, a President of the United States taking slave-instructions from Russian/Israeli/Chinese Intelligence Services.
+
+In my opinion, barring some other lurid example I'm not aware of, nothing else in human history has come close to this sort of treason."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n72m7qm/
+
+fedscientist 2025-01-31 (joined this year)
+
+"They literally just make shit up and I’m so tired of it. There’s no good counter to the constant stream of bullshit"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n729odb/
+
+asp821 2014-09-03
+
+"My girlfriend’s mom is MAGA and - this is not an exaggeration - didn’t know what photosynthesis was or know that plants/trees take in CO2 and clean the air.
+
+She literally thought my girlfriend was lying to her and making it up and it took my girlfriend sending her an episode of the Magic Schoolbus to convince her that it was real.
+
+We’re so fucked."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n722hy7/
+
+Alfred_The_Sartan 2021-03-01
+
+"Goddamn. Every day just gets worse and worse."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n724me7/
+
+Weekly_Put_7591 2024-08-06
+
+"republicans and religious people prefer living in their own alternate reality where they can make believe whatever they want"
