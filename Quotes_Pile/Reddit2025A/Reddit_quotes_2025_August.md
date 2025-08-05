@@ -1479,3 +1479,12 @@ C4-BlueCat 2020-10-07
 
 "I’ve heard about it a number of times, but most posts on reddit disappear due to people not staying on topic"
 
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mi62r9/people_in_nebraska_shout_vote_him_out_at_gop_rep/n720cjo/
+
+YourUncleGreg 2013-06-24
+
+"This thread is full of iterations on this same comment. He's in Lincoln Nebraska, an overwhelmingly democratic college town. A large portion of the attendees voted Democrat and always will. They're there as a form of protest and to voice their opposition. The questions asked were from mostly Democrats asking him why he's a piece of shit."
+
+* :::=== RoundSparrow_Commentary : It is a simulacra of resistance. The opposition in USA isn't directly managed like Surkov did in Russia in 2011, it's conditioned. Russia reveals this (condition the crowd) in this quote: ["Someone sold the thought that Western media, which specifically have to align their interests with their audience, won't be able to ignore saturated pro-Russian campaigns and will have to change the tone of their Russia coverage to placate their angry readers."](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) - overall, the main tactic is constant context changes. Shifting topic to topic, inducing "Epstein List" into every subject July 2025 / August 2025. Why isn't there a social movement with a named list? Why aren't people saying: I want everything Citizen XYZ is saying! Citizen XYZ's list form March 2025 is nearly identical to how I recognize this Trump and MAGA crisis. ["But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." **A ceaseless shape-shifting that is unstoppable because it is undefinable**."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
