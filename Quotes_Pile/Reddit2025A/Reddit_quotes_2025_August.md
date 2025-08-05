@@ -1362,3 +1362,28 @@ https://old.reddit.com/r/politics/comments/1mi6t4q/democrats_have_found_their_me
 CAM6913 2019-07-12
 
 "It seems like a lot of comments show the tunnel vision people have they are focused on the “Epstein files “ and that is either bots or people that just can’t see what is really going on. First who started the “release the Epstein files”craze after six months into his term ? The trump administration did! They are using this to distract voters from all his other policies and agenda- telling states to redistrict to give the republicans an unfair advantage in all elections, tariffs are taxes that he placed on all imported goods that most don’t take affect till after the midterms, ice rounding up people without due process, taking away the first amendment, violating laws, the constitution and the list goes on. Including destroying education, healthcare, food security and safety, removing regulations that help people to benefit billionaires, the authoritarian totalitarian dictatorship that America has become is the fault of the voters that stayed home and didn’t vote for Harris because she’s a woman and or because she’s not white or the people that voted for him instead because he’s a white male. Democrats better figure out they need people running that will be able to hold their own against him and push the message the voters want to hear then follow through with it, and if it’s a woman it’s sadly not going to happen because some voters think women can do the job. If democrats don’t redistrict now the elections will be rigged in favor of the republicans in the midterms they will never have a chance ever again and Trump will have congress pass a law letting him run again and again and its game over for America"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mi6t4q/democrats_have_found_their_messageand_trump_is/n71lvgj/
+
+redisburning 2010-06-20
+
+"This article is about the economy but most of the comments are about Epstein.
+
+I don't know if this a case of Blue MAGA or bots or what, but it's really strange. Especially because the price of necessities is in fact not only a winning strategy but the winning strategy. The Epstein thing is extremely damaging for Trump but by the midterms it will have likely resolved itself one way or another.
+
+Costs will not. In fact, they will get worse. The fundamental failure of the Biden administration, who blamed labor power for inflation rather than record profits, and the Harris campaign to break from that, is what enabled the currently unfolding calamity. This should be the only strategy for the next year. Fuck throwing minorities and queer people under the bus. Hammer cost of living. Offer something real to address it too.
+
+Mamdani and Harris are doing more than negative partisanship, Mamdani in particular is saying that he has an offer of policy changes to address cost of living and income inequality."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhi50g/the_medias_urge_to_be_fair_to_trump_is_killing/n6xyb8d/
+
+sugarlessdeathbear 2015-04-28
+
+"It's not even a double standard, it's just a straight up alternate reality."
+
+* :::=== RoundSparrow_Commentary : An alterate ***fiction reality***, and [Peter Pomerantsev 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) described it out over a decade ago. ===:::
+
