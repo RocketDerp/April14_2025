@@ -1279,3 +1279,13 @@ https://old.reddit.com/r/PoliticalHumor/comments/1mhlz3t/the_real_reason_why_mag
 Mexicali76 2019-03-27
 
 "I’ll never forgive the idiots that thought a second go-around with this piece of trash was a good idea. Now he may never leave. I am so fucking tired of this guy dominating the news and lowering the bar every day for the last 10 years. Get out of my face."
+
+&nbsp;
+
+https://old.reddit.com/r/hockey/comments/1mhqqzl/gary_bettman_wayne_gretzky_and_matthew_tkachuk_to/n6ycmai/
+
+bigladnang 2016-04-30
+
+"Back in the early 2010’s I had badly misjudged the direction the world was going and I was super shocked at how many people fell into the alt right pipeline, but now I don’t even flinch when another one joins."
+
+* :::=== RoundSparrow_Commentary : The Internet Research Agency went online in year 2013, pumping manipulaiton into the world wide web for a full 6 months before [Conservative International alt-right pipeline was formally announced in December 2013](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/), then in February 2014 the Ukraine war started (and is still ongoing August 2025). ===:::
