@@ -285,7 +285,7 @@ I hope Milk becomes $10 a gallon and coffee becomes a luxury item you have to ha
 
 Will any of you say Thank You once?"
 
-Social media society has endless faith that more sacrasm, more mockery, will solve the Total Mockery the Kremlin and White House have created using Surkov govenring technique ssince March 2013. Feedback loop of Americans hate upon Americans, MAGA hates upon liberals, now everyone hates upon MAGA, and not a soul can describe Russian informaiton warfare or quote a book or name an author on the subject. These are August 2025 social media messages cheering on the destruction of the USA.
+Social media society has endless faith that more sarcasm, more mockery, will solve the Total Mockery the Kremlin and White House have created using Surkov governing technique since March 2013. Feedback loop of Americans hate upon Americans, MAGA hates upon liberals, now everyone hates upon MAGA, and not a soul can describe Russian information warfare or quote a book or name an author on the subject. These are August 2025 social media messages cheering on the destruction of the USA.
 
 &nbsp;
 
