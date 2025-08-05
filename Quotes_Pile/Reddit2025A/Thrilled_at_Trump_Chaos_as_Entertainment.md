@@ -268,3 +268,22 @@ https://old.reddit.com/r/news/comments/1mho423/florida_reports_21_cases_of_ecoli
 rockmasterflex 2012-09-05
 
 "Only 21? My death pool has at least 200 confirmed cases by November. Cmon idiots in Florida buy more raw milk!"
+
+&nbsp;
+
+# Tuesday, August 5, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_dry/n71fg5i/
+
+CrotasScrota84 2024-02-28
+
+"I love it I love all of it.
+
+I hope Milk becomes $10 a gallon and coffee becomes a luxury item you have to have a credit score to get.
+
+Will any of you say Thank You once?"
+
+Social media endless faith that mroe sacrasm, more mockery, will solve the Total Mockery the Kremlin and White House have created using Surkov govenring technique ssince March 2013. Feedback loop of Americans hate upon Americans, MAGA hates upon liberals, now everyone hates upon MAGA, and not a soul can describe Russian informaiton warfare or quote a book or name an author on the subject. These are August 2025 social media messages cheering on the destruction of the USA.
+
