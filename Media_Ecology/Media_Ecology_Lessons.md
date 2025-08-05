@@ -335,3 +335,9 @@ https://www.youtube.com/watch?v=ydIFxIdaz8Y
 Turn us into rivals, Marshall McLuhan (who died in 1980) said: “The more you make people alike, the more competition you have. Competition is based on the principle of absolute conformity." ... anyone able to date that quote?
 
 
+### Star Wars 1977 BBC London
+
+How did London view the arrival of Star Wars in 1977?
+
+https://www.youtube.com/watch?v=fSKJW1wazQ8
+
