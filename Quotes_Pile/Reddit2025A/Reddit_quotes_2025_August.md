@@ -1311,3 +1311,10 @@ TheTurtleBear 2013-08-08
 
 Trump & Republicans are to blame for the evil they continue to do of course, but I will always place a significant amount of blame on Biden being so blinded by his borderline fetish for bipartisanship, preventing him from directing the DOJ to make putting Trump behind bars the #1 priority. The man led a literal coup on the Capitol, that was livestreamed into every Americans house, and Biden just let him get away with it because he was so terrified of being seen as partisan"
 
+&nbsp;
+
+https://old.reddit.com/r/SubredditDrama/comments/1mhu6zu/he_could_literally_rpe_a_child_on_fox_news_look/
+
+"He could literally rape a child on Fox News, look to the camera and say "Are you enjoying this America?" and his cult would still find an excuse for him." Trumpers in r/TikTokCringe get triggered over a clip of Trump alluding to hiring young women too entrap them
+
+* :::=== RoundSparrow_Commentary :  Subreddit vs. Subreddit, filter bubble vs. filter bubble, Bluesky vs. Twitter, Fox News vs. MSNBC, everything is media ecology. Russia won the war against reality, Surkov won. ===:::
