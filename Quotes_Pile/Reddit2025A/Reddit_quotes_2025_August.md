@@ -1783,4 +1783,56 @@ Alternative_Cause186 2024-11-12 (joined at election)
 
 "I swear to god I don’t think people that worship trump realize you’re NOT supposed to hear from/about the president every day. I honestly think they think he’s getting things done because he’s always in the news."
 
-* :::=== RoundSparrow_Commentary : A god that gives constant fresh media messages is the ultimate media outlet. All the media outlets of the world, all the social media platforms, all the TV news networks, generate reactions to the worship center. Religion was alawys fiction storytelling, and Trump creates fiction content for audiences / congregation. Inlcuding those who hate and mock and insult Trump, it is constant Tony Clifton engagement of the audience. ===:::
+* :::=== RoundSparrow_Commentary : A god that gives constant fresh media messages is the ultimate media outlet. All the media outlets of the world, all the social media platforms, all the TV news networks, generate reactions to the worship center. Religion was always fiction storytelling, and Trump creates fiction content for audiences / congregation. Including those who hate and mock and insult Trump, it is constant Tony Clifton engagement of the audience. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1micb5j/trump_yells_from_white_house_roof_in_bizarre/n730gs7/
+
+ChimPhun 2021-10-18
+
+"Sometimes I wonder if it's some form of entertainment addiction."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1micb5j/trump_yells_from_white_house_roof_in_bizarre/n72of9y/
+
+NowGoodbyeForever 2015-01-07
+
+"Cannot doubt something harder if I tried. This is a man who is known, habitually, as someone who will refuse to pay his bills and will wriggle his way out of any real fiscal responsibility. The most bribe-able man on Earth. So he's either just straight-up lying about paying for things (incredibly likely) or he's run into a situation where his people have told him that he truly cannot use public funds for this project, which means it's probably *super DUPER* illegal on top of everything else."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mibufl/trump_has_climbed_on_the_roof_of_the_white_house/n72ff4x/
+
+LeanOnMe4816 **2025-07-30 (new account)**
+
+"We are deeply entrenched into the theater of the absurd."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mibufl/trump_has_climbed_on_the_roof_of_the_white_house/n72gz5t/
+
+MedChemist464 2015-08-17
+
+"Vance is far more dangerous - Trump is, at least, brain-addled and childish enough to sabotage himself, Vance would streamline everything and have us living in the United States of Thiel before my kids hit high school."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mibufl/trump_has_climbed_on_the_roof_of_the_white_house/n72kedw/
+
+No-Cantaloupe-6535 2021-05-02
+
+"Right. I live in rural America, my in laws literally see him as a God, he's perfect, he says it so it's true. Vance is a pussy grifter he's gonna get in and get out."
+
+* :::=== RoundSparrow_Commentary : This is why Comparative Mythology study is no longer optional in USA society, globally really. [George Lucas at the peak of mastering fiction popularity - wanted to educate the fiction-consumers audience of Star Wars and Hollywood in 1986 and 1987](../Joseph_Campbell_Metaphors.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mibufl/trump_has_climbed_on_the_roof_of_the_white_house/n72fgh0/
+
+808jfizzy 2019-01-10
+
+"At this point I'm waiting for Aston Kutcher to run out and tell the planet we got Punk'd. This shit doesn't even seem real anymore it's so crazy."
+
+* :::=== RoundSparrow_Commentary : ["This Is Not Propaganda: Adventures in the War Against Reality is a **2019** book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries."](https://en.wikipedia.org/wiki/This_Is_Not_Propaganda) **year 2019**. ===:::
