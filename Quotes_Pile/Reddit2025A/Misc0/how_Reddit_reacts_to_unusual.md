@@ -47,3 +47,13 @@ https://old.reddit.com/r/WhatShouldIDo/comments/1mhtj1u/final_update_my_boyfrien
 
 "I agree, these people are pretty disgusting. It takes less effort to say nothing if you're skeptical than to prove you're a dumb ass."
 
+&nbsp;
+
+&nbsp;
+
+hours later...
+
+<img width="1852" height="1188" alt="image" src="https://github.com/user-attachments/assets/759b6482-1d3f-444d-a337-e0d25448aa15" />
+
+https://old.reddit.com/user/Adminjasmin
+
