@@ -32,3 +32,15 @@ https://old.reddit.com/r/WorkReform/comments/1mia7gv/stop_looking_left_and_right
 Media ecology ideas?   
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1mia5aj/its_just_going_to_ask_you_some_questions_on_the/
 
+&nbsp;
+
+Fran discusses YouTube  
+About a video with electronics content going viral   
+https://www.youtube.com/watch?v=7ShTuUYTYLs
+
+&nbsp;
+
+Analyzing lyrics that change meaning of a song if you listen deeper (Finnegans Wake theme of Romans 11:32 in Bible listening).
+
+https://www.youtube.com/watch?v=hn4HHF1w6-E
+
