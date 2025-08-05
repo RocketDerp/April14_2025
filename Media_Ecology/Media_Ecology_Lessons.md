@@ -325,3 +325,13 @@ JoyceGeek Thunderword 1 fromm Finnegans Wake
 https://www.youtube.com/watch?v=TV3vT5nW_I4
 
 
+&nbsp;
+
+### Fake stories are more surprising 
+
+Video title: Nicholas Carr: Why Social Media Has Made Us So Anti-Social    
+https://www.youtube.com/watch?v=ydIFxIdaz8Y
+
+Turn us into rivals, Marshall McLuhan (who died in 1980) said: “The more you make people alike, the more competition you have. Competition is based on the principle of absolute conformity." ... anyone able to date that quote?
+
+
