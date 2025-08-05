@@ -1598,3 +1598,19 @@ kahunah00 2020-01-08
 I dont understand in any good conscious how we can keep making terrible decisions. Even if somehow all available data is completely misinterpreted and were absolutely wrong about climate change, doesnt it still make sense to keep the satellites up there and monitor for more data, just on the offchance the current climate change calculus is right? Literally nothing about the US's domestic, foreign, and global policies makes any kind of sense anymore. And I'd argue actively suppressing this data is a hostile move for global interests than anything else.
 
 I wonder if a joint mission from nations around the world might be able to purchase the satellite off the US and a country with spare faring capabilities could service and operate it outside any kind of US jurisdiction? I would imagine the answer is no with any kind of satellite technology being encompassed under an umbrella of national security."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n72cdsr/
+
+kahunah00 2020-01-08
+
+"Its been REALLY bad for awhile, youre just not really informed on the matter if you believe its only recently gotten worse"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n72ckrg/
+
+TolBrandir 2023-03-14
+
+"I had a very hard time watching that movie. It was like watching Handmaid's Tale. I just had to stop watching because it was way, way too much like reality."
