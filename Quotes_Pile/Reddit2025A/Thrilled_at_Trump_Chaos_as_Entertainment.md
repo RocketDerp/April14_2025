@@ -298,4 +298,10 @@ Coastalspin3391 **2025-07-17 (new account)**
 
 Egoism / egomania that it is hillarious and funny that NASA is wrecked and people don't understand what Russian information warfare since March 2013 has done to the naton self-awareness and ability to comprehend reality. Social media laugh track of Twitter-length LOL comments to mind-fuck the Reddit community furhter.
 
+&nbsp;
 
+https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bitter/n72utgd/
+
+RachelLovesN 2015-11-06
+
+"haha even his fake news outlet is fake 😂"
