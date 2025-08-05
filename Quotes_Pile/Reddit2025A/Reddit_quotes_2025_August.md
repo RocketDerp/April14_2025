@@ -1556,3 +1556,16 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1micb17/trump_is_walking_ar
 Morepastor 2022-09-16
 
 "If Biden took a wide left turn it was breaking news he had dementia. The Diddler on the roof is called an impromptu press conference. The media are also fascist."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_dry/n71j1hz/
+
+RatedRSuperstar81 2021-05-14
+
+"Sadly, we will NEVER recover from this. There are going to be more bankruptcies, suicides, looting, mass hysteria, than can be managed. It's literally the opening sequence of a bad disaster movie.
+
+Our ONLY hope is WW III with Europe coming over and liberating us and dividing us up into a new government.
+
+And the people voted for every bit of it and they love it. 🤷‍♂️"
+
