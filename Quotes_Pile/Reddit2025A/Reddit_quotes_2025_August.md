@@ -1398,3 +1398,84 @@ TheRyanFlaherty 2016-04-05
 It’s awful, but it reflects the average American as much as nothing else. It wouldn’t be as much as an issue of people had critical thinking skills….this wouldn’t be the product provided if people wanted to read more than a headline or blurb and engage in a discourse beyond the surface level that potentially challenges their viewpoints. (Fwiw the right may be most guilty, but I’ve noticed this sub devolve into this description as well)"
 
 * :::=== RoundSparrow_Commentary : Obviously I've mentioned Neil Postman 1985, Andrew Postman February 2017 seveal times this past two months. Add another data point: **"a lot of what people want isn't news, and we're talking about news sources giving up on their core mission - informing us. Journalism is straying into entertainment" - Drew Curtis Fark .com website - May 2007** - which is only weeks before the introduction of the Apple iPhone to society (which accelerated Neil Postman's focus, making small-format meme content core). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhjcoh/moscow_urges_everyone_including_trump_to_be_very/n6ydkcm/
+
+lilB0bbyTables 2011-06-22
+
+"We could all work together towards a goal. The problem is … define a common goal that everyone agrees on? Add ego to the mix and now you have a bunch of people who feel the need to be the leader and visionary to define and orchestrate how that gets done. Add greed and you have a bunch of people who want to exploit that process for their own gain, but they are willing to slice that pie up to gain the support and backing from some of the others. Add religion to the mix and now you have conflict due to competing nonsensical “divine order” incompatibilities between those groups."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhjcoh/moscow_urges_everyone_including_trump_to_be_very/n6xr8za/
+
+Daneyn 2011-11-22
+
+"Counter point... the last.... I dunno... decade...has all been pretty stupid. it all started with some brainless individual running for office and winning somehow while pulling the blankets over everyone dumb enough to believe him."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhjcoh/moscow_urges_everyone_including_trump_to_be_very/n6xvgdj/
+
+Technoist 2013-11-10
+
+"LOOOL says the jerks who threaten to nuke London, Paris and Berlin EVERY NIGHT on state TV. What a bunch of pathetic clowns.
+
+I can recommend everyone to watch the YouTube channel "Russian Media Monitor". They show what the Russians are fed with every day. It's sickening to see, but I still recommend everyone to see what their level is."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhjcoh/moscow_urges_everyone_including_trump_to_be_very/n6yoe9o/
+
+Necessary-Drag-8000 2021-08-14
+
+"Hahaha isn't it funny how two of the most mentally ill people in teh world are in control of the world's nuclear weapons? I swear we are living in a simulation by some hyperdimensional 14 year old alien kid"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhv7wq/sudan_thousands_resort_to_eating_animal_feed_to/n6zkg7m/
+
+kajiger **2025-06-13 (new account)**
+
+"It’s incredible how most people don’t realize all the things and at the same time one thing in particular is shoved down our throats all day every day on every channel as if it’s the only thing happening.
+
+I guess there must be someone paying to make this happen. The question is who, why, and why don’t people see through it."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhv7wq/sudan_thousands_resort_to_eating_animal_feed_to/n6zeq4c/
+
+heavy_jowles **2025-04-19 (recent account)**
+
+"The Israeli Palestinian conflict has been going on for as long as I’ve been alive and I’m middle aged. It’s been going on for as long as the oldest people walking earth today. Claiming it’s because people assume conflict is the norm in Africa is a terrible excuse.
+
+The conflict in the Palestinian region has been going on longer than the Sudanese conflict."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhv7wq/sudan_thousands_resort_to_eating_animal_feed_to/n6zwsdt/
+
+AViciousGrape 2016-05-30
+
+"We all know why.. if white people are involved, redditors get angry. If its brown on brown or black on black, they could care less. It's the truth."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhv7wq/sudan_thousands_resort_to_eating_animal_feed_to/n6zp1xw/
+
+the_nebulae 2016-07-24
+
+"I guess no one routinely visits the Wikipedia front page. The “In the news” frame at the top right has been tracking three “Ongoing” events for some time: the invasion of Ukraine, the war in Gaza, and the Sudanese civil war.
+
+I see this daily."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mhv7wq/sudan_thousands_resort_to_eating_animal_feed_to/n70cn4a/
+
+C4-BlueCat 2020-10-07
+
+"I’ve heard about it a number of times, but most posts on reddit disappear due to people not staying on topic"
+
