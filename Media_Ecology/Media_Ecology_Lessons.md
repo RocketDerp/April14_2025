@@ -301,3 +301,15 @@ to reply now we still call this a debate uh but it's a redefinition of of that t
 5:53
 
 the bad part uh I've done that in most of my books but I owe I I admit and uh happily at the beginning of the book that anyone who um uh looks at technology as an either or development
+
+&nbsp;
+
+&nbsp;
+
+### 
+
+https://www.youtube.com/watch?v=lt_NwowMTcg
+
+"Nicholas Carr: The Shallows - What the Internet Is Doing to Our Brains"   
+"Technology commentator Nicholas Carr discusses his book, "The Shallows: What the Internet Is Doing to Our Brains," presented by Harvard Book Store. Is use of the Internet causing us to lose the ability to concentrate and think deeply? Drawing from philosophy, neuroscience, and history, "The Shallows" explores how the Internet may be rerouting neural pathways."
+
