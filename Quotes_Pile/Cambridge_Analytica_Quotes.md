@@ -61,3 +61,12 @@ https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 Как сделать так, чтобы даже люди не говорящие на языке друг друга, могли бы обмениваться информацией быстрее всех, понимать друг друга с полуслова, чувствовать тренды и влиять на их развитие? 
 
 На программирование такой системы ушёл примерно год. Ещё год ушёл на тесты и доработку. В итоге. За год с небольшим, мы установили "Медиафильтр" всем, кого успели подтянуть в наш заговор и 18 августа 2015 года открыли портал Трамп-2016.
+
+&nbsp;
+
+&nbsp;
+
+## Engineered Choas
+
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mind\f*ck: Cambridge Analytica and the Plot to Break America
