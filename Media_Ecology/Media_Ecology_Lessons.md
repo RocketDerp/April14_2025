@@ -313,6 +313,15 @@ https://www.youtube.com/watch?v=lt_NwowMTcg
 "Nicholas Carr: The Shallows - What the Internet Is Doing to Our Brains"   
 "Technology commentator Nicholas Carr discusses his book, "The Shallows: What the Internet Is Doing to Our Brains," presented by Harvard Book Store. Is use of the Internet causing us to lose the ability to concentrate and think deeply? Drawing from philosophy, neuroscience, and history, "The Shallows" explores how the Internet may be rerouting neural pathways."
 
-https://youtu.be/lt_NwowMTcg?t=425
+***Listen to this for 2 minutes at time index 424 seconds***
+
+https://youtu.be/lt_NwowMTcg?t=424
 
 1000 years ago, the word space, no spaces between words. Oral, and Finnegans Wake page 3, Thunderwords.
+
+***Now listen to this!***
+
+JoyceGeek Thunderword 1 fromm Finnegans Wake    
+https://www.youtube.com/watch?v=TV3vT5nW_I4
+
+
