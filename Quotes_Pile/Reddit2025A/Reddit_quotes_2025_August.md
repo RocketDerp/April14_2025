@@ -1942,3 +1942,13 @@ apothekari 2010-08-28
 "I don't get at all how this fucker still stands...Gary Hart had his career utterly destroyed by an affair, Howard Dean wiped out of his Presidential run by a fucking hurrah. Al Franken taken out by Goofy "honk honk" hands...and yet this mother fucker just rolls on rapin and raging and shitting on every sacred thing. It just sucks beyond all fucking reason this asshole is somehow still here and allowed to be a goddamn leader."
 
 * :::=== RoundSparrow_Commentary : The answer is direct manipulaiton of the population, Russia won an inforamtion war against everyone. Recency bias abounds, mass psychosis abounds. People are barking at trees day after day without seeing the NATO forest since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1miaa9s/i_feel_so_owned/n72wucg/
+
+klepto_tony **2025-07-30 (new account)**
+
+"America quite possibly made the most fatal mistake in human history. By giving control of an army and 10,000 nukes to a certified idiot. And we already had freedom and democracy. And we deliberately chose fascism. it feels like we committed a national suicide"
+
+* :::=== RoundSparrow_Commentary : Accurate summary, but it isn't suicide, it is a complete failure to learn what  [Peter Pomerantsev has been publishing since year 2014 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and recognize that USA is defeated in an information war. ===:::
