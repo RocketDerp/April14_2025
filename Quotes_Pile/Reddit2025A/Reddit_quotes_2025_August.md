@@ -1520,3 +1520,13 @@ https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_
 SARguy123 2024-05-03
 
 "And they are trying as hard as possible to kill education. All of this is interventional chaos designed to boost the oligarchy. The point that we can’t plan and therefore can’t budget is a really good one."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_dry/n725r5i/
+
+"They didn’t want this, they wanted someone to tell them they are better than everyone else and that it’s okay for them to be horrible dogshit humans. MAGA is basically a group of people paying a prostitute to say they are a good boy white they masturbate and the prostitute steals the cash from their wallet on the nightstand. They are eagerly sacrificing their whole lives and stability for a quick hit of narcissistic goonery. It’s addict behavior."
+
+ChicagoAuPair 2023-11-13
+
+* :::=== RoundSparrow_Commentary : And the addiction is to Fox News...why aren't people on social media in USA making Jen Senko a household name since March 2016, her film and book? The addiction is to Reality TV Fox News, Reality Twitter Donald Trump superstar. [Everything is media ecology](../../Media_Ecology/Everything_is_ME.md). People who consume the same media get the same alternate reality (fiction) interpretation. We need to *rescue* MAGA and the White House from Surkovian information warfare. Russia won, Putin won, Surko won since March 2013. People are *addicted to fiction*. Living in mythological thinking. ===:::
