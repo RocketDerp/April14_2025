@@ -1318,3 +1318,15 @@ https://old.reddit.com/r/SubredditDrama/comments/1mhu6zu/he_could_literally_rpe_
 "He could literally rape a child on Fox News, look to the camera and say "Are you enjoying this America?" and his cult would still find an excuse for him." Trumpers in r/TikTokCringe get triggered over a clip of Trump alluding to hiring young women too entrap them
 
 * :::=== RoundSparrow_Commentary :  Subreddit vs. Subreddit, filter bubble vs. filter bubble, Bluesky vs. Twitter, Fox News vs. MSNBC, fiction vs. fiction, simualcra vs. simulacra, monomyth story vs. monomyth story (like fiction religions in Middle East / Levant)... everything is media ecology. Russia won the war against reality, Surkov won. IMPORTANT: it is not "his" cult, it is not a Donald Trump cult, it is a fiction media cult. Jesus is dead, the Bible fiction storytelling media still has a cult. L Ron Hubbard is dead, the Scientology media still has a media cult. Surkov students understands this, American society does not. ===:::
+
+&nbsp;
+
+# Tuesday August 5, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mi8apq/largest_teachers_union_in_united_states_erases/n71pp4x/
+
+Sic_Semper_Dumbasses 2025-03-20
+
+"It is a Nazi propaganda rag. It is on the white list because the white list is full of Nazi propaganda rags because this whole place is controlled by Nazis and has been for a long time now."
