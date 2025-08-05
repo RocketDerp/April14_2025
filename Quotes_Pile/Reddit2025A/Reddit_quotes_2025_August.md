@@ -1317,4 +1317,4 @@ https://old.reddit.com/r/SubredditDrama/comments/1mhu6zu/he_could_literally_rpe_
 
 "He could literally rape a child on Fox News, look to the camera and say "Are you enjoying this America?" and his cult would still find an excuse for him." Trumpers in r/TikTokCringe get triggered over a clip of Trump alluding to hiring young women too entrap them
 
-* :::=== RoundSparrow_Commentary :  Subreddit vs. Subreddit, filter bubble vs. filter bubble, Bluesky vs. Twitter, Fox News vs. MSNBC, everything is media ecology. Russia won the war against reality, Surkov won. ===:::
+* :::=== RoundSparrow_Commentary :  Subreddit vs. Subreddit, filter bubble vs. filter bubble, Bluesky vs. Twitter, Fox News vs. MSNBC, everything is media ecology. Russia won the war against reality, Surkov won. IMPORTANT: it is not "his" cult, it is not a Donald Trump cult, it is a fiction media cult. Jesus is dead, the Bible still has a cult. L Ron Hubbard is dead, the Scientology media still has a media cult. Surkov students understands this, American society does not. ===:::
