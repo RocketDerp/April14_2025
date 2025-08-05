@@ -1736,3 +1736,44 @@ https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_
 DreadLockedHaitian 2014-02-04
 
 "The Chinese Era began because America couldn’t get rid of its addiction to reality TV. Insane."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n72yl1y/
+
+ItsOkILoveYouMYbb 2020-07-26
+
+"There's so many ongoing executive orders making similar changes. Are they actually trying to kill off the human population? I don't know why you would willingly waltz into mass starvation and global destabilization. It doesn't benefit any billionaire whatsoever to have these runaway effects bring everything to a screeching halt. The US won't survive it.
+
+At what point is oil and gas oligarch's "oh shit" moment? Surviving in luxury bunkers isn't nearly as good of a life they have right now nor as good of a future where they have to divest from it.
+
+I just don't get it. I guess it's old people that won't be alive anyway. I don't know what else."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1micio2/environmentalist_leonardo_dicaprio_boards_jeff/n72vfgs/
+
+"His environmentalism is a hobby. Something he can use to get media attention in between movies. It's as artificial as the rest of his life."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1micio2/environmentalist_leonardo_dicaprio_boards_jeff/n72o7hu/
+
+happysunbear 2016-06-21
+
+"I feel like so many celebrities are just going full mask-off right now. On one hand, it’s nice (?) they are no longer pretending to be righteous do-gooders, but it also feels so dystopian for someone like him to just fully embrace cozying up to MAGA billionaires after so many years of pretending to care about progressive causes. He at least felt enough shame to try and hide from the paps when he attended the Bezos wedding, now he is greeting Bezos arm-in-arm on his yacht. I’d love for him to just disappear forever."
+
+* :::=== RoundSparrow_Commentary : Donald Trump and Amazon are the role model of *success in media*, they are going to the spotlight. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1micio2/environmentalist_leonardo_dicaprio_boards_jeff/n72ymjf/
+
+Cross_Stitch_Witch 2021-01-31
+
+"It's so disturbing how the 1% have gone full mask-off in the past seven months.
+
+Actors, corporations, tech mogels....they're not even pretending to give a single shit anymore, because they know that, finally, they no longer have to."
+
+&nbsp;
+
