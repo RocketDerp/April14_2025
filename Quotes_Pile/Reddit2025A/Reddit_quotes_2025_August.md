@@ -2000,3 +2000,34 @@ IntrepidTraveller6 2016-10-15
 They react to any news of the day and contradict themselves constantly...
 
 They are there to manipulate the discourse, and we are all falling for it."
+
+&nbsp;
+
+"It's occurring to me, when idiots like him say the President controls the price of oil, first of all, wow, that's not just a lie to other idiots; they actually believe it.
+
+And then secondly, this king of all the idiots, thinks this is how."
+
+https://old.reddit.com/r/worldnews/comments/1migxhy/trump_says_putin_will_stop_killing_if_oil_prices/n73ovho/
+
+CarpeNivem 2010-01-27
+
+* :::=== RoundSparrow_Commentary : Not sure if [eating the Surkovian onion](Surkovian_Onion_Eating.md) on this reply. Trump playing Tony Clifton exploit of the audience (he does it naturally, That's Trump's god-given talen, getting under mass mind skin, exploiting people with absurd surreal. He is a natural, it's automatic for him. It sure fucking works. People abandon all goodness to adopt the total mockery around Trump) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1migxhy/trump_says_putin_will_stop_killing_if_oil_prices/n74253g/
+
+pilot2969 2021-01-28
+
+"One of the dumbest men alive, with one of the most inept administrations in our History going head to head with a seasoned, intelligent, ex-KGB operative… and both sides have the ability to end life on the planet as at know it.
+
+What could go wrong!?!"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1miixz5/strange_pictures_of_donald_trump_on_the_white/n74bhap/
+
+Talentagentfriend 2016-08-22
+
+"You don’t think he’s trying to become a meme? He wants to be seen and wants to be noticed. Everything he does is to capture people’s attention. Either to distract them from other stuff or to get people talking about him for his own ego. All publicity is good publicity, especially when you can back it up by taking action."
+
