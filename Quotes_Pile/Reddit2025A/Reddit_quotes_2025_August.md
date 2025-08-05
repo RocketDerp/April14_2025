@@ -1496,3 +1496,19 @@ https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_
 "Engineered Chaos" in the image content. The prices of items fluctuating at the whims of social media messages and behind the scenes phone calls from Donald Trump.
 
 * :::=== RoundSparrow_Commentary : An excellent way to describe Surkovian Governing of Russia in year 2011. **Engineered chaos** as a method of control. Year 2014 description: [As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." **A ceaseless shape-shifting that is unstoppable because it is undefinable**."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_dry/n71bdk3/
+
+joekerr9999 2019-09-13
+
+"The tariffs are kicking in now as we can see price increases at the grocery stores. Trump promised to lower prices but of course he has promised a lot of things such as Mexico paying for his wall. The tariffs represent the largest tax increase on Americans in history. This is all so billionaires can have their tax breaks. We are living in an oligarchy which punishes working class people."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_dry/n71hiz5/
+
+Wolfire0769 2019-08-10
+
+"Engineered idiots wanted this. Education is the only way out of this mess."
