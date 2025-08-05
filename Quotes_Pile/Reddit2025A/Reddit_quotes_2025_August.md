@@ -1548,3 +1548,11 @@ https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_
 sylbug 2017-11-16
 
 "They seem to legitimately believe that it's impossible for their democracy to fail. I suspect they've already crossed the Rubicon a good while back but won't fully realize for a few election cycles yet."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1micb17/trump_is_walking_around_on_the_roof_of_the_white/n72lgks/
+
+Morepastor 2022-09-16
+
+"If Biden took a wide left turn it was breaking news he had dementia. The Diddler on the roof is called an impromptu press conference. The media are also fascist."
