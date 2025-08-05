@@ -1330,3 +1330,35 @@ https://old.reddit.com/r/politics/comments/1mi8apq/largest_teachers_union_in_uni
 Sic_Semper_Dumbasses 2025-03-20
 
 "It is a Nazi propaganda rag. It is on the white list because the white list is full of Nazi propaganda rags because this whole place is controlled by Nazis and has been for a long time now."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mi8apq/largest_teachers_union_in_united_states_erases/n71ncbk/
+
+No-Oil851 2023-09-29
+
+"It’s the script these bots are stuck on - make low-effort “bad thing bad” comment, often with a “tbh” or “honestly” at the start. There was a wave of them on this pattern starting about a month ago and it’s been taking over the early comments of new posts. And unsurprisingly, reporting hasn’t had any real effect."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mi6t4q/democrats_have_found_their_messageand_trump_is/n71q7u3/
+
+bmanfromct 2013-01-18
+
+"This is an important point. People expect the break to be dramatic, like a huge fissure opens up and swallows his base whole, but that's not how people work. When people feel betrayed, they also feel embarrassed for how much time and energy they put into supporting the thing that betrayed them. Classic sunk-cost fallacy. People don't announce shame. People don't announce weakness. People DO announce indignance, which is another valid response to betrayal, but that requires a deafening amount of confidence and psychological resilience, which likely would have shielded them from being drawn into a cult in the first place."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mi6t4q/democrats_have_found_their_messageand_trump_is/n71pdtq/
+
+Sandberg231984 2018-04-13
+
+"No one is freaking out. Shit. Republicans are either going to change how elections work so they cannot be removed or gerrymander however they want and no one will do anything. No one. Not scotus no one. It’s doesn’t matter what trump is found to have done it literally won’t change anything. This whole administration is literally taking how hitler came to power and America voted for it"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mi6t4q/democrats_have_found_their_messageand_trump_is/n71r08b/
+
+CAM6913 2019-07-12
+
+"It seems like a lot of comments show the tunnel vision people have they are focused on the “Epstein files “ and that is either bots or people that just can’t see what is really going on. First who started the “release the Epstein files”craze after six months into his term ? The trump administration did! They are using this to distract voters from all his other policies and agenda- telling states to redistrict to give the republicans an unfair advantage in all elections, tariffs are taxes that he placed on all imported goods that most don’t take affect till after the midterms, ice rounding up people without due process, taking away the first amendment, violating laws, the constitution and the list goes on. Including destroying education, healthcare, food security and safety, removing regulations that help people to benefit billionaires, the authoritarian totalitarian dictatorship that America has become is the fault of the voters that stayed home and didn’t vote for Harris because she’s a woman and or because she’s not white or the people that voted for him instead because he’s a white male. Democrats better figure out they need people running that will be able to hold their own against him and push the message the voters want to hear then follow through with it, and if it’s a woman it’s sadly not going to happen because some voters think women can do the job. If democrats don’t redistrict now the elections will be rigged in favor of the republicans in the midterms they will never have a chance ever again and Trump will have congress pass a law letting him run again and again and its game over for America"
