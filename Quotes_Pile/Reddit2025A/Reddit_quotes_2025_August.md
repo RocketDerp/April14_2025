@@ -1961,3 +1961,42 @@ MisterProfGuy 2019-11-04
 
 "It's just stuff that's well known being released for rage bait. Epstein's entire schtick was offering gifts and favors to people in order to help them meet other people. To make that happen, he'd offer his island or his plane for someone to use, and then arrange for other people to also be there. Similar with throwing parties. We also know sometimes he provided massages, and at least one politician described them as shocking bad and inexperienced. Incels will use that as evidence that everyone knew about it, but it's worth considering the old phrase, "Only cheater's suspect." Famous people see rich guys hiring models to act as masseuses and waitresses and roll their eyes, because they assume it's a blatant move to suck up. They don't just assume because you hired a model for an event that you're raping her."
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mii8j8/whos_being_brainwashed_again/n74pssb/
+
+scoobasteve813 2020-04-02
+
+"We were sitting at a bar next to a guy who said he was about to graduate with a PhD in political science. He started talking about how he couldn't wait to get out of university because he couldn't talk about his beliefs in school. Immediately knew he was MAGA. So we took the opportunity to ask if there was anything Trump was doing that he disagreed with. Not a single thing. He loves everything orange jesus is doing. He could come up with stuff he hated about Bush, Reagan, any other republican, but not Trump. We asked him to explain what policies he liked, and why exactly he agreed with them. We listed all the garbage happening and their consequences, thinking this guy with a PhD would have some kind of insightful response. He had literally nothing. He sat in near silence with a big dumb grin on his face, laughing about how much we cared.
+
+Then he started ranting about how democrats are the enemy, and that's the only thing he cares about - taking out the enemy.
+
+Fucking brain-rotted imbeciles."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mii8j8/whos_being_brainwashed_again/n74dtvr/
+
+Charming_Okra9143 2025-01-06 (this year)
+
+"I honestly dont get why you arent attacking them on site, like they are traitors that are dismantling your country an you just aren't doing anything about it, like whats the point in having guns if you dont use them for their constitutional purpose"
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mii8j8/whos_being_brainwashed_again/n74s351/
+
+fruitcakefriday 2011-08-20
+
+"Whoever reads bollocks like 'Antiwoke' is who is being brainwashed."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mii8j8/whos_being_brainwashed_again/n74t32o/
+
+IntrepidTraveller6 2016-10-15
+
+"I see posts like this every day and all I think about is how many of these tweets are just being done by AI controlled bots.
+
+They react to any news of the day and contradict themselves constantly...
+
+They are there to manipulate the discourse, and we are all falling for it."
