@@ -1777,3 +1777,10 @@ Actors, corporations, tech mogels....they're not even pretending to give a singl
 
 &nbsp;
 
+https://old.reddit.com/r/nottheonion/comments/1micb5j/trump_yells_from_white_house_roof_in_bizarre/n72yxur/
+
+Alternative_Cause186 2024-11-12 (joined at election)
+
+"I swear to god I don’t think people that worship trump realize you’re NOT supposed to hear from/about the president every day. I honestly think they think he’s getting things done because he’s always in the news."
+
+* :::=== RoundSparrow_Commentary : A god that gives constant fresh media messages is the ultimate media outlet. All the media outlets of the world, all the social media platforms, all the TV news networks, generate reactions to the worship center. Religion was alawys fiction storytelling, and Trump creates fiction content for audiences / congregation. Inlcuding those who hate and mock and insult Trump, it is constant Tony Clifton engagement of the audience. ===:::
