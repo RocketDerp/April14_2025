@@ -305,3 +305,16 @@ https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bi
 RachelLovesN 2015-11-06
 
 "haha even his fake news outlet is fake 😂"
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bitter/n73cct1/
+
+Flabalanche 2012-09-15
+
+"You're a Trump supporter who relies on the VA
+
+Fucking lol, lmao even, nothing I can say or do will be as cruel as what Trumps already budgeted to do to you, but you're still locked in for the diddler on the roof."
+
+There is PLENTY that people in USA can be doing to MAGA believers / Trump supporters. Instead of using social media to describe the problem over and over since year 2016, we can start teaching cult deprogramming quotes form books on social media. We can start teaching media ecology on social media, instead of just LOL LMAO at how Russian information warfare since March 2013 has tekn the hearts and minds of Americans - We The People can actually get off our social media ass and start **defending** with intellectual weapons in a war of intellect against the Kremlin. The *cumpusive* adoption of Donald Trump's technique os name-calling and insutling reveals we have been manipulated to adopt Donald Trump's very communications techniques... instaed of eliminate them, this is reveling in Trumpism.
+
