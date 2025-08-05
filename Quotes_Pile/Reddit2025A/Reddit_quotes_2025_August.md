@@ -1512,3 +1512,11 @@ https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_
 Wolfire0769 2019-08-10
 
 "Engineered idiots wanted this. Education is the only way out of this mess."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_dry/n71mtdw/
+
+SARguy123 2024-05-03
+
+"And they are trying as hard as possible to kill education. All of this is interventional chaos designed to boost the oligarchy. The point that we can’t plan and therefore can’t budget is a really good one."
