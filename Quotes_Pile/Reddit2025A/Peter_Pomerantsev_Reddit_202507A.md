@@ -1581,4 +1581,16 @@ Both the image and title: "Funny how anyone in maga can still support Trump"
 
 * :::=== RoundSparrow_Commentary : what do social media users witness every day? Fiction. "Realty TV" of "The Apprentice" is fiction entertainment. People addicted to memes and entertainment still support Donald Trump because they still support ficton storytelling. Pizzagate was fiction, Donald Trump's story about Epstein is still fiction. Every social media platform is full of fiction and sports-like competitive coverage of one fiction bullshit vs. another fiction bullshit. Calm, intellectual, sensible nonfiction is treated as boring and worthless. That's how Russia won the information war since March 2013. "Funny how anyone in maga can still support Trump" - funny how after seeing what GOP / MAGA does with mocking, how anyone can support mocking and meme thinking. But people aren't giving up antics government,the addiction to manipulation and lies to mock at is far too strong to care about health care or food supply or future in 15 years. Everything is the constant refreshof latest reaction memes to mock at Trump and mock at "liberal tears". ===:::
 
+&nbsp;
 
+# Tuesday, August 5, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mi6mdz/this_economy_is_bleeding_us_dry/n71lcyr/
+
+Representative_Pick3 2020-07-19
+
+"They are doing this all on purpose. The Senators are all in on it. Ask why 6 of them were in Russia for the 4th of July in 2018 at Putin's invitation? They want to fuckin ruin this country so the oligarchy can swoop in and buy it up for pennies on the dollar.. This keeps up, we are all looking like Russia in a few years."
+
+* :::=== RoundSparrow_Commentary : The ["Conservative International 2013" movement was announced in December 2013](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/)... right before the February 2014 military war started with Ukraine. ===:::
