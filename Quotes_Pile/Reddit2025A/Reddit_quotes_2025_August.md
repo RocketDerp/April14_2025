@@ -1941,7 +1941,7 @@ apothekari 2010-08-28
 
 "I don't get at all how this fucker still stands...Gary Hart had his career utterly destroyed by an affair, Howard Dean wiped out of his Presidential run by a fucking hurrah. Al Franken taken out by Goofy "honk honk" hands...and yet this mother fucker just rolls on rapin and raging and shitting on every sacred thing. It just sucks beyond all fucking reason this asshole is somehow still here and allowed to be a goddamn leader."
 
-* :::=== RoundSparrow_Commentary : The answer is direct manipulaiton of the population, Russia won an inforamtion war against everyone. Recency bias abounds, mass psychosis abounds. People are barking at trees day after day without seeing the NATO forest since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : The answer is direct manipulation of the population, Russia won an information war against everyone. Recency bias abounds, mass psychosis abounds. People are barking at trees day after day without seeing the NATO forest since March 2013. ===:::
 
 &nbsp;
 
@@ -1951,5 +1951,13 @@ klepto_tony **2025-07-30 (new account)**
 
 "America quite possibly made the most fatal mistake in human history. By giving control of an army and 10,000 nukes to a certified idiot. And we already had freedom and democracy. And we deliberately chose fascism. it feels like we committed a national suicide"
 
-* :::=== RoundSparrow_Commentary : Accurate summary, but it isn't suicide, it is a complete failure to learn what  [Peter Pomerantsev has been publishing since year 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and recognize that USA is defeated in an information war. ===:::
+* :::=== RoundSparrow_Commentary : Accurate summary, but it isn't suicide, it is a complete failure to learn what [Peter Pomerantsev has been publishing since year 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and recognize that USA was defeated in an information war. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mij5ut/epstein_scandal_broadens_as_trove_of_letters_from/n742uas/
+
+MisterProfGuy 2019-11-04
+
+"It's just stuff that's well known being released for rage bait. Epstein's entire schtick was offering gifts and favors to people in order to help them meet other people. To make that happen, he'd offer his island or his plane for someone to use, and then arrange for other people to also be there. Similar with throwing parties. We also know sometimes he provided massages, and at least one politician described them as shocking bad and inexperienced. Incels will use that as evidence that everyone knew about it, but it's worth considering the old phrase, "Only cheater's suspect." Famous people see rich guys hiring models to act as masseuses and waitresses and roll their eyes, because they assume it's a blatant move to suck up. They don't just assume because you hired a model for an event that you're raping her."
 
