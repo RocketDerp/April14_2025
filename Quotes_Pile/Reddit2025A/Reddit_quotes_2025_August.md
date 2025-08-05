@@ -1569,3 +1569,12 @@ Our ONLY hope is WW III with Europe coming over and liberating us and dividing u
 
 And the people voted for every bit of it and they love it. 🤷‍♂️"
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n7261jy/
+
+SoreLoserOfDumbtown 2020-12-19
+
+"You are living it, and have been for a long while. Sorry."
+
+* :::=== RoundSparrow_Commentary : Denial abounds in USA. As [Dr. Carl Jung said of Nazi Germany, they were not self-aware, the German people didn't understand](../Doctors/Carl_Jung.md). ===:::
