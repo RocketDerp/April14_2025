@@ -1298,6 +1298,6 @@ RememberTurboTeen 2015-09-02
 
 "They don't care. They know that we all knew then and still know now that the whole tan suit thing was complete BS. They also know that Trump is the worst person ever, is a complete buffoon, has no idea how government works, and most likely was involved in trafficking children with Epstein. Honestly, most of them probably think it's pretty fuckin funny that they are so brazen about spewing this sort of nonsense. It's funny to them and they don't care because they know with 100% certainty that it works, they will face zero consequences, and will forever get their way by doing ridiculous shit like this. This is how the system works now. The rest of us are the ones eating shit, which is exactly how they like it."
 
-* :::=== RoundSparrow_Commentary : If this is true, then what does education matter? If the core motivation of an educated and intelligent free society is hate upon your fellow man... what do people think the outcome will be as technology keeps advancing and killing and tracking people becomes more and more trivial? ===:::
+* :::=== RoundSparrow_Commentary : If this is true, then what does education matter? If the core motivation of an educated and intelligent free society is hate upon your fellow man... what do people think the outcome will be as technology keeps advancing and killing and tracking people becomes more and more trivial? What makes the difference in USA educated intelligent society different from Canada or Japan in regards to motivation to hate upon fellow people in society? ===:::
 
 
