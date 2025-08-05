@@ -12,6 +12,8 @@ Jesus promoted the idea of trolling for his media platform, fishing for audience
 
 1. [Metaphors: Jesus, God... Bible verses](../July13_2025/Metaphors_Jesus_God_Bible_verse.md)
 
+2. [Die for metaphor, die for Heaven afterlife](../Quotes_Pile/Joseph_Campbell_Metaphors.md)
+
 &nbsp;
 
 &nbsp;
