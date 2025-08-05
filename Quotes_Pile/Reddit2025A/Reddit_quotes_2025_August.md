@@ -1578,3 +1578,23 @@ SoreLoserOfDumbtown 2020-12-19
 "You are living it, and have been for a long while. Sorry."
 
 * :::=== RoundSparrow_Commentary : Denial abounds in USA. As [Dr. Carl Jung said of Nazi Germany, they were not self-aware, the German people didn't understand](../Doctors/Carl_Jung.md). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n72b9fh/
+
+SoreLoserOfDumbtown 2020-12-19
+
+"I'm watching from Britain, and it's like American government (well, trump) has shifted from 'oh no, this seems bad, but lets not try to upset our economy and the billionaires, so lets be vwery carefullll ...' to complete denial and/or disregard."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n72dsnp/
+
+kahunah00 2020-01-08
+
+"Im watching from Canada and every day I move a little closer to the idea that humanity is a cancer to both each other and the planet.
+
+I dont understand in any good conscious how we can keep making terrible decisions. Even if somehow all available data is completely misinterpreted and were absolutely wrong about climate change, doesnt it still make sense to keep the satellites up there and monitor for more data, just on the offchance the current climate change calculus is right? Literally nothing about the US's domestic, foreign, and global policies makes any kind of sense anymore. And I'd argue actively suppressing this data is a hostile move for global interests than anything else.
+
+I wonder if a joint mission from nations around the world might be able to purchase the satellite off the US and a country with spare faring capabilities could service and operate it outside any kind of US jurisdiction? I would imagine the answer is no with any kind of satellite technology being encompassed under an umbrella of national security."
