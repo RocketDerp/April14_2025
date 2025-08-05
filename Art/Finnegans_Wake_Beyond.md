@@ -28,3 +28,11 @@ Also had media ecology of how decades after Led Zep, inspired by technique, name
 
 Puns and multi-meaning metaphors abound in Finnegans Wake.   
 
+&nbsp;
+
+### Star Wars 1977 after success
+
+End of year 1977, holiday season gushing after the film was a social sensation. Gene Siskel says it is like Pinball. So Pinball Wizard mononyth story tie in to Finnegans Wake interations operas.
+
+https://www.youtube.com/watch?v=6gtQck24Nf8
+
