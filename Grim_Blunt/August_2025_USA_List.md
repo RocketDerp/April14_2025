@@ -1,8 +1,8 @@
-# August 2025 USA "List"
+# August 2025 USA "Concerns List"
 
-We the People of the United States of America
+We the People of the United States of America 
 
-Same page understandings and comprehensions.
+Same page understandings and comprehensions. Concerns, priorities.
 
 **NOTE: very very very incomplete, unedited, brain damage author**
 
