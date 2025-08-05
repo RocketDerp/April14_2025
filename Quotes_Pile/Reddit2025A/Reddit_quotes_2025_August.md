@@ -1951,4 +1951,5 @@ klepto_tony **2025-07-30 (new account)**
 
 "America quite possibly made the most fatal mistake in human history. By giving control of an army and 10,000 nukes to a certified idiot. And we already had freedom and democracy. And we deliberately chose fascism. it feels like we committed a national suicide"
 
-* :::=== RoundSparrow_Commentary : Accurate summary, but it isn't suicide, it is a complete failure to learn what  [Peter Pomerantsev has been publishing since year 2014 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and recognize that USA is defeated in an information war. ===:::
+* :::=== RoundSparrow_Commentary : Accurate summary, but it isn't suicide, it is a complete failure to learn what  [Peter Pomerantsev has been publishing since year 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and recognize that USA is defeated in an information war. ===:::
+
