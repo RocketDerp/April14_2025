@@ -1714,3 +1714,25 @@ https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_
 Beneficial_Eye16 2021-10-08
 
 "We're heading into a new dark age, and apparently there is nothing the American people can/will do against it."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n72b125/
+
+stackered 2010-10-05
+
+"The C and D students who are friends/tools of oil barons are running our world. Its pathetic what our species has squandered in potential."
+
+&nbsp;
+
+PuzzleheadedCase5109 **2025-06-25 (new account)**
+
+"Why can’t ppl see that trump is destroying the USA and handing over the control of the world to an axis aligned agenda….. it’s like a bad movie that you can’t stop…"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n7265fr/
+
+DreadLockedHaitian 2014-02-04
+
+"The Chinese Era began because America couldn’t get rid of its addiction to reality TV. Insane."
