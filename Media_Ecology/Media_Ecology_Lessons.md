@@ -194,3 +194,110 @@ Film about war against a species, network, visual story telling. War with nature
 
 Is this subconsious authentic nightmare for you and others you know?
 
+&nbsp;
+
+# Neil Postman on technology
+
+https://www.youtube.com/watch?v=KbAPtGYiRvg
+
+0:12
+
+um the tendency in uh American culture to turn over to technology sovereignty command control uh over all of our social institutions in other words the book is about how um America has uh developed a new religion as it were uh and the religion is its faith in U that uh human progress and technological innovation are the same thing and that paradise can be achieved through greater and greater commitment uh to technology 
+
+0:55 
+
+what is technology well I have to Define it in the book or rather broadly because not only do I include Machinery like television and uh computers and all that
+but also techniques uh I call them invisible Technologies because most people don't
+think of them as a a sort of Machinery but things like statistics and polling
+and um uh uh bureaucratic forms
+any um uh systematic and repeatable
+technique that tends to cause people to
+uh constrain their thinking about the
+world we talked a number of years ago
+about
+television um what impact is technology
+
+1:50
+having on television and what's what's
+1:52
+the impact on the
+1:54
+country well one of the reasons Brian
+1:57
+that I I felt I did this but is that the
+2:00
+the last time we talked as you suggest
+2:04
+uh was about a book that was almost
+2:06
+wholly devoted to television and when I
+2:09
+started to uh think about that issue I
+2:13
+realized that you couldn't get a a an
+2:16
+accurate handle on uh what we Americans
+2:20
+were all about by focusing on one medium
+2:23
+that that you had to see television as
+2:27
+part of a kind of um
+2:30
+system of techniques and technologies
+2:34
+that are giving the shape uh to our
+2:37
+culture for instance um if one wants to
+2:40
+think about what has happened to public
+2:42
+life in
+2:43
+America uh and U one has to think of
+2:47
+course first about television but also
+2:50
+about CDs and also about um
+2:55
+uh all sorts of faxes and telephones and
+3:01
+all of the Machinery that that takes
+3:03
+people out of public
+3:06
+Arenas and keeps them fixed in their
+3:09
+homes so that we have a kind of
+3:12
+privatization of American life and one
+3:15
+here is people say with some
+3:18
+considerable enthusiasm that in the
+3:20
+future uh putting television computers
+3:23
+and the telephone together people will
+3:26
+be able to shop at home vote at home
+3:29
+home uh do every Express uh political
+3:33
+preferences in in many ways at home so
+3:36
+that they never have to go out in the
+3:38
+street at all and never have to meet their fellow citizens in any context because we'd have this Ensemble of Technologies uh that keep us private away from from citizens in fact I think uh Ry Peru's idea of a town meeting uh is a new kind of definition of town meeting because it doesn't imply co-presence uh of people he wants to do it via Electronic media so that uh television and as well as other
+
+4:17
+
+Technologies redefine all sorts of things I mean television uh has redefined uh as I think we talked about last time what we mean by a public debate that uh we used to use uh the Lincoln Douglas debates as an example as kind of model or metaphor of what we mean by uh political debate uh these debates would go on for hours television has redefined it so now the two or possibly three candidates stand in front of the television camera and each one is given two minutes to respond to a very difficult question and uh the opponent is given 60 seconds
+
+5:03
+
+to reply now we still call this a debate uh but it's a redefinition of of that term and uh uh Rose perau suggestion that we use television as a form of uh a town meeting is another redefinition of what we once met by town meeting so that the one of the most interesting things about technology is that it redefines our language it it gives us different meanings uh of older words and very often we're not quite uh as aware as we should be of how that process is working good or bad well in this book I mostly emphasize
+
+5:53
+
+the bad part uh I've done that in most of my books but I owe I I admit and uh happily at the beginning of the book that anyone who um uh looks at technology as an either or development
