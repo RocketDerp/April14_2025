@@ -1289,3 +1289,15 @@ bigladnang 2016-04-30
 "Back in the early 2010’s I had badly misjudged the direction the world was going and I was super shocked at how many people fell into the alt right pipeline, but now I don’t even flinch when another one joins."
 
 * :::=== RoundSparrow_Commentary : The Internet Research Agency went online in year 2013, pumping manipulaiton into the world wide web for a full 6 months before [Conservative International alt-right pipeline was formally announced in December 2013](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/), then in February 2014 the Ukraine war started (and is still ongoing August 2025). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mhnei4/president_obama_wears_a_tan_suit_at_a_press/n6xls8n/
+
+RememberTurboTeen 2015-09-02
+
+"They don't care. They know that we all knew then and still know now that the whole tan suit thing was complete BS. They also know that Trump is the worst person ever, is a complete buffoon, has no idea how government works, and most likely was involved in trafficking children with Epstein. Honestly, most of them probably think it's pretty fuckin funny that they are so brazen about spewing this sort of nonsense. It's funny to them and they don't care because they know with 100% certainty that it works, they will face zero consequences, and will forever get their way by doing ridiculous shit like this. This is how the system works now. The rest of us are the ones eating shit, which is exactly how they like it."
+
+* :::=== RoundSparrow_Commentary : If this is true, then what does education matter? If the core motivation of an educated and intelligent free society is hate upon your fellow man... what do people think the outcome will be as technology keeps advancing and killing and tracking people becomes more and more trivial? ===:::
+
+
