@@ -1922,3 +1922,23 @@ R2-D2Vandelay 2025-04-01 (recent account)
 Those people are mentally ill."
 
 * :::=== RoundSparrow_Commentary : Mentally ill nation (lost an information war) of tiny short little Twitter-length reaction messages to a serious sitaution [that calls for actually quoting doctors on the situation](../Doctors/Carl_Jung.md). Calling people mentally ill without actually offering any solution to the problem is avoding civic duty. Mocking and insulting are MAGA / Trump values being adopted. Mass psychosis abounds. In a comedy venue of Reddit "/r/PoliticalHumor" - to mock and insult Americans instead of **rescue Americans**. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1miaa9s/i_feel_so_owned/n73hfi8/
+
+ragun01 2025-05-31 (recent account)
+
+"I've been noticing that on subs like JoeRogan. Usually it's both left and right just constantly insulting each other but for a while now, I hardly see any right wingers in the comments compared to even just a few months ago."
+
+* :::=== RoundSparrow_Commentary : A good description of the total mockery (endless insult mocking). It has been a feedback loop of Amerixans hate Americans, a media freanzy of people trying to coprehend the bewildering behaviors and communications of the White House. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1miaa9s/i_feel_so_owned/n72c7mq/
+
+apothekari 2010-08-28
+
+"I don't get at all how this fucker still stands...Gary Hart had his career utterly destroyed by an affair, Howard Dean wiped out of his Presidential run by a fucking hurrah. Al Franken taken out by Goofy "honk honk" hands...and yet this mother fucker just rolls on rapin and raging and shitting on every sacred thing. It just sucks beyond all fucking reason this asshole is somehow still here and allowed to be a goddamn leader."
+
+* :::=== RoundSparrow_Commentary : The answer is direct manipulaiton of the population, Russia won an inforamtion war against everyone. Recency bias abounds, mass psychosis abounds. People are barking at trees day after day without seeing the NATO forest since March 2013. ===:::
