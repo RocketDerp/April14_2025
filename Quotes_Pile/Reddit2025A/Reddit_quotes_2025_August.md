@@ -2031,3 +2031,53 @@ Talentagentfriend 2016-08-22
 
 "You don’t think he’s trying to become a meme? He wants to be seen and wants to be noticed. Everything he does is to capture people’s attention. Either to distract them from other stuff or to get people talking about him for his own ego. All publicity is good publicity, especially when you can back it up by taking action."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1milkkw/trump_says_the_fbi_may_have_to_get_involved_in/n74nr85/
+
+GuitarbytheTon 2020-10-06
+
+"This is actually the truth. He just says whatever he wants. It gets a reaction and that’s what he wants. He doesn’t care if it’s legal, illegal, logical, or illogical. If it gets a reaction he gets hard."
+
+* :::=== RoundSparrow_Commentary : Donald Trump plays a natural Tony Clifton, he knows how to exploit minds, he knows what works on media to make people compusively react. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1milkkw/trump_says_the_fbi_may_have_to_get_involved_in/n74zm6m/
+
+destructicusv 2018-11-12
+
+"He’s right tho and I wish people understood this.
+
+I love or hate Trump, but it dawned on me very early that this is all *purely* performative for him. He just says shit, having NO IDEA whether or not he can even do it, and then everyone hangs on his words as if he could actually do half of this stuff.
+
+Except he can’t. He makes big bold statements and then I’m sure someone brings him to a room later and tells him he in fact cannot do the things he’s talking about.
+
+At least that’s how I’m praying it all works."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1milkkw/trump_says_the_fbi_may_have_to_get_involved_in/n74qzp6/
+
+Baranjula 2021-08-12
+
+"I feel like this is why it's useless pointing out his lies. They're not even so much lies cause he doesn't have a single clue about anything he's talking about. He just knows whether he should be happy about something or mad about something and just spews nonsense that somewhat correlates to those reactions."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1milkkw/trump_says_the_fbi_may_have_to_get_involved_in/n74loqp/
+
+BurtReynoldsLives 2015-12-04
+
+"We are done. It would require the public and political will to really sit down and take account of the damage that was done and then it would require us to come to a consensus on how best to correct and repair what has been destroyed. I hate to say it but I think we all know that simply is never going to happen. We will be living with the ramifications of electing a mad king and then granting him all the power he wants on the backs of a 49-51 election for the rest of our lives. Probably for the rest of American’s existence. It is heartbreakingly stupid."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1milkkw/trump_says_the_fbi_may_have_to_get_involved_in/n74kad2/
+
+YesterShill 2017-07-28
+
+"Fascism.
+
+The Executive branch has taken over the country, just like Russia, China and North Korea."
+
