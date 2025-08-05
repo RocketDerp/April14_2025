@@ -1836,3 +1836,6 @@ https://old.reddit.com/r/PublicFreakout/comments/1mibufl/trump_has_climbed_on_th
 "At this point I'm waiting for Aston Kutcher to run out and tell the planet we got Punk'd. This shit doesn't even seem real anymore it's so crazy."
 
 * :::=== RoundSparrow_Commentary : ["This Is Not Propaganda: Adventures in the War Against Reality is a **2019** book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries."](https://en.wikipedia.org/wiki/This_Is_Not_Propaganda) **year 2019**. ===:::
+
+&nbsp;
+
