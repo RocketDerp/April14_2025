@@ -1839,3 +1839,74 @@ https://old.reddit.com/r/PublicFreakout/comments/1mibufl/trump_has_climbed_on_th
 
 &nbsp;
 
+https://old.reddit.com/r/WorkReform/comments/1mia7gv/stop_looking_left_and_right_look_up/n72411r/
+
+AbbreviationsLess257 2023-01-18
+
+"but then Cenk refuses to call MAGA a fascist movement, and that Trump is irrelevant to MAGA?? miss me with his bullshit
+
+https://www.youtube.com/watch?v=4r7BOHRX4c4&t=21s "
+
+* :::=== RoundSparrow_Commentary : It is a *simulacra of resistance*, and the people playing both sides in USA are the Kremlin since March 2013, but nobody wants to dust off Peter Pomerantsev 2014 writings or Adam Curits BBC 2014 about Surkov governing of Russia methods. Nor do people want ot disucss the Internet Research Agency and Cambridge Analytica fallout / aftermath / long-term brain damage. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mia7gv/stop_looking_left_and_right_look_up/n727g8n/
+
+AbbreviationsLess257 2023-01-18
+
+"he's a grifting shock jock at this point, turned on progressives, is trying to blame 'woke' for losing the election, echoes some of the worst talking points on the right. When the reality is people were tired of grocery bills, corporations making tons of money, our shitty foreign policy and took the baited lies of DJT because they had nothing else, and yet here we are anyways, turns out progressives ARE the solution, go back to being that Cenk."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bitter/n71u2pb/
+
+810524230 2017-08-31
+
+"I get it. Just find it amusing that he is accusing a news outlet that does not exist of providing fake news!"
+
+* :::=== RoundSparrow_Commentary : in 1985, Neil Postman published a book about Ronald Regan's second term in office as a media entertainer. "Amusing Ourselves To Death", that explains Donald Trump 2025. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bitter/n72i1i6/
+
+Galassog12 2012-08-16
+
+"It’s like that joke where the person is calling their partner telling them to be careful of the crazy person driving backwards on the freeway. The partner replies that it’s not just one person, it’s all of them.
+
+But real. Make jokes and satire jokes and satire again."
+
+* :::=== RoundSparrow_Commentary : Americans can not resist Surkovian Russian information warfare and techniques. **Tony Clifton character** that Donald Trump plays. Absurd comedy, surreal humor, bewildering behavior exploits the population, resets minds, fixated on mocking and insulting Trump on stage. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bitter/n72lvt4/
+
+StaticSystemShock 2024-06-10
+
+"This motherfucker Trump is so disconnected from reality it's wild."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bitter/n724a0b/
+
+prestonjay22 2020-09-28
+
+" "Don't they understand they are destroying themselves?" Going after all media.... Where have we seen this before? And they will all bow before him because he will sue, have the FCC investigate, run a smear campaign. Rinse and repeat. And people follow this clown. Damn it."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bitter/n727cln/
+
+bunkscudda 2011-04-10
+
+"His base literally thinks *everyone in the entire world* is lying, and Trump is the only source of truth."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bitter/n72trrb/
+
+alsatian01 2012-11-21
+
+"That is the thing that bothers me the most about MAGA. how many times do you have to see a spade called a spade before you realize it's a spade?"
