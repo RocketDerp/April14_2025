@@ -1910,3 +1910,15 @@ https://old.reddit.com/r/clevercomebacks/comments/1mi8t69/the_truth_is_always_bi
 alsatian01 2012-11-21
 
 "That is the thing that bothers me the most about MAGA. how many times do you have to see a spade called a spade before you realize it's a spade?"
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1miaa9s/i_feel_so_owned/n72k8oo/
+
+R2-D2Vandelay 2025-04-01 (recent account)
+
+"They are too busy trying to figure out how to get Obama arrested for "reasons".
+
+Those people are mentally ill."
+
+* :::=== RoundSparrow_Commentary : Mentally ill nation (lost an information war) of tiny short little Twitter-length reaction messages to a serious sitaution [that calls for actually quoting doctors on the situation](../Doctors/Carl_Jung.md). Calling people mentally ill without actually offering any solution to the problem is avoding civic duty. Mocking and insulting are MAGA / Trump values being adopted. Mass psychosis abounds. In a comedy venue of Reddit "/r/PoliticalHumor" - to mock and insult Americans instead of **rescue Americans**. ===:::
