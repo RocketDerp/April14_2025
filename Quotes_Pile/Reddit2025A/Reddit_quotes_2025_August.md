@@ -1696,3 +1696,21 @@ https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_
 Weekly_Put_7591 2024-08-06
 
 "republicans and religious people prefer living in their own alternate reality where they can make believe whatever they want"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n73183z/
+
+millos15 2013-01-04
+
+"Republicans are anti reality. How in the world can people remain a voter for this party?"
+
+* :::=== RoundSparrow_Commentary : Anti-reality means *fiction*. And fiction outsells nonfiction. We are amusing ourselves to death with fiction content. Fox News is fiction content, Donald Trump is fiction content, Bible is fiction content. This is Russian Surkovian govenring, fiction entertainment as means to wealth concentration and power concentration. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1miad9i/white_house_orders_nasa_to_destroy_important/n7287c5/
+
+Beneficial_Eye16 2021-10-08
+
+"We're heading into a new dark age, and apparently there is nothing the American people can/will do against it."
