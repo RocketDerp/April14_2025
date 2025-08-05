@@ -1301,3 +1301,13 @@ RememberTurboTeen 2015-09-02
 * :::=== RoundSparrow_Commentary : If this is true, then what does education matter? If the core motivation of an educated and intelligent free society is hate upon your fellow man... what do people think the outcome will be as technology keeps advancing and killing and tracking people becomes more and more trivial? What makes the difference in USA educated intelligent society different from Canada or Japan in regards to motivation to hate upon fellow people in society? ===:::
 
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mhnyh8/leader_schumer_calls_on_fbi_to_immediately_launch/n6y0yut/
+
+TheTurtleBear 2013-08-08
+
+"Yeah, the time to go after Trump was when Biden was in office. But they did such a great job taking their time with things, and building such a wonderfully strong case, that his term ended with shit all to show for it.
+
+Trump & Republicans are to blame for the evil they continue to do of course, but I will always place a significant amount of blame on Biden being so blinded by his borderline fetish for bipartisanship, preventing him from directing the DOJ to make putting Trump behind bars the #1 priority. The man led a literal coup on the Capitol, that was livestreamed into every Americans house, and Biden just let him get away with it because he was so terrified of being seen as partisan"
+
