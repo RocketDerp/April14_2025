@@ -91,3 +91,81 @@ LadyAmemyst 2022-08-16
 "Gawd these names.....I can't even express the words of how evil they are.....and cruel and apparently...totally american. :("
 
 * :::=== RoundSparrow_Commentary : An American adaptation of a Russian Surkovian student year 2012 screenplay for social media society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mj5x5j/article_1_section_9_10_were_removed_from/n78omc1/
+
+pantstickle 2011-09-09
+
+"Trump is older than the guy that got elected in 2008. And 2000. And mother fucking 1992."
+
+&nbsp;
+
+https://old.reddit.com/r/BlackPeopleTwitter/comments/1mj7cxg/stop_letting_senior_citizens_run_for_president/n78xvui/
+
+WintersDoomsday 2020-07-09
+
+"I am tired of the Silent Generation and Boomers being in charge. They have done nothing good for society. Just fucking retire already."
+
+&nbsp;
+
+https://old.reddit.com/r/BlackPeopleTwitter/comments/1mj7cxg/stop_letting_senior_citizens_run_for_president/n78ww6j/
+
+derpferd 2014-06-21
+
+"Old White Men are wise and all knowing.
+
+The omniscient being who lives in the sky is an Old White Man by most accounts and that is surely evidence of this fact"
+
+&nbsp;
+
+https://old.reddit.com/r/BlackPeopleTwitter/comments/1mj7cxg/stop_letting_senior_citizens_run_for_president/n791n2k/
+
+BlakByPopularDemand 2019-07-31
+
+"We got away from our toxic ex dating the safe but boring guy then went running back to the toxic ex. America has is either codependent or has Stockholm syndrome"
+
+&nbsp;
+
+https://old.reddit.com/r/BlackPeopleTwitter/comments/1mj7cxg/stop_letting_senior_citizens_run_for_president/n793kpa/
+
+bgva 2013-01-29
+
+"I was just thinking earlier that it’s insane - and infuriating - that a Black man having a little power broke white people’s brains so bad that they’re now going out of their way to destroy the country as punishment."
+
+* :::=== RoundSparrow_Commentary : Then why is this happening in mutliple NATO nations since March 2013 when the Internet Research Agency was going online? How come UK exited the EU in **year 2016** (same as Trump win)? Because of the USA black man? The Ukraine war started in February 2014, only months after Donald Trump went to Moscow. The Ukraine Wa is still ongoing in August 2025. ["The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) - **2014** ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlackPeopleTwitter/comments/1mj7cxg/stop_letting_senior_citizens_run_for_president/n796muv/
+
+swishandswallow 2014-02-07
+
+"I wouldn't trust an 80 year old with a cup of coffee, much less the nation"
+
+&nbsp;
+
+https://old.reddit.com/r/BlackPeopleTwitter/comments/1mj7cxg/stop_letting_senior_citizens_run_for_president/n79adsh/
+
+spuckthew 2016-10-04
+
+"Crazy to think that even now, having finished his second term 9 years ago, Obama is only 64."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mj3nhh/ghislaine_maxwell_told_justice_department_she/n788yxz/
+
+AnotherDoubtfulGuest 2020-02-18
+
+"What did we think she was going to say after the DOJ likely told her she’d get a pardon if she said exactly this? She’s a convicted sex trafficker who’s desperate to evade her sentence; this whole dog and pony show is the dumbest fucking timeline ever."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mj3nhh/ghislaine_maxwell_told_justice_department_she/n786tdq/
+
+SchreinerEK 2014-04-04
+
+"I think we all know how this is going to end. Maxwell will testify that Trump and Epstein barely knew each other, or tell some other lie that gives Trump enough plausible deniability for MAGA to declare him exonerated. Maxwell will then get pardoned for saving the president from a partisan witch hunt. He’s gotten away with everything so far, why would this be any different.
+
+Now, if we just eat ONE billionaire…"
