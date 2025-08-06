@@ -2081,3 +2081,19 @@ YesterShill 2017-07-28
 
 The Executive branch has taken over the country, just like Russia, China and North Korea."
 
+&nbsp;
+
+https://old.reddit.com/r/southpark/comments/1mimt39/south_park_responds_to_the_government_using_an/n74o0ob/
+
+aliensuperstars_ 2023-10-04
+
+"I think the opposite, they know what they're doing. they want attention, and also they want to look unbothered."
+
+&nbsp;
+
+https://old.reddit.com/r/southpark/comments/1mimt39/south_park_responds_to_the_government_using_an/n74ud3m/
+
+Interesting-City118 2020-12-17
+
+"They barely have to exaggerate or satirize real events, just south parkify them."
+
