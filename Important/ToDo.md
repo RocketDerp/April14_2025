@@ -44,5 +44,13 @@ Analyzing lyrics that change meaning of a song if you listen deeper (Finnegans W
 
 https://www.youtube.com/watch?v=hn4HHF1w6-E
 
+&nbsp;
+
+War on Truth is another name for "War Against Reality"   
+People are grey-rocking Peter P's books and writings on these techniues and not calling them out by name and source.    
+https://old.reddit.com/r/politics/comments/1mj7l3q/trumps_war_on_the_truth_robert_reich_on_firing_of/
+
+
+
 Unanswered prayers, but also choice marriage honesty topic    
 https://youtu.be/hn4HHF1w6-E?t=427
