@@ -2161,3 +2161,16 @@ The hope is Republicans will be satisfied and they can turn the focus on these b
 https://old.reddit.com/r/singularity/comments/1miaoat/google_deepminds_new_genie_3/
 
 * :::=== RoundSparrow_Commentary : People learning about the real world didn't stand a chance, but eventually fiction of Donald Trump White House may wrap back into the real world by simulacra out of bounds ;) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mir4nr/jd_vance_obsessed_with_ufos_says_he_plans_to_get/n75l2oh/
+
+alpurn 2020-09-06
+
+"Oh Jesus Christ this is like clockwork.
+
+The UFO disclosure is coming right after the Greenland purchase, which is after the wall, which is after the Benghazi trials. All of this is juuuuuuuust around the corner I promise!"
+
+* :::=== RoundSparrow_Commentary : The Surkovian governing techniques, anti-reality, fiction governing... shows no signs of reversing. Full blown mythology driven society. ===:::
+
