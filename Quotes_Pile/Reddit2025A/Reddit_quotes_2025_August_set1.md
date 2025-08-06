@@ -63,3 +63,21 @@ UsualGrapefruit99 2024-07-08
 Seriously, did you see the WOMEN at his rally laughing at his comments about E. Jean Carroll?"
 
 * :::=== RoundSparrow_Commentary : **People DO give a fuck. They are attracted to Trump** the power of a god symbol who is a male mythological symbol in the human subconsious (impanted by society into minds at a firmware level, Judeo-Christian improted Levant mythology art and poetry). Not just MAGA, not just Trump suppoters, but anyone who can not see past the Levant religion sytems of thousands of years ago that they have had zero education on how they operate on the human brain. "They say more about Deuteronomy than about **women**. The Hebrews were absolutely ruthless with respect to their neighbors. But this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, **love and compassion are reserved for the in-group**, and aggression and abuse are projected outward on others. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy." - Skywalker Ranch interviews, summer of 1986, Power of Myth book. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mj6m55/dhs_to_open_new_speedway_slammer_detention/n78o99r/
+
+sunshinerain1208 2025-04-12 (this year)
+
+"I really wish this was satire. We are a joke."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mj6m55/dhs_to_open_new_speedway_slammer_detention/n78oo2d/
+
+JimmyRamone17_ 2017-05-30
+
+"Evil idiocracy. Being both as cartoonishly evil and idiotic as possible at once."
+
+* :::=== RoundSparrow_Commentary : And not a soul in USA will call out [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions. I am unable to empahsize enough these political [techniques were described in year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). ===:::
