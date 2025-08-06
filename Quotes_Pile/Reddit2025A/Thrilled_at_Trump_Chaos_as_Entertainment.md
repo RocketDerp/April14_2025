@@ -322,6 +322,8 @@ There is PLENTY that people in USA can be doing to MAGA believers / Trump suppor
 
 # Wednesday, August 6, 2025
 
+&nbsp;
+
 https://old.reddit.com/r/law/comments/1mj3ttx/constitution_of_the_united_states_website_has/n785mnx/
 
 VanimalCracker 2014-02-06
@@ -330,4 +332,5 @@ VanimalCracker 2014-02-06
 
 Edit: guys, that was not a serious question. It was a joke. The original is physical, not digital. Please stop informing me that pocket editions exist."
 
-Every abusurd and sorreal act by the Trump White House is comedy to an audience who will not stop entertainment. Compuslive reactions. Joking about the Constitution. Trump feeds this audience who secretly desirs for him to be in place for one-line jokes (this is a single line: "Holy shit. Does anyone know if there's a physical backup of the original?" to make light of the heavy deep-shit situation). People keep promoting guns and violent uprising, but not willing to actually make a written letter or grievances to rally behind. And that means specific items, not *people* only. Deep ideals, such as teaching cult deprogramming and education about Russia informaiton warfare. Not just making this about figureheads alone, but We The People who are the source of power. **We are living in [Infinite Jest](https://en.wikipedia.org/wiki/Infinite_Jest), and have been since March 2013 when Russia started exporting their Surkovian information warfare, the constant mockery and joking centered around MAGA and Trump and Ukraine war since February 2014 how "Russia is a failure" joking.**
+Every absurd and surreal act by the Trump White House is comedy to an audience who will not stop entertainment. Compulsive reactions. Joking about the Constitution. Trump feeds this audience who secretly desires for him to be in place for one-line jokes (this is a single line: "Holy shit. Does anyone know if there's a physical backup of the original?" to make light of the heavy deep-shit situation). People keep promoting guns and violent uprising, but not willing to actually make a written letter or grievances to rally behind. And that means specific items, not *people* only. Deep ideals, such as teaching cult deprogramming and education about Russia information warfare. Not just making this about figureheads alone, but We The People who are the source of power. **We are living in [Infinite Jest](https://en.wikipedia.org/wiki/Infinite_Jest), and have been since March 2013 when Russia started exporting their Surkovian information warfare, the constant mockery and joking centered around MAGA and Trump and Ukraine war since February 2014 how "Russia is a failure" joking.**
+
