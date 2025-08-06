@@ -71,3 +71,4 @@ https://old.reddit.com/r/antimeme/comments/1mj850k/what_causes_re/
 
 https://old.reddit.com/r/politics/comments/1mjfbb8/women_shouldnt_hold_office_says_gop_woman_now/
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mjdace/they_just_cant_help_themselves/
