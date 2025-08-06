@@ -46,3 +46,11 @@ a_friendly_Nyrve 2024-10-28
 
 &nbsp;
 
+https://old.reddit.com/r/goodnews/comments/1mj1947/clip_of_trump_defending_convicted_rapist_mike/n78i5xp/
+
+Appropriate_Ruin_405 2023-10-28
+
+"Because if someone wasn’t swayed by the access Hollywood tape, or all the widely-circulated weird shit about his daughter A FULL DECADE AGO, these other weird clips make zero difference."
+
+&nbsp;
+
