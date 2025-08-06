@@ -54,3 +54,12 @@ https://old.reddit.com/r/politics/comments/1mj7l3q/trumps_war_on_the_truth_rober
 
 Unanswered prayers, but also choice marriage honesty topic    
 https://youtu.be/hn4HHF1w6-E?t=427
+
+
+&nbsp;
+
+&nbsp;
+
+Obamma was young, and now President is age 80 twice in a row. The population, We The People, problem.   
+https://old.reddit.com/r/BlackPeopleTwitter/comments/1mj7cxg/stop_letting_senior_citizens_run_for_president/
+
