@@ -27,3 +27,5 @@ The *first step* is being intellectually serious and stop react-commenting to ev
 That book has been rotting on the shelf since year 2011 while Americans refuse to face up to their egoism over media consumption and blocking out what they don't like to hear (just like Trump White House wants to block out immigrants and languages and media systems they don't comprehend). Confront these problems *head on* as a **civic duty** of peer to peer rescue.
 
 Why is Jen Senko, the baby boomer who stood up, not a household name since March 2016 when her film went into wide release? 
+
+Because social media users won't keep repeating what is serious and important about social media itself / Fox News media itself.
