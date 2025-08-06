@@ -2174,3 +2174,11 @@ The UFO disclosure is coming right after the Greenland purchase, which is after 
 
 * :::=== RoundSparrow_Commentary : The Surkovian governing techniques, anti-reality, fiction governing... shows no signs of reversing. Full blown mythology driven society. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/fednews/comments/1mim35o/im_a_propublica_reporter_who_broke_the_russ/n74uatw/
+
+Doubledsmcgee 2015-11-29
+
+"No insight to offer but just my anecdotal experience of the actual trauma he’s caused. I’m a 70% service-connected Disabled Vet here, I had a couple years where I was really on the mend with my PTSD until January of this year. My mental health took a sharp decline. Most days my hands don’t stop trembling while I do my work. I’m one of the few “lucky ones” still working remote thanks to the RA I had, I was also hired remote, and despite that “luxury”, I can attest to my mental demise thanks to this administration. They don’t care about me, they don’t care about Feds and they don’t care about Veterans. Thank you for what you’re doing to bring light to their actions. Godspeed to you and all the other journalists working on our stories."
+
