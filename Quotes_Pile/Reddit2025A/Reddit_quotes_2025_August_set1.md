@@ -169,3 +169,13 @@ SchreinerEK 2014-04-04
 "I think we all know how this is going to end. Maxwell will testify that Trump and Epstein barely knew each other, or tell some other lie that gives Trump enough plausible deniability for MAGA to declare him exonerated. Maxwell will then get pardoned for saving the president from a partisan witch hunt. He’s gotten away with everything so far, why would this be any different.
 
 Now, if we just eat ONE billionaire…"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mj3nhh/ghislaine_maxwell_told_justice_department_she/n784fnv/
+
+Callabrantus 2010-05-07
+
+"If there is one thing my momma taught me, it's that you should always trust the word of convicted child sex traffickers. It was the last thing she said to me as they closed the rear doors of the windowless van."
+
+* :::=== RoundSparrow_Commentary : The newly emerging F.M. radio station in Georgia where I was born taught [me a song from Jacksonville, Florida published in year 1973](https://www.youtube.com/watch?v=8eNoms9wsGc) about rich men. ===:::
