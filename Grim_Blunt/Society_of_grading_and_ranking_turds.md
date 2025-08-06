@@ -14,7 +14,7 @@ source: https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 # USA reaction-commenting social media
 
-Reacting upvoting, react liking react ReTweeting, reaction images, reaction memes, reaction comments. Oceans and oceans of them on every media platform.
+Reacting upvoting, react liking, react ReTweeting, reaction images, reaction memes, reaction comments, reaction fiction movie and TV lines. Oceans and oceans of shallow superficial reactions on every media platform.
 
 &nbsp;
 
