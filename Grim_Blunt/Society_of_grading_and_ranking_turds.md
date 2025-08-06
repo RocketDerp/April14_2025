@@ -29,3 +29,23 @@ That book has been rotting on the shelf since year 2011 while Americans refuse t
 Why is Jen Senko, the baby boomer who stood up, not a household name since March 2016 when her film went into wide release? 
 
 Because social media users won't keep repeating what is serious and important about social media itself / Fox News media itself.
+
+&nbsp;
+
+&nbsp;
+
+>  writing comments on reddit that won’t change anything?
+
+Reddit comments are filtered and silently removed. 
+
+>  writing comments on reddit that won’t change anything?
+
+Reddit comments could change everything if people would get on the same page and repeat authors instead of making reaction comments to every tree and recognize the entire forest.
+
+1. Quote writings from  Peter Pomerantsev
+
+2. Quote cult deprogramming books, the public library is full of them
+
+3. Quote Christopher Wylie's two books from 2019 which are before Project 2025 was ever created, which are titled "Plot to break"
+
+Stand up for actually rescuing ourselves form the intellectual warfare situation instead of taste-testing each Donald Trump and MAGA turd and grading the flavor of the shit.
