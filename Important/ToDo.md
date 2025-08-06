@@ -63,3 +63,8 @@ https://youtu.be/hn4HHF1w6-E?t=427
 Obamma was young, and now President is age 80 twice in a row. The population, We The People, problem.   
 https://old.reddit.com/r/BlackPeopleTwitter/comments/1mj7cxg/stop_letting_senior_citizens_run_for_president/
 
+&nbsp;
+
+
+https://old.reddit.com/r/antimeme/comments/1mj850k/what_causes_re/
+
