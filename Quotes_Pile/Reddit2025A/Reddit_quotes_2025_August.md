@@ -2104,3 +2104,32 @@ https://old.reddit.com/r/southpark/comments/1mimt39/south_park_responds_to_the_g
 Thin-Yam-6499 2020-09-06
 
 "I hate that the whole administration is acting like what they're doing is some reality show.And Trump is the biggest media whore of them all. It's all just an act to them to act tough and pander to their braindead followers."
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1mibs8y/trump_says_drop_in_energy_prices_will_prompt/n72e83o/
+
+Thunderbird_Anthares 2013-03-21
+
+"someone please explain to me, how can someone be this much of an idiot, and not be a barely employed unskilled worker, or homeless pissing themselves in a back alley while screaming nonsense"
+
+&nbsp;
+
+### ⚡⚡⚡ ⚡⚡⚡ ↯↯↯ We Are Here
+
+https://old.reddit.com/r/europe/comments/1mibs8y/trump_says_drop_in_energy_prices_will_prompt/n72lfb9/
+
+cypriotakis 2024-06-02
+
+"I genuinely think people elected him because he’s entertaining and funny.
+
+I agree with you 100% though."
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1mibs8y/trump_says_drop_in_energy_prices_will_prompt/n733o0p/
+
+saciopalo 2011-09-15
+
+"He is right and all this basic anti-Trump comments only dumb the discussion down. That's why everyone wants to be in good terms with Saudi Arabia and that's why Putin flew there (he doesn't fly much). Saudi Arabia can end this war whenever it wants, it is the easiest way to end it, by bringing oil prices down.    
+Trump is right about this and it would be better if people did not destroy this idea. On the other hand I would really like it would happen. If you have to give the Nobel Peace Prize to the Prince of Saudi Arabia for it I don't care."
