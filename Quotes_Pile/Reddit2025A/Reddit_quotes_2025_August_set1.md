@@ -81,3 +81,13 @@ JimmyRamone17_ 2017-05-30
 "Evil idiocracy. Being both as cartoonishly evil and idiotic as possible at once."
 
 * :::=== RoundSparrow_Commentary : And not a soul in USA will call out [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions. I am unable to empahsize enough these political [techniques were described in year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mj6m55/dhs_to_open_new_speedway_slammer_detention/n78v7v9/
+
+LadyAmemyst 2022-08-16
+
+"Gawd these names.....I can't even express the words of how evil they are.....and cruel and apparently...totally american. :("
+
+* :::=== RoundSparrow_Commentary : An American adaptation of a Russian Surkovian student year 2012 screenplay for social media society. ===:::
