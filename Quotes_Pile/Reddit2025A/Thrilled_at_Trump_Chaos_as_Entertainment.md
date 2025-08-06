@@ -317,3 +317,17 @@ Flabalanche 2012-09-15
 Fucking lol, lmao even, nothing I can say or do will be as cruel as what Trumps already budgeted to do to you, but you're still locked in for the diddler on the roof."
 
 There is PLENTY that people in USA can be doing to MAGA believers / Trump supporters. Instead of using social media to describe the problem over and over since year 2016, we can start teaching cult deprogramming quotes from the hundreds of cult books in the public library... on social media. We can start teaching media ecology on social media, instead of just LOL LMAO at how Russian information warfare since March 2013 has won the hearts and minds of Americans (to self-harm the USA) - We The People can actually get off our social media ass and start **defending** with intellectual weapons in a war of intellect against the Kremlin. The *compulsive* adoption of Donald Trump's technique of name-calling and insulting reveals we have been manipulated to adopt Donald Trump's very communications techniques... instead of eliminate them, this is reveling in Trumpism.
+
+&nbsp;
+
+# Wednesday, August 6, 2025
+
+https://old.reddit.com/r/law/comments/1mj3ttx/constitution_of_the_united_states_website_has/n785mnx/
+
+VanimalCracker 2014-02-06
+
+"Holy shit. Does anyone know if there's a physical backup of the original?
+
+Edit: guys, that was not a serious question. It was a joke. The original is physical, not digital. Please stop informing me that pocket editions exist."
+
+Every abusurd and sorreal act by the Trump White House is comedy to an audience who will not stop entertainment. Compuslive reactions. Joking about the Constitution. Trump feeds this audience who secretly desirs for him to be in place for one-line jokes (this is a single line: "Holy shit. Does anyone know if there's a physical backup of the original?" to make light of the heavy deep-shit situation). People keep promoting guns and violent uprising, but not willing to actually make a written letter or grievances to rally behind. And that means specific items, not *people* only. Deep ideals, such as teaching cult deprogramming and education about Russia informaiton warfare. Not just making this about figureheads alone, but We The People who are the source of power.
