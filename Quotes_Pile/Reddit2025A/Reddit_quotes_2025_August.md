@@ -2097,3 +2097,10 @@ Interesting-City118 2020-12-17
 
 "They barely have to exaggerate or satirize real events, just south parkify them."
 
+&hbsp;
+
+https://old.reddit.com/r/southpark/comments/1mimt39/south_park_responds_to_the_government_using_an/n74pte1/
+
+Thin-Yam-6499 2020-09-06
+
+"I hate that the whole administration is acting like what they're doing is some reality show.And Trump is the biggest media whore of them all. It's all just an act to them to act tough and pander to their braindead followers."
