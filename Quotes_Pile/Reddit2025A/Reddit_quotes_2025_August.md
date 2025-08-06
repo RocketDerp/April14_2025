@@ -2133,3 +2133,31 @@ saciopalo 2011-09-15
 
 "He is right and all this basic anti-Trump comments only dumb the discussion down. That's why everyone wants to be in good terms with Saudi Arabia and that's why Putin flew there (he doesn't fly much). Saudi Arabia can end this war whenever it wants, it is the easiest way to end it, by bringing oil prices down.    
 Trump is right about this and it would be better if people did not destroy this idea. On the other hand I would really like it would happen. If you have to give the Nobel Peace Prize to the Prince of Saudi Arabia for it I don't care."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mifeef/republicans_subpoena_everyone_and_anyone_over/n73biod/
+
+Didntlikedefaultname 2020-10-08
+
+"There’s a strategy here, a batshit crazy strategy but then we live in batshit times.
+
+Republicans need to show some action on Epstein, it’s been perhaps the one singular thing their base won’t ignore (it seems). So by doing a dog and pony show they can claim they are working on revealing everything and bringing the criminals to justice. Ghislaine will corroborate these were the people on the list and the only people. Ghislaine will get pardoned for cooperating and go away. Republicans will push to prosecute the people they subpoenaed at least some of whom are innocent. Democrats will be forced to either defend the innocent parties or be complicit in the railroading of innocent people. Dems will then be positioned as the party that protects pedophiles. Projection complete"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mifeef/republicans_subpoena_everyone_and_anyone_over/n74xgj7/
+
+copper_cattle_canes 2024-07-07
+
+"Someone else here commented on the reasoning:
+
+Republican voters dont care about the truth, they just want to see Democrats on trial for Epstein because thats the conspiracy they've been fed for years. So Congress will round up a list of Democrats and put on a show and pretend they're on trial.
+
+The hope is Republicans will be satisfied and they can turn the focus on these bullshit hearing instead of the release of the Epstein files."
+
+&nbsp;
+
+https://old.reddit.com/r/singularity/comments/1miaoat/google_deepminds_new_genie_3/
+
+* :::=== RoundSparrow_Commentary : People learning about the real world didn't stand a chance, but eventually fiction of Donald Trump White House may wrap back into the real world by simulacra out of bounds ;) ===:::
