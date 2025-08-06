@@ -34,4 +34,4 @@ Disco425 2020-03-22
 
 "He spent years on television perfecting his bulsh#t generator, perhaps surprised at what he could get away with. When he claimed Obama was from Africa and it actually stuck with the low information voters, I think that gave him the validation that he could do anything he wanted with that talent. It's evil, but of course it's a talent. It will go down as one of the most effective con men in all of history."
 
-* :::=== RoundSparrow_Commentary : [Everything is media ecology, understanding 1985 television power of Donald Trump via Neil Postman's teachings](../../MediaEcology/Everything_is_ME.md) for everyone, then applying forward to Fox News 1996, Twitter and Truth Social ===:::
+* :::=== RoundSparrow_Commentary : [Everything is media ecology, understanding 1985 television power of Donald Trump via Neil Postman's teachings](../../Media_Ecology/Everything_is_ME.md) for everyone, then applying forward to Fox News 1996, Twitter and Truth Social ===:::
