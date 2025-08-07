@@ -104,4 +104,9 @@ There must be peace in the heart.”
 ― Lao-tse    
 Fact-check this quote / original Chinese?
 
+&nbsp;
+
+Verbal abuse, Donald Trump role model of society.    
+https://old.reddit.com/r/science/comments/1mjkbep/verbal_abuse_in_childhood_has_devastating_impact/
+
 
