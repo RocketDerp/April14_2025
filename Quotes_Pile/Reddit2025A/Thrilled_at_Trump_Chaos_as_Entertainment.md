@@ -354,3 +354,6 @@ https://old.reddit.com/r/Fauxmoi/comments/1mjt4tu/stephen_colbert_reacts_to_rfk_
 
 I can't emphasize ENOUGH: "vacination" is the very topic title on Reddit. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) - people have clealry ahd their minds defated by the Kremlin, both RFK Jr and Stephen Colbert both in this dicussion, and noobdy in the Reddit comments. The information wawr [is still ongoing](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57), and people can't resist mocking back at Surkovian governing methods. People of USA are so caught up in the constant topic trees, the entire forest of NATO information war topics isn't being treated as a war. That's how powerful the Putin techniques are, recency bias to avoid connecting timeline dots of Russian meme war topics.
 
+https://old.reddit.com/r/therewasanattempt/comments/1mjx4x1/by_cbs_to_get_rid_of_colbert_and_his_show_before/
+
+Third time Stephen Cobert made the front-page of Reddit on the same topic. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk)
