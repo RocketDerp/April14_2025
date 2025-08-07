@@ -667,3 +667,13 @@ I mean, by extension, I hate the guts of all murican MAGA; and I am equally furi
 Oh yeah, and he is a PEDOPHILE RAPIST."
 
 * :::=== RoundSparrow_Commentary : what 100% of Americans want is to yell at the television. To [react-comment on social machines as to the turd flavor today](../../Grim_Blunt/Society_of_grading_and_ranking_turds.md). It's been going on since March 2013 when Russia seeded the information war. Russia won, Surkov won. Russia was correct in knowing people would yield power and wealth for media content, and Donald Trump provides someone to insult, mock, call stupid and dumb, talk about his diapers and old age. It's an endless shit show. Tony Clifton audience is not just Republicans and MAGA, it is EVERYONE who isn't citing Peter P's 2014 material and calling out that this is Surkov techniques (or at minimum calling out American author Neil Postman's 1985 book). ["I hate his guts as much as the next guy" - also is a brain exploit the Kremlin weaponized.](../Martin_Luther_King_Jr_quotes0.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_trumps_job_approval_by_party/n7es1wz/
+
+BuddaMuta 2014-12-12
+
+"Fox News is the biggest cancer western society has ever faced "
+
+* :::=== RoundSparrow_Commentary : why has social media not make Jen Senko world famous since March 2016 release of her film about Fox News? A boomer stood up, but social media society won't stay on important topics, too meme addled with streaming junk content to do the civic duty of promoting and iportant film (March 2016 release is BEFORE November 2016 election of Donald Trump). ===:::
