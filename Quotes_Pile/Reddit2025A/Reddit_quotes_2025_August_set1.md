@@ -758,4 +758,20 @@ AncientSeraph 2014-11-03
 
 "And this is why a two party system with a powerful leading figure is just a recipe for disaster. People don't change votes."
 
-* :::=== RoundSparrow_Commentary : Two-party religion systems: Gaza is Muslim Quran, Isreal is Torah Jewish. Both fiction, Bible, Quran, Torah are all science ficiton, fighting out-group hate patterns of loyalty to fiction storytelling: infidel Quran, gentile Torah. Mosque media venue, Mecca media theme park, Holy lands Torah meme theme park... [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md)  ===:::
+* :::=== RoundSparrow_Commentary : Two-party religion systems: Gaza is Muslim Quran, Isreal is Torah Jewish. Both fiction, Bible, Quran, Torah are all science ficiton, fighting out-group hate patterns of loyalty to fiction storytelling: infidel Quran, gentile Torah. Mosque media venue, Mecca media theme park, Holy lands Torah meme theme park... [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md). Allah vs. Yahweh, science fiction outer-space stories both. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mk0hzb/this_is_child_trafficking_russia_launches/n7fe5uq/
+
+Armand74 2018-03-07
+
+"This quite possibly seriously blow up on their own faces, most of their men are dead, then they think they can steal children who will have a distinct memory of this and will never forget, these same kids grow up and what the Russians think are Russified grownups could become an insurgency that could topple the very state they have. Basically a reverse conquest of Russia due to their hubris is assuming they can steal children who have already formed a basic national identity and it’s not Russian. I’m not suggesting all of the kids I would imagine this would depend on the age they were taken."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mk0hzb/this_is_child_trafficking_russia_launches/n7fh2gv/
+
+Revenge_served_hot 
+
+"It keeps getting more horrible with news from russia... It's just so vile, despicable and disgusting. Why can nobody stop that maniac and why do general news media not cover this more?"
