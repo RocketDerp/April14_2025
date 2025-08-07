@@ -140,3 +140,10 @@ https://old.reddit.com/r/worldnews/comments/1mjx0u9/picture_agencies_drop_gaza_p
 
 https://old.reddit.com/r/worldnews/comments/1mjx0u9/picture_agencies_drop_gaza_photographer_after/n7etwas/
 
+&nbsp;
+
+&nbsp;
+
+Language and pauses in speaking. Autism, Finnegans Wake   
+
+https://old.reddit.com/r/todayilearned/comments/1mkcr07/til_that_english_speakers_will_feel_uncomfortable/
