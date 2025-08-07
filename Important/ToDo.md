@@ -110,3 +110,7 @@ Verbal abuse, Donald Trump role model of society.
 https://old.reddit.com/r/science/comments/1mjkbep/verbal_abuse_in_childhood_has_devastating_impact/
 
 
+&nbsp;
+
+Ban-happy eBay / lifetime ban   
+https://www.youtube.com/watch?v=46AAERY2fVw
