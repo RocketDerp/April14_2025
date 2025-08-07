@@ -596,4 +596,13 @@ keyjan 2015-03-31
 
 * :::=== RoundSparrow_Commentary : Donald Trump is in a Tony Clifton performance world, providing content for social media users to give one-line Twitter-thinking reactions. Media addiction Tweet-thinking is every day all day of society, not just voting election days every 4 years. Fiction is Tony Clifton, fiction is the Reddit and Bluesky audience, fiction outsells nonfiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fac80/
+
+EntireFishing 2020-05-04
+
+"Yep, I've definitely worked for a guy who's like that. I would explain how something worked in the IT industry and he would go now thats not how it works. I Went well it is. Here's the documentation from Microsoft. That is exactly how it works and his answer was no no it isn't. It works my way. When people have this mental way of thinking, there's nothing you can do to change it and America's ended up with that as their president"
+
+* :::=== RoundSparrow_Commentary : We do not teach people to distinguish fiction from non-fiction. Look at the Mosque, Church selling science fiction as nonfiction. Egomania abounds. Microsoft is providing nonfiction, it does not appeal to people who are not self-aware of fiction addiction. Nonfiction is far more popular. I was a certified teacher for Microsoft products, I taught Microsoft employees in Redmond Washington. I have studied this attraction to fiction first hand, I am a published author and technical editor of computer books (including social media books). You can't just leave it to chance that people know fiction attraction, you have to take Neil Postman's library of books seriously, especially his 1985 book "Amusing Ourselves To Death" and make sure EVERY PERSON age 12 to age 120 understands media ecology. Mosque, Mecca, Church, Roman Empire is the evidence of how this ability to distinguish fiction from nonfiction is essential to a functining democracy. Grasping comparative mythology is not optional. ===:::
 
