@@ -115,3 +115,24 @@ James Joyce, Irish writer, was trying to cult deprogram an entire nation - Irela
 
 Joseph Campbell at age 83, Skywalker Ranch California interviews: "The big moment in the medieval myth is the awakening of the heart to compassion, the transformation of passion (**MAGA passion, Fox News passion**) into compassion. That is the whole problem of the Grail stories, compassion for the wounded king. And out of that you also get the notion that Abelard offered as an explanation of the crucifixion: that the Son of God came down into this world to be crucified to awaken our hearts to compassion, and thus to turn our minds from the gross concerns of raw life in the world to the specifically human values of self-giving in shared suffering. In that sense the wounded king, the maimed king of the Grail legend, is a counterpart of the Christ. He is there to evoke compassion and thus bring a dead wasteland to life. There is a mystical notion there of the spiritual function of suffering in this world. The one who suffers is, as it were, the Christ, come before us to evoke the one thing that turns the human beast of prey into a valid human being. That one thing is compassion. This is **the theme that James Joyce takes over and develops in Ulysses** — the awakening of his hero, Stephen Dedalus, to manhood through a **shared compassion** with Leopold Bloom. That was the awakening of his heart to love and the opening of the way."
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+### Reddit comments "media woke"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fef36/
+
+brickne3 2007-04-28 (reddit has only been around for 20 years, old account)
+
+<img width="1362" height="1484" alt="image" src="https://github.com/user-attachments/assets/d7d9646c-5fe4-43cc-882d-bbeadb9b39cd" />
+
+&nbsp;
+
+"I feel like at this point even those of us who have seen more normal presidencies have all been traumatised by this shit for so long that it's caused all of us some kind of mass brain trauma/PTSD/something. It can't be healthy to be exposed to this insanity constantly, and it didn't just start with Trump either."
