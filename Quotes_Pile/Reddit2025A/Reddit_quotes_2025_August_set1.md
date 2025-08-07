@@ -868,3 +868,22 @@ Standard-Mechanic101 2025-01-16 (this year)
 
 "My favorite part of this sub is how quickly the actual lunatics become aware of it and respond in the same “Who? You?” type manner."
 
+&nbsp;
+
+https://old.reddit.com/r/whenthe/comments/1mjzq25/this_is_just_an_expansion_pack_for_enforcing/n7eyc1l/
+
+HER_laughter 2025-03-12 (recent account)
+
+"Saw a post recently where a guy was talking about how much he likes the color pink and stuff and the number of comments calling him egg or saying "egg behavior" "the egg pipeline is real" is crazy. I HATE it."
+
+&nbsp;
+
+https://old.reddit.com/r/whenthe/comments/1mjzq25/this_is_just_an_expansion_pack_for_enforcing/n7fecx2/
+
+ScaredyNon 2020-06-24
+
+"It's our good ol' friend, ✨ tribalism ✨ 
+
+Being in queer groups usually means that all the people you know are queer. Your cool cat "in-group" are The Gays. Consequently, this makes The Hets your "out-group", the weird stinky people who you don't really identify with.
+
+When a straight guy comes along and doesn't act like what you expect someone from The Hets would do, your mind automatically treats them as one of The Gays, with all of the homosexual baggage that comes with the implication"
