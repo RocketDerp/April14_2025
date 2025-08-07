@@ -362,3 +362,14 @@ And another time on the front page of Reddit with Stephen Colbert avoding the Pu
 
 https://old.reddit.com/r/50501/comments/1mjwjtk/stephen_colbert_unleashes_hell_on_rfk_jr_fuck_you/
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fcqag/
+
+spam__likely 2019-04-25
+
+"He is not, and he did not. He did tricked Trump into believing he did though, which I find infuriating and hilarious at the same time.
+
+No, he did not manipulate the computers. He manipulated people, with money and twitter. He is a fucking con man."
+
+This reddit users describes having their *mind blown* with humor. How predictable that absurd surreal messaging is core to Kremlin humor-based mind-fucking.
