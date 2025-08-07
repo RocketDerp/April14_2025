@@ -676,4 +676,25 @@ BuddaMuta 2014-12-12
 
 "Fox News is the biggest cancer western society has ever faced "
 
-* :::=== RoundSparrow_Commentary : why has social media not make Jen Senko world famous since March 2016 release of her film about Fox News? A boomer stood up, but social media society won't stay on important topics, too meme addled with streaming junk content to do the civic duty of promoting and iportant film (March 2016 release is BEFORE November 2016 election of Donald Trump). ===:::
+* :::=== RoundSparrow_Commentary : why has social media not made [Jen Senko world famous since March 2016 release of her film about Fox News? A boomer stood up, but social media society won't stay on important topics](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad), too meme addled with streaming junk content to do the civic duty of promoting and iportant film (March 2016 release is BEFORE November 2016 election of Donald Trump). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_trumps_job_approval_by_party/n7exrro/
+
+beerguy_etcetera 2018-11-19
+
+"Fox News planted the conservative seed back in the 90s and can be connected to every issue you see today. Social media has definitely exacerbated the issue, but Fox News is patient zero in the conservative epidemic."
+
+* :::=== RoundSparrow_Commentary : Neil Postmans book about Fox News was published in 1985, **more than a FULL DECADE in advance of the October 7, 1996 launch of Fox News**. Social media society will not focus on Neil Postman's book and repeat and repeat (retweet) until everyone gets on the same 184 pages. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_trumps_job_approval_by_party/n7ex784/
+
+INtoCT2015 2014-07-20
+
+"You underestimate the role Fox News plays. The people who vote red are predominantly rural, southern, and older. Fox News has those people hooked to a mainline IV. I’m not kidding. These people watch it every hour they are at home. They never turn it off.
+
+Social media is in compared to the influence Fox News as a channel has."
+
