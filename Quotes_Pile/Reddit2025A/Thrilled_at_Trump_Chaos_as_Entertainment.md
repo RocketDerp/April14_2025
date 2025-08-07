@@ -350,19 +350,28 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1mjwi12/unleashing_hell_has
 
 Top of front page of Reddit. Media addicts thriled at having leaders to hate upon using media. How entertaining Hell is, the loss of an information war... unleashed Hell by Russia. We The Peope on social media are eatig the Surkovian onions, unable to cite Peter P's 2014 books and articles. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) in a RFK Jr measles segment. A nation mind-fucked by Kremlin into ractionary recency bias.
 
+&nbsp;
+
 https://old.reddit.com/r/Fauxmoi/comments/1mjt4tu/stephen_colbert_reacts_to_rfk_jr_vaccine_funding/
 
 I can't emphasize ENOUGH: "vacination" is the very topic title on Reddit. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) - people have clealry ahd their minds defated by the Kremlin, both RFK Jr and Stephen Colbert both in this dicussion, and noobdy in the Reddit comments. The information wawr [is still ongoing](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57), and people can't resist mocking back at Surkovian governing methods. People of USA are so caught up in the constant topic trees, the entire forest of NATO information war topics isn't being treated as a war. That's how powerful the Putin techniques are, recency bias to avoid connecting timeline dots of Russian meme war topics.
+
+&nbsp;
 
 https://old.reddit.com/r/therewasanattempt/comments/1mjx4x1/by_cbs_to_get_rid_of_colbert_and_his_show_before/
 
 Third time Stephen Cobert made the front-page of Reddit on the same topic. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk)
 
-And another time on the front page of Reddit with Stephen Colbert avoding the Putin information war topic of his own May 4, 2019 broadcast.
+&nbsp;
 
 https://old.reddit.com/r/50501/comments/1mjwjtk/stephen_colbert_unleashes_hell_on_rfk_jr_fuck_you/
 
+And another time on the front page of Reddit with Stephen Colbert avoding the Putin information war topic of his own May 4, 2019 broadcast.
+
 &nbsp;
+
+&nbsp;
+
 
 https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fcqag/
 
