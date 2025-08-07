@@ -382,3 +382,4 @@ spam__likely 2019-04-25
 No, he did not manipulate the computers. He manipulated people, with money and twitter. He is a fucking con man."
 
 This reddit users describes having their *mind blown* with humor. How predictable that absurd surreal messaging is core to Kremlin humor-based mind-fucking.
+
