@@ -980,4 +980,52 @@ Remidable_Arkitect 2024-12-26 (less than 1 year)
 
 "Stone and Parker WILL capitulate with Turmp at the end. I guarantee it. Those two are cowardly money-grubbing billionaire libertarians. So let’s enjoy all the farce and satire now while we can."
 
-* :::=== RoundSparrow_Commentary : They are adding mockery to a White House mockery. They are adding a deeper layer of unreality to a [Kremlin War Against Reality that started in export variation March 2013](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). A world of fiction adding more fiction. This problem is the population being deeply attracted to fiction, not just a dozen front-stage performers at the WHite House. Multiple NATO nations report the Putin media invasion of unreality. ===:::
+* :::=== RoundSparrow_Commentary : They are adding mockery to a White House mockery. They are adding a deeper layer of unreality to a [Kremlin War Against Reality that started in export variation March 2013](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). A world of fiction adding more fiction. This problem is the population being deeply attracted to fiction, not just a dozen front-stage performers at the White House. Multiple NATO nations report the Putin media invasion of unreality. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkbaz1/could_rfk_jrs_move_to_pull_mrna_vaccine_funding/n7hgrr1/
+
+CrimsonFeetofKali 2025-01-18 (new account this year)
+
+"The speed with which the COVID vaccine was developed speaks to the strength of this approach. Taking anything off the table for non-scientific reasons is foolish, especially when there is a risk of bio-weapons. It's nonsense, but this what you get when conspiracy theory runs policy."
+
+* :::=== RoundSparrow_Commentary : [Russia had seeded manipulation of hearts and minds since year 2014 usigng Twitter. Factual hard evidence validated by Johns Hopkins University and George Washington University](https://www.bbc.com/news/world-us-canada-45294192). And that is ONLY the evidence off one single media platform that we uncovered. [Kremlin brags that we only discovered 1%](https://www.washingtonpost.com/technology/2023/04/16/russia-disinformation-discord-leaked-documents/) of the Putin media invasion. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkav2c/south_park_stuns_dhs_into_silence_with_shocking/n7hil4x/
+
+wrosecrans 2013-01-16
+
+"Yes, but the news has a strict policy of sanewashing whatever the Republicans do, so a crude cartoon made by some assholes is one of the only things left on TV that will speak plainly about what's going on. As a result, what's going on absolutely shocks people when they see it put "in the mouths of babes" rather than in the mouths of Very Serious NYT opinion column contributors."
+
+* :::=== RoundSparrow_Commentary : All this classical thinking makes sense if you have never seriously studied Russian information warfare, Surkovian absurd surreal mind exploit patterns. Denial abounds. "will speak plainly about what's going on" that is Peter Pomerantsev and Andrew Postman, not South Park. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkav2c/south_park_stuns_dhs_into_silence_with_shocking/n7hgbni/
+
+ConfuzzledDork 2018-02-19
+
+"The vicious mockery will continue until democracy is restored
+
+* :::=== RoundSparrow_Commentary : Fox News, The Bible, and the Church were already a mockery. Did you see how many times The Bible was invoked in that episode 2 of South Park? But avoidant of verses: Matthew 6:5 on Trump posing with Bible, "1 John 3:17" on Trump wealth / Musk wealth, "1 John 4:20" on fiction God character you haven't seen. We are living in saturation of mockery. Donald Trump playing Tony Clifton act. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkav2c/south_park_stuns_dhs_into_silence_with_shocking/n7hfsyt/
+
+real_legit_unicorn 2016-04-02
+
+"it's not demeaning bullshit. She herself boasted about killing the dog and she herself has hollywoodized her ICE life by posing in comms videos."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkav2c/south_park_stuns_dhs_into_silence_with_shocking/n7hlhnp/
+
+silverblaze92 2911-07-23
+
+"You know, I got to say that South Park being relevant again in the year. 2025 was definitely not on my bingo card. This is definitely a terrible timeline, but I got to say that this aspect of it is at least somewhat interesting and entertaining"
+
+* :::=== RoundSparrow_Commentary : Donald Trump inspired this content creation, and audiences are glued to the White House being a total mockery Tony Clifton act. Eating the Surkovian onions. ===:::
