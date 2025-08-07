@@ -887,3 +887,33 @@ ScaredyNon 2020-06-24
 Being in queer groups usually means that all the people you know are queer. Your cool cat "in-group" are The Gays. Consequently, this makes The Hets your "out-group", the weird stinky people who you don't really identify with.
 
 When a straight guy comes along and doesn't act like what you expect someone from The Hets would do, your mind automatically treats them as one of The Gays, with all of the homosexual baggage that comes with the implication"
+
+&nbsp;
+
+https://old.reddit.com/r/whenthe/comments/1mjzq25/this_is_just_an_expansion_pack_for_enforcing/n7f2ox5/
+
+ClayXros 2018-05-13
+
+"It's a weirdly roundabout form of cultural oppression all over again, except instead of outright shaming people for liking the other genders stuff, it's stating "if you like it, just go become it", implying the interests are mutually exclusive.
+
+Time is a flat circle."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstein_files_bullshit_so_cnn/n7fywv8/
+
+PhantroniX 2023-07-13
+
+"You're right. And I'm still struggling to figure out why.
+
+Why are so many people okay with a pedo as a president? Why are so many people okay with everything that this administration is doing? Destroying NASA satellites? Defunding cancer research? Ripping away health care? Throwing people in camps? Stealing our money to give the rich? Cheating elections?
+
+It is no doubt that MAGA is too far gone to speak sense to them, but I'm left wondering why there are still so many of them. Yet when Obama wore a brown suit it was in the news for weeks."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstein_files_bullshit_so_cnn/n7g31bz/
+
+h00gieboss 2011-04-06
+
+"They've been getting hammered repeatedly by the most powerful propaganda tool the world has ever seen in the Fox News/social media combo, which has been telling them for years that there is nothing, NOTHING in this world more evil than a Democrat. Not al-Qaeda or Isis or Vladimir Putin. This line of thinking is at the core of their belief structure now. They'd vote for Satan himself if he promised to take it to Democrats and the left."
