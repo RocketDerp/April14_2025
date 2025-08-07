@@ -440,3 +440,19 @@ pronounclown 2024-01-03
 "I have honestly given up on caring. Even if Tim cook ate children live on TV apple stocks would go up and rich got richer.
 
 Consumers are beyond repair. So is the whole system."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_glass_statue_for_donald/n7efqi4/
+
+EastofEdyn 2024-07-24
+
+"He doesn’t care because to him the price of the iPhone is negligible. Apple could tank tmrw and Tim Cook is still set. These people don’t differ in their views of how we, the undesirables of society, should be treated and abused - the money for them still flows"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_glass_statue_for_donald/n7dhocw/
+
+SecondHandWatch 2013-04-15
+
+"A 24k gold gift made publicly at a press conference to the most famous rapist and child trafficker in the world is subtle?"
