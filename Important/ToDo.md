@@ -88,3 +88,20 @@ I have lived in Africa, Middle East, all over USA, in South America, Mayalsia, I
 
 https://old.reddit.com/r/AmIOverreacting/comments/1mjkiah/aio_should_i_leave_my_bf_was_what_he_did_to_me/
 
+"Yep. One of the reasons I left my ex husband is because of the strangulation statistic. He had strangled me a few months previous and I vowed after I heard the statistic to get out for good when he deployed."    
+https://old.reddit.com/r/AmIOverreacting/comments/1mjkiah/aio_should_i_leave_my_bf_was_what_he_did_to_me/n7c3b1v/
+
+“If there is to be peace in the world,   
+There must be peace in the nations.   
+If there is to be peace in the nations,   
+There must be peace in the cities.   
+If there is to be peace in the cities,   
+There must be peace between neighbors.   
+If there is to be peace between neighbors,   
+There must be peace in the home.   
+If there is to be peace in the home,   
+There must be peace in the heart.”   
+― Lao-tse    
+Fact-check this quote / original Chinese?
+
+
