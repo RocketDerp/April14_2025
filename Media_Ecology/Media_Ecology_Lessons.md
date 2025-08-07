@@ -341,3 +341,9 @@ How did London view the arrival of Star Wars in 1977?
 
 https://www.youtube.com/watch?v=fSKJW1wazQ8
 
+### The recording is the message
+
+The microphone and technique is the message.   
+
+https://www.youtube.com/watch?v=cirBprnMyA4
+
