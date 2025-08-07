@@ -833,3 +833,38 @@ gonzo_1606 2019-11-16
 "Most Americans are clueless that this is happening.."
 
 * :::=== RoundSparrow_Commentary : [As Doctor Carl Jung spelled out, the Germans did not grasp or comprehend what they were doing](../Doctors/Carl_Jung.md) as they did it. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mjv8yw/the_distractions_get_bigger/n7fejog/
+
+HowAManAimS 2024-10-07
+
+"Do any of you really think Trump would not be doing this kind of stuff before anyone was talking about Epstein? When he mentioned injecting bleach was that just a distraction from the Epstein files? When he said to nuke tornadoes was that a distraction?
+
+This repeatedly calling everything a distraction is just annoying at this point."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mjv8yw/the_distractions_get_bigger/n7g6avk/
+
+Im_not_good_at_names 2014-12-30
+
+"I want to see trump pay for what he has done just as much as anyone else, but this reactor on the moon has been in the works long before he got re-elected."
+
+&nbsp;
+
+https://old.reddit.com/r/LinkedInLunatics/comments/1mk339u/i_think_shes_on_to_us/n7g2195/
+
+Selethorme 2017-02-02
+
+"I was gonna say, this is 100% AI generated."
+
+&nbsp;
+
+https://old.reddit.com/r/LinkedInLunatics/comments/1mk339u/i_think_shes_on_to_us/n7fpww2/
+
+Standard-Mechanic101 2025-01-16 (this year)
+
+"My favorite part of this sub is how quickly the actual lunatics become aware of it and respond in the same “Who? You?” type manner."
+
