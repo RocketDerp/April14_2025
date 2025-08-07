@@ -719,3 +719,23 @@ They wallow in fear and hatred, so of course the house is filled with guns and t
 Right wing media has turned them into paranoid psychos."
 
 * :::=== RoundSparrow_Commentary : Just like Malala describes the **normal parenting** in Swat Valley Pakistan way back in year 2013:  “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. The medium makes the society, garbage media into minds, garbage content out of minds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_trumps_job_approval_by_party/n7f47eu/
+
+Certain-Dragonfly-22 2020-11-08
+
+"I'm a liberal. My 16 year old son went to stay with my parents for two weeks this past summer. When he came home, one of the first things that he said to me was, "All they watch in the evening is this propaganda news that paints everything trump does as good....its so weird. And it's real news on FoxNews."
+
+He had never seen FoxNews before, and I had to explain to him that it's not just in Pennsylvania...its nationwide. And not a real news station. Considered entertainment, but 100% brainwashing folks for decades.
+
+I do think the younger republicans are now being brainwashed by tiktok, though. I even see attractive AI accounts with videos praising Trump... and people believe they're real. It's all wildly disturbing."
+
+&nbsp;
+
+https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_trumps_job_approval_by_party/n7eys3s/
+
+hybridaaroncarroll 2017-01-12
+
+"Can confirm. I live in the deep south, and have walked into dentist's offices where Fox News was blaring. Everyone in the room is staring at it, breathing from mouths. If I see that I just walk out. It's pointless to complain because most people that go there love that it's on. It's their adult pacifier."
