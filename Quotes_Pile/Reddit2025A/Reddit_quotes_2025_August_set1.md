@@ -263,3 +263,13 @@ Numeno230n 2017-06-20
 "And they get really pissed off and confused when that vote turns into a reality they don't enjoy."
 
 * :::=== RoundSparrow_Commentary : yet we can't face [Jen Senko's March 2016 film](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad) and make her a household name. Being pissed off and angry is the brain exploit and we don't recognize the forest of it for the encounter with individual trees. [Cambridge Analytica too, anger works](../Cambridge_Analytica_Quotes.md). Reddit voting and election voting, media ecology, reveals similar problems of fiction vs. nonfiction. Surkov figured this out decades ago and Russia exported it via the Internet Research Agency since March 2013, and we have mentally fallen as a nation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mjhzbm/jd_vances_team_had_water_level_of_ohio_river/n7barxb/
+
+TheUpperHand 2012-12-27
+
+"I mean, damn. He’s been to Disney, boating, the UK, Vermont and probably more, that’s just off the top of my head. I’m more fortunate than many in the U.S. with regard to time off flexibility, but he’s been on more vacations in 6 months than I’ve been on in five years."
+
+* :::=== RoundSparrow_Commentary : Yet, people think this Surkovian technique of governing is only one very old senile dementia man, and not mutiple players (in multiple nations interacting with Putin). Just like Donald Trump golf course, it creates media events. It is exploiting reality with shock behavior. Remember, [JD Vance went to Greenland for holiday and conquest](https://www.nytimes.com/2025/03/28/world/europe/jd-vance-greenland-visit-denmark-us.html). This is [organized warfare against reality itself DESCRBIED IN PRINT since YEAR 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Americans think this is only domestic... can not see the forest for the trees of mutliple NATO nations being played. ===:::
