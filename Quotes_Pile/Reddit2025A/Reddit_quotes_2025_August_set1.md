@@ -775,3 +775,13 @@ https://old.reddit.com/r/worldnews/comments/1mk0hzb/this_is_child_trafficking_ru
 Revenge_served_hot 
 
 "It keeps getting more horrible with news from russia... It's just so vile, despicable and disgusting. Why can nobody stop that maniac and why do general news media not cover this more?"
+
+&nbsp;
+
+https://old.reddit.com/r/entertainment/comments/1mjzorv/john_oliver_slams_jay_leno_after_giving_advice/n7f8vil/
+
+LB33Bird 2024-03-09
+
+"The late night shows have mostly gone the way of Fox/MSNBC. They are aiming their entertainment at a particular demographic and catering to them. It seems to be the way everything is going now where politics isn’t just a part of a wide spectrum but is the main/only thing. As someone who is firmly anti-Trump I don’t tend to watch any of the late night shows anymore. When I watch TV I like to escape the real world."
+
+* :::=== RoundSparrow_Commentary : using Reddit social media is escaping the real world, almost all fiction memes and very little relevant nonfiction. "When I watch TV I like to escape the real world" - that is the very attraction to Fox New audience, fiction, escaping climate change reality, escaping poversty and helath care reality in USA to worship images of bling bling Donald Trump. People like the Trump White House to *escape reality*, fiction outsells nonfiction. Joe Biden was considered sleep and boring compared to fiction Donald Trup White House content. ===:::
