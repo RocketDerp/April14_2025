@@ -273,3 +273,13 @@ TheUpperHand 2012-12-27
 "I mean, damn. He’s been to Disney, boating, the UK, Vermont and probably more, that’s just off the top of my head. I’m more fortunate than many in the U.S. with regard to time off flexibility, but he’s been on more vacations in 6 months than I’ve been on in five years."
 
 * :::=== RoundSparrow_Commentary : Yet, people think this Surkovian technique of governing is only one very old senile dementia man, and not mutiple players (in multiple nations interacting with Putin). Just like Donald Trump golf course, it creates media events. It is exploiting reality with shock behavior. Remember, [JD Vance went to Greenland for holiday and conquest](https://www.nytimes.com/2025/03/28/world/europe/jd-vance-greenland-visit-denmark-us.html). This is [organized warfare against reality itself DESCRBIED IN PRINT since YEAR 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Americans think this is only domestic... can not see the forest for the trees of mutliple NATO nations being played. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mjhzbm/jd_vances_team_had_water_level_of_ohio_river/n7b7erj/
+
+ThinkSoftware 2018-03-10
+
+"Administration is just cartoonishly evil. They'll try to block out the sun next like Mr Burns"
+
+* :::=== RoundSparrow_Commentary : Yes, they are creating ***fiction like The Simpsons*** and have been since [Trump's November 2012 agreement with Russia](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) on multiple media platforms [since year 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america). The Middle East is run on fiction monomyth storytelling, it works on human brains, Russia has weaponized it. ===:::
