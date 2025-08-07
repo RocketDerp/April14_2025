@@ -784,4 +784,25 @@ LB33Bird 2024-03-09
 
 "The late night shows have mostly gone the way of Fox/MSNBC. They are aiming their entertainment at a particular demographic and catering to them. It seems to be the way everything is going now where politics isn’t just a part of a wide spectrum but is the main/only thing. As someone who is firmly anti-Trump I don’t tend to watch any of the late night shows anymore. When I watch TV I like to escape the real world."
 
-* :::=== RoundSparrow_Commentary : using Reddit social media is escaping the real world, almost all fiction memes and very little relevant nonfiction. "When I watch TV I like to escape the real world" - that is the very attraction to Fox New audience, fiction, escaping climate change reality, escaping poversty and helath care reality in USA to worship images of bling bling Donald Trump. People like the Trump White House to *escape reality*, fiction outsells nonfiction. Joe Biden was considered sleep and boring compared to fiction Donald Trup White House content. ===:::
+* :::=== RoundSparrow_Commentary : using Reddit social media is escaping the real world, almost all fiction memes and very little relevant nonfiction. "When I watch TV I like to escape the real world" - that is the very attraction to Fox New audience, fiction, escaping climate change reality, escaping poverty and health care reality in USA to worship *trickle-down images* of bling bling Donald Trump. People like the Trump White House to *escape reality*, fiction outsells nonfiction. Joe Biden was considered sleep and boring compared to fiction Donald Trump White House content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mk37uu/fbi_granted_request_to_locate_fleeing_texas_house/n7frsnv/
+
+gentleman_bronco 2014-06-07
+
+"Weird how arresting political opponents who haven't committed a crime and are simply refusing to gerrymander a state is what the "don't tread on me" crowd is jerking off about today."
+
+* :::=== RoundSparrow_Commentary : And the Reddit crowd is jerking off about how dumb stupid idiots MAGA are. It's nothing but out-group hate stimulation anymore. Feedback loops of runaway Russian simualcra. USA lost an infomation war to Putin and Surkov and people are not standing up to escape the total mockery patterns of: A mocks B, B mocks A. Sexual pleasure in the Twitter-length comments plays off the media consumer frenzy of the "Epstein list" sex topics saturaing media in July and August 2025. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mk37uu/fbi_granted_request_to_locate_fleeing_texas_house/n7fs5ls/
+
+Ornstien 2015-08-04
+
+"So they have weaponized the FBI against a political party...are people not seeing this for emergency it is??"
+
+* :::=== RoundSparrow_Commentary : No, they are not seeing it. They have context bewilderment and can't connect the dots to Russian information warfare against mutliple NATO nations. [As Doctor Carl Jung spelled out, the Germans did not grasp or comprehend what they were doing](../Doctors/Carl_Jung.md) as they did it. Detachment from reality, Russia won the War Against Reality. Putin won, Surkov won. Do you really thing being tricked by Putin and Trump is enjoyable, that it is authentically fun to be a mental slave to Donald Trump? You have to view this that the laughing and mocking is a symptom of *lost heart and mind to enemy*.. Do you think Islamic terrorists are RALLY winning rewards in Heaven afterlife or they have been mind-fucked? That's Doctor Carl Jung's point, German people did not grasp their own behaviors. REPEATING: Russia won, Surkov won. ===:::
+
