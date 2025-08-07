@@ -223,3 +223,23 @@ https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive
 Endrizzle 2018-11-29
 
 "It’s been ten years since (when he was the president) it’s been the “most historic, probably ever” in 6 months. When does this record stop skipping?"
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive_on_the_epstein_situation/n7bftyo/
+
+Tokon32 2015-11-30
+
+"Don't forget COVID was a Democratic hoax to before it killed millions of Americans."
+
+* :::=== RoundSparrow_Commentary : Yes, and by blaming domestic Democratic party, Americans did not look further to see that [Russia had seeded manipulation of hearts and minds since year 2014 usigng Twitter. Factual hard evidence validated by Johns Hopkins University and George Washington University[(https://www.bbc.com/news/world-us-canada-45294192). Don't Forget... Americans can not fight an information war, Russia has kicked our ass into not seeing the NATO forest, patterns of domestic Americans hate Americans. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive_on_the_epstein_situation/n7bh7f9/
+
+Beginning_Ad_6616 2022-01-14
+
+"Didn’t he, his advisers, and the GOP bring the whole concept of exposing the files as an effort to appeal to their base? Like no one else was talking big shit about releasing the files…just him and MAGA."
+
+* :::=== RoundSparrow_Commentary : Yes, but Reddit society can't be bothered to use Google search engine and provide links, and reactions in conditioned Twitter-length style. ["Fact Check: Did Donald Trump Jr. once post, 'Show us all the Epstein client list' and ask why those on it would be protected?"](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html) - and if you think I am not commenting on Reddit with these links and pointers, you [will find my reply messages are being censored](Censored). ===:::
