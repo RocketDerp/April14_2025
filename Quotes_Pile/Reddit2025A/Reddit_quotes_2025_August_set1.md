@@ -654,3 +654,16 @@ keyjan 2015-03-31
 
 "he is an embarrassment. No wonder we're the laughing stock of the world. Fuck, *I'm* embarrassed."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fdgxh/
+
+Lonely-Building-8428 2023-11-03
+
+"I dunno. I hate his guts as much as the next guy, but is he just the symptom of a diseased American population - riddled with racism, hatred and Doritos/Youtube driven apathy?
+
+I mean, by extension, I hate the guts of all murican MAGA; and I am equally furious at the apathetic third who failed to even try and stop this. That's two-thirds of Americans. By and large, they want this. 
+
+Oh yeah, and he is a PEDOPHILE RAPIST."
+
+* :::=== RoundSparrow_Commentary : what 100% of Americans want is to yell at the television. To [react-comment on social machines as to the turd falvor today](../../Grim_Blunt/Society_of_grading_and_ranking_turds.md). It's been going on since March 2013 when Russia seeded the information war. Russia won, Surkov won. Russia was correct in knowing people would yeild power and wealth for media content, and Donald Trump provides someone to insult, mock, call stupid and dumb, talk about his diapers and old age. It's an endless shit show. Tony Clifton audience is not just Repulbicans and MAGA, it is EVERYONE who isn't citing Peter P's 2014 material and calling out that this is Surkov techniques (or at minumum calling out American author Neil Postman's 1985 book). ["I hate his guts as much as the next guy" - also is a brain exploit the Kremlin weaponized.](../Martin_Luther_King_Jr_quotes0.md) ===:::
