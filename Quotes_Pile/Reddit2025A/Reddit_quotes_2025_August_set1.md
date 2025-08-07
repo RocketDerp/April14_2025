@@ -936,7 +936,7 @@ Osr0 2015-02-25
 
 * :::=== RoundSparrow_Commentary : That is a key exploit of the mind from Russian information warfare. Putin won, Surkov won, since March 2013. The fixation of *sides*, seeing trees but not the total NATO forest and the changes in behavior since the Internet Research Agency released their toxic monomyth meme patterns. [We have HARD FACTUAL evidence validated by respected Johns Hopkins University and George Washington University - and we can not stay on the topic of this being about Russia vs. The Internet](https://www.bbc.com/news/world-us-canada-45294192), and instead are fixated on Americans vs. Americans. Social media consumers can not describe the names, dates, of any of the Russian media invasion. It is blank in their mind, they don't quote books, cite authors, just parrot "russian bot". ===:::
 
-&nbsps;
+&nbsp;
 
 https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstein_files_bullshit_so_cnn/n7gxkqw/
 
@@ -946,3 +946,20 @@ Osr0 2015-02-25
 
 * :::=== RoundSparrow_Commentary : Describing sports mentality of "Winner Takes All", which is not compatible with democracy of all inclusive compassion for all people. But The Constitution doesn't say "Love One Another", does it? And the toxic clergy of the toxic August 2025 Church can't even find Matthew 6:5 in response to Bible posing by Donald Trump. Let alone Bible verse "1 John 3:17" in the $59.99 Trump Bible. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstein_files_bullshit_so_cnn/n7g0roi/
+
+Teddy705 2024-06-27
+
+"Kamala said it herself. This shit is so blatantly corrupt. It's insane. The Philippines are in the process of impeaching and imprisoning their VP due to allegations of a potential coup attempt. Meanwhile, we let a pedo, rapist, felon become president not once, but TWICE, and no one is doing shit about it. Its fucking insane how we try to call ourselves "the greatest nation of the free world." There's no democracy and I guess we're witnessing the fall of the American empire in real time."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstein_files_bullshit_so_cnn/n7g6spd/
+
+tdgarui 2019-08-10
+
+"I mean they aren’t even professionals. It’s the worst bullshitting I’ve ever seen. My lie to my mom about trying to delete a virus from the computer with my pants down was more believable."
+
+* :::=== RoundSparrow_Commentary : [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md). Falling for the Tony Clifton performances, unable to describe Russian information warfare and how *extreme obvious lies and deception* are the very means to exploiting the human brain. ===:::
