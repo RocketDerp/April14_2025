@@ -935,3 +935,14 @@ Osr0 2015-02-25
 "Its because they don't actually care about holding pedophiles accountable. All they care about is finding things they can use to make *the other side look bad* regardless of whether or not they care about that issue or not."
 
 * :::=== RoundSparrow_Commentary : That is a key exploit of the mind from Russian information warfare. Putin won, Surkov won, since March 2013. The fixation of *sides*, seeing trees but not the total NATO forest and the changes in behavior since the Internet Research Agency released their toxic monomyth meme patterns. [We have HARD FACTUAL evidence validated by respected Johns Hopkins University and George Washington University - and we can not stay on the topic of this being about Russia vs. The Internet](https://www.bbc.com/news/world-us-canada-45294192), and instead are fixated on Americans vs. Americans. Social media consumers can not describe the names, dates, of any of the Russian media invasion. It is blank in their mind, they don't quote books, cite authors, just parrot "russian bot". ===:::
+
+&nbsps;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstein_files_bullshit_so_cnn/n7gxkqw/
+
+Osr0 2015-02-25
+
+"I never thought about it like that, but yeah I'm sure there's no small percentage of them who think "lookee at what that guy got away with, he's a genius" "
+
+* :::=== RoundSparrow_Commentary : Describing sports mentality of "Winner Takes All", which is not compatible with democracy of all inclusive compassion for all people. But The Constitution doesn't say "Love One Another", does it? And the toxic clergy of the toxic August 2025 Church can't even find Matthew 6:5 in response to Bible posing by Donald Trump. Let alone Bible verse "1 John 3:17" in the $59.99 Trump Bible. ===:::
+
