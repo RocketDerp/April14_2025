@@ -963,3 +963,21 @@ tdgarui 2019-08-10
 "I mean they aren’t even professionals. It’s the worst bullshitting I’ve ever seen. My lie to my mom about trying to delete a virus from the computer with my pants down was more believable."
 
 * :::=== RoundSparrow_Commentary : [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md). Falling for the Tony Clifton performances, unable to describe Russian information warfare and how *extreme obvious lies and deception* are the very means to exploiting the human brain. ===:::
+
+&nbsp
+
+https://old.reddit.com/r/technology/comments/1mk09vq/hackers_clown_trump_education_secretary_with_curb/n7f8vkt/
+
+PullUpG141 2024-04-24
+
+"America has lost its number 1 spot in the world. Trump and congress knows it. They belief that making america white again will bring america back up to the number 1 spot, it wont lmao."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mk40m4/south_park_portrays_trumps_maralago_as_epstein/n7h6fqv/
+
+Remidable_Arkitect 2024-12-26 (less than 1 year)
+
+"Stone and Parker WILL capitulate with Turmp at the end. I guarantee it. Those two are cowardly money-grubbing billionaire libertarians. So let’s enjoy all the farce and satire now while we can."
+
+* :::=== RoundSparrow_Commentary : They are adding mockery to a White House mockery. They are adding a deeper layer of unreality to a [Kremlin War Against Reality that started in export variation March 2013](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). A world of fiction adding more fiction. This problem is the population being deeply attracted to fiction, not just a dozen front-stage performers at the WHite House. Multiple NATO nations report the Putin media invasion of unreality. ===:::
