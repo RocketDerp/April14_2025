@@ -455,4 +455,8 @@ https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_g
 
 SecondHandWatch 2013-04-15
 
+<img width="1326" height="578" alt="image" src="https://github.com/user-attachments/assets/37dc9679-c549-466c-9a07-4217563023e6" />
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lvsxlhq4sc2i
+
 "A 24k gold gift made publicly at a press conference to the most famous rapist and child trafficker in the world is subtle?"
