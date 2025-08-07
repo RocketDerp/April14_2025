@@ -806,3 +806,30 @@ Ornstien 2015-08-04
 
 * :::=== RoundSparrow_Commentary : No, they are not seeing it. They have context bewilderment and can't connect the dots to Russian information warfare against mutliple NATO nations. [As Doctor Carl Jung spelled out, the Germans did not grasp or comprehend what they were doing](../Doctors/Carl_Jung.md) as they did it. Detachment from reality, Russia won the War Against Reality. Putin won, Surkov won. Do you really thing being tricked by Putin and Trump is enjoyable, that it is authentically fun to be a mental slave to Donald Trump? You have to view this that the laughing and mocking is a symptom of *lost heart and mind to enemy*.. Do you think Islamic terrorists are RALLY winning rewards in Heaven afterlife or they have been mind-fucked? That's Doctor Carl Jung's point, German people did not grasp their own behaviors. REPEATING: Russia won, Surkov won. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mk37uu/fbi_granted_request_to_locate_fleeing_texas_house/n7fsb5w/
+
+titcumboogie 2021-06-06
+
+"This entire situation is completely mad."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mk6bcu/let_them_eat_cake/n7gj891/
+
+silverum 2014-07-14
+
+"Was more important to own the libs and remind Mexicans that they’re inferior to Real Americans, apparently"
+
+* :::=== RoundSparrow_Commentary : It was more important to make reaction comments on social media than make Jen Senko's March 2016 film a constant social media mention. It was more important to share memes and entertainment than to share Neil Postman's 1985 book about the possibilty if Ronald Reagan entertainment POTUS went way too far. It was more attractive to mock and insult "the others" with Tweet-length one-line shit-talk in America than stand up for education, teaching, media ecology literacy. Rephrased: "Was more important on Reddit and Bluesky in year 2025 to own MAGA and remind Trump supporters that they’re inferior to Intelligent Americans (leopards ate your face, LOL mocking), apparently". Putin won, Surkov won since March 2013.  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mk6bcu/let_them_eat_cake/n7gilvl/
+
+gonzo_1606 2019-11-16
+
+"Most Americans are clueless that this is happening.."
+
+* :::=== RoundSparrow_Commentary : [As Doctor Carl Jung spelled out, the Germans did not grasp or comprehend what they were doing](../Doctors/Carl_Jung.md) as they did it. ===:::
