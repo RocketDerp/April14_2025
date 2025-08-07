@@ -606,3 +606,51 @@ EntireFishing 2020-05-04
 
 * :::=== RoundSparrow_Commentary : We do not teach people to distinguish fiction from non-fiction. Look at the Mosque, Church selling science fiction as nonfiction. Egomania abounds. Microsoft is providing nonfiction, it does not appeal to people who are not self-aware of fiction addiction. Nonfiction is far more popular. I was a certified teacher for Microsoft products, I taught Microsoft employees in Redmond Washington. I have studied this attraction to fiction first hand, I am a published author and technical editor of computer books (including social media books). You can't just leave it to chance that people know fiction attraction, you have to take Neil Postman's library of books seriously, especially his 1985 book "Amusing Ourselves To Death" and make sure EVERY PERSON age 12 to age 120 understands media ecology. Mosque, Mecca, Church, Roman Empire, Putin/Surkov Russia... is the evidence of how this ability to distinguish fiction from nonfiction is essential to a functining democracy. Grasping comparative mythology is not optional. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7f9t3h/
+
+End3rWi99in 2011-08-21
+
+"Honestly, I don't even know anymore. I used to think this guy was some diabolical manipulative master, but I don't think that's ever been it. Sure, he's probably also suffering from serious mental decline, but when folks talk about 4D chess, I think it's more like what happens when a chess master plays someone who has never played. On occasion, the totally new player wins because they are entirely unpredictable. The whole world has failed to strategize against Trump effectively because people think he has a plan. He has nothing other than brute force arrogance and bullying behavior. That and he's a pedo."
+
+* :::=== RoundSparrow_Commentary : Kremlin information warfare since the November 2012 agreement with trump is the 128D chess. Donald Trump is playing Tony Clifton and reactiely interacting with a media addicted audience. He is a media star, a Reality TV "The Apprentice" feedback experience. Russia turned the audienc into ficiton addicts using the Internet Research Agency. Why do people want fiction to run their nation? This is a population wide problem, including compusive reaction from the opposition to the Tony Clifton perfomance. Whatch how Tony Clifton bullies his audiences in his act. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fbjtt/
+
+padizzledonk 2016-11-22
+
+"Hes a fucking MORON and always has been
+
+His phone interview the other day on cnbc (or whatever) they were talking about the firing of the lady who does the employment reports and the host was like "Well, which numbers do ypu trust because bad job numbers will actually help you get what you want from Jerome Powell and help make the case for a rate cut" and even having it lobbed to him like a fuckin 5yo he still dodnt catch on and went on some completely infactual rant about the previous election
+
+Hes a dumbass"
+
+* :::=== RoundSparrow_Commentary : Donald Trump is an entertainer, a very hard working content creator. Audiences can't call out that he is exploiting the same crowd reactions as Tony Clifton does. Putin/Surkov understood all this back in year 2012. The 2014 book "Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia" is **not OPTIONAL understanding in grasping the August 2025 sitaution** in USA. The audience is having a Frank Grimes reaction to Donald Trump playing Homer Simpson behavior. Donald Trump is charming, he is able to keep getting the audience to react and hand over power and wealth to him on a world scale. That's how Surkovian govenring works, READ Peter Pomerantsev! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fbmm3/
+
+sax87ton 2011-10-27
+
+"I think you’re misunderstanding. Regardless of whether or not he learns he refuses to admit when he’s wrong.
+
+He might know, but there’s no way he’s going to back down now.
+
+This has been his political strategy so far. But you can “never admit you’re wrong” and come out seeming like you won an argument.
+
+You can’t “never admit you’re wrong” and expect economics to change around your will. It’s just not gonna happen and he doesn’t understand that he’s not having an argument with the economy."
+
+* :::=== RoundSparrow_Commentary : And... We The People in USA, are unable to admit that Neil Postman was correct in year 1985, that we are amusing ourselvs to death mocking away at Donald Trump's behavior. Media ecology, media addiction, is the nation. We The People are stimulated by egoism of declaring how much smarter and more intelligent we are than POTUS symbolism of Donald Trump. It's a subconsiious mind exploit of egomania values. Being smarter than a 3rd grader making mistakes and playing Tony Clifton, calling him dumb idiot stupid is the simualcra on social media, the alternate reality addiction to fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7ezp4q/
+
+keyjan 2015-03-31
+
+"he is an embarrassment. No wonder we're the laughing stock of the world. Fuck, *I'm* embarrassed."
+
