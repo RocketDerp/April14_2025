@@ -702,3 +702,20 @@ INtoCT2015 2014-07-20
 
 Social media is in compared to the influence Fox News as a channel has."
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_trumps_job_approval_by_party/n7f3yp1/
+
+NitWhittler 2014-09-06
+
+"My MAGA family also has FOX News on all day PLUS a super annoying police scanner.
+
+They live in a rural farming community where there's basically no crime. The police scanner gives them the illusion that crime is rampant and they are about to become victims any minute.
+
+They wallow in fear and hatred, so of course the house is filled with guns and the long drive up to the house is filled with warning signs.
+
+Right wing media has turned them into paranoid psychos."
+
+* :::=== RoundSparrow_Commentary : Just like Malala describes the **normal parenting** in Swat Valley Pakistan way back in year 2013:  “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. The medium makes the society, garbage media into minds, garbage content out of minds. ===:::
