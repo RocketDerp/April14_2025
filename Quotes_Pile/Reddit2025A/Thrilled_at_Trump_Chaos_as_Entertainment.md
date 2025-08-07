@@ -395,4 +395,25 @@ They all saw, that’s why Musk tweeted out his “bombshell” that Trump was o
 
 The deep fantasy of how exciting and simulating it would be to watch Donald Trump suffer. The thrill of Donald Trump being in the White House office seeing the information strip tease over rich men sex games. This is a population that is attracted to the entertainment bullshit of all this far more than sincere nonfiction governing goodness. The bamboozle is so attractive that people have fantasies of having front-row seat to the Tony Clifton act. It never ends, this total mockery and audience craving for front-row seats to the content creators has been going on for over a decade.
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkav2c/south_park_stuns_dhs_into_silence_with_shocking/n7hggzg/
+
+Topher92646 2021-01-27
+
+"Remember when Cosplay Barbie said she wanted to make a reality show with migrants competing to get a green card? I hope we see this in a future episode 🇨🇦"
+
+Content addicts can't wait to see MAGA Donald Trump Reality TV king ("The Apprentice") inspire more fiction content. Donald Trump inspires people to abandon nonfiction, Donald Trump inspires people to adopt hate. Exactly what Putin and Surkov schemed up in 2012. Fox News was already fiction content, and people keep begging for more future episodes. Because faith in mocking is the Rupert Murdoch faith, faith in mocking realith as boring is the MAGA faith.
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkav2c/south_park_stuns_dhs_into_silence_with_shocking/n7hjg1x/
+
+HaxanWriter 2023-01-
+
+"The one thing that breaks conservatives faster than anything else is mockery and laughter. Mock them. Laugh at them. Watch them wilt. It always works. Always. That’s why they spit blood when Walz called them weird."
+
+Always works. Absolute faith. The entire concept of a nation in meme stupor like Middle East is over fiction vs fiction not grasped at all. Oh Yha, Walz sure won by calling them weird, really won the information warfare and returned people to favoring nonfiction in year 2024. The Donald Trump MAGA show has been gong on for over a decade, Putin has been using war against reality with Ukraine and other nations. We are "Amusing Ourselves To Death" with White House entertainment and South Park entertainment and memes on social machines. As described by Neil Postman in his 1985 book. If we can't get people to actually stand up for authentic reality and nonfiction, it will be mythology after mythology.
+
+
 
