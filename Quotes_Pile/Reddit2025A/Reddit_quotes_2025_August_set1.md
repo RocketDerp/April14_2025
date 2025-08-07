@@ -391,3 +391,11 @@ lemons_of_doubt 2017-11-28
 And yet tomorrow on the news they will ones again say they are doing this for the kids and morons will eat it up."
 
 * :::=== RoundSparrow_Commentary : Maybe the number one problem in USA is gullibility / comprehension / understanding. Social media should halt all entertainment and focus on education of how to distinguish fiction from non-fiction and stick with the topic until everyone age 12 to age 120 understands Neil Postman's 1985 media ecology book "Amusing Ourselvs To Death". [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.” - October 19, 2024 - America’s gullibility crisis, Zachary Basu](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mjjfkf/republicant_be_serious_about_this/n7c855f/
+
+flyingcircusdog 2016-01-22
+
+"Yes, they actually want a 16 year old girl to be able to get married and pregnant with an older man, even when she's not allowed to watch porn."
