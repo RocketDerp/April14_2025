@@ -348,7 +348,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1mj5359/never_change_you_geniu
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1mjwi12/unleashing_hell_has_never_been_so_entertaining/
 
-Top of fron page of Reddit. Thriled at having leaders to hate upon. How entertaining Hellis, and you know who unleashed Hell, Russia. We The Peope on social media are eatig the Surkovian onions, unable to cite Peter P's books. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk&t=1s) in a RFK Jr measles segment. A nation mind-fucked by Kremlin into ractionary recency bias.
+Top of front page of Reddit. Media addicts thriled at having leaders to hate upon using media. How entertaining Hell is, the loss of an information war... unleashed Hell by Russia. We The Peope on social media are eatig the Surkovian onions, unable to cite Peter P's 2014 books and articles. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk&t=1s) in a RFK Jr measles segment. A nation mind-fucked by Kremlin into ractionary recency bias.
 
 
 
