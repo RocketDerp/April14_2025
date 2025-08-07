@@ -72,3 +72,19 @@ https://old.reddit.com/r/antimeme/comments/1mj850k/what_causes_re/
 https://old.reddit.com/r/politics/comments/1mjfbb8/women_shouldnt_hold_office_says_gop_woman_now/
 
 https://old.reddit.com/r/BlueskySkeets/comments/1mjdace/they_just_cant_help_themselves/
+
+&nbsp;
+
+Endless content on these topics:
+
+1. If he hates other people, I will vote for him.
+2. If he bombs and kills other people, I will vote for him
+3. The "Settled for" attitudes people have with in their religion clergy and politicians / government but will not settle for in personal relationships. 
+4. If he controls the food and water safety of others (to be toxic), I will vote for him.
+5. Disowning of children over issues. Disowning of parents.
+6. Boss men, employers, doing harmful things entirely silent / avoidant to criticize.
+
+I have lived in Africa, Middle East, all over USA, in South America, Mayalsia, Indonesia - I have seen this pattern play out over and over. As if abuse of ANY kind is acceptable. Entire religions hate upon entire other religons and people don't think this is a problem or concern to criticize. They are unwilling to apply their personal secreative (hidden in private house) relationship scrutiny to groups.
+
+https://old.reddit.com/r/AmIOverreacting/comments/1mjkiah/aio_should_i_leave_my_bf_was_what_he_did_to_me/
+
