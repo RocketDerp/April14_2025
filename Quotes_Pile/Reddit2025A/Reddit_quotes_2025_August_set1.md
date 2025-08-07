@@ -750,4 +750,12 @@ kittenTakeover 2014-07-10
 
 * :::=== RoundSparrow_Commentary : [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md) ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_trumps_job_approval_by_party/n7enbyz/
+
+AncientSeraph 2014-11-03
+
+"And this is why a two party system with a powerful leading figure is just a recipe for disaster. People don't change votes."
+
+* :::=== RoundSparrow_Commentary : Two-party religion systems: Gaza is Muslim Quran, Isreal is Torah Jewish. Both fiction, Bible, Quran, Torah are all science ficiton, fighting out-group hate patterns of loyalty to fiction storytelling: infidel Quran, gentile Torah. Mosque media venue, Mecca media theme park, Holy lands Torah meme theme park... [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md)  ===:::
