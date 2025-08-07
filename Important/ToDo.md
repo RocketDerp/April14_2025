@@ -124,3 +124,19 @@ https://old.reddit.com/r/comics/comments/1mk42ud/what_rights/
 Pizzacake comic I have not posted in Feed. Stereotype of Trump voter,doesn't look like a MAGA CEO to me, punching down on poor people from Pizzacake? Rupert Murdoch punches down on poor people too.
 
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkcuxh/james_carville_apologizes_pulls_youtube_video/
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkcybs/israel_is_losing_america/
+
+https://old.reddit.com/r/politics/comments/1mkcte9/netanyahu_says_israel_intends_to_take_over_gaza/
+
+https://old.reddit.com/r/worldnews/comments/1mjx0u9/picture_agencies_drop_gaza_photographer_after/
+
+"If you think this behavior is limited to western media then I got some bad news for ya."
+
+https://old.reddit.com/r/worldnews/comments/1mjx0u9/picture_agencies_drop_gaza_photographer_after/n7etwas/
+
