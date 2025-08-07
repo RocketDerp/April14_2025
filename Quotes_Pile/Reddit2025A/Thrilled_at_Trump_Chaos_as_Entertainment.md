@@ -383,3 +383,16 @@ No, he did not manipulate the computers. He manipulated people, with money and t
 
 This reddit users describes having their *mind blown* with humor. How predictable that absurd surreal messaging is core to Kremlin humor-based mind-fucking.
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstein_files_bullshit_so_cnn/n7g55xd/
+
+Vitaminpartydrums 2017-01-07
+
+"I would have loved to be in the office as they went over the pages upon pages of documents and realized that Trumps name was so prominent that there was zero way they could release it.
+
+They all saw, that’s why Musk tweeted out his “bombshell” that Trump was on it."
+
+The deep fantasy of how exiting it would be to watch Donald Trump suffer. The thrill of Donald Trump being in the White House office. This is a population that is attracted to the entertainment bullshit of all this far more than sincere nonfiction goodness. The bamboozle is so attractive that people have fantasies of having front-row seat to the Tony Clifton act. It never ends, this total mockery and audience craving for front-row seats to the content creators has been going on for over a decade.
+
+
