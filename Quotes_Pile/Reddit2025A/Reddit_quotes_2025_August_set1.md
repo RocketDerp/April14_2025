@@ -412,3 +412,31 @@ BetterEveryLeapYear 2022-09-23
 
 "It's delusional to think Trump is the one going to need flee the country money. He's the one who has solidified executive power and replaced all the military and intelligence agencies top brass with kowtowing loyalists. It's everyone else who's going to need to flee the country. What mechanism do you propose will be used to oust him and force him to go on the run...?"
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_glass_statue_for_donald/n7dhgry/
+
+Rhaegar0 2014-03-07
+
+"It is actually terrifying howv the US voters treat the election of the most powerful Office in the world as a sports match where you are for team blue or red and just want to win complete disregarding any policy or morals about who they vote for.
+
+The way trump behaves and is treated like a narcissistic barbaric king by his voters, politicians and us companies is actually terrifying for me as a European. This kind of stuff is straight up bribery and seeing this happen without any meaningful outcry, let alone a reaction by the republican party shoes that US democracy is dead. There is no room for other voices left, no room for compromis and no room for doubt or choose changes. There is just a obnoxiously bad behaving elderly king and no one cult following either to zealous or to cowardice to see they are destroying US democracy, it's values and eventually it's safety"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_glass_statue_for_donald/n7ehoex/
+
+Rhaegar0 2014-03-07
+
+
+"I dunno. I'd be happy to believe it's just a one sided affair but from this side of the pond all I see is almost structurally a majority of the voters go Democrats but now that their entire democracy is literally broken down by a wannabe despote, his techbro oligarchs and his KGB handler I don't see weekly mass demonstration locking down the streets of DC or NY. It's beyond me how weak ass the response is, also from the democrats."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_glass_statue_for_donald/n7df0nm/
+
+pronounclown 2024-01-03
+
+"I have honestly given up on caring. Even if Tim cook ate children live on TV apple stocks would go up and rich got richer.
+
+Consumers are beyond repair. So is the whole system."
