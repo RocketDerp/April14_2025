@@ -316,3 +316,38 @@ kobebeef24 2010-09-10
 
 * :::=== RoundSparrow_Commentary : Putin played the 256D chess with information warfare, you can't see this is USA self-harm and Surkovian information warfare. Calling others in USA "bootlickers" while [eating the Surkovian onions](Surkovian_Onion_Eating). In 2016... when Hillary Clinton declared in public to We The People that Trump was a "Putin Puppet", what did you think a State Department leader was suggesting about Russia's intelligence capabilities? That Donald Trump has the best interest of the future of the USA for Putin? People compulsively react comment and can not study Peter P's writings since year 2014. "It does not make sense." THINK DEEPER ON LONGER-TERM SCALE, it MAKES SENSE if you are being a puppet for Putin, self-aware or otherwise (I doubt Trump is self-aware, he is a raging media addict detached from reality in favor of egomania media feedback).. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/stocks/comments/1mjhjv6/breaking_trump_says_there_will_be_a_100_tariff_on/n7b5414/
+
+anteatertrashbin 2020-11-25
+
+"don’t worry, all of the chip manufacturers are going to announce trillion dollar investments in chip fabs Detroit. and a pinky promise that it will get built!
+
+I feel that the MAGA supporters read these headlines such as “Japan to invest $500 billion in the US over the next 10 years”, and think that Trump single-handedly got Japan to write a check to the USA. and then their hearts swoon over their dear leader."
+
+&nbsp;
+
+https://old.reddit.com/r/stocks/comments/1mjhjv6/breaking_trump_says_there_will_be_a_100_tariff_on/n7bds74/
+
+iiiiiiiiiAteEyes 2023-05-24
+
+"We admit we too are brainwashed to some degree and everyone is, try to look at their pov and hope they do the same. Understand almost no one will admit they are wrong especially in the moment but arguments with hate and vitriol never lead to progress. But tbf some ppl will never change but if there is a chance honest open discussion and seeing where they come from works best."
+
+&nbsp;
+
+https://old.reddit.com/r/stocks/comments/1mjhjv6/breaking_trump_says_there_will_be_a_100_tariff_on/n7bbz9b/
+
+No_Boysenberry4825 2024-06-19
+
+"It’s astonishing how there’s absolutely no accountability for mods on this site"
+
+&nbsp;
+
+https://old.reddit.com/r/stocks/comments/1mjhjv6/breaking_trump_says_there_will_be_a_100_tariff_on/n7b5y2n/
+
+Vost570 2022-08-17
+
+"Putin must be absolutely thrilled to watch this guy totally wreck the US economy, while his cult who are too dumb to spell their own names cheer him on."
+
+* :::=== RoundSparrow_Commentary : There is more than one cult. All the media cults mock the other cults as dumb stupid idiots for not being in the same media fitler bubble as they are. It is a sturating total mockery. ===:::
