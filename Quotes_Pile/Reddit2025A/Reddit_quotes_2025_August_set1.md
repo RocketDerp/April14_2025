@@ -214,5 +214,12 @@ https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive
 
 sir_bumble 2017-10-12
 
-* :::=== RoundSparrow_Commentary : [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md) in support of violence instead of calling out and defending NATO against Surkovian Governing methods. Falling for the Tony Clifton technique of being mocked by White House as media enagement. Like Jackass movie or Tony Clifton media engagement. Unable to see that it is mutliple NATO nations since March 2013 and is a technique of negging and ridicle of the audience as a means to concentrate wealth and power, unable to engage books about how Putin has run Russia for 25 years usng these style of mind exploits. Baited by the Reality TV laugh track too. ===:::
+* :::=== RoundSparrow_Commentary : [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md) in support of violence instead of calling out and defending NATO against Surkovian Governing methods. Falling for the Tony Clifton technique of being mocked by White House as media enagement. Like Jackass movie or Tony Clifton media engagement. This is being goated by the White House and letting thinking collapse into reactions instead of recognizing this has been going on for over a decade. Unable to see that it is [mutliple NATO nations since March 2013](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/) and is a technique of negging and ridicle of the audience as a means to concentrate wealth and power, unable to engage books about how Putin has run Russia for 25 years usng these style of mind exploits. Baited by the Reality TV laugh track too. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive_on_the_epstein_situation/n7bd9tm/
+
+Endrizzle 2018-11-29
+
+"It’s been ten years since (when he was the president) it’s been the “most historic, probably ever” in 6 months. When does this record stop skipping?"
