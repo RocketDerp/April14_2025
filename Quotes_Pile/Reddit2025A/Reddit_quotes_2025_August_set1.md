@@ -556,3 +556,21 @@ clam-caravan 2016-04-20
 "I’ve come to realize as I’ve gotten older that my parents are actually fucking idiots. I still love them but they have lost touch with reality in their white, rural, Christian bubble. Thinking back to when I was a kid, they just repeated the exact batshit talking points from Fox News and I just assumed it was words of wisdom. They’ve been totally captivated and manipulated by Trump and will probably defend him vehemently until they die."
 
 * :::=== RoundSparrow_Commentary : so you realize Fox News is a media ecology crisis... but Jen Senko, baby boomer, stood up in March 2016 on the world stage - why didn't Reddit social media repeat her every 6 hours every day over and over and over? Why isn't Jen Senko a household name for the boomer who stood up to Fox News and inspired others to stand up to fiction vs. nonfiction media crisis? Did you ever consider if it took you this long to "come to realize", that Rupert Murdoch already realized it by studying multiple media oulets he has in his international media empire? And that the Russian Kremlin also figured this out, Surkovian govenring? You haven't realized much, only your personal family. Trees, not the forest. The FOREST perspective is that Reddit is doing to you in your generation, "entertainment news", that HDTV Fox News was doing to your parents. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7f5u1z/
+
+Big-Rule5269 2021-03-13
+
+"I listened to a podcast the other day and they talked about younger men, women as well , that have seen nothing else. They're not taught prior history of how past presidents acted. All they know is Trump, the craziness and bullshit of Republicans and right wing media during Biden's term, then back to Trump's constant bullshit. They've never seen a president acting presidential , or just normal. This is their normal and as a country, an education system and parents that raised children, we definitely failed in that."
+
+* :::=== RoundSparrow_Commentary : Just like Malala describes the **normal parenting** in Swat Valley Pakistan way back in year 2013:  “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. The medium makes the society, garbage into minds, garbage out of minds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fef36/
+
+brickne3 2007-04-28 (reddit has only been around for 20 years, old account)
+
+"I feel like at this point even those of us who have seen more normal presidencies have all been traumatised by this shit for so long that it's caused all of us some kind of mass brain trauma/PTSD/something. It can't be healthy to be exposed to this insanity constantly, and it didn't just start with Trump either."
