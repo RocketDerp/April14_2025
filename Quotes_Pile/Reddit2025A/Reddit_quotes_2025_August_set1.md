@@ -283,3 +283,25 @@ ThinkSoftware 2018-03-10
 "Administration is just cartoonishly evil. They'll try to block out the sun next like Mr Burns"
 
 * :::=== RoundSparrow_Commentary : Yes, they are creating ***fiction like The Simpsons*** and have been since [Trump's November 2012 agreement with Russia](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) on multiple media platforms [since year 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america). The Middle East is run on fiction monomyth storytelling, it works on human brains, Russia has weaponized it. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mjhzbm/jd_vances_team_had_water_level_of_ohio_river/n7b7vxv/
+
+TheGrayBox 2015-09-09
+
+"Being form the area, hundreds of people kayak on the Little Miami safely every day without needing it to be artificially raised. It's one of the tamest rivers you could ever kayak on. This whole thing is just insane from beginning to end. If a Democrat did this it would be the only thing anyone talked about here for months.
+
+Edit: the geography in the article is all wrong and frankly makes me question if the story is valid at all, will be interesting to see if anyone else reports on this"
+
+* :::=== RoundSparrow_Commentary : We are in the aftermath of a lost War Against Reality since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mjhzbm/jd_vances_team_had_water_level_of_ohio_river/n7bas5i/
+
+gethereddout 2010-02-14
+
+"Such is the asymmetry of the corporate media left right paradigm. It’s detached from reality and designed to promote corporate profits over human well being."
+
+* :::=== RoundSparrow_Commentary : We are in the aftermath of a lost War Against Reality since March 2013. We are in runaway monomyth. This is living in runaway simulacras. ===:::
