@@ -399,3 +399,16 @@ https://old.reddit.com/r/AdviceAnimals/comments/1mjjfkf/republicant_be_serious_a
 flyingcircusdog 2016-01-22
 
 "Yes, they actually want a 16 year old girl to be able to get married and pregnant with an older man, even when she's not allowed to watch porn."
+
+&nbsp;
+
+# Thursday August 7, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mjs96c/apple_made_a_24k_gold_and_glass_statue_for_donald/n7e5i7x/
+
+BetterEveryLeapYear 2022-09-23
+
+"It's delusional to think Trump is the one going to need flee the country money. He's the one who has solidified executive power and replaced all the military and intelligence agencies top brass with kowtowing loyalists. It's everyone else who's going to need to flee the country. What mechanism do you propose will be used to oust him and force him to go on the run...?"
+
