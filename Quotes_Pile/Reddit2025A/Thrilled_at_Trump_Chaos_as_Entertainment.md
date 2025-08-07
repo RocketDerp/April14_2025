@@ -357,3 +357,8 @@ I can't emphasize ENOUGH: "vacination" is the very topic title on Reddit. [Steph
 https://old.reddit.com/r/therewasanattempt/comments/1mjx4x1/by_cbs_to_get_rid_of_colbert_and_his_show_before/
 
 Third time Stephen Cobert made the front-page of Reddit on the same topic. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk)
+
+And another time on the front page of Reddit with Stephen Colbert avoding the Putin information war topic of his own May 4, 2019 broadcast.
+
+https://old.reddit.com/r/50501/comments/1mjwjtk/stephen_colbert_unleashes_hell_on_rfk_jr_fuck_you/
+
