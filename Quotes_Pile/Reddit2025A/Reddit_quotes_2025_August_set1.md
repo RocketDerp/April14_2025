@@ -573,4 +573,7 @@ https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_l
 
 brickne3 2007-04-28 (reddit has only been around for 20 years, old account)
 
+<img width="1362" height="1484" alt="image" src="https://github.com/user-attachments/assets/942156ef-4e56-473a-a390-a8b2e4bbefbb" />
+
+
 "I feel like at this point even those of us who have seen more normal presidencies have all been traumatised by this shit for so long that it's caused all of us some kind of mass brain trauma/PTSD/something. It can't be healthy to be exposed to this insanity constantly, and it didn't just start with Trump either."
