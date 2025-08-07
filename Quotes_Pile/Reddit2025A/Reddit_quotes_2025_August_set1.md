@@ -577,3 +577,23 @@ brickne3 2007-04-28 (reddit has only been around for 20 years, old account)
 
 
 "I feel like at this point even those of us who have seen more normal presidencies have all been traumatised by this shit for so long that it's caused all of us some kind of mass brain trauma/PTSD/something. It can't be healthy to be exposed to this insanity constantly, and it didn't just start with Trump either."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7f32ex/
+
+toddywithabody 2025-05-07 (recent account)
+
+"Yep. Americans are by far the dumbest assholes on the planet and the rest of us have to suffer for it."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7f3ld2/
+
+keyjan 2015-03-31
+
+"he will never learn. He's actually delusional and doesn't live in the same world as the other 8 billion of us."
+
+* :::=== RoundSparrow_Commentary : Donald Trump is in a Tony Clifton performance world, providing content for social media users to give one-line Twitter-thinking reactions. Media addiction Tweet-thinking is every day all day of society, not just voting election days every 4 years. Fiction is Tony Clifton, fiction is the Reddit and Bluesky audience, fiction outsells nonfiction. ===:::
+
+
