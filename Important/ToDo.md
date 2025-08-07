@@ -114,3 +114,13 @@ https://old.reddit.com/r/science/comments/1mjkbep/verbal_abuse_in_childhood_has_
 
 Ban-happy eBay / lifetime ban   
 https://www.youtube.com/watch?v=46AAERY2fVw
+
+Are competitors reporting (amusing community reporting) the upstart to keep them out? Artificial intelligence profiling?
+
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1mk42ud/what_rights/
+
+Pizzacake comic I have not posted in Feed. Stereotype of Trump voter,doesn't look like a MAGA CEO to me, punching down on poor people from Pizzacake? Rupert Murdoch punches down on poor people too.
+
+
