@@ -187,3 +187,32 @@ https://old.reddit.com/r/agedlikemilk/comments/1mj9mgo/this_you_ken/
 "This you, Ken?" mocking
 
 * :::=== RoundSparrow_Commentary : Look, I know to most people I am tedious and boring and repetitive on these subjects. But you have got to take the Levant 3-way monomyth crisis seriously, everything in (former White House director) Bill Moyers interviews at Skywalker Ranch in 1986, 1987, published in "Power of Myth". This was a key to my December 2009 prediction of the Arab Spring in North Africa, a year before it became world famous via Tunisia. Religions ar fiction, extremely compelling fiction that induce compulsive group peer pressure and behaviors. This mocking you see is fiction storytelling. You have to take everything ever written or recorded by [Peter Pomerantsev... and focus on what he published (and linked video) 2014](https://www.youtube.com/watch?v=5Au332OG-M4) seriously and see the group behavior patterns play out before Donald Trump's 2015 run for POTUS. And all the perspectives of Neil Postman 1985, 1992, 1995, and even his earlier work. Essentially, how people behave when they don't understand or comprehend reality. Bring in Carl Sagan 1995 on that. The whole world, all geography, all time periods, *turns to fiction* and is avoidant of non-mythological non-fiction. As Sagan said, sooner or later this is going to blow up in our face with the technology humanity has. MAGA is mocking "liberals", while not cross-referencing their own fiction desires to the Taliban via Malala. And now anyone not MAGA in USA is mocking MAGA / Trump. What Russia has "won" is self-destruction of all humanity in out-group feedback loops, Russia is not in control, Russian leaders are compulsively addicted to the monomyth fiction patterns they mined. And now ChatGPT and other LLM / AI systems have trained on this. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive_on_the_epstein_situation/n7bf3c1/
+
+unicron7 2013-01-10
+
+"Dignity went out the door the moment a comb covered, washed up, spray tanned, barely literate, hateful, goon was elected by an army of people with the same qualities.
+
+That’s been the biggest discovery for me over the last 10 years. Realizing how many of my neighbors truly were despicable pieces of trash who would fall for anything and love to hurt other people. I gave people entirely too much credit within the realm of human decency while growing up. Now I see these people for what they are."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive_on_the_epstein_situation/n7bnb55/
+
+dumb__fucker 2015-07-20
+
+"This is the root of my sadness. It’s not trump so much, it’s the realization of the number of garbage people around me."
+
+&nbsp;
+
+"The group laughing is disgusting, they know what they're covering up and they're laughing in our faces. God I want to punch JD so fucking bad"
+
+https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive_on_the_epstein_situation/n7bd04j/
+
+sir_bumble 2017-10-12
+
+* :::=== RoundSparrow_Commentary : [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md) in support of violence instead of calling out and defending NATO against Surkovian Governing methods. Falling for the Tony Clifton technique of being mocked by White House as media enagement. Like Jackass movie or Tony Clifton media engagement. Unable to see that it is mutliple NATO nations since March 2013 and is a technique of negging and ridicle of the audience as a means to concentrate wealth and power, unable to engage books about how Putin has run Russia for 25 years usng these style of mind exploits. Baited by the Reality TV laugh track too. ===:::
+
