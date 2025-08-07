@@ -739,3 +739,15 @@ https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_tr
 hybridaaroncarroll 2017-01-12
 
 "Can confirm. I live in the deep south, and have walked into dentist's offices where Fox News was blaring. Everyone in the room is staring at it, breathing from mouths. If I see that I just walk out. It's pointless to complain because most people that go there love that it's on. It's their adult pacifier."
+
+&nbsp;
+
+https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_trumps_job_approval_by_party/n7ezbqx/
+
+kittenTakeover 2014-07-10
+
+"The Republican party's lifeblood is paid shills and propagandists who spread disinformation, with the most famous example being Fox. That's how this culture rot started, and I have trouble imagining it going away without that industry going away. It's possible that we're only able to move forward if we find a way to deal with disinformation. It's worth noticing how hard right wing groups fight to prevent any action taken in this direction."
+
+* :::=== RoundSparrow_Commentary : [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+
