@@ -917,3 +917,21 @@ https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstei
 h00gieboss 2011-04-06
 
 "They've been getting hammered repeatedly by the most powerful propaganda tool the world has ever seen in the Fox News/social media combo, which has been telling them for years that there is nothing, NOTHING in this world more evil than a Democrat. Not al-Qaeda or Isis or Vladimir Putin. This line of thinking is at the core of their belief structure now. They'd vote for Satan himself if he promised to take it to Democrats and the left."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstein_files_bullshit_so_cnn/n7g6uy9/
+
+zippazappadoo 2018-07-08
+
+"Yea the truth is even if trump came out tomorrow and admitted to everything he did involving Epstein all he would have to do is act like it's not a big deal and within the hour you would have the entire conservative propaganda world closing ranks around him and making every argument under the sun trying to justify and downplay all of it and within the day you would see thousands of bots saying they don't care about trump being a pedophile because "he's so good for the country." "
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mk48hq/trump_called_the_epstein_files_bullshit_so_cnn/n7gr9me/
+
+Osr0 2015-02-25
+
+"Its because they don't actually care about holding pedophiles accountable. All they care about is finding things they can use to make *the other side look bad* regardless of whether or not they care about that issue or not."
+
+* :::=== RoundSparrow_Commentary : That is a key exploit of the mind from Russian information warfare. Putin won, Surkov won, since March 2013. The fixation of *sides*, seeing trees but not the total NATO forest and the changes in behavior since the Internet Research Agency released their toxic monomyth meme patterns. [We have HARD FACTUAL evidence validated by respected Johns Hopkins University and George Washington University - and we can not stay on the topic of this being about Russia vs. The Internet](https://www.bbc.com/news/world-us-canada-45294192), and instead are fixated on Americans vs. Americans. Social media consumers can not describe the names, dates, of any of the Russian media invasion. It is blank in their mind, they don't quote books, cite authors, just parrot "russian bot". ===:::
