@@ -393,6 +393,6 @@ Vitaminpartydrums 2017-01-07
 
 They all saw, that’s why Musk tweeted out his “bombshell” that Trump was on it."
 
-The deep fantasy of how exiting it would be to watch Donald Trump suffer. The thrill of Donald Trump being in the White House office. This is a population that is attracted to the entertainment bullshit of all this far more than sincere nonfiction goodness. The bamboozle is so attractive that people have fantasies of having front-row seat to the Tony Clifton act. It never ends, this total mockery and audience craving for front-row seats to the content creators has been going on for over a decade.
+The deep fantasy of how exciting and simulating it would be to watch Donald Trump suffer. The thrill of Donald Trump being in the White House office seeing the information strip tease over rich men sex games. This is a population that is attracted to the entertainment bullshit of all this far more than sincere nonfiction governing goodness. The bamboozle is so attractive that people have fantasies of having front-row seat to the Tony Clifton act. It never ends, this total mockery and audience craving for front-row seats to the content creators has been going on for over a decade.
 
 
