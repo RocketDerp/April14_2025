@@ -351,3 +351,31 @@ Vost570 2022-08-17
 "Putin must be absolutely thrilled to watch this guy totally wreck the US economy, while his cult who are too dumb to spell their own names cheer him on."
 
 * :::=== RoundSparrow_Commentary : There is more than one cult. All the media cults mock the other cults as dumb stupid idiots for not being in the same media fitler bubble as they are. It is a sturating total mockery. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mjjfkf/republicant_be_serious_about_this/n7c0h9p/
+
+Televisions_Frank 2013-07-23
+
+"They're not better at messaging. They just have billionaires backing them with massive amounts of propaganda and buying up every media company they can."
+
+* :::=== RoundSparrow_Commentary :  Propaganda means **fiction storytelling**, mythology. Fiction outsells nonfiction. Tump is a fiction content creator. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mjjfkf/republicant_be_serious_about_this/n7c190x/
+
+skivian 2012-04-15
+
+"it's amazing how much "better at messaging" one side when the corporate news billionaires are all on the same side that control 99 percent of what the news says."
+
+* :::=== RoundSparrow_Commentary : Again, fiction vs. nonfiction. Fiction sells better, fiction is far more popular. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mjjfkf/republicant_be_serious_about_this/n7bw7w1/
+
+Badbullet 2013-09-16
+
+"There’s a link below in the comments. It’s in Utah, where a 14 year can consent to someone no more than 4 years older, which is already bonkers. It’s thought the guy that wrote the bill did it to help a relative…18 year old that raped a 13 year old. The bill made it so the 18 year old would be charged as a minor if still in school, so no jail time."
