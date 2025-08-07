@@ -379,3 +379,15 @@ https://old.reddit.com/r/AdviceAnimals/comments/1mjjfkf/republicant_be_serious_a
 Badbullet 2013-09-16
 
 "There’s a link below in the comments. It’s in Utah, where a 14 year can consent to someone no more than 4 years older, which is already bonkers. It’s thought the guy that wrote the bill did it to help a relative…18 year old that raped a 13 year old. The bill made it so the 18 year old would be charged as a minor if still in school, so no jail time."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mjjfkf/republicant_be_serious_about_this/n7c6xp0/
+
+lemons_of_doubt 2017-11-28
+
+"Everything they have ever done proves that they give zero shits about children. and really love spying on/controlling what people see.
+
+And yet tomorrow on the news they will ones again say they are doing this for the kids and morons will eat it up."
+
+* :::=== RoundSparrow_Commentary : Maybe the number one problem in USA is gullibility / comprehension / understanding. Social media should halt all entertainment and focus on education of how to distinguish fiction from non-fiction and stick with the topic until everyone age 12 to age 120 understands Neil Postman's 1985 media ecology book "Amusing Ourselvs To Death". [“The truth is, it’s getting harder to describe the extent to which a meaningful percentage of Americans have dissociated from reality,” Charlie Warzel wrote “I’m Running Out of Ways to Explain How Bad This Is.” - October 19, 2024 - America’s gullibility crisis, Zachary Basu](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) ===:::
