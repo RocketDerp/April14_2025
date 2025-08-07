@@ -460,3 +460,99 @@ SecondHandWatch 2013-04-15
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lvsxlhq4sc2i
 
 "A 24k gold gift made publicly at a press conference to the most famous rapist and child trafficker in the world is subtle?"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjvrfz/video_shows_department_of_justice_official_urging/n7e3c6o/
+
+Sea_Leadership5170  2025-01-27 (new this year)
+
+"If a science fiction writer had come up with something like this they would have been left out of the room for being too fucking ridiculous.
+
+But here we are."
+
+* :::=== RoundSparrow_Commentary :  Commenting how it **seems like scripted science fiction** (religions are science fiction is a theme you will see me repeat, how Mecca theme park and Quran science fiction storytelling works in Saudi Arabia... and they sure are popular way of leading people). [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjvrfz/video_shows_department_of_justice_official_urging/n7e7wso/
+
+Reno_Potato 2025-01-21 (new this year)
+
+"I keep saying that you literally couldn't make this stuff up. It's an absurd dystopia that even the most creative science fiction/horror writer couldn't come up with. FFS even South Park is more grounded in reality than what's going on in the US right now."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjvrfz/video_shows_department_of_justice_official_urging/n7fcwhh/
+
+saxaykittybuns5 2022-02-28
+
+"When south park seems 'grounded, even with all the over the top mockery it does, you know you messed up somewhere."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjvrfz/video_shows_department_of_justice_official_urging/n7egy8i/
+
+daggah 2012-01-17
+
+"We're even more absurd than comic book writing at this point. In Superman lore, when the evil billionaire supervillain Lex Luthor became president, he divested his business interests."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjvrfz/video_shows_department_of_justice_official_urging/n7ejyjg/
+
+Ohnoherewego13 2018-03-19
+
+"That's still more logical than the clown show we've got going at the moment. Hell, I'd gleefully vote for Luthor over Trump right now if those were my options."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjvrfz/video_shows_department_of_justice_official_urging/n7f5yil/
+
+NameLips 2018-08-30
+
+"Just to emphasize, since this seems to be forgotten in maga circles, that the Jan 6 insurrection occurred *while Trump was in power*. It was a clear and blatant attempt to overturn the results of an election so that he wouldn't have to leave office.
+
+This was *Trump*'s Justice department trying to incite civilians to further violence. There was no shadow government, there was no Biden or Obama pulling the strings, it was all Trump, all along.
+
+The only reason it didn't work is because Vice President Pence grew a spine and confirmed the results of the election. And for this, the rioters were calling for his execution."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjvrfz/video_shows_department_of_justice_official_urging/n7ef25c/
+
+PinkSky211 2018-03-20
+
+"Watch the movie Idiocracy. This is where we are at. Unbelievable!"
+
+* :::=== RoundSparrow_Commentary : In the film Idiocracy, they didn't have Twitter-length reaction comments 24 hours a day to engage each other over how it was like the film Idiocracy. Neil Postman was correct in year 1985 with his book "Amusing Ourselves To Death" - which is nonfiction book, Idiocracy is fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7exvyk/
+
+AllDayTripperX 2023-06-12
+
+"This is how America has fallen. Its leader just rants like a crazy internet Reddit addict at 2am at literally everything that crosses his sundowning demented mind.
+
+Fuck all of you for inflicting this moron on the rest of us once again. Really."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fctdv/
+
+PathOfTheAncients 2023-01-12
+
+"To them strength is being an asshole and behaving however you want and not letting people hold you accountable. It's literally a toddlers version of strength.
+
+They don't think it's strong though, they feel it's strong. So you can't actually argue with them about it."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mjzy2r/trump_rants_about_countries_laughing_at_america/n7fa47r/
+
+clam-caravan 2016-04-20
+
+"I’ve come to realize as I’ve gotten older that my parents are actually fucking idiots. I still love them but they have lost touch with reality in their white, rural, Christian bubble. Thinking back to when I was a kid, they just repeated the exact batshit talking points from Fox News and I just assumed it was words of wisdom. They’ve been totally captivated and manipulated by Trump and will probably defend him vehemently until they die."
+
+* :::=== RoundSparrow_Commentary : so you realize Fox News is a media ecology crisis... but Jen Senko, baby boomer, stood up in March 2016 on the world stage - why didn't Reddit social media repeat her every 6 hours every day over and over and over? Why isn't Jen Senko a household name for the boomer who stood up to Fox News and inspired others to stand up to fiction vs. nonfiction media crisis? Did you ever consider if it took you this long to "come to realize", that Rupert Murdoch already realized it by studying multiple media oulets he has in his international media empire? And that the Russian Kremlin also figured this out, Surkovian govenring? You haven't realized much, only your personal family. Trees, not the forest. The FOREST perspective is that Reddit is doing to you in your generation, "entertainment news", that HDTV Fox News was doing to your parents. ===:::
