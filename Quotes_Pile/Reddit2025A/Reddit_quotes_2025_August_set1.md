@@ -1029,3 +1029,24 @@ silverblaze92 2911-07-23
 "You know, I got to say that South Park being relevant again in the year. 2025 was definitely not on my bingo card. This is definitely a terrible timeline, but I got to say that this aspect of it is at least somewhat interesting and entertaining"
 
 * :::=== RoundSparrow_Commentary : Donald Trump inspired this content creation, and audiences are glued to the White House being a total mockery Tony Clifton act. Eating the Surkovian onions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mk5x7s/ooof/n7gp0pq/
+
+BroughtBagLunchSmart 2024-01-26
+
+"That was before the billionaires that control what Charlie Kirk says realized that Trump was and still is the pied piper of speaking to the dumbest people in America."
+
+* :::=== RoundSparrow_Commentary : Every social club in USA 2025 seems centered on calling others dumb in Twitter-length reaction comments while avoiding social media for adult education. It is obvious that the USA has an adult crisis of media ecology, learning for adults comes off social media and TV news, yet nobody wants to actually sustain focus and address the adult information systems problems. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mk5x7s/ooof/n7i2z70/
+
+Truethrowawaychest1 2023-01-11
+
+"Exactly, I wouldn't call them stupid, they know they're lying, they don't believe in anything they're saying, they're getting money from people who either believe them or give them attention by responding to the ragebait"
+
+&nbsp;
+
