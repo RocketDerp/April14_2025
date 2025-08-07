@@ -340,4 +340,15 @@ https://old.reddit.com/r/clevercomebacks/comments/1mj5359/never_change_you_geniu
 
 "Never change" is repeated in the image and the Reddit posting title. Sarcasm and absurd are being exploited by Rupert Murdoch media empire, this is predatory mass media of making the media consumption audience believe they are more clever than Rupert Murdoch's content creators, this is Eating the Surkovian onions. Calling them Geniuses and saying "checkers when it is 16D chess" is exactly what Surkovian governing is all about. Absurd, surreal mind exploits. Social media users (here on two platforms in this posting) are eating right out of the hands of Rupert Murdoch's adaption of Russian information warfare techniques. The audience is thrilled at the insulting and mocking, insincerity and falsehoods, the paradox brain exploits, of joining the Donald Trump Total Mockery White House anti-reality media. Nothing short of a total society wide, age 12 to 120, voters and non-voters alike - teaching of 1985 book by New York University's Neil Postman titled "Amusing Ourselves To Death" is likely to start to solve this problem. It is not optional in a world driven by Internet media that people have no self-awareness of the history of global comparative mythology and fiction vs. nonfiction favoring.
 
+&nbsp;
+
+# Thursday, August 7, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mjwi12/unleashing_hell_has_never_been_so_entertaining/
+
+Top of fron page of Reddit. Thriled at having leaders to hate upon. How entertaining Hellis, and you know who unleashed Hell, Russia. We The Peope on social media are eatig the Surkovian onions, unable to cite Peter P's books. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk&t=1s) in a RFK Jr measles segment. A nation mind-fucked by Kremlin into ractionary recency bias.
+
+
 
