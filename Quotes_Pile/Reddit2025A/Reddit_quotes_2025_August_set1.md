@@ -305,3 +305,14 @@ gethereddout 2010-02-14
 "Such is the asymmetry of the corporate media left right paradigm. It’s detached from reality and designed to promote corporate profits over human well being."
 
 * :::=== RoundSparrow_Commentary : We are in the aftermath of a lost War Against Reality since March 2013. We are in runaway monomyth. This is living in runaway simulacras. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/stocks/comments/1mjhjv6/breaking_trump_says_there_will_be_a_100_tariff_on/n7bs3uv/
+
+kobebeef24 2010-09-10
+
+"Yep.. he destroys domestic investments in semiconductors, then charges tariffs on imports. It does not make sense. People who say he's trying to boost domestic capabilities are bootlickers. There is no 4d chess. He's playing checkers."
+
+* :::=== RoundSparrow_Commentary : Putin played the 256D chess with information warfare, you can't see this is USA self-harm and Surkovian information warfare. Calling others in USA "bootlickers" while [eating the Surkovian onions](Surkovian_Onion_Eating). In 2016... when Hillary Clinton declared in public to We The People that Trump was a "Putin Puppet", wath did youthink a State Department leader was suggesting? That Donald Trump has the best interest of the future of the USA for Putin? People compusively react comment and can not study Peter P's writings since year 2014. "It does not make sense." THINK DEEEPER, it MAKES SENSE if you are being a puppet for Putin, self-aware or otherwise (I doubt Trump is self-aware, he is a raging media addict detached from reality in favor of egomania media feedback).. ===:::
+
