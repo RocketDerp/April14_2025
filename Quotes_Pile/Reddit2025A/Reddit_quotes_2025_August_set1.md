@@ -232,7 +232,7 @@ Tokon32 2015-11-30
 
 "Don't forget COVID was a Democratic hoax to before it killed millions of Americans."
 
-* :::=== RoundSparrow_Commentary : Yes, and by blaming domestic Democratic party, Americans did not look further to see that [Russia had seeded manipulation of hearts and minds since year 2014 usigng Twitter. Factual hard evidence validated by Johns Hopkins University and George Washington University[(https://www.bbc.com/news/world-us-canada-45294192). Don't Forget... Americans can not fight an information war, Russia has kicked our ass into not seeing the NATO forest, patterns of domestic Americans hate Americans. ===:::
+* :::=== RoundSparrow_Commentary : Yes, and by blaming domestic Democratic party, Americans did not look further to see that [Russia had seeded manipulation of hearts and minds since year 2014 usigng Twitter. Factual hard evidence validated by Johns Hopkins University and George Washington University](https://www.bbc.com/news/world-us-canada-45294192). Don't Forget... Americans can not fight an information war, Russia has kicked our ass into not seeing the NATO forest, patterns of domestic Americans hate Americans. ===:::
 
 &nbsp;
 
@@ -243,3 +243,23 @@ Beginning_Ad_6616 2022-01-14
 "Didn’t he, his advisers, and the GOP bring the whole concept of exposing the files as an effort to appeal to their base? Like no one else was talking big shit about releasing the files…just him and MAGA."
 
 * :::=== RoundSparrow_Commentary : Yes, but Reddit society can't be bothered to use Google search engine and provide links, and reactions in conditioned Twitter-length style. ["Fact Check: Did Donald Trump Jr. once post, 'Show us all the Epstein client list' and ask why those on it would be protected?"](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html) - and if you think I am not commenting on Reddit with these links and pointers, you [will find my reply messages are being censored](Censored). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mjimgw/being_a_barista_is_truly_a_social_experiment/n7bg08q/
+
+"I feel her pain so hard. I had a guy yell at me for giving him tacos because he kept ordering tacos. After the fourth order/return/yell/refund he described what the tacos should look like/be filled with because I’m obviously too stupid to know what a taco is. This asshole was describing an eggroll."
+
+Dion-is-us 2020-08-09
+
+* :::=== RoundSparrow_Commentary : The Tower of Babel metaphor crisis is raging and we are ignoring all the symptoms. Malala descrbies it detail of Swat Valley Pakistan, and we on the Internet can't even reecognize ships passing in the night, our inability to see the forest for the trees. It is a global problem. Educated people can be some of the most stubborn on not recognizing language issues. We all need a dose of Finnegan Wake ego confrontation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mjimgw/being_a_barista_is_truly_a_social_experiment/n7bi82p/
+
+Numeno230n 2017-06-20
+
+"And they get really pissed off and confused when that vote turns into a reality they don't enjoy."
+
+* :::=== RoundSparrow_Commentary : yet we can't face Jen Senko's March 2016 film and make her a household name. Being pissed off and angry is the brain exploit and we don't recognize the forest of it for the encounter with individual trees. Cambridge Analytica too. Reddit voting and elction voting, media ecology, reveals similar problems of fiction vs. nonfiction. Surkov figured this out decades ago and Russsia exported it vai the Internet Research Agency since March 2013, and we have mentally fallen as a nation. ===:::
