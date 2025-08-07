@@ -694,6 +694,10 @@ https://old.reddit.com/r/dataisbeautiful/comments/1mjyjxz/oc_change_in_donald_tr
 
 INtoCT2015 2014-07-20
 
+<img width="1232" height="1572" alt="image" src="https://github.com/user-attachments/assets/63a4ae77-01b2-4649-8271-ea12847f5fe3" />
+
+&nbsp;
+
 "You underestimate the role Fox News plays. The people who vote red are predominantly rural, southern, and older. Fox News has those people hooked to a mainline IV. I’m not kidding. These people watch it every hour they are at home. They never turn it off.
 
 Social media is in compared to the influence Fox News as a channel has."
