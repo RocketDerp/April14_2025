@@ -1778,3 +1778,23 @@ obelix_dogmatix 2024-06-29
 "Bro … you increase tariffs, pickup fights with our allies, alienate an entire half of the country, refuse to make good on most of your campaign promises, cheat in golf, and then go off to do something with the olympics. Like that shit is levels below the responsibilities of a President. Can’t do your job, so finding an easier job?"
 
 * :::=== RoundSparrow_Commentary : Another Reddit comment that promotes widespread denial of Russian information warfare outcomes, that Donald Trump isn't under the influence of Kremlin memes just like Reddit community. Denial abounds. Not a soul in USA will call out [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions. The White House MAGA job is wrecking the USA in self-harm, ignoring everything Peter Pomerantsev wrote, everything Jen Senko published. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nrnt3/
+
+omgitsbees 2013-12-01
+
+"Is it just me or is Trump trying to inject himself into every single part of American life & culture even when it is completely unrelated to the role of president? Hopefully the Olympic committee tells him to fuck himself."
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7ns3w7/
+
+dengel01 2014-10-25
+
+"He’s like a dog that has to piss on everything to mark his territory."
+
+* :::=== RoundSparrow_Commentary : And [it works](https://www.youtube.com/watch?v=IobtCDkJKDc), the USA population (not just Republicans, not just MAGA, not just Fox News audience) compusively reacts in predictable patterns to his brand / logo / icon / orange skin color / symbolism. Russia won, Surkov won, Putin won. ===:::
+
+&nbsp;
