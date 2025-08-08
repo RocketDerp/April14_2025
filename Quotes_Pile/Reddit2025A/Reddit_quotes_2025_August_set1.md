@@ -1301,3 +1301,21 @@ AllNightPony 2016-01-24
 
 * :::=== RoundSparrow_Commentary : As Neil Postman was concerned in year 1985, we were heading in a direction of favoring fiction content over nonfiction. Our attraction to fiction eclipse to a point of entertaining ourselvs to death, detachment from science reality and truth. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ml0fx3/the_owner_of_trump_burger_in_houston_has_been/n7mrjys/
+
+Car_is_mi 2016-11-08
+
+"Not trying to defend the guy but there are probably a lot of low star reviews by people who never ate there and just dont like trump. Im not saying the food dosent also probably suck and is likely the cheapest ingredients you can buy while asking top $ because magats will pay anything to put trumps name in their mouth."
+
+* :::=== RoundSparrow_Commentary : [Everything is media ecology](../../Media_Ecology/Everything_is_ME.md) the *opposition to MAGA / Trump White House* easily adopts fiction. False ratings, fighting fiction with fiction drowns the whole world. Sports mentality breeds paranoia in population. The high road is being serious and rescuing hearts and minds. Fiction is coming from sources all over, not just the obvious Donald Trump sources. The Middle East has been drowning fiction with fiction for thousands of years, that is the "Old World Order" in the Great Seal USA meaning. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ml0fx3/the_owner_of_trump_burger_in_houston_has_been/n7mq7kd/
+
+BuckFuddy82 2019-02-15
+
+"Wow! It's like a comedy script writer is penning our reality."
+
