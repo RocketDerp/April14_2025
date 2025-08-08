@@ -1729,4 +1729,22 @@ Successful_Yam4719 2021-05-24
 
 "Busy guy - names himself Chair of the LA Olympic task force and Chair of the Kennedy Center AND has time to win the Senior Golf Championship . . . all while firing people and appointing more clowns to his circus that is hell bend on destroying democracy."
 
-* :::=== RoundSparrow_Commentary : Those who call age 79 Donald Trump lazy do not comprehend at all how difficult it is to be a content creator. Those who call Trump lazy have never bothered to be serious about media ecology and read [Peter Pomerantsev's 2014 writings on Surkov techniques](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), and eating the Surkovian onions. ===:::
+* :::=== RoundSparrow_Commentary : Those who call age 79 Donald Trump lazy do not comprehend at all how difficult it is to be a content creator. Those who call Trump lazy have never bothered to be serious about media ecology and read [Peter Pomerantsev's 2014 writings on Surkov techniques](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), and blindly eating the Surkovian onions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nvofs/
+
+KingBachLover 2024-02-14
+
+"Every Olympics in every city ever has caused local, state, and national police to “temporarily” increase public reach and surveillance protocols for “counter-terrorism” and then they “accidentally” forget to voluntarily relinquish their new power. The Trump admin knows deploying the military in LA will be very difficult… unless it’s to protect the citizens from potential terror attacks 😎 then it becomes reasonable, legal, and all protestors get called terrorist sympathizers and low information morons unwittingly become dogs of the state and support the erosion of freedoms. Can’t wait"
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nx1tm/
+
+BlackExcellence19 2017-12-23
+
+"Something something thunderous applause"
+
+* :::=== RoundSparrow_Commentary : ToDo: JJ Thunderword media ecology lesson insert. React commenting [Tweet info storms](https://www.youtube.com/watch?v=9JLN581QWxc). ===:::
