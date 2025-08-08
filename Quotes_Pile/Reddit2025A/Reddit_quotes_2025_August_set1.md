@@ -1247,3 +1247,26 @@ TheCaptainDamnIt 2012-08-21
 
 * :::=== RoundSparrow_Commentary : Reminder: [We know that QAnon was actively promoted by Russia since November 2017](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html). QAnon fits exactly with [Kremlin "War Against Reality" as described in September 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/), seeding the addiction to fiction and abandoning of nonfiction by society. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7ludsm/
+
+Tnevz 2016-04-16
+
+"Hillary Clinton called them deplorables years ago and they melted down. She wasn’t wrong then and it’s even more true now. Republicans haven’t stood for anything other than owning the libs - which is really just a cover for owning minorities, women, and the poor. It’s just time everyone stop listening to their moral grandstanding because it never holds up. The goal posts always move. It’s all projection."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lkpcy/
+
+padizzledonk 2016-11-22
+
+"There is nothing special or different from Americans now and Germans in the 20s and 30s, we are all just people and we still have the capacity for all that shit, always have and always will
+
+Spin people up at the right rpm and push the right buttons and some guy from Oklahoma will stand next to someone from New York as they push people into the gas chambers together.....
+
+We like to think we are somehow different from those people but we arent"
+
+* :::=== RoundSparrow_Commentary : I agree. That is why global study of Comparative Mythology and Media Ecology is essential. We need to view this as a human brain issue, a media content issue, education issue - not a USA domestic political issue. Donald Trump is a force of TCP/IP media and social media reaction commenting. Russia was able to adapt their 2011 media techniques to social media, and now ChatGPT and other large langauge models are able to generate appealing fiction to the whole world. ===:::
+
+
