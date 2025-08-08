@@ -1683,6 +1683,15 @@ Gigataur 2014-11-26
 
 "Media literacy is not MAGA’s strong suit. I have family that are very conservative that don’t understand the point of south park or movies like Blazing Saddles and instead they take it at face value."
 
-* :::=== RoundSparrow_Commentary : Media ecology in August 2025 is not the USA's strong suit. **[Just last year, as reminded March 27, 2024 which is WAY BEFORE November election and JD Vance](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/)** ===:::
+* :::=== RoundSparrow_Commentary : Media ecology in August 2025 is not the USA's strong suit. **[Just last year, as reminded March 27, 2024 which is WAY BEFORE November 2024 election and JD Vance](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/)** ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7niekh/
+
+rewardingsnark 2025-02-01 (new this year)
+
+"Conservatives are incapable of understanding anything"
+
+* :::=== RoundSparrow_Commentary : More reddit mind-fuck messages of Twitter-length simple-think Tweet-thinking. Give up on media ecology literacy, abandon Neil Postman books from 1985, just give up on those incapable of understanding media ecology. Let Russia win, give up intellectual defenses, let Putin wreck NATO further with meme warfare. ===:::
 
