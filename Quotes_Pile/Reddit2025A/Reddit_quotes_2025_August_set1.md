@@ -1319,3 +1319,34 @@ BuckFuddy82 2019-02-15
 
 "Wow! It's like a comedy script writer is penning our reality."
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ml0fx3/the_owner_of_trump_burger_in_houston_has_been/n7muq9z/
+
+Mental-Ad-2980 2024-07-06
+
+"I think some immigrants are doing things like this ONLY because they think it will make them safe. When Trump was first elected, a Wendy’s employee who appeared southern Asian approached me while I was in Army uniform. He seemed like he was trying to prove his patriotism. In my head I was like, “Dude I wanted Bernie you’re cool.” Every time I was at that Wendy’s in uniform he had to express how totally ok he was with the new administration. I would have loved to be able to tell him he had no reason to worry but all I could was try to show him some positivity because I knew he had readon to worry"
+
+* :::=== RoundSparrow_Commentary : I think many who disagree with MAGA and disagree with Fox News and disagree with Donald Trump think adding more absurd surreal mocking to a **Total Mockery White House** is the anser. They do not take media ecology seriously from Canadain Marshall McLuhan and New Yorker Neil Postman... nor do they recall [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions. The faith in mocking, insulting, and **blowing minds via surreal Mockery White House** is the MAGA and Kremlin faith. Adopting faith in mocking is joining with MAGA's media movement. It is the opposite of Irish author James Joyce's Finnegans Wake, which is all about a society-wide "Wake" of the Finnegans of society, "Media Woke" to patterns of media ecology. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ml0fx3/the_owner_of_trump_burger_in_houston_has_been/n7mu6b2/
+
+Yemps 2019-02-06
+
+"Reminds me of that scene from Schindler’s List where the Jewish guy is frantically trying to convince the Nazi soldiers he’s one of the good ones while they all laugh at him.
+
+Can’t fix stupid"
+
+* :::=== RoundSparrow_Commentary : the social media message here is: give up on Americans, abandon education, abandon learning, give one-line Twitter reaction tracks let Russia win against NATO... "Can’t fix stupid". People observe that Fox News creates stupid, but won't concede that education can actaully address stupid. But memes and junk media all over social media is drowning out serious. USA society will continue to decline if people are not attracted to nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mksiyp/ice_barbie_lashes_out_at_south_park_after_it_tore/n7l7t9b/
+
+"Hilarious she says it’s always the liberals who make fun of a woman’s looks"
+
+Chinpokomaster_ 2025-02-28 (new this year)
+
+* :::=== RoundSparrow_Commentary : Finds it hilarious that people think liberal vs. conservative different views of reality is entertainment. Truth and reality are one, fiction comes in millions of flavors. We are living in David Foster Wallace's Infinite Jest. People will not stop entertaining themselves with the joke of Donald Trump being insporation and POTUS. ===:::
