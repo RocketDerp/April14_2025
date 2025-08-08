@@ -1667,3 +1667,22 @@ wafflesmagee 2011-02-21
 
 "…they really don’t realize that Cartman is evil lol. Imagine being so fucking stupid that you see this and think they’re endorsing MAGA beliefs. Jesus Christ."
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7ndxmw/
+
+Applebeate 2025-03-29 (this year)
+
+"I always interpreted this episode as satirically making fun of these online debaters as cringy rage baiters who ask questions unrelated their discussion, interrupting others and just overall leave no room for discussion."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7nztez/
+
+Gigataur 2014-11-26
+
+"Media literacy is not MAGA’s strong suit. I have family that are very conservative that don’t understand the point of south park or movies like Blazing Saddles and instead they take it at face value."
+
+* :::=== RoundSparrow_Commentary : Media ecology in August 2025 is not the USA's strong suit. **[Just last year, as reminded March 27, 2024 which is WAY BEFORE November election and JD Vance](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/)** ===:::
+
+
