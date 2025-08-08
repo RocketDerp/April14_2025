@@ -1057,3 +1057,51 @@ https://old.reddit.com/r/NoShitSherlock/comments/1mkewom/reacher_star_alan_ritch
 * :::=== RoundSparrow_Commentary : Unreal, unreality, and the 1988 book Power of Myth is critical learing for every person in society age 12 to 120. We can't keep behaving as if alternate-reality monomyth ficiton isn't a threat to humanity, starting with USA clergy who can't find Bible verse '1 John 3:17" and apply it to Donald Trump. Alas, the Reddit "No Shit Sherlock" attitude is a reactionary momentary focus on the topic and won't be sustained as a social media uprising to repeat and keep repeating the assertion [that we have inverted Levant mythology literacy problem](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/). ===:::
 
 
+&nbsp;
+
+"Magats who grew up watching south park loved Cartman not because he was funny satire but because he was a bigot like them"
+
+&nbsp;
+
+https://old.reddit.com/r/inthenews/comments/1mjyn4o/south_park_has_fallen_maga_world_outraged_over/n7eu1yk/
+
+meatspun 2010-06-03
+
+"You nailed it. They got their sense of humor from South Park. If you've heard someone make a joke about Gingers not having souls then you exactly what I mean."
+
+&nbsp;
+
+https://old.reddit.com/r/inthenews/comments/1mjyn4o/south_park_has_fallen_maga_world_outraged_over/n7eyco8/
+
+FUNKYDISCO 2010-04-07
+
+"exactly, they are media illiterate. it's a real problem. Tyler Durden is not a hero, the Joker is not "cool", The Punisher should not be a police officer's idol, Patrick Bateman, Walter White, Rick from Rick and Morty, Rorschach from Watchmen... the list goes on and on."
+
+&nbsp;
+
+https://old.reddit.com/r/inthenews/comments/1mjyn4o/south_park_has_fallen_maga_world_outraged_over/n7ffanv/
+
+Giblette101 2021-04-10
+
+"It's because all those "fuck your feeling" conservative pundits are just dishonest. The idea that nothing is off-limit was just advantageous to them rhetorically, not some kind of principled stance."
+
+&nbsp;
+
+https://old.reddit.com/r/inthenews/comments/1mjyn4o/south_park_has_fallen_maga_world_outraged_over/n7eq88m/
+
+ConcordeCanoe 2024-08-22
+
+"These are absolute weirdos who thinks that vulnerable minorities should be mocked and abused at a constant rate ("it's just a joke, bruh") and at the same time they demand that they themselves are to be taken seriously at all times despite being moronic fucking clowns.
+
+Double standards is their MO. Fuck them and their brittle small-dick insecurities."
+
+&nbsp;
+
+https://old.reddit.com/r/inthenews/comments/1mjyn4o/south_park_has_fallen_maga_world_outraged_over/n7exaxv/
+
+TheOne7477 2021-10-21
+
+"MAGA is a platform built entirely on emotion. Its positions are not built on or supported by verifiable facts. It’s all how they feel about an issue. It does nothing to actually benefit society. It exists only to validate the fragile emotions of its adherents. As a result, MAGA is wholly unable to withstand or even tolerate criticism, investigation, or mockery."
+
+&nbsp;
+
