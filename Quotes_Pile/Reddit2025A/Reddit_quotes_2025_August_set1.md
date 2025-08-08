@@ -1720,3 +1720,13 @@ thorhyphenaxe 2015-05-08
 "It’s going to be so unbelievably embarrassing watching him parade around the Olympics in his last few months of presidency while he’s desperately clinging to any chance of sticking around past 4 years"
 
 * :::=== RoundSparrow_Commentary : Tony Clifton Vegas performance. Audience will interact in feedback loops. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nrlsl/
+
+Successful_Yam4719 2021-05-24
+
+"Busy guy - names himself Chair of the LA Olympic task force and Chair of the Kennedy Center AND has time to win the Senior Golf Championship . . . all while firing people and appointing more clowns to his circus that is hell bend on destroying democracy."
+
+* :::=== RoundSparrow_Commentary : Those who call age 79 Donald Trump lazy do not comprehend at all how difficult it is to be a content creator. Those who call Trump lazy have never bothered to be serious about media ecology and read [Peter Pomerantsev's 2014 writings on Surkov techniques](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), and eating the Surkovian onions. ===:::
