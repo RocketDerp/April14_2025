@@ -1609,5 +1609,17 @@ bulaybil 2019-12-13
 
 "Tw… fiv… Holy shit, 14? Yeah 14 (Edit: 16. I am old, can’t do math) years ago, South Park made fun of Glenn Beck, a major right wing commentator at the time by having Cartman turn into a parody of Beck. Everyone got the joke and aside from Beck himself and a few minor figures, no one complained. MAGA is really the lowest form of life…"
 
-* :::=== RoundSparrow_Commentary : Yes, USA population was not yet influenced by Cambridge Analytica payloads from Kremlin Internet Research Agency that started deploymen on WWW in March 2013. ===:::
+* :::=== RoundSparrow_Commentary : Yes, USA population was not yet influenced by Cambridge Analytica payloads from Kremlin Internet Research Agency that started deployment on WWW in March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7ng3ao/
+
+iFap4DaytonaCoupes 2011-10-27
+
+"they don’t realize they’re the joke.
+
+Back when the colbert report was on, I had someone try and argue with me about how it was “the republican version of john stewart” he got so so mad when I explained what the term “parody” meant…"
+
+* :::=== RoundSparrow_Commentary : Americans, USA, doesn't realize a fucking thing about Surkov information warfare. Putin won, Russia won. ===:::
 
