@@ -1349,4 +1349,31 @@ https://old.reddit.com/r/NoShitSherlock/comments/1mksiyp/ice_barbie_lashes_out_a
 
 Chinpokomaster_ 2025-02-28 (new this year)
 
-* :::=== RoundSparrow_Commentary : Finds it hilarious that people think liberal vs. conservative different views of reality is entertainment. Truth and reality are one, fiction comes in millions of flavors. We are living in David Foster Wallace's Infinite Jest. People will not stop entertaining themselves with the joke of Donald Trump being insporation and POTUS. ===:::
+* :::=== RoundSparrow_Commentary : Finds it hilarious that people think liberal vs. conservative different views of reality is entertainment. Truth and reality are one, fiction comes in millions of flavors. We are living in David Foster Wallace's Infinite Jest. People will not stop entertaining themselves with the joke of Donald Trump being insporation and POTUS. This is a nation *always making fun of* serious reality topics, avoding nofiction learning, "Amusing Ourselves To Death" as Neil Postman warned in 1985 book. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mksiyp/ice_barbie_lashes_out_at_south_park_after_it_tore/n7l64w0/
+
+Chevronet 2021-10-30
+
+"South Park has so much material to work with, on this unqualified clown car of a cabinet destroying America. Keep it coming."
+
+* :::=== RoundSparrow_Commentary : Americans will likely take a generation to admit the depth of it, but this is what USA population can't resist. The addiction to media is a subconsious exploit of their minds to engage Donald Trump Whtie House every day on social machines, not just electiond days, every day is a ReTweet and Reddit upvote day. Surkov won, Russia won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mksiyp/ice_barbie_lashes_out_at_south_park_after_it_tore/n7l5esi/
+
+4onlyinfo **2025-06-17 (recent account)**
+
+"Someone should put together a Trump insults people montage. South Park should play it as a double episode. There is at least that much content."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mksiyp/ice_barbie_lashes_out_at_south_park_after_it_tore/n7l6ajp/
+
+Adventurous_Equal489 2021-07-29
+
+"its weird the right is taking the bait with this show when not so long ago they were correct about criticizing the left for getting so mad about the troll cartoon. kinda thought they would have self awareness a bit longer."
+
