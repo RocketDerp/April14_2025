@@ -1748,3 +1748,13 @@ BlackExcellence19 2017-12-23
 "Something something thunderous applause"
 
 * :::=== RoundSparrow_Commentary : ToDo: JJ Thunderword media ecology lesson insert. React commenting [Tweet info storms](https://www.youtube.com/watch?v=9JLN581QWxc). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nnedz/
+
+youdubdub 2015-10-21
+
+"Let me guess, he will stand beneath the podium and steal all of the gold medals, forcing the athletes who earned them to get replicas? If only the dumbs could have chosen a leader who didn't look exactly like as much of a piece of worthless shit as he is, this would be nearly tolerable."
+
+* :::=== RoundSparrow_Commentary : Public execution of [Minstrel Show (Obama family)](https://www.youtube.com/watch?v=jmdiKePVUy8) would be more like the media spectacle USA meme addicts would crave in 2026 / 250 years 1776 ... as Reddit, Bluesky and everyone shows the media addiction to Trump content [reaction-commenting bi-polar twisted react-logic I'm witnessing](https://www.youtube.com/watch?v=UBxZFadp9Pw) in August 2025. ===:::
