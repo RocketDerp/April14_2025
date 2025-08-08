@@ -1432,3 +1432,21 @@ Phonic-Frog **2025-07-29 (NEW account)**
 "Not the least bit surprised. Republicans have spent decades doing everything they can to suppress the vote in America. They drool over the thought of repealing the 15th & 19th amendments, and the Voting Rights Act.
 
 Hell, they've chiseled away at the latter so much that it's a sad shell of what it used to be."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ml3wch/pete_hegseth_just_shared_a_video_that_says_women/n7nn88o/
+
+onomastics88 2020-01-05
+
+"Keep tugging at that Epstein list they’re never going to show, surely we don’t need to pay attention to anything else like all our rights taken away."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ml1h26/fck_ice/n7n8lwl/
+
+Shot_Try4596 2020-11-07
+
+"Let me know when good people realize that just speaking up and peacefully protesting against ICE and this regime are ineffective, and decide to escalate efforts to something more direct and effective. Yes, I am well aware of the likely consequences/response of the regime will be."
+
+* :::=== RoundSparrow_Commentary : Gun stroking violence gun worship Americans.  **I don't witness anyone speaking up that Jen Senko's March 2016 film about Fox News** and other right-wing media brainwashing got barely a mention by social media society. Social media users have free time and spare time to react-comment to everything going on, but won't address the roots of the problem. I don't witness people standing up to Russia's information warfare against mutiple NATO nations, I just see people insulting and moocking "the others" in out-group polarity with zero faith in education / teaching / learning - which is THE TRUE GREAT THING the USA had, we created public library and the Internet and Wikpedia - and now all people can do is react-comment to MAGA / ICE / Trump / White House instead of actually admit that intelligence and educaiton go hand in hand. I go so far to say that compassion is LEARNED, empathy is something animals have also... but COMPASSION comes from Buddha, Jesus and other **fiction storytelling** - it is *aquired and learned* from other people in the majority of cases. Such as repeating Bible verse "1 John 3:17" about Donald Trump's wealth. But social media users won't organize to promote Jen Senko or promote positive Bible verses about how you treat immigrants. Why isn't Leviticus 19:33-34 posted every time I.C.E. is on Reddit and Bluesky? ANSWER: Russia won hearts and mins to NOT be sincere, honest, earnest towards goodness. **It isn't just Republicans / GOP / MAGA avoiding verse Leviticus 19:33-34 repetition** on social media. ===:::
