@@ -1528,3 +1528,14 @@ repthe732 2011-01-30
 "So which is it? Do they not care about SP because it’s not funny or are they unable to take a joke when they’re the punchline?"
 
 * :::=== RoundSparrow_Commentary : BOTH, BOTH BOTH, AND MORE. [Exploiting paradox in the human brain is exactly what Adam Curtis of BBC emphasized in year 2014. Contraidiction media messages](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). They get you with your one-line Twitter-thinking Tweet-length reaction comment, that's social media engagement from the White House. [8. The enemy is both strong and weak. “By a continuous shifting of rhetorical focus, the enemies are at the same time too strong and too weak.”](https://www.openculture.com/2024/11/umberto-ecos-list-of-the-14-common-features-of-fascism.html) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ml3b8l/i_really_love_south_park_right_now/n7njxd8/
+
+tbizzone 2018-03-04
+
+"I’m pretty much convinced that a massive campaign to endlessly mock and call out the deplorable behavior of the maga regime is about the only thing that might be effective at causing them to go into a full on meltdown, lose some political ground, and perhaps break enough maga voters from their radicalized cult of personality. But I’m also not sure there’s anything that will break them free of the cult. Half of them recently said they’d be fine if he ended up being found guilty of being a part of Epstein’s heinous crime ring."
+
+* :::=== RoundSparrow_Commentary :  "a massive campaign to endlessly mock" is the foundation of Russian information warfare, not a soul on Reddit or Bluesky can recognize and name Surkov techniques. The very foundation of this information warfare since March 2013 is "a massive campaign to endlessly mock" NATO. "I’m pretty much convinced" - the ENTIRE USA is convinced that Americans mocking Americans will solve a war that Russia is waging, that's how Putin won the information war! Everyone in the USA has a common enemy, Russia, but can't resist the mindfuck entertainment and amusement to see the NATO forest since year 2013 for the White House 2025 trees. "from their radicalized cult of personality" is a SIGNIFICANT misunderstanding. Fox News is not a person, it is a media message tone and style. The Bible cult is not a cult of Jesus the person, but poetry told by Matthew / Mark / Luke / John. People don't grasp media ecology and **cult of media itself**, Reddit is a cult of mocking MAGA. Media cults do not need a leader, only the content of the fiction itself... study Mecca and Pakistan, read Malala's book from October 8, 2013. ===:::
+
