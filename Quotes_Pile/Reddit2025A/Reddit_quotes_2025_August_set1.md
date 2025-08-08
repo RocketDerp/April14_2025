@@ -1585,8 +1585,29 @@ Blanche_Deverheauxxx 2024-11-08
 
 &nbsp;
 
-"My brother tells me a story about our maga mom watching the Colbert report after he turned it on. She started listening and nodding her head knowingly in agreement to his jokes. She, an English teacher, didn’t get the satire."
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7nvb4j/
 
 skasage 2012-09-20
 
+"My brother tells me a story about our maga mom watching the Colbert report after he turned it on. She started listening and nodding her head knowingly in agreement to his jokes. She, an English teacher, didn’t get the satire."
+
 * :::=== RoundSparrow_Commentary : Nor did the Pentagon get it. Finnegans Wake from Irish author James Joyce 1924. Nor did the Pentagon get it. See Also: [Doctor Carl Sagan on Nazi aftermath in Germany not getting it](..//Doctors/Carl_Jung.md). Not "woke" to media ecology, Finnegans Wake of Dublin metaphors year 1924 onward. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7n9xr1/
+
+IsRude 2019-04-02
+
+"Everyone keeps asking why everything nowadays is so on the nose with their messaging. This is why."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7neari/
+
+bulaybil 2019-12-13
+
+"Tw… fiv… Holy shit, 14? Yeah 14 (Edit: 16. I am old, can’t do math) years ago, South Park made fun of Glenn Beck, a major right wing commentator at the time by having Cartman turn into a parody of Beck. Everyone got the joke and aside from Beck himself and a few minor figures, no one complained. MAGA is really the lowest form of life…"
+
+* :::=== RoundSparrow_Commentary : Yes, USA population was not yet influenced by Cambridge Analytica payloads from Kremlin Internet Research Agency that started deploymen on WWW in March 2013. ===:::
+
