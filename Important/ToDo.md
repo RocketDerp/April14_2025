@@ -152,3 +152,10 @@ https://old.reddit.com/r/todayilearned/comments/1mkcr07/til_that_english_speaker
 
 Stuttering comments, Finnegans Wake    
 https://old.reddit.com/r/news/comments/1mkckts/fort_stewart_shooting_suspect_was_a_hard_worker/
+
+&nbsp;
+
+Dublin culture clash, falsehoods
+
+https://old.reddit.com/r/ireland/comments/1mkpd56/viral_video_claiming_immigrants_in_dublin_cooked/
+
