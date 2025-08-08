@@ -1563,4 +1563,30 @@ https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre
 
 "They do realize they’re the joke, right?"
 
-* :::=== RoundSparrow_Commentary : The largest Internet trolling operaiton in all human history, Operation Matthew 4:19, "They do realize they’re the joke, right?" - do you realize on Reddit that Russia has make a joke of NATO right under your meme radar since March 2013, and you can do ANYTHING and EVERYTHING but repeat [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions ???? ===:::
+* :::=== RoundSparrow_Commentary : The largest Internet trolling operaiton in all human history, Operation Matthew 4:19, "They do realize they’re the joke, right?" - do you realize on Reddit that Russia has made a joke of NATO right under your meme radar since March 2013, and you can do ANYTHING and EVERYTHING but repeat [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions ???? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7necku/
+
+EarthAbundance84 2024-09-17
+
+"It’s not because they don’t watch the show. Colbert brutally mocked Republicans nightly on the Colbert Report. Republicans thought he was one of them. They didn’t get that he was mocking them, and that their beliefs were the punchlines"
+
+* :::=== RoundSparrow_Commentary : And we have "Amused Ourselves To Death", as Neil Postman wrote in his 1984 page book way back when Ronald Reagan was gong into second term in office as an entertaining comedy act of Hollywood actor. We do NOT teach the predictable exploits of the human brain related to absurd comedy, surreal antics, absurd surreal amusement. Neil Postman was saying so in year 1985, what is our society-wide (not just MAGA) excuse for not recognizing the patterns? Surkov recognized it in Russia decades later and kicked our ass. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7notor/
+
+Blanche_Deverheauxxx 2024-11-08
+
+"They did. There was an article that surfaced some time around the show's peak where it turns out a lot of them didn't think he was satirizing conservative talking points. I guess because he mocked Dems sometimes too they thought he was a raging conservative."
+
+&nbsp;
+
+"My brother tells me a story about our maga mom watching the Colbert report after he turned it on. She started listening and nodding her head knowingly in agreement to his jokes. She, an English teacher, didn’t get the satire."
+
+skasage 2012-09-20
+
+* :::=== RoundSparrow_Commentary : Nor did the Pentagon get it. Finnegans Wake from Irish author James Joyce 1924. Nor did the Pentagon get it. See Also: [Doctor Carl Sagan on Nazi aftermath in Germany not getting it](..//Doctors/Carl_Jung.md). Not "woke" to media ecology, Finnegans Wake of Dublin metaphors year 1924 onward. ===:::
