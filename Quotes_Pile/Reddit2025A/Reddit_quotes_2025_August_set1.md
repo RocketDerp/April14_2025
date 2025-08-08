@@ -1120,3 +1120,17 @@ GryphonOsiris 2021-03-22
 "I have honestly never seen this level of hatred against a President and their staff before, and that includes against Nixon, Reagan and Bush. These clowns have built their house of lies and the American People are not having any of it."
 
 * :::=== RoundSparrow_Commentary : Tony Clifton act does this, Surkovian governing. Audience can't resiist joining in with the hate feedback loops. Russia seeded self-destruction of USA with self-hate. ===:::
+
+&nbsp;
+
+# Friday, August 8, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mksber/lawrence_odonnell_after_seeing_the_media_coverage/n7lchqy/
+
+No_Kaleidoscope_7505 **2025-06-13 (new account)**
+
+"There is 0% chance of that happening. People can barely afford to survive. They cant just drop everything and fly or drive to Washington D.C. That's at least $1000 just for the flights for anyone on the west coast."
+
+* :::=== RoundSparrow_Commentary : When has social media, all the people with free time / spare time to react-comment to Donald Trump going to raise up in USA? Where are the "Day 27 morning post of asking Donald Trump to resign for the future of humanity" hashtags and front-page postings? I've seen more coverage of Andor Star Wars TV than any kind of sustained nonfiction use of social emdia to protest Donald Trump. People have money to talk about TV shows, films, video games, sports events, airplane crashes, kitten images (all over Reddit front page daily)... but you do not witness people using thier spare time and free time on Reddit to actually cofront the Elephant in the Room. Why isn't Jen Senko, the boomer who stood up to the crisis, famous on social media since her March 2016 wide film release? Why can't people use thier free time and spare time to stand up for *the little guy speaking Truth To Power*, instead of just complaining "Fox News bad" every day on social media? When stories come up about Measles, why can't peoople share this 2019 story about measles from [Stephen Colbert on social media (Star Wars Day, May 4 2019, publication date) with thier spare and free time they are using to comment on the news](https://www.youtube.com/watch?v=Ju7Yt0LMiVk)? ===:::
