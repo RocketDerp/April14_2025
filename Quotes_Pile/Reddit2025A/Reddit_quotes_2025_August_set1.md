@@ -1808,3 +1808,12 @@ GuitarGeezer 2017-01-01
 She sold her soul and the souls of many a girl to Satan to get back into good graces with big money decades ago after her rich daddy Fraudbucks went boom. Guiffre’s family is hopping mad and not shy about saying it."
 
 * :::=== RoundSparrow_Commentary : Proves, proven, social media addicts believe shit. Media ecology lessons and comparative mythology comprehension are not optional. "beyond a shadow of a doubt" that many people don't believe in due process or analysis of evidence. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ml1k8d/feds_deploy_special_operations_and/n7n6ox3/
+
+Eatthebankers2 2018-10-24
+
+"In that luxury prison its forbidden to house sexual predators, yet she’s not only there, but is around collage girls that go in there that help prisoners with teaching service puppies. Also she can leave and go to town to wander around. Funny how these rich criminals keep getting pardons? Trump crypto coin is probably where he’s getting paid off."
+
