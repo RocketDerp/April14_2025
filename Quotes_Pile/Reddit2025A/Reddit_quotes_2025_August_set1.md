@@ -1460,3 +1460,21 @@ EscapedTheEcho 2025-05-13 (Recent account)
 "MAGA doesn't think this is bad. They care, but in the opposite direction: medical emergencies, mistreatment, torture, and death are what they want. This image is titillating to them, not repugnant or sad. I guarantee some of them came in their shorts reading about this."
 
 * :::=== RoundSparrow_Commentary : The excitement and stimulation of reading messages, which the anti-MAGA reactionary crowd on Reddit / Bluesky / USA also has every time a "leopard eats a face" mocking comes up. It is multi-media multi-platform feedback loops of A hates B, B hates C, C hates A patterns (and more complex). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ml1h26/fck_ice/n7nj7v9/
+
+Celestial_Hart 2023-03-28
+
+"Speaking is no longer enough, they have been blatantly defying court orders for months now, they actively kidnap US citizens, they point guns at children. Talking doesn't work with fascists, this isn't a difference of opinion that can be discussed, you can't reason with them. Either stop them or wait your turn because you will definitely get your turn if you don't stop them."
+
+* :::=== RoundSparrow_Commentary : Anti-Malala messaging. Give up on education, give up on reality, give up on science communications and teaching, abandon nonfiction - let the Russians win the War Against Reality that won hearts and minds. The only answer to mental problems of human beings is splatter brains with violence and bombs. Let Russia win against all NATO in the information war that started March 2013. Another message here is that Europe never was able to exit the facism Church / Catholic Church in the dark ages / middle ages, you can't think and educate and reform your way out of facism of Jesus / Allah rule by clergy. Either stop them or wait your turn because you will definitely get your turn if you don't stop them." - I don't see this social media user stopping Russian information warfare with anonymous no-identity accounts on Reddit. I doubt they are self-aware of anything about information warfare. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ml1h26/fck_ice/n7nqq9b/
+
+Dd_8630 2014-04-23
+
+"Is this story verified? I want to be outraged but there's so much exaggerated misinformation that I'm dubious now."
