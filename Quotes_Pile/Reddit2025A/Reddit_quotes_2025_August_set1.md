@@ -1695,3 +1695,28 @@ rewardingsnark 2025-02-01 (new this year)
 
 * :::=== RoundSparrow_Commentary : More reddit mind-fuck messages of Twitter-length simple-think Tweet-thinking. Give up on media ecology literacy, abandon Neil Postman books from 1985, just give up on those incapable of understanding media ecology. Let Russia win, give up intellectual defenses, let Putin wreck NATO further with meme warfare. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nnd0n/
+
+minigopher 2017-04-17
+
+"As chair of the LA Olympics he has the sole job of inspecting all female athletes. Similar to his beauty contests he put together. There is always an angle in his decisions."
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nno7h/
+
+wahoowalex 2013-08-13
+
+"I’m sure there was some planning and preparation done beforehand. Massive monuments to fascism don’t build themselves overnight, you know"
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nmrrm/
+
+thorhyphenaxe 2015-05-08
+
+"It’s going to be so unbelievably embarrassing watching him parade around the Olympics in his last few months of presidency while he’s desperately clinging to any chance of sticking around past 4 years"
+
+* :::=== RoundSparrow_Commentary : Tony Clifton Vegas performance. Audience will interact in feedback loops. ===:::
