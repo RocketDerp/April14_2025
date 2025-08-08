@@ -1478,3 +1478,53 @@ https://old.reddit.com/r/BlueskySkeets/comments/1ml1h26/fck_ice/n7nqq9b/
 Dd_8630 2014-04-23
 
 "Is this story verified? I want to be outraged but there's so much exaggerated misinformation that I'm dubious now."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ml3b8l/i_really_love_south_park_right_now/n7ng42q/
+
+LogicalPear5634 2021-01-28
+
+"It's alarming how they're so sensitive to a comedy show, yet in real life, they are destroying humans. Very weak people."
+
+* :::=== RoundSparrow_Commentary : Very weak one-line Twitter-length reactionary commenting to a reactonary media content to a reactionary government thinking. 1993: ["Well by the end of the article I was wondering, I was going: you know, that’s just way too cynical even for me, I can’t buy that argument. And then I began to think about what the war looked like on TV and a comment then… ... Then I just had to start trying to find people who had been in the war. And sure enough I found someone in Durham who had been… you know, a lot of North Carolina people go to the war, I found a young pilot and he said oh, that no, it was very exciting and then he went on to explain to me how the sights that they used in order to, you know, fire their smart bombs were just like the games in the arcade that he grew up with. He said, you know, no way in the world could he have had better practice than he got in those arcades to fire smart bombs. I mean, it had passed him by that the real had happened even though he was really there. I talked to a woman who had been on the ground, in a jeep for most of it. And she went “Oh the desert is so big and the sand…”, she said, “…but I really didn’t get a feel for until I got home and saw what my husband had taped”. Why? Because the little individual actors sink into insignificance compared to the damn spectacle of the thing."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) - like South Park, like the White House, Hyper Reality both. Adding hyper reality fire to hyper reality fire. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ml3b8l/i_really_love_south_park_right_now/n7nsn3q/
+
+"The only comedy they want legal is racist jokes."
+
+deadsoulinside 2012-06-07
+
+* :::=== RoundSparrow_Commentary : Not true at all. They want fiction content, it is all about fiction content addiction. Fiction story supremacy (Fox News fiction, etc). Jokes on poor people being dumb stupid idiots are welcome. It isn't just racial and skin color fiction jokes and humor. MAGAA wants jokes punching down on the poor from the bilionaires. They want jokes about homeless people even if they are white race. White House wants jokes about autistic people, even if they are the same race as RFK Jr. They want jokes mocking non-believers and atheists even if they are white race. They want jokes against California and Canadian people even if they are the same white race. They want simplistic thinking of reaction comments like this Reddit comment that mimic Twitter-thinking behaviors. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ml3b8l/i_really_love_south_park_right_now/n7nmndm/
+
+HeiressGoddess 2017-12-29
+
+"It's rich coming from the "fuck your feelings" crowd"
+
+* :::=== RoundSparrow_Commentary : It blows the mind of the Reddit audience into meme stupors of reactionary thinking. That's how Surkov Russian Information warfare works on populations. Turns them all into reactionary meme stupors. Unable to stop compusively reacting to the out-groups and engage printed books from  [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ml3b8l/i_really_love_south_park_right_now/n7nm8cl/
+
+ToastyJackson 2017-11-10
+
+"It’s also funny how they’re the ones bringing attention to it. I don’t watch South Park and don’t care about it. If she didn’t take the bait and make it into a story by reacting to it, I likely never would’ve heard about this."
+
+* :::=== RoundSparrow_Commentary : They *know it is funny*, that's how they mind-fucked you. Your compusive reaction in the meme consumer audience of social media is exactly the mechanism of mind-fucking that Surkovian governing / Russian informatio warfare exploits. Kremlin information warfare counts on you being compusively addicted to the constant stimulation of antics politics and fiction paradox, [shadow boxing](https://www.youtube.com/watch?v=QnXjISlKLuE) with reality and science. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ml3b8l/i_really_love_south_park_right_now/n7ngjkc/
+
+repthe732 2011-01-30
+
+"So which is it? Do they not care about SP because it’s not funny or are they unable to take a joke when they’re the punchline?"
+
+* :::=== RoundSparrow_Commentary : BOTH, BOTH BOTH, AND MORE. [Exploiting paradox in the human brain is exactly what Adam Curtis of BBC emphasized in year 2014. Contraidiction media messages](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). They get you with your one-line Twitter-thinking Tweet-length reaction comment, that's social media engagement from the White House. [8. The enemy is both strong and weak. “By a continuous shifting of rhetorical focus, the enemies are at the same time too strong and too weak.”](https://www.openculture.com/2024/11/umberto-ecos-list-of-the-14-common-features-of-fascism.html) ===:::
