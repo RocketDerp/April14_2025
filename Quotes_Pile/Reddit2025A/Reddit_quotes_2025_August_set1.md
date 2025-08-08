@@ -1377,3 +1377,18 @@ Adventurous_Equal489 2021-07-29
 
 "its weird the right is taking the bait with this show when not so long ago they were correct about criticizing the left for getting so mad about the troll cartoon. kinda thought they would have self awareness a bit longer."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ml4sdt/donald_trump_is_sucking_the_lifeblood_out_of/
+
+"Donald Trump Is Sucking the Life-Blood Out of America | After just six months in office, the U.S. government—and the nation at large—is being ever-diminished by any number of Trump’s nefarious actions and egomaniacal plots."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ml3wch/pete_hegseth_just_shared_a_video_that_says_women/n7nlo96/
+
+nemonimity 2012-06-15
+
+"The Abrahamic Reich making their play across the globe."
+
+* :::=== RoundSparrow_Commentary : [Formally announced December 2013, "Conservative International"](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) movement. Ukraine war started 2 months later, February 2014, still ongoing in August 2025. ["The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
