@@ -159,3 +159,9 @@ Dublin culture clash, falsehoods
 
 https://old.reddit.com/r/ireland/comments/1mkpd56/viral_video_claiming_immigrants_in_dublin_cooked/
 
+&nbsp;
+
+Observations on cheating motivations 
+
+https://old.reddit.com/r/pcmasterrace/comments/1mksi82/battlefield_6_day_1_cheaters_despite_having/
+
