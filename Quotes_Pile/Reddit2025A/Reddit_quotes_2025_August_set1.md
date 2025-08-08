@@ -1539,3 +1539,13 @@ tbizzone 2018-03-04
 
 * :::=== RoundSparrow_Commentary :  "a massive campaign to endlessly mock" is the foundation of Russian information warfare, not a soul on Reddit or Bluesky can recognize and name Surkov techniques. The very foundation of this information warfare since March 2013 is "a massive campaign to endlessly mock" NATO. "I’m pretty much convinced" - the ENTIRE USA is convinced that Americans mocking Americans will solve a war that Russia is waging, that's how Putin won the information war! Everyone in the USA has a common enemy, Russia, but can't resist the mindfuck entertainment and amusement to see the NATO forest since year 2013 for the White House 2025 trees. "from their radicalized cult of personality" is a SIGNIFICANT misunderstanding. Fox News is not a person, it is a media message tone and style. The Bible cult is not a cult of Jesus the person, but poetry told by Matthew / Mark / Luke / John. People don't grasp media ecology and **cult of media itself**, Reddit is a cult of mocking MAGA. Media cults do not need a leader, only the content of the fiction itself... study Mecca and Pakistan, read Malala's book from October 8, 2013. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ml6gs0/the_smithsonian_changes_its_description_of_trumps/n7o38mq/
+
+mhouse2001 2019-03-26
+
+"We are in hell."
+
+* :::=== RoundSparrow_Commentary : We, the ENTIRE nation, not just MAGA / GOP / Republicans. Hell is not a place underground, it is a mindset. Russia defeated the USA in information warfare and people don't even understand basics 101 of information warfare of Surkov / Kremlin. ===:::
+  
