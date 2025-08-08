@@ -1218,3 +1218,22 @@ https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still
 Sea_Leadership5170 2025-01-17 (new this year)
 
 "And that is just the ones willing to fucking admit it. Imagine how many would actually vote for him and then just say they did not."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lhnti/
+
+letsgetbrickfaced 2013-11-20
+
+"I’d wager that 47% is low. Most would probably still vote for him but won’t admit it"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lgqlh/
+
+CrimsonFeetofKali 2025-01-18 (new this year)
+
+"Americans are slowly beginning to realize that many of their fellow citizens prefer authoritarianism when it's targeted at people they dislike, and that nothing will dissuade them from that support. And that this very much connects to politics throughout history."
+
+* :::=== RoundSparrow_Commentary : Look at how people behave with the block buttons on social media. If you dislike someone, you have to burn thier books (Nazi Germany 1933 didn't have Unicode text and digital social media, [they had to burn magazines and books they disagreed with by using flame and paper). Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md). ===:::
+
