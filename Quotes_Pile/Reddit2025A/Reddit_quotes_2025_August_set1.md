@@ -1050,3 +1050,10 @@ Truethrowawaychest1 2023-01-11
 
 &nbsp;
 
+https://old.reddit.com/r/NoShitSherlock/comments/1mkewom/reacher_star_alan_ritchson_goes_scorched_earth_on/
+
+'Reacher' Star Alan Ritchson Goes Scorched Earth On Trump — Can't Believe Christians Support Him: “Trump is a rapist and a con man, and yet the entire Christian church seems to treat him like he’s their poster child, and it’s unreal.”
+
+* :::=== RoundSparrow_Commentary : Unreal, unreality, and the 1988 book Power of Myth is critical learing for every person in society age 12 to 120. We can't keep behaving as if alternate-reality monomyth ficiton isn't a threat to humanity, starting with USA clergy who can't find Bible verse '1 John 3:17" and apply it to Donald Trump. Alas, the Reddit "No Shit Sherlock" attitude is a reactionary momentary focus on the topic and won't be sustained as a social media uprising to repeat and keep repeating the assertion [that we have inverted Levant mythology literacy problem](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/). ===:::
+
+
