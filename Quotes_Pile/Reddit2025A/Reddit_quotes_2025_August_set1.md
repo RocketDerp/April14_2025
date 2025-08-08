@@ -1269,4 +1269,25 @@ We like to think we are somehow different from those people but we arent"
 
 * :::=== RoundSparrow_Commentary : I agree. That is why global study of Comparative Mythology and Media Ecology is essential. We need to view this as a human brain issue, a media content issue, education issue - not a USA domestic political issue. Donald Trump is a force of TCP/IP media and social media reaction commenting. Russia was able to adapt their 2011 media techniques to social media, and now ChatGPT and other large langauge models are able to generate appealing fiction to the whole world. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lln2n/
+
+DrFaustPhD 2014-09-24
+
+"I think I've read enough stories of Trump supporters who had loved ones deported by this admin and still support Trump to know that they support authoritarianism even when it targets people they DO like.
+
+They just don't want to think for themselves. This is the "know-nothings" movement taken to a whole new extreme."
+
+* :::=== RoundSparrow_Commentary : And AI has been deregulated, defense againt hostile monomyth media invasions from China and Russia have been removed... so it is a predatory world of alternate reality fiction telling people there is a god to follow and worship. Media cults are not educated, so regardless of orgin (or generative AI learning what humans desire, tuned to statisfy audiences)... Donald Trump is just one of many media content providers to come on this trajectory of people having blind faith in fiction. Nonficiton has been abandoned. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lm94c/
+
+"People really don't want to admit that we are at the point where a third of this country wants to kill another third and the remaining third doesn't see this as a big deal."
+
+starmartyr 2011-11-03
+
+* :::=== RoundSparrow_Commentary : I ecoruage study of the [Cambodia 1970's desires of the Killing Fields to eliminate intelligent people](https://en.wikipedia.org/wiki/Cambodian_genocide). It is a core value that Russian monomyth warfare has generated in the USA / NATO population, to attack those who assert reality and factual truth. Fiction addiction. ===:::
 
