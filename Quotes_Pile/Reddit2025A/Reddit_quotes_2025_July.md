@@ -1,3 +1,7 @@
+# Reddit comments July 2025
+
+&nbsp;
+
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ly0yyu/trump_threatens_rosie_odonnells_citizenship/n2qdflv/
 
 Vincitus user since April 25, 2017
@@ -289,7 +293,7 @@ ProfessionalCraft983 **2025-02-07** (Recent Account)
 
 "I mean, you can hear in the audio from the original video Trump saying "wait!" so they could do the photo op."
 
-* :::=== RoundSparrow_Commentary : Yes, because Donald Trump is the most successful media personality (fiction content creator) in all human history. The man puts his name "Trump" on everything, like a dog marking territory with piss. He is standing at a podium on a stage, he is keenly aware this is a media event. He does not have stage freight, he lives to be on media and was a king of Twitter as an old white man (a generation not known for shit-talking like XBox live / Steam multi-player gamers, yet Trump mastered youth behavior on computers in 2012). Give credit where it is due, did nobody watch Michael Moore's 2018 film about **Donald Trump: "I am the storm."** Donald Trump has a natural instinct for media cults and getting under the skin of people with popularity itself. All people age 12 t 120 in social media July 2025 *really need* to study and [learn Neil Postman's 184 page book "Amusing Ourselves To Death" published in 1985](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) - a book about media and President Ronald Reagan behaviors of audiences. ===:::
+* :::=== RoundSparrow_Commentary : Yes, because Donald Trump is the most successful media personality (fiction content creator) in all human history. The man puts his name "Trump" on everything, like a dog marking territory with piss. He is standing at a podium on a stage, he is keenly aware this is a media event. He does not have stage freight, he lives to be on media and was a king of Twitter as an old white man (a generation not known for shit-talking like XBox live / Steam multi-player gamers, yet Trump mastered youth behavior on computers in 2012). Give credit where it is due, did nobody watch Michael Moore's 2018 film about **Donald Trump: "I am the storm."** Donald Trump has a natural instinct for media cults and getting under the skin of people with popularity itself. All people age 12 to 120 in social media July 2025 *really need* to study and [learn Neil Postman's 184 page book "Amusing Ourselves To Death" published in 1985](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) - a book about media and President Ronald Reagan behaviors of audiences. ===:::
 
 &nbsp;
 
