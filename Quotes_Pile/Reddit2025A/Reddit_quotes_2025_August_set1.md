@@ -1134,3 +1134,79 @@ No_Kaleidoscope_7505 **2025-06-13 (new account)**
 "There is 0% chance of that happening. People can barely afford to survive. They cant just drop everything and fly or drive to Washington D.C. That's at least $1000 just for the flights for anyone on the west coast."
 
 * :::=== RoundSparrow_Commentary : When has social media, all the people with free time / spare time to react-comment to Donald Trump going to raise up in USA? Where are the "Day 27 morning post of asking Donald Trump to resign for the future of humanity" hashtags and front-page postings? I've seen more coverage of Andor Star Wars TV than any kind of sustained nonfiction use of social emdia to protest Donald Trump. People have money to talk about TV shows, films, video games, sports events, airplane crashes, kitten images (all over Reddit front page daily)... but you do not witness people using thier spare time and free time on Reddit to actually cofront the Elephant in the Room. Why isn't Jen Senko, the boomer who stood up to the crisis, famous on social media since her March 2016 wide film release? Why can't people use thier free time and spare time to stand up for *the little guy speaking Truth To Power*, instead of just complaining "Fox News bad" every day on social media? When stories come up about Measles, why can't peoople share this 2019 story about measles from [Stephen Colbert on social media (Star Wars Day, May 4 2019, publication date) with thier spare and free time they are using to comment on the news](https://www.youtube.com/watch?v=Ju7Yt0LMiVk)? ===:::
+
+&nbsp;
+
+"They're going to sit on their hands hoping that this all goes away in 3.5 years. As if there's ever going to be another free and fair election in that country ever again."
+
+https://old.reddit.com/r/NoFilterNews/comments/1mksber/lawrence_odonnell_after_seeing_the_media_coverage/n7lbkbj/
+
+* :::=== RoundSparrow_Commentary : And in 3.5 years, in year 2028, artificial intelligence systems like ChatGPT will be able to create dedicated filter bubble simulations that the trillionaires of the world will open to the poors like ChatGPT has been since year 2022. And people will have all the insutling and mocking of how bad the rich people are that they crave, endless filter-bubble media of reactions and Star Wars Andor shows of rebels having action fights against The Empire. While people couldn't even be bothered since March 2016 to keep repeating and repeat Jen Senko's film about **Media Empires brainwashing audiences**. Amerians sold out their nation for avoidance of media ecology lessons. It isn't new at all, the monomyth fiction story patterns have been running the Middle East for thousands of years. The Torah, Quran, Bible, mecca media stories didn't even have color images or realistic CGI animation! Humanity is n ot facing up to Comparative Mythology of year 1988 publication in Power Of Myth, let alone what is in front of us with ChatGPT in  August 2025 and the next coming 3.5 years. All the wealthy and powerful in USA are fill in on the [fiction generation investment of generative artificial intelligence, they were in the front rome for the Inguration in January 2025 (France news source, not domestic USA news like CNN or Fox)](https://www.lemonde.fr/en/summer-reads/article/2025/07/20/the-day-silicon-valley-s-oligarchs-kissed-trump-s-ring_6743557_183.html). Doanld Trump Reality TV Star of "The Apprentice" has proven Surkov's year 2011 governing theories and warfare ideas beyond any expectation... Marshall McLuhan was correct in 1968 book "War and Peace in the Global Village", and denial abounds of how deep media content addiction goes in USA. They aren't sitting on their hands, We The People, are stimualted by the touch-screen intimacy of mocking and insulting the wealthy. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mksber/lawrence_odonnell_after_seeing_the_media_coverage/n7lhx0v/
+
+Honigkuchenlives 2020-09-12
+
+"Democracy in Texas is literally being erased and people are sitting on the sidelines watching (except some democrats who have been completely deported) It’s insane. Oftentimes it feels like people don’t even care about their civic rights."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mksber/lawrence_odonnell_after_seeing_the_media_coverage/n7lfznz/
+
+DingGratz 2012-03-20
+
+"Chaos = Clicks
+
+What a fine society we've built."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lj4lu/
+
+parkingviolation212 2023-08-01
+
+"Religions are cults with government legitimacy."
+
+* :::=== RoundSparrow_Commentary : The Bible is fiction. Fox News is fiction. Media networks of Church are ficiton storytelling with government legitmacy. Fox News and the Church networks are selling wealth televagelism in USA 2025: worship Donald Trump / Elon Musk, etc. The clergy can't find verse "1 John 3:17", nor can social media make "1 John 3:17" to the front page or trending hashtag. "1 John 3:17" addresses Donald Trump's problem. But nobody wants to talk about the selective hearing and avoidance of "1 John 3:17" verse. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lovn5/
+
+JohannReddit 2014-01-20
+
+"If I actually believed Trump had a single Christian bone in his body, I could almost understand the religious Right's willingness to overlook his faults and support him.
+
+But anyone who really thinks this guy actually believes in any of it and holds any truly Christian values is a moron. Lots of willful ignorance going on in the GOP right now..."
+
+* :::=== RoundSparrow_Commentary : If it is **ONLY the GOP as this Reddit comment claims, why hasn't Bluesky and Reddit and Stephen Colbert and Democrats made "1 John 3:17"** a hosehold recited verse that every American age 12 to 120 knows to mention when ELon Musk and Donald Trump come up? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lrxx8/
+
+StrobeLightRomance 2024-05-30
+
+"It's all about ego and "winning"
+
+That's all Christianity is, too. The first commandment itself pushes the fact that literally all other religions are wrong and that their God is the single most important thing in the universe, which is why it's being a "good Christian" to force your religion on everyone under the guise of "saving" them from "hell"
+
+MAGA is a simple repositioning of those philosophies to a man who represents the epitome of "winning" at "all costs", so for the cult to openly admit they know he's not what he claims, means that every single one of his supporters will first have to admit that they are wrong about basically everything at this point.
+
+So, its certainly not about being an actual "Christian", because almost none of them remember what that means by now.
+
+That said, it's not like the church itself isn't full of corruption, greed, coverups, pedophilia, and so on..
+
+Ultimately, Donald Trump **DOES** represent the religion, because the whole thing is evil."
+
+&nbsp;
+
+"Government approved brainwashing."
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lndob/
+
+Craico13 2012-09-30
+
+* :::=== RoundSparrow_Commentary : There is no magic. There is no supernatural. Teaching Media Ecology and Comparative Mythology addresses Fox News, Reddit, Twitter, Bluesky, Facebook, Church, Mosque, Televagelism all in one education. We have not caught up to James Joyce's year 1924 onward publication of Finnegans Wake. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966 ===:::
