@@ -1623,3 +1623,20 @@ Back when the colbert report was on, I had someone try and argue with me about h
 
 * :::=== RoundSparrow_Commentary : Americans, USA, doesn't realize a fucking thing about Surkov information warfare. Putin won, Russia won. “World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan (1970), Culture is Our Business, page 66 ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7o8xbp/
+
+FakoSizlo 2018-12-19
+
+"It took until season 4 for them to start complaining that the boys is "woke" because they finally realized that Homelander is a very thinly veiled parody of Trump and MAGA . You think they would realize when he was sleeping with a literal nazi . Nope that somehow flew over their heads"
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7nagby/
+
+jpainphx 2018-06-16
+
+"So thick they think it's a compliment, Idiocracy is here 500 years too early"
+
+* :::=== RoundSparrow_Commentary : Although it starts as a USA military project, in the film Idiocracy it is normal progress of history. Not a Putin / Russian / Kremlin war of Surkovian mind-fuck / Cambridge Analytica mind-fuck that we are living in with real reality. The fiction story Idiocracy did not depict USA loss to Russia in a monomyth meme war. ===:::
