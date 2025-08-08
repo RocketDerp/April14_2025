@@ -147,3 +147,8 @@ https://old.reddit.com/r/worldnews/comments/1mjx0u9/picture_agencies_drop_gaza_p
 Language and pauses in speaking. Autism, Finnegans Wake   
 
 https://old.reddit.com/r/todayilearned/comments/1mkcr07/til_that_english_speakers_will_feel_uncomfortable/
+
+&nbsp;
+
+Stuttering comments, Finnegans Wake    
+https://old.reddit.com/r/news/comments/1mkckts/fort_stewart_shooting_suspect_was_a_hard_worker/
