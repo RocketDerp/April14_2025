@@ -1392,3 +1392,33 @@ nemonimity 2012-06-15
 "The Abrahamic Reich making their play across the globe."
 
 * :::=== RoundSparrow_Commentary : [Formally announced December 2013, "Conservative International"](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) movement. Ukraine war started 2 months later, February 2014, still ongoing in August 2025. ["The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ml3wch/pete_hegseth_just_shared_a_video_that_says_women/n7ngm0i/
+
+barryvm 2015-03-16 
+
+"Is anyone surprised by this? They're reactionaries, so they're working down their usual hit list of people they want to oppress in order to feel better about themselves.
+
+The irony is that all these groups are broadly the same, regardless of culture or religion, despite being driven by this idea that *they* are special and better than other people. The same grievances, the same desire for status and power, the same lack of any socially constructive ideas, and as a consequence the same need to harm others in order to feel they're getting ahead themselves."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ml3wch/pete_hegseth_just_shared_a_video_that_says_women/n7nln7w/
+
+RVAteach 2020-07-30
+
+"They’re reactionaries, the only ideology is that one group deserves power and no one else deserves rights."
+
+* :::=== RoundSparrow_Commentary : And social media is full of *raactionc comments* and react images / reaction memes to everything the Donald Trump White House does or says. It is entirely reactionary thinking society, not just MAGA and GOP. Smartphone and iPad notification reactions, media simulacras. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ml3wch/pete_hegseth_just_shared_a_video_that_says_women/n7nl84h/
+
+danielsingleton77 2016-03-21
+
+"And I'm tired of MAGA women being some of the loudest cheerleaders for tradwife bullshit. If you want to be a tradwife then get off the fucking internet and stop enjoying your freedom NOW. Shut up and get out of the discourse. They think they'll be "influencers" when this fascist regime takes over for good..."
+
+* :::=== RoundSparrow_Commentary : I'm so tired of every gender abandoning serious reality, giving up on nonfiction. Engaging in patterns of A hates B, B hates C, C hates A media simulacras. Fiction content worshipers who wont stand up to [the Putin / Kremlin / Russian "War Against Reality"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) since March 2013.... because it would require reform of media addiciton to fiction in USA society. ===:::
