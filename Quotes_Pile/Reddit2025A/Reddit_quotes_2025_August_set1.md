@@ -1798,3 +1798,13 @@ dengel01 2014-10-25
 * :::=== RoundSparrow_Commentary : And [it works](https://www.youtube.com/watch?v=IobtCDkJKDc), the USA population (not just Republicans, not just MAGA, not just Fox News audience) compusively reacts in predictable patterns to his brand / logo / icon / orange skin color / symbolism. Russia won, Surkov won, Putin won. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1ml1k8d/feds_deploy_special_operations_and/n7n2xyt/
+
+GuitarGeezer 2017-01-01
+
+"This proves beyond a shadow of a doubt that she made up whatever stories and fables Donald wanted to get her ass into a cushier spot. She is Trump’s savior and superhero and they will protect her in a way Trump would never defend the Capital or women in general, for instance.
+
+She sold her soul and the souls of many a girl to Satan to get back into good graces with big money decades ago after her rich daddy Fraudbucks went boom. Guiffre’s family is hopping mad and not shy about saying it."
+
+* :::=== RoundSparrow_Commentary : Proves, proven, social media addicts believe shit. Media ecology lessons and comparative mythology comprehension are not optional. "beyond a shadow of a doubt" that many people don't believe in due process or analysis of evidence. ===:::
