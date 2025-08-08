@@ -1105,3 +1105,18 @@ TheOne7477 2021-10-21
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mk6219/doj_has_lost_so_many_lawyers_it_might_not_have/n7iecz9/
+
+DiscombobulatedWavy 2018-01-18
+
+"Were fucking delusional if we think a shortage of DOJ lawyers is going tp prevent a full takeover. I’m so tired of stupid ass articles just like this since 2017."
+
+&nbsp;
+
+https://old.reddit.com/r/50501/comments/1mkelzt/jd_vance_arrives_in_indiana_and_receives_the/n7ish1o/
+
+GryphonOsiris 2021-03-22
+
+"I have honestly never seen this level of hatred against a President and their staff before, and that includes against Nixon, Reagan and Bush. These clowns have built their house of lies and the American People are not having any of it."
+
+* :::=== RoundSparrow_Commentary : Tony Clifton act does this, Surkovian governing. Audience can't resiist joining in with the hate feedback loops. Russia seeded self-destruction of USA with self-hate. ===:::
