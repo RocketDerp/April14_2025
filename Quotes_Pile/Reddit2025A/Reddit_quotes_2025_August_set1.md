@@ -1549,3 +1549,18 @@ mhouse2001 2019-03-26
 
 * :::=== RoundSparrow_Commentary : We, the ENTIRE nation, not just MAGA / GOP / Republicans. Hell is not a place underground, it is a mindset. Russia defeated the USA in information warfare and people don't even understand basics 101 of information warfare of Surkov / Kremlin. ===:::
   
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ml6gs0/the_smithsonian_changes_its_description_of_trumps/n7o7jvl/
+
+Spirited-Top3307 2020-10-13
+
+"I hope that the world does not forget the lousy tricks of this oligarch Trump. The history of the country is not only written in America. The world does not forget so easily and today"s perpetrators will be held accountable."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/
+
+"They do realize they’re the joke, right?"
+
+* :::=== RoundSparrow_Commentary : The largest Internet trolling operaiton in all human history, Operation Matthew 4:19, "They do realize they’re the joke, right?" - do you realize on Reddit that Russia has make a joke of NATO right under your meme radar since March 2013, and you can do ANYTHING and EVERYTHING but repeat [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions ???? ===:::
