@@ -1209,4 +1209,12 @@ https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still
 
 Craico13 2012-09-30
 
-* :::=== RoundSparrow_Commentary : There is no magic. There is no supernatural. Teaching Media Ecology and Comparative Mythology addresses Fox News, Reddit, Twitter, Bluesky, Facebook, Church, Mosque, Televagelism all in one education. We have not caught up to James Joyce's year 1924 onward publication of Finnegans Wake. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966 ===:::
+* :::=== RoundSparrow_Commentary : **There is no magic. There is no supernatural.** Teaching Media Ecology and Comparative Mythology addresses Fox News, Reddit, Twitter, Bluesky, Facebook, Church, Mosque, Televagelism all in one education. We have not caught up to James Joyce's year 1924 onward publication of Finnegans Wake. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966 -- "Government approved brainwashing." - PARENT approved. Ask Malala in Swat Valley Pakistan, PARENTS teach the Quran to children, just like USA PARENTS hand over Children to Sunday School. It is education, learning, science fiction story of outer space alien who messages to Earth... a story character named Yahweh and Allah who Bible verse "1 John 4:20" says 2,000 years ago in the Levant - you have NEVER SEEN God, you heve never SEEEN Jesus. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7lg6i8/
+
+Sea_Leadership5170 2025-01-17 (new this year)
+
+"And that is just the ones willing to fucking admit it. Imagine how many would actually vote for him and then just say they did not."
