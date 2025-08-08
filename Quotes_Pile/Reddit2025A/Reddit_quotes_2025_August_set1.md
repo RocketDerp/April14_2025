@@ -1621,5 +1621,5 @@ iFap4DaytonaCoupes 2011-10-27
 
 Back when the colbert report was on, I had someone try and argue with me about how it was “the republican version of john stewart” he got so so mad when I explained what the term “parody” meant…"
 
-* :::=== RoundSparrow_Commentary : Americans, USA, doesn't realize a fucking thing about Surkov information warfare. Putin won, Russia won. ===:::
+* :::=== RoundSparrow_Commentary : Americans, USA, doesn't realize a fucking thing about Surkov information warfare. Putin won, Russia won. “World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan (1970), Culture is Our Business, page 66 ===:::
 
