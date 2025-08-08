@@ -1291,3 +1291,13 @@ starmartyr 2011-11-03
 
 * :::=== RoundSparrow_Commentary : I ecoruage study of the [Cambodia 1970's desires of the Killing Fields to eliminate intelligent people](https://en.wikipedia.org/wiki/Cambodian_genocide). It is a core value that Russian monomyth warfare has generated in the USA / NATO population, to attack those who assert reality and factual truth. Fiction addiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mkymp9/judge_who_trump_absolutely_hates_will_oversee/n7med6r/
+
+AllNightPony 2016-01-24
+
+"It's all staged. Pure theater."
+
+* :::=== RoundSparrow_Commentary : As Neil Postman was concerned in year 1985, we were heading in a direction of favoring fiction content over nonfiction. Our attraction to fiction eclipse to a point of entertaining ourselvs to death, detachment from science reality and truth. ===:::
+
