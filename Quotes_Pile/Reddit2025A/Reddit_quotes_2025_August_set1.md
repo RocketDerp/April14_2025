@@ -1450,3 +1450,13 @@ Shot_Try4596 2020-11-07
 "Let me know when good people realize that just speaking up and peacefully protesting against ICE and this regime are ineffective, and decide to escalate efforts to something more direct and effective. Yes, I am well aware of the likely consequences/response of the regime will be."
 
 * :::=== RoundSparrow_Commentary : Gun stroking violence gun worship Americans.  **I don't witness anyone speaking up that Jen Senko's March 2016 film about Fox News** and other right-wing media brainwashing got barely a mention by social media society. Social media users have free time and spare time to react-comment to everything going on, but won't address the roots of the problem. I don't witness people standing up to Russia's information warfare against multiple NATO nations, I just see people insulting and moocking "the others" in out-group polarity with zero faith in education / teaching / learning - which is THE TRUE GREAT THING the USA had, we created public library and the Internet and Wikipedia - and now all people can do is react-comment to MAGA / ICE / Trump / White House instead of actually admit that intelligence and education go hand in hand. I go so far to say that compassion is LEARNED, empathy is something animals have also... but COMPASSION comes from Buddha, Jesus and other **fiction storytelling poetry** - it is *acquired and learned* from other people in the majority of cases. Such as repeating Bible verse "1 John 3:17" about Donald Trump's wealth. But social media users won't organize to promote Jen Senko or promote positive Bible verses about how you treat immigrants. Why isn't Leviticus 19:33-34 posted every time I.C.E. is on Reddit and Bluesky? ANSWER: Russia won hearts and mins to NOT be sincere, honest, earnest towards goodness. **It isn't just Republicans / GOP / MAGA avoiding verse Leviticus 19:33-34 repetition** on social media. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ml1h26/fck_ice/n7nh8n9/
+
+EscapedTheEcho 2025-05-13 (Recent account)
+
+"MAGA doesn't think this is bad. They care, but in the opposite direction: medical emergencies, mistreatment, torture, and death are what they want. This image is titillating to them, not repugnant or sad. I guarantee some of them came in their shorts reading about this."
+
+* :::=== RoundSparrow_Commentary : The excitement and stimulation of reading messages, which the anti-MAGA reactionary crowd on Reddit / Bluesky / USA also has every time a "leopard eats a face" mocking comes up. It is multi-media multi-platform feedback loops of A hates B, B hates C, C hates A patterns (and more complex). ===:::
