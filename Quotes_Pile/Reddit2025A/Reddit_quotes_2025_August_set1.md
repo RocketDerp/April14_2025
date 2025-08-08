@@ -1237,3 +1237,13 @@ CrimsonFeetofKali 2025-01-18 (new this year)
 
 * :::=== RoundSparrow_Commentary : Look at how people behave with the block buttons on social media. If you dislike someone, you have to burn thier books (Nazi Germany 1933 didn't have Unicode text and digital social media, [they had to burn magazines and books they disagreed with by using flame and paper). Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mkurbk/47_of_republicans_would_still_vote_for_trump_even/n7logh4/
+
+TheCaptainDamnIt 2012-08-21
+
+"The only reasons they even entertained the whole Epstein shit in the first place is because it very much became part of their Q-Anon shit and all of that is entirely built around a wish for a coming 'cleansing of their political enemies' the Democrats."
+
+* :::=== RoundSparrow_Commentary : Reminder: [We know that QAnon was actively promoted by Russia since November 2017](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html). QAnon fits exactly with [Kremlin "War Against Reality" as described in September 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/), seeding the addiction to fiction and abandoning of nonfiction by society. ===:::
+
