@@ -1758,3 +1758,23 @@ youdubdub 2015-10-21
 "Let me guess, he will stand beneath the podium and steal all of the gold medals, forcing the athletes who earned them to get replicas? If only the dumbs could have chosen a leader who didn't look exactly like as much of a piece of worthless shit as he is, this would be nearly tolerable."
 
 * :::=== RoundSparrow_Commentary : Public execution of [Minstrel Show (Obama family)](https://www.youtube.com/watch?v=jmdiKePVUy8) would be more like the media spectacle USA meme addicts would crave in 2026 / 250 years 1776 ... as Reddit, Bluesky and everyone shows the media addiction to Trump content [reaction-commenting bi-polar twisted react-logic I'm witnessing](https://www.youtube.com/watch?v=UBxZFadp9Pw) in August 2025. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nm3hh/
+
+Tekthulhu 2015-10-13
+
+"Wouldn't it be hilarious if no one showed up and Countries just took an L for the hell of it. Or every single country beat the US in Gold silver and bronze so they don't even place because of Athletes from the US forfeiting out of principal."
+
+* :::=== RoundSparrow_Commentary : Social machine audience is looking forward to the White House Reality TV show 2026 season. Trump train can not slow down or be removed, that's the attitude in August 2025. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1ml4jx6/trump_names_himself_chair_of_la_olympics_task/n7nq7fj/
+
+obelix_dogmatix 2024-06-29
+
+"Bro … you increase tariffs, pickup fights with our allies, alienate an entire half of the country, refuse to make good on most of your campaign promises, cheat in golf, and then go off to do something with the olympics. Like that shit is levels below the responsibilities of a President. Can’t do your job, so finding an easier job?"
+
+* :::=== RoundSparrow_Commentary : Another Reddit comment that promotes widespread denial of Russian information warfare outcomes, that Donald Trump isn't under the influence of Kremlin memes just like Reddit community. Denial abounds. Not a soul in USA will call out [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions. The White House MAGA job is wrecking the USA in self-harm, ignoring everything Peter Pomerantsev wrote, everything Jen Senko published. ===:::
