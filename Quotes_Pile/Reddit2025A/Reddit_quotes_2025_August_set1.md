@@ -1648,3 +1648,14 @@ https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre
 12345CodeToMyLuggage 2013-06-12
 
 "Yes! It is *actually worse* than Idiocracy. President Camacho seemed like a such a stretch but I would love if we had a President who was dumb but actually trusted experts!"
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7nk1b9/
+
+FitBattle5899  2020-08-22
+
+"The right doesn't understand satire, which is why southpark had to make it incredibly obvious they were making fun of him, before he got outraged."
+
+* :::=== RoundSparrow_Commentary : The total USA population does not understand Surkov information warfare. [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions. ===:::
+
