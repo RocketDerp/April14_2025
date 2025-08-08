@@ -1659,3 +1659,11 @@ FitBattle5899  2020-08-22
 
 * :::=== RoundSparrow_Commentary : The total USA population does not understand Surkov information warfare. [Peter Pomerantsev's 2014 writings on the subject](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/), eating the Surkovian onions. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7nlusn/
+
+wafflesmagee 2011-02-21
+
+"…they really don’t realize that Cartman is evil lol. Imagine being so fucking stupid that you see this and think they’re endorsing MAGA beliefs. Jesus Christ."
+
