@@ -1640,3 +1640,11 @@ jpainphx 2018-06-16
 "So thick they think it's a compliment, Idiocracy is here 500 years too early"
 
 * :::=== RoundSparrow_Commentary : Although it starts as a USA military project, in the film Idiocracy it is normal progress of history. Not a Putin / Russian / Kremlin war of Surkovian mind-fuck / Cambridge Analytica mind-fuck that we are living in with real reality. The fiction story Idiocracy did not depict USA loss to Russia in a monomyth meme war. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1ml316x/they_do_realize_theyre_the_joke_right/n7nnw5a/
+
+12345CodeToMyLuggage 2013-06-12
+
+"Yes! It is *actually worse* than Idiocracy. President Camacho seemed like a such a stretch but I would love if we had a President who was dumb but actually trusted experts!"
