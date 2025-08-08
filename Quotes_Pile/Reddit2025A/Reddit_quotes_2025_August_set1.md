@@ -1422,3 +1422,13 @@ danielsingleton77 2016-03-21
 "And I'm tired of MAGA women being some of the loudest cheerleaders for tradwife bullshit. If you want to be a tradwife then get off the fucking internet and stop enjoying your freedom NOW. Shut up and get out of the discourse. They think they'll be "influencers" when this fascist regime takes over for good..."
 
 * :::=== RoundSparrow_Commentary : I'm so tired of every gender abandoning serious reality, giving up on nonfiction. Engaging in patterns of A hates B, B hates C, C hates A media simulacras. Fiction content worshipers who wont stand up to [the Putin / Kremlin / Russian "War Against Reality"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) since March 2013.... because it would require reform of media addiciton to fiction in USA society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ml3wch/pete_hegseth_just_shared_a_video_that_says_women/n7nhviv/
+
+Phonic-Frog **2025-07-29 (NEW account)**
+
+"Not the least bit surprised. Republicans have spent decades doing everything they can to suppress the vote in America. They drool over the thought of repealing the 15th & 19th amendments, and the Voting Rights Act.
+
+Hell, they've chiseled away at the latter so much that it's a sad shell of what it used to be."
