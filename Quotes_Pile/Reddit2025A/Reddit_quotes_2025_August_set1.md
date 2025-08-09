@@ -1901,3 +1901,45 @@ SilverGrayFox 2017-11-24
 
 * :::=== RoundSparrow_Commentary : The world has never seen such a content creator superstar. The poorest people in the world canwatch Fox news cover every Donald Trump move and shake, rush to Reddit and Blueksy andFacebook and react-comment to Donald Trump White House and be part of the biggest media addictio event in world history. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mlazyp/police_officer_killed_after_shooter_appeared_to/n7qoez0/
+
+LettuceBeGrateful 2018-09-12
+
+"If anyone remembers the NoNewNormal sub (long since banned, thank goodness), this kind of violent behavior is *exactly* what they were explicitly encouraging over there. They'd spend half their posts calling for lethal force against people wearing masks and the other half claiming it's the "libs" who are violent."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1ml9z4r/hegseth_reposts_video_on_social_media_featuring/n7pwwbi/
+
+theevidentfact **2025-07-27 (new account)**
+
+"No True Scotsman Fallacy.
+
+They are Christians.
+
+This is what Christians have always been, because the Bible, which contains Christian beliefs, endorses genocide, child marriage, pedophilia, polygamy, incest, rape, slavery, sexism, misogyny, homophobia, transphobia, and various other barbarisms, savageries, and perversions.
+
+* Genocide: 1 Samuel 15:3, Hosea 13:16, Joshua 6:21, Deuteronomy 20:16-17, Deuteronomy 2:34, Deuteronomy 13:15, Isaiah 13:15-18, Deuteronomy 3:6, Numbers 31:17.
+* Slavery: Exodus 21:21, 1 Peter 2:18, Leviticus 25:44-46, Ephesians 6:5, 1 Timothy 6:1, Titus 2:9, Colossians 3:22, Genesis 16:3-4, Genesis 12:16, Genesis 24:35, Isaiah 14:1-2.
+* Rape: Deuteronomy 21:10-14, Genesis 34, 2 Samuel 11, 2 Samuel 13, Judges 19–21.
+* Child Marriage and Pedophilia: Numbers 31:18, Song of Solomon 8:8, Genesis 25:20.
+* Polygamy and Incest: Genesis 4:19, Exodus 21:10, Deuteronomy 21:15-17, Genesis 9:20-27, Genesis 11:29, Genesis 19:32–35.
+* Sexism and Misogyny: Exodus 21:7, 1 Timothy 2:11-14, 1 Corinthians 14:34-35, Genesis 3:16.
+* Homophobia and Transphobia: Leviticus 20:13, Leviticus 18:22, Genesis 19:1-11, Genesis 1:27, Genesis 2:18-24, Romans 1:26-27, 1 Corinthians 6:9-10, 1 Timothy 1:9-10, Deuteronomy 22:5."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1ml9z4r/hegseth_reposts_video_on_social_media_featuring/n7puaip/
+
+cheezie_toastie 2019-02-28
+
+"I'm endlessly amused at all the alt right Gen Z boys who complain about the gender segregated selective service. Like, y'all voted in a regime that doesn't think women should vote, you think they're going to draft women? Stupid dipshits."
+
+* :::=== RoundSparrow_Commentary : New Yorker Neil Postman publshed a book in 1985 titled "Endlessly Amused media consumers"... ===:::
+
+&nbsp;
+
