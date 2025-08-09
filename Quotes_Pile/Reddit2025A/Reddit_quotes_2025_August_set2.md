@@ -387,7 +387,7 @@ Robo-X 2019-02-08
 
 * :::=== RoundSparrow_Commentary : Wake the Fuck Up USA, we have teachers on mass mind manipulation known brain exploits. In rock music opera, I can cite the lyrics: "You declared **you would be three inches taller**...  You only became what WE (The People) made you! Thought you were chasing a destiny calling... You only earned what we gave you (our votes to POTUS). You fell and cried as our people were starving... Now you know that we blame you!", "I'm the new (kind of fiction) President and I grew and I bent... Don't you know, don't it show?"](https://www.youtube.com/watch?v=I0fGxujeJbY) - year 1974 ===:::
 
-&nbps;
+&nbsp;
 
 https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_aliyev_everyone/n7ssv95/
 
@@ -395,3 +395,10 @@ HHoaks 2023-11-16
 
 "Because Trump lives in a curated bubble of sycophants, "everyone" is just people whispering in his ear or those who have access to him and his staff."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_aliyev_everyone/n7szb0w/
+
+Economou 2011-09-12
+
+"Of course Trump would say that. Trump loves dictators, seems he’s been dictating the law the past year. Anyway, Aliyev is a dictator that ethnically cleansed indigenous Armenians out of their homes after starving and bombing them for two years, got rewarded with a transit road, built and protected by the US. It’s not wonder Trump is buddy-buddy with him."
