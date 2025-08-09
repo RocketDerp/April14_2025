@@ -488,3 +488,20 @@ mein_liebchen 2013-01-14
 "Market segmentation has never been put to better use. You have no idea of the messaging these people are getting everyday from Facebook, Instagram, etc. It's tailored to generate other-ism. I thought my parents were getting dementia or something as they spun out for Trump. Then I noticed some of the feeds they were getting while looking over their shoulders at their Ipads. We all used to watch the same news in America. Everyone tuned into Walter Cronkite at the same time every evening. Not anymore. Billionaires are driving this segmentation for power, wealth and personal control. The Supreme Court sold our Democracy down the river with Citizen's United v. United States. Musk bought the most recent presidency. Robert Mercer bought the one before that. Peter Thiel was a minority owner in both. It's going to take something akin to a revolution to dislodge the oligarchs now that they have taken direct control over who gets elected and when."
 
 * :::=== RoundSparrow_Commentary : [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7tha0y/
+
+WestCoastBestCoast01 2013-08-05
+
+"For me it’s the scale and dispersion that’s hard to wrap my mind around.
+
+I grew up in small town Kansas, I’ve lived in big cities on both coasts. I know all the flavors of shitty Americans.
+
+But it’s like, oh god, the dum dums and the malcontents are *everywhere, all the time*. The Manhattan white collar ivy leaguers are saying the same things the trashy rural kids were saying 25 years ago.
+
+That’s the mind fuck I can’t get out of."
+
+* :::=== RoundSparrow_Commentary : Russia worked with Cambridge Analytica, deployed since March 2013. Now fiction addiciton is widespread. ===:::
+
