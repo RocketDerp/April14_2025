@@ -177,3 +177,9 @@ Migration of Python 2.x to Python 3 for Facebook / Meta
 
 https://www.youtube.com/watch?v=LJByWKOcW24
 
+&nbsp;
+
+Word owning a language. Oracle vs. "JavaScript" word.   
+https://www.youtube.com/watch?v=_tGwOv3scKw
+
+
