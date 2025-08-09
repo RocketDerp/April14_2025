@@ -8,7 +8,7 @@ daneilthemule 2020-05-26
 
 "It won’t change until we riot in the streets. Euro style. You want attention you gain it. One person complaining is a complainer. Everyone complaining is a problem."
 
-* :::=== RoundSparrow_Commentary : MAGA changed society without rioting in the streets. Middle East has violence and terrorism in the streets for thousands of years as each group of fiction mythology storytelling addicts consumes different interpretations of events and attacks the gentiles, non-believers, infidels. USA has let QAnon and MAGA adopt fiction news (Fox News, Newsmax, QAnon, memes, junk social media, clickbait fantasy). Donald Trump thrives off the idea that science is bad. That reason thinking is bad. And that poorly thought out actions are good, like riotsin the street (mindless action is not educatiion and teaching). People are likely going to die in USA saving the Pizzagate QAnon children from the QAnon fantasy ideas and Donald Trump fantasy fiction. Think real hard about the role Fox News has played in educating adults, in the role Reddit and Bluesky and Twitter an Facebook has played in educating adults. Riots are a step away from education and teaching, anti-progress. One-line Twitter-thinking is Donald Trump's power,and this Reddit comment (popular upvoted) is the source of the problems of MAGA. Anti-education, anti-comprehension, anti-learning. ===:::
+* :::=== RoundSparrow_Commentary : MAGA changed society without rioting in the streets. Middle East has violence and terrorism in the streets for thousands of years as each group of fiction mythology storytelling addicts consumes different interpretations of events and attacks the gentiles, non-believers, infidels. USA has let QAnon and MAGA adopt fiction news (Fox News, Newsmax, QAnon, memes, junk social media, clickbait fantasy). Donald Trump thrives off the idea that science is bad. That reason thinking is bad. And that poorly thought out actions are good, like riots in the street (mindless action is not educatiion and teaching). People are likely going to die in USA saving the Pizzagate QAnon children from the QAnon fantasy ideas and Donald Trump fantasy fiction. Think real hard about the role Fox News has played in educating adults, in the role Reddit and Bluesky and Twitter an Facebook has played in educating adults. Riots are a step away from education and teaching, anti-progress. One-line Twitter-thinking is Donald Trump's power,and this Reddit comment (popular upvoted) is the source of the problems of MAGA. Anti-education, anti-comprehension, anti-learning. ===:::
 
 &nbsp;
 
@@ -91,3 +91,53 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mlpgnv/you_sure_about_that/
 JayDsea 2024-01-16
 
 "It’s the entire essence of fake news. Nothing is real unless he says so, the rest is fake. And that started a decade ago now."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mlpgnv/you_sure_about_that/n7rzh3u/
+
+Subject_Run5165 2025-04-27
+
+"You don't get to be a MAGAt in the first place unless you're too chickenshit to face reality."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mlpgnv/you_sure_about_that/n7rxwgs/
+
+R2-D2Vandelay 2025-04-01 (recent account)
+
+"This is what happens when people are not only brainwashed, they're also really fucking stupid."
+
+* :::=== RoundSparrow_Commentary : This is what happens when people consume Twitter-length media content, as spelled out by Neil Postman in year 1985 with his book "Amusing Ourselves to Death". Simplistic tweet-length ideas like: "This is what happens when people are not only brainwashed, they're also really fucking stupid." - without addressing that GLOBALLY this is an issue of media ecology. Malala in Swat Valley Pakistan explains how education and learning impacts intelligence in society. But one-line reactionary Twitter-style messages on Reddit are all people in USA want to do, mock and insult, not actually address the situation by teaching Neil Postman's books or Jen Senko's March 2016 film and changing to a new path for future. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mlpgnv/you_sure_about_that/n7rz00c/
+
+Ok-Maize-8199 2021-12-25
+
+"Which one of them was it that wrote a book about killing everyone left of center in a crusade, and also the Muslims, it's that guy who runs the army now and had a makeup room installed at pentagon right?"
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mlpgnv/you_sure_about_that/n7s0ht6/
+
+SheriffWyattDerp 2018-09-17
+
+"The dawning realization that the real conspiracy all along was to sell the people conspiracies so that they could consolidate power under a fascist regime led by some of the most fucking awful people that have ever lived."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mlpgnv/you_sure_about_that/n7s0mrj/
+
+MrSmilingDeath 2016-07-01
+
+"The foundational beliefs of conservatives are rooted in selfishness, ignorance and a total lack of empathy."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mlpgnv/you_sure_about_that/n7s0t39/
+
+estedavis 2023-03-14
+
+"Meanwhile this guy has unironically believed that every single Democrat is an evil pedophile for years lol"
