@@ -170,4 +170,14 @@ AllenIsom 2024-03-27
 
 "South Park finally found an audience either too dense, too shameless, or too in denial to make fun of."
 
-* :::=== RoundSparrow_Commentary : The Kremlin started an information war export in March 2013 using the Internet Research Agency, and found a USA audience "either too dense, too shameless, or too in denial to make fun of" - because it has been going on for over a decade and nobody wants to put a stop to it by being serious and quoting book authors on social media every day until people face up to media addiction behaviors. ===:::
+* :::=== RoundSparrow_Commentary : The Kremlin started an information war export in March 2013 using the Internet Research Agency, and found a USA audience "either too dense, too shameless, or too in denial to make fun of" - because it has been going on for over a decade and nobody wants to put a stop to it by being serious and quoting book authors on social media every day until people face up to fiction media addiction behaviors. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlpbg2/thats_not_owning_the_joke_thats_proving_it/n7rxrs3/
+
+R50cent 2013-09-27
+
+"This is what they're all trying to do, and man oh man, is it pathetic."
+
+ :::=== RoundSparrow_Commentary :  A twitter-length reaction comment from the social media consumer audience. Exactly what Tony Clifton performance gets from the audience feedback loop ("pathetic"). White House interacting with South Park creators who don't get it (Surkovian mind exploits), as likely the only answer is [sustained **serious and sincere alarm bells** going off like March 27, 2024 article](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). Sober up from the Surkovian onon eating, stop the total mockery. Halt entertainment, sober up from the mocking that Putin iniated in March 2013. ===:::
