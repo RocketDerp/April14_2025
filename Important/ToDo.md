@@ -182,4 +182,7 @@ https://www.youtube.com/watch?v=LJByWKOcW24
 Word owning a language. Oracle vs. "JavaScript" word.   
 https://www.youtube.com/watch?v=_tGwOv3scKw
 
+&nbsp;
 
+Fuck word now allowed on YouTube   
+https://www.youtube.com/watch?v=sTejjm8P25E   
