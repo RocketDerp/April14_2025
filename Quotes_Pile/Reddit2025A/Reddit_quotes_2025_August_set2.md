@@ -376,3 +376,13 @@ VoidOmatic 2012-03-30
 How is this real life."
 
 * :::=== RoundSparrow_Commentary : One person crazy is not the crisis, hundreds of millions of USA people behaving crazy is the rael life crisis. We THe People are showing all signs and behaviors of having extreme media addiction to mocking and insulting Tony Clifton act techniques. [Mass Psychocis abounds](https://www.youtube.com/watch?v=09maaUaRT4M). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_aliyev_everyone/n7stht1/
+
+Robo-X 2019-02-08
+
+"Nobody sane person wants Trump to run again. Btw how tall did Trump say he was? Because he looked like midget next to Aliyev which is officially 6ft 2 in or 190cm."
+
+ :::=== RoundSparrow_Commentary : Wake the Fuck Up USA, we have teachers on mass mind manipulation known brain exploits. In rock music opera, I can cite the lyrics: "You declared **you would be three inches taller**...  You only became what WE (The People) made you! Thought you were chasing a destiny calling... You only earned what we gave you (our votes to POTUS). You fell and cried as our people were starving... Now you know that we blame you!", "I'm the new (kind of fiction) President and I grew and I bent... Don't you know, don't it show?"](https://www.youtube.com/watch?v=I0fGxujeJbY) - year 1974 ===:::
