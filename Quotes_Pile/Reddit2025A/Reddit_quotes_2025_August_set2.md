@@ -569,5 +569,7 @@ NoConfusion9490 2021-01-30
 
 https://old.reddit.com/r/agedlikemilk/comments/1mlu09f/catturd_20/n7u7rce/
 
+Suavecore\_ 2019-03-16
+
 "Yeah, none of these posts we keep seeing are genuine. Most probably aren't even from real people. They just parrot current talking points and move onto the next while farming infinite engagement, and now they're made famous in this subreddit. They're not normal people, if they're people at all, and they take great pride in all of this fanfare about their tweets. They don't care that they're hypocritical, or liars, or whatever else we point out. Remember "trolling?" Everyone gets trolled 24/7 now"
 
