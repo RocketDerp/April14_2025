@@ -218,7 +218,7 @@ They can in turn look at their followers and be like “look how I owned these l
 
 They look stupid to everyone else, but all they care about is keeping their base happy and their mouths shut"
 
-* :::=== RoundSparrow_Commentary : That's all USA people keep doing: "their point is leaning into the hate". Russia seeded it since March 2013 using the Internet Research Agency. [Stephen Colbert called it out on Star Wars Force Day 2019]() but social media can not keep repeating and repeat that posting to hashtags and front page of Reddit! Surkov won, Putin won! The White House out-absurd Stephen Colbert and South Park both. The anser is NOT to keep adding mroe surreal absurd to the White House! Be SERIOUS, sincere, [new new sincerity is the answer to David Foster Wallace's Infinite Jest](https://en.wikipedia.org/wiki/New_sincerity#In_literary_fiction_and_criticism). ===:::
+* :::=== RoundSparrow_Commentary : That's all USA people keep doing: "their point is leaning into the hate". Russia seeded it since March 2013 using the Internet Research Agency. [Stephen Colbert called it out on Star Wars Force Day 2019](https://www.youtube.com/watch?v=Ju7Yt0LMiVk)... Alas, social media society can not keep repeating and repeat that Colbert posting to hashtags and front page of Reddit! Surkov won, Putin won! The White House out-absurd Stephen Colbert and South Park both. The answer is NOT to keep adding mroe surreal absurd to the White House! Be SERIOUS, sincere, [new new sincerity is the answer to David Foster Wallace's Infinite Jest](https://en.wikipedia.org/wiki/New_sincerity#In_literary_fiction_and_criticism). ===:::
 
 
 &nbsp;
@@ -232,4 +232,14 @@ Memitim 2009-12-18
 "They know that they are appealing to evil people with these ads for their Gestapo, so no reason not to own it."
 
 * :::=== RoundSparrow_Commentary : they know it is fiction content enagement. It wrecks reality. People in USA can not resist the compusive addiction to fiction. The White House is a media content creator first and foremost, wrecking Reality is the means to concetrate power and wealth... the White House 2025 has compusively adopted the (fiction, simulacras) Putin Surkov tehcnique that has run Russia domestic society since 1999. Fiction outsells nonfiction, this is exploitation of that human brain attraction on a global scale since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlpbg2/thats_not_owning_the_joke_thats_proving_it/n7s9haw/
+
+Bluestripedshirt 2012-07-08
+
+"They have no choice in endorsing as they realized (long before the Democrats) that this is an attention economy."
+
+* :::=== RoundSparrow_Commentary : BINGO! Russia Won, Surkov Won. "this is an attention economy" - we (The People of USA) are [Amusing Ourselves To Death as defined in 1985 by NYU's Neil Postman](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley). "this is an attention economy" **fiction outsells nonfiction**. Marshall McLuhan's "the medium is the message" - the picture frame, the meme decoration, outsells the content of the message. Adopting South Park picture frame to I.C.E. message is grasping Marshall McLuhan's March 1967 book on media ecology. ===:::
 
