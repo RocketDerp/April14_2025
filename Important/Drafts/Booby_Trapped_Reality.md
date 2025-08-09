@@ -19,3 +19,13 @@ Mecca and Quran is the nwest of the Torah / Bible / Quran chain, stories from th
 
 Removing of supernatural space alien elements, the magical science fiction aspects. Where the King James Bible of England retained the unreality elements.
 
+&nbsp;
+
+# ChatGPT year 2022
+
+"I had not realized ... that extremely short exposures to a relatively simple computer program could induce powerful delusional thinking in quite normal people."
+
+Weizenbaum, Joseph (1976). Computer Power and Human Reason: From Judgement to Calculation. W. H. Freeman. page 7.
+
+**ELIZA year 1966, it took a decade** until 1976 to realize and articulate what had been witnessed.
+
