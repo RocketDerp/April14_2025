@@ -288,3 +288,10 @@ https://old.reddit.com/r/memes/comments/1mlot06/we_have_invisibility_cloaks/
 
 * :::=== RoundSparrow_Commentary : Recency bias abounds. [Donald Trump Junior promoted Epstein July 2023](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html) in the lead-up to 2024 election, QAnon fiction storytelling promoted Epstein, wrap anything in Epstein topic and MAGA crowd and Reddit crowd goes flocking. ["The Epstein Scandal Is Giving QAnon Everything Pizzagate Couldn’t" - **July 10, 2019**](https://www.vice.com/en/article/the-epstein-scandal-is-giving-qanon-everything-pizzagate-couldnt/) ===:::
 
+&nbsp;
+
+Front page of Reddit:
+
+https://old.reddit.com/r/meirl/comments/1mlrlla/meirl/
+
+* :::=== RoundSparrow_Commentary : Bottle up the truth. Conceal the facts. Hide the factual truth. Donald Trump has made it to age 79 with this same technique. Instead of admitting reality and truth in public, bottle it up inside and adopt fiction. Go to your secret clergy of religion or mind doctors and have private secreative sessions about the symptoms of keeping secrets private and avoiding the truth. Religion has operated this way for thousands of years all over, not just USA.  Bottle up the truth. Conceal the facts. Hide the factual truth. The truth is that Allah and Yaweh are fiction stories, science fiction storytelling. The clergy all over the world has found people who hide and bottle up the truth is a good way to concentrate power. Now we have trained artificial intelligence (like ChatGPT) to give us the fiction "hallucinations" we so crave, our new clergy is generative AI. Can Elon Musk and Donald Trump tell when a large langauge model is telling them sweet lies like a private clergy any better than they can with Putin and Russia? ===:::
