@@ -165,3 +165,9 @@ Observations on cheating motivations
 
 https://old.reddit.com/r/pcmasterrace/comments/1mksi82/battlefield_6_day_1_cheaters_despite_having/
 
+&nbsp;
+
+Another Steely Dan "Caves of Altamira" request!   
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1mlpr2m/ancient_rock_art_stretching_along_an_8mile_wall/
+
