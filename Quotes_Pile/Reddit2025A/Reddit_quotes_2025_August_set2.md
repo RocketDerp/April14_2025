@@ -323,4 +323,15 @@ TheEntsGoMarchingIn **2025-07-27 (new account)**
 
 "No one should even entertain a conversation with brown shirts like her."
 
-* :::=== RoundSparrow_Commentary : We should entertain new accounts created on Reddit with no real identity sharing the most simplistic Twitter-length ideas of informaiton warfare going on since March 2013. We are enteratining conversation with her right on Reddit, as is South Park. We are entirely entertained to death engaging her. Compusive mocking to the Tony Clifton acts of the White House is the very means of Surkov Russian concentration of power and wealth. We are eating the onions in a predictable way. The more *wild and crazy* the Kremlin and White House behave, the more the USA population hands over power and wealth to the systems of control. Compusive addiction to the White House content. ===:::
+* :::=== RoundSparrow_Commentary : We should entertain new accounts created on Reddit with no real identity sharing the most simplistic Twitter-length ideas of informaiton warfare going on since March 2013. We are enteratining conversation with her right on Reddit, as is South Park. We are entirely entertained to death engaging her. Compusive mocking to the Tony Clifton acts of the White House is the very means of Surkov Russian concentration of power and wealth. We are eating the onions in a predictable way. The more *wild and crazy* the Kremlin and White House behave, the more the USA population hands over power and wealth to the systems of control. Compusive addiction to the White House content stream. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mlqzkf/ice_barbie_desperately_tries_to_get_in_on_south/n7slmeh/
+
+MegaPint549 2022-05-23
+
+"This documentary called South Park accurately represented the raids my organisation conducted on Mexicans in heaven"
+
+* :::=== RoundSparrow_Commentary : A nation driven by fiction addiction in the human brain. Just like Russia for the past 25 years under Surkov methods. We haven't faced up that Heaven is fiction, we let MAGA believe they are all rewarded in Heaven... we are not addressing the problem by mocking. Fighting fiction with more fiction is only sinking the entire human race. We never escaped Levant fiction of Jesus stories. ===:::
+
