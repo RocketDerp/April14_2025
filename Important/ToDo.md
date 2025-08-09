@@ -171,3 +171,9 @@ Another Steely Dan "Caves of Altamira" request!
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1mlpr2m/ancient_rock_art_stretching_along_an_8mile_wall/
 
+&nbsp;
+
+Migration of Python 2.x to Python 3 for Facebook / Meta    
+
+https://www.youtube.com/watch?v=LJByWKOcW24
+
