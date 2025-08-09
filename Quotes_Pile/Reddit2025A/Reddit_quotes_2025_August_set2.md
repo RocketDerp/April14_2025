@@ -66,3 +66,28 @@ If America divests in its intellectual class, it will decline over time and othe
 
 People need to learn their place in society. The intellectual class weren't necessarily born intellectual. They put work into it. Getting a Ph.D. in micro biology isn't a walk in the park. It is a lot of hard work. You can't just say that you lived enough years on this planet so you are on the same tier as these people. You have to put in the effort."
 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlhqvk/wrong_ideas_have_deadly_consequences/n7qxc9z/
+
+GnomiGnou 2020-12-29
+
+"And then we have the other other issue of a huge increase in fake scientific papers being published by groups just draining funding from investors, producing nothing of value and paying people to sign it off. Greed is once again destroying progress."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlhqvk/wrong_ideas_have_deadly_consequences/n7qjkiq/
+
+Only1Sully 2012-04-09
+
+"The US is entering the second dark age."
+
+* :::=== RoundSparrow_Commentary : Once a society goes fiction, you can fabricate reality on any topic. Not only medical health. Addiction to fiction is the dark ages. At start of Donald Trump's first term in office: ["Harvard scientist worries we’re ‘reverting to a pre-Enlightenment form of thinking’" - February 23, 2017 - George Q. Daley, the new head of Harvard Medical School](https://www.washingtonpost.com/news/wonk/wp/2017/02/23/harvard-scientist-worries-were-reverting-to-a-pre-enlightenment-form-of-thinking/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mlpgnv/you_sure_about_that/n7s0owc/
+
+JayDsea 2024-01-16
+
+"It’s the entire essence of fake news. Nothing is real unless he says so, the rest is fake. And that started a decade ago now."
