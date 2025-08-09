@@ -365,3 +365,14 @@ OdonataDarner 2022-11-14
 
 * :::=== RoundSparrow_Commentary : [Steve Bannon, who worked with Cambridge Analytica doctors of psychology to mind-fuck everyday Americans](Cambridge_Analytica_Quotes.md), invoked a unprovable paradox-enigma QAnon topic that covered Donald Trump inclusive along with [Donald Trump Junior](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html)... Gullibility crisis in USA. The Russian society is way beyond the USA in Surkovian techniques. USA, We The Pepole, are eating this shit up. September 13, 2021 (before 2024 election win), from UK news, this is not domestic news: [Steve Bannon prepped Jeffrey Epstein for CBS interview, Michael Wolff claims. Ex-Trump strategist told financier to ‘stick to his message, which is that he is not a paedophile’](https://www.theguardian.com/books/2021/sep/13/steve-bannon-jeffrey-epstein-cbs-interview-michael-wolff-book) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_aliyev_everyone/n7t861g/
+
+VoidOmatic 2012-03-30
+
+"It's crazy that he actually believes what he says. He really thinks he's personally done things in office besides just rambling and getting owned.
+
+How is this real life."
+
+* :::=== RoundSparrow_Commentary : One person crazy is not the crisis, hundreds of millions of USA people behaving crazy is the rael life crisis. We THe People are showing all signs and behaviors of having extreme media addiction to mocking and insulting Tony Clifton act techniques. [Mass Psychocis abounds](https://www.youtube.com/watch?v=09maaUaRT4M). ===:::
