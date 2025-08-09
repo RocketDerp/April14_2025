@@ -208,7 +208,7 @@ ghostgabe81c 2018-03-31
 
 https://old.reddit.com/r/MurderedByWords/comments/1mlpbg2/thats_not_owning_the_joke_thats_proving_it/n7s7d9x/
 
-\_IratePirate\_  2015-11-02
+\_IratePirate\_  2015-09-02
 
 "Y’all know their point is leaning into the hate right ?
 
@@ -224,3 +224,12 @@ They look stupid to everyone else, but all they care about is keeping their base
 &nbsp;
 
 &nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlpbg2/thats_not_owning_the_joke_thats_proving_it/n7s8ll4/
+
+Memitim 2009-12-18
+
+"They know that they are appealing to evil people with these ads for their Gestapo, so no reason not to own it."
+
+* :::=== RoundSparrow_Commentary : they know it is fiction content enagement. It wrecks reality. People in USA can not resist the compusive addiction to fiction. The White House is a media content creator first and foremost, wrecking Reality is the means to concetrate power and wealth... the White House 2025 has compusively adopted the (fiction, simulacras) Putin Surkov tehcnique that has run Russia domestic society since 1999. Fiction outsells nonfiction, this is exploitation of that human brain attraction on a global scale since March 2013. ===:::
+
