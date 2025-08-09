@@ -278,3 +278,13 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mlnqic/its_really_great_when_yo
 NorthernSlyGuy 2022-01-17
 
 "It's amazing the contrast you see from trump and allies vs. trump and Russia. He constantly praises Russia and Putin yet talks down to his closest allies."
+
+
+&nbsp;
+
+Front page of Reddit:
+
+https://old.reddit.com/r/memes/comments/1mlot06/we_have_invisibility_cloaks/
+
+* :::=== RoundSparrow_Commentary : Recency bias abounds. [Donald Trump Junior promoted Epstein July 2023](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html) in the lead-up to 2024 election, QAnon fiction storytelling promoted Epstein, wrap anything in Epstein topic and MAGA crowd and Reddit crowd goes flocking. ["The Epstein Scandal Is Giving QAnon Everything Pizzagate Couldn’t" - **July 10, 2019**](https://www.vice.com/en/article/the-epstein-scandal-is-giving-qanon-everything-pizzagate-couldnt/) ===:::
+
