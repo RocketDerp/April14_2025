@@ -241,5 +241,40 @@ Bluestripedshirt 2012-07-08
 
 "They have no choice in endorsing as they realized (long before the Democrats) that this is an attention economy."
 
-* :::=== RoundSparrow_Commentary : BINGO! Russia Won, Surkov Won. "this is an attention economy" - we (The People of USA) are [Amusing Ourselves To Death as defined in 1985 by NYU's Neil Postman](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley). "this is an attention economy" **fiction outsells nonfiction**. Marshall McLuhan's "the medium is the message" - the picture frame, the meme decoration, outsells the content of the message. Adopting South Park picture frame to I.C.E. message is grasping Marshall McLuhan's March 1967 book on media ecology. ===:::
+* :::=== RoundSparrow_Commentary : BINGO! Russia Won, Surkov Won. "this is an attention economy" - we (The People of USA) are [Amusing Ourselves To Death as defined in 1985 by NYU's Neil Postman](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley). "this is an attention economy" **fiction outsells nonfiction**. Marshall McLuhan's "the medium is the message" - the picture frame, the meme decoration, outsells the content of the message. Adopting South Park picture frame to I.C.E. message is grasping Marshall McLuhan's March 1967 [lecture / book / film / album record / magazine](https://www.themediumisthemassage.com/) on media ecology. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mlnqic/its_really_great_when_you_realize_whos_the_puppet/n7sgejk/
+
+\_jump_yossarian  2023-02-02
+
+"As if it would matter anymore. His base would proudly support him."
+
+* :::=== RoundSparrow_Commentary : Social media keeps cocentraining power and wealth in his hands. His base is anyone who wants to avoid directly confronting the media ecology crisis and informaiton warfare. His "base" is addicts to surreal comedy and absurd surreal behaviors. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mlnqic/its_really_great_when_you_realize_whos_the_puppet/n7rrfa3/
+
+sam56778 2025-03-17 (new this year)
+
+"Ever find that after every phone call, meeting, or Truth social post that Trump has or says about Putin, the attacks on Ukraine get worse and Trump gets weaker against Putin? I guess he’ll probably come out of this one doing the same thing he always does. Blaming Ukraine for starting the war and saying Putin was right."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mlnqic/its_really_great_when_you_realize_whos_the_puppet/n7rz2hr/
+
+somanyusernames23 2024-03-04
+
+"Putin is trump’s boss. Trump understands this. They have an understanding where trump is permitted to act tough. However, at all times trump is aware that Putin could release the Kompromat at any time. This Kompromat goes beyond what the public already knows about how Trump has kept his fortune afloat via laundering Russian money through shady loans and shady property investments. Also, Trump will do anything he can to stay out of prison his few remaining years. Anything. Whether that is Epstein related, or Russia related. He would burn his country to the ground to stay out of prison."
+
+* :::=== RoundSparrow_Commentary : I will keep this comment short and to the point: Fox News does not have Kompromat on the audience of Fox News addicts. Mecca and the Mosque does not have Kompromat on the audience of the Quran storytelling. Fiction outsells nonfiction. Fixation on Donald Trump as one person misses the audience forest for the tree. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mlnqic/its_really_great_when_you_realize_whos_the_puppet/n7s9adn/
+
+NorthernSlyGuy 2022-01-17
+
+"It's amazing the contrast you see from trump and allies vs. trump and Russia. He constantly praises Russia and Putin yet talks down to his closest allies."
