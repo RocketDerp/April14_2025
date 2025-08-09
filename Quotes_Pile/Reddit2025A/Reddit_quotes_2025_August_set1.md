@@ -1817,3 +1817,41 @@ Eatthebankers2 2018-10-24
 
 "In that luxury prison its forbidden to house sexual predators, yet she’s not only there, but is around collage girls that go in there that help prisoners with teaching service puppies. Also she can leave and go to town to wander around. Funny how these rich criminals keep getting pardons? Trump crypto coin is probably where he’s getting paid off."
 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1ml5bhr/parenting_is_the_issue/n7oqbcw/
+
+sylbug 2017-11-16
+
+"Other countries have poverty and mental health issues.
+
+It really IS just the fact America let’s every dipshit who wants a gun have one, and then that dipshit keeps it in his bedroom drawer or the console of his car or in his kid’s toy chest because there’s zero accountability around actual safety."
+
+&nbsp;
+
+token_internet_girl  2010-03-03
+
+"No, it's not any of that. It's an American male problem.
+
+If poverty, mental health, access etc. were all factors in gun violence, we would have an egalitarian gun violence problem on our hands. Women are just as affected by those things are men, yet somehow we don't have an egalitarian gun violence problem. 97% of mass shooters are male.
+
+Until we start looking at the correct problem, none of this will change."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ml52y2/youll_never_be_white_margaret_cho_blasts_ice/n7o7ypp/
+
+6StringManiac **2025-07-26 (new account)**
+
+"Not entirely. They really enjoy abusing immigrants, minorities, gays...well, pretty much anybody. Sure, they like the money, but make no mistake, if these people could go back to a time when lynching was just a fun community-wide recreational activity, they'd gladly join in for free."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ml52y2/youll_never_be_white_margaret_cho_blasts_ice/n7oeo3h/
+
+Soggy-Beach1403 2022-01-07
+
+"The Republican Party is the last refuge of the washed-up show business nobody. The trash voters will support them just to "own" the libs. Libs, black people, it's always about owning someone for Republican voters."
+
+&nbsp;
+
