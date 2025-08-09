@@ -573,3 +573,63 @@ Suavecore\_ 2019-03-16
 
 "Yeah, none of these posts we keep seeing are genuine. Most probably aren't even from real people. They just parrot current talking points and move onto the next while farming infinite engagement, and now they're made famous in this subreddit. They're not normal people, if they're people at all, and they take great pride in all of this fanfare about their tweets. They don't care that they're hypocritical, or liars, or whatever else we point out. Remember "trolling?" Everyone gets trolled 24/7 now"
 
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mlyf0s/dan_rathers_facebook_post_about_normalizing/
+
+Dan Rather on normalization made it to the front page of Reddit."Dan Rather's Facebook Post About Normalizing Donald Trump Is Going Viral: ‘normalize (v): to allow something considered extreme to be viewed as routine. We must call out Trump. Every time.’"
+
+* :::=== RoundSparrow_Commentary : Adam Curtis of BBC ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mlyf0s/dan_rathers_facebook_post_about_normalizing/n7u8cmr/
+
+Beneficial_Soup3699 2024-12-27 (this year)
+
+"I've been saying it for years, the Cold War never ended it just moved online and for about 8ish years we've losing *the fuck* out of it. We were too busy outboarding our manufacturing/labor and being distracted by short term profits to notice for awhile, but here it is."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mlyf0s/dan_rathers_facebook_post_about_normalizing/n7tzdyz/
+
+Im_tracer_bullet 2019-03-20
+
+"I understand the fatigue, the exasperation, and the need to look away, but people do need to resist the temptation to let ANY of this insanity seem 'normal'.
+
+It is not in ANY WAY normal for a twice-impeached traitorous conman and convicted felon to be in the White House.
+
+Especially not one that led an attack on the nation's Capitol and who stole classified documents.
+
+Definitely not an adjudicated sex offender.
+
+Certainly not one who purposefully erodes government institutions, engaged in anti-constitutional activities, accepts bribes publicly, intimidates law firms and universities, threatens to annex our neighbor and ALLY, has gangs of masked thugs roaming the streets and black-bagging people to send to concentration camps, etc. etc.
+
+Literally none of it is OK, or normal...do not let right-wing infotainment, or their zombie audience, make you believe otherwise."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mlyf0s/dan_rathers_facebook_post_about_normalizing/n7uqix2/
+
+GanglyAlloy88 **2025-08-08 (new yesterday)**
+
+"Yup, even as a Canadian, with the maple MAGAs and our media, the SANE-washing of Donald is something to behold, absolutely astounding anyone treated this person with any amount of admiration or respect… For the rest of my life I’ll never understand how someone can hear him speak about almost anything for 2 mins and not come away thinking that he may be the stupidest person on the planet, and probably the dumbest person to ever lead a country. That’s besides just being a massively insecure dick with a fragile ego. Just 100% so full of shit it’s crazy, and he isn’t even good at lying, just a terrible actor compared to almost anyone, HOW IS HE BELIEVED AT ALL? And I’ve voted for every party lol"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mm1h0c/trumps_vile_take_on_teenagers_rape_goes_viral_as/n7ul0jm/
+
+golubhai00007 2023-02-04
+
+"Not one sentence here is new or “exposed” now.. and he is still a 2 term President/dictator.. tells more about the voters than anything else.."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mm1h0c/trumps_vile_take_on_teenagers_rape_goes_viral_as/n7uupyo/
+
+Daffodil236 2024-05-03
+
+"Why are people cheering and laughing at what he’s saying? That’s why we’re where we are today. And why did David Letterman even have that pig on his show? Nobody stands up to this guy and I just don’t get it."
+
+* :::=== RoundSparrow_Commentary :  It is a 1992 audience. 7 years before that Donald Trump public media apperance, a book was published in 1985. “It is not that television is entertaining but that it has made entertainment itself the natural format for the representation of all experience. […] The problem is not that television presents us with entertaining subject matter but that all subject matter is presented as entertaining. (87)” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985. ===:::
+
