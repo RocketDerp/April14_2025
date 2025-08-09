@@ -1855,3 +1855,49 @@ Soggy-Beach1403 2022-01-07
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1mlbd7t/trump_administration_threatens_to_take_harvards/n7pb9bq/
+
+BenNitzevet 2023-08-21
+
+"It’s quite something watching a country commit suicide."
+
+* :::=== RoundSparrow_Commentary : Russia induced self-harm of Americans hate upon Americans screen games on social media platforms, addiction to fiction storytelling and self-harm of future. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mlbd7t/trump_administration_threatens_to_take_harvards/n7pkr8g/
+
+"Stop it? They're active participants."
+
+96385 2013-02-09
+
+* :::=== RoundSparrow_Commentary : Social media society, We The People, are active particpants who spread the Russian active measures since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mlbd7t/trump_administration_threatens_to_take_harvards/n7pawpe/
+
+DaneLimmish 2015-08-02
+
+"It is not a distraction the admin has been doing this from day one"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mlbd7t/trump_administration_threatens_to_take_harvards/n7pefrn/
+
+Thisam 2019-01-07
+
+"This is way beyond out of control from our shittiest administration ever. All Trump does is break things, hurt people and embarrass all of us.
+
+How did we end up in this fucked up timeline?"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mlbd7t/trump_administration_threatens_to_take_harvards/n7qdjax/
+
+SilverGrayFox 2017-11-24
+
+"I still can’t fathom how many working class and struggling people are still worshipping this guy and his cronies. Their hate for other people seems to stoke their adulation for him."
+
+* :::=== RoundSparrow_Commentary : The world has never seen such a content creator superstar. The poorest people in the world canwatch Fox news cover every Donald Trump move and shake, rush to Reddit and Blueksy andFacebook and react-comment to Donald Trump White House and be part of the biggest media addictio event in world history. ===:::
+
