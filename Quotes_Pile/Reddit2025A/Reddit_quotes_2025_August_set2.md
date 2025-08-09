@@ -449,3 +449,42 @@ DadBod_NoKids 2018-10-25
 
 "The worst part isnt even that they dont use info services, its that objective reality does not even matter to those people. Ive had someone verbatim tell me "i dont trust statistics or data". They live in the united states of delusion"
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7tnfe4/
+
+mein_liebchen 2013-01-14
+
+"One word explains it all. Cult. They've gone all in with Trump. One third of the US are now dead-enders and that should scare the hell out of the rest of us."
+
+* :::=== RoundSparrow_Commentary : Reddit is a cult of mocking MAGA and Donald Trump. Bluesky too. It isn't just one-third, it is fiction addiction, **media cults** everywhere. People are not showing they can see beyond their filter-bubble of media consumption and recognize the March 2013 onward Russian information warfare against reality. Exactly when do USA people think humanity left beyond mythology fiction? USA escaped it to North America, but where in the world do people actually think people favor nonfiction over fiction? Middle East? Russia? Mexico? Canada in August 2025 is still more in nonfiction, reality, but USA is sinking the area into fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7ssb79/
+
+Historical-Gap-7084 2023-07-24
+
+"47% of them would *still* vote for him even with solid evidence that he's a pedo.
+
+WTF is wrong with people."
+
+* :::=== RoundSparrow_Commentary : Andwer, **addiction to fiction** and Donald Trump provides entertaining fiction storytelling. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7ts99h/
+
+DemadaTrim 2025-02-14 (new this year)
+
+"No, 47% of them are honest about being willing to vote for him if presented with solid evidence he's a pedo. I'd wager 90% actually would still vote for him. Really, practically it'd be 99% because they simply would refuse to accept any evidence as "solid." "
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7tp3g7/
+
+mein_liebchen 2013-01-14
+
+"Market segmentation has never been put to better use. You have no idea of the messaging these people are getting everyday from Facebook, Instagram, etc. It's tailored to generate other-ism. I thought my parents were getting dementia or something as they spun out for Trump. Then I noticed some of the feeds they were getting while looking over their shoulders at their Ipads. We all used to watch the same news in America. Everyone tuned into Walter Cronkite at the same time every evening. Not anymore. Billionaires are driving this segmentation for power, wealth and personal control. The Supreme Court sold our Democracy down the river with Citizen's United v. United States. Musk bought the most recent presidency. Robert Mercer bought the one before that. Peter Thiel was a minority owner in both. It's going to take something akin to a revolution to dislodge the oligarchs now that they have taken direct control over who gets elected and when."
+
+* :::=== RoundSparrow_Commentary : [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md) ===:::
