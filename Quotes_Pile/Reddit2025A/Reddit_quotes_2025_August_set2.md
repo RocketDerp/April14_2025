@@ -141,3 +141,14 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mlpgnv/you_sure_about_that/
 estedavis 2023-03-14
 
 "Meanwhile this guy has unironically believed that every single Democrat is an evil pedophile for years lol"
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlpbg2/thats_not_owning_the_joke_thats_proving_it/n7rv1si/
+
+KWCarnal 2024-11-23
+
+"They think its soooooo clever that they are 'turning the joke around" but in the end, all they are doing is drawing more eyeballs to those episodes."
+
+* :::=== RoundSparrow_Commentary : Not a soul in USA comprehends how Surkovian governing works. The White House + Kremlin does absurd surreal antics to *create audience reactions*, just like Tony Clifton interacts with the audience. The eyeballs are gong to Trump and I.C.E. The entire point is to be a hate magnet. Hate is the very core of I.C.E. and Donald Trump, and has been for decades now. The Surkovian technique turns every person in USA to hate upon Americans. A hates B, B hates C, C hates A and other even more complicated friendly-fire Americans Hate Americans (Americans hate Canadians in year 2025), etc. Russian information warfare and Cambridge Analytica mind-fuck have to be DIRECTLY educated and ADDRESSED and people learn the timelines and re-gain perspective of these patterns! South Park is amplifying the White House,you can not use conventional thinking, you have to grasp media ecology at the James Joyce Finnegans Wake level / Marshall McLuhan level / Neil Postman level / Vladislav Surkov level / Peter Pomerantsev level / Adam Curtis level. You have to look at the year 2012 onward NATO / Ukraine vs. Russia forrest and not just August 2025 I.C.E. South Park trees.  ""They think its soooooo clever", it is, and not a soul on social media even grasps that [Peter Pomerantsev year 2014 book is titled after a 1951 quote from Hannah Arendt](Hannah_Arendt_quotes.md) that describes White House "Tactical Cleveness" exploit of human minds. ===:::
+
