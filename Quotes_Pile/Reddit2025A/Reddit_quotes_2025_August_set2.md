@@ -505,3 +505,69 @@ That’s the mind fuck I can’t get out of."
 
 * :::=== RoundSparrow_Commentary : Russia worked with Cambridge Analytica, deployed since March 2013. Now fiction addiciton is widespread. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7styok/
+
+BeechGuy1900 2019-02-09
+
+"He has earned his nickname "Teflon Don". He is living, breathing, proof that our justice system can be absolutely abused if you have the levers of power on your side (money and influence). This man has been a wretch his whole life and the court system cannot keep him down for long. He loses most of his court cases but this man sues more than he breathes. I used to have hope the judiciary would keep him in check, but now they are enabling him too"
+
+* :::=== RoundSparrow_Commentary : Donald Trump is not weak or lazy, he knows how to get people to solve problems for him, that social skill is not trivial. The problem si that almost all his attraction is self-harm "fixing" of things. Compusively following Kremlin informaition warfare since 2012. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7t6fiy/
+
+Dangerous_Buffalo_43 2021-07-29
+
+"This kind of perspective drives me crazy. Not voting (which many did) and voting for him (which many did) put him in the White House. How is this the democrats fault? I thought Kamala was a credible candidate, better than an octogenarian. Y’all might have good healthcare by now if you could get over her laugh 🤷‍♀️"
+
+* :::=== RoundSparrow_Commentary : Yes, driving people crazy. The anti-reality is driving people into crazy thinking. Russia won the information war, Surkov won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7szkya/
+
+MeridianHilltop 2019-09-06
+
+"There are some days where I literally can’t believe it, it’s pure insanity. Who thinks this is a good idea, and why? (Billionaires do not respond)."
+
+* :::=== RoundSparrow_Commentary : YES. it is insane, like living in Russia year 2011 is insane, like living in Iran in year 2024 is insane. People do not recognize when the crowd around them becomes insane. This is a known problem of society. [Mass Psychocis abounds](https://www.youtube.com/watch?v=09maaUaRT4M) in USA since March 2013. People are attracted to fiction more than coherent society of nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7srtsa/
+
+coco_xcx 2021-05-16
+
+"i’m still in shock 9 months later. i feel like im living in a really shitty episode of the twilight zone 🙃"
+
+* :::=== RoundSparrow_Commentary : Twilight Zone is fiction. We are living in a fiction-driven society in August 2025. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mlu09f/catturd_20/
+
+* :::=== RoundSparrow_Commentary : There is a name to this political media technique: [BBC's Adam Curtis in year 2014 named it "Contradictory Vaudeville"](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). It is the **foundation of Surkovian information warfare, Russian mind-fuck**. And don't always assume there are only TWO sides, 2 and only 2, there can be many, as long as they contradict and create audience contradictions to the media consumers. This technique engages electric media audiencies to yeild their power and wealth and become fixated on the media behavior itself. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mlu09f/catturd_20/n7sxa3z/
+
+"Most people have the attention span of gold fish. It’s one of the many paradoxes of the modern era where literally the aggregate of our knowledge is available at any time and for some cosmic reason we as a society just can’t learn."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mlu09f/catturd_20/n7tejf9/
+
+NoConfusion9490 2021-01-30
+
+"It's literally his job to say things that piss people off to drive traffic when people yell at him. That's what he gets paid for."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mlu09f/catturd_20/n7u7rce/
+
+"Yeah, none of these posts we keep seeing are genuine. Most probably aren't even from real people. They just parrot current talking points and move onto the next while farming infinite engagement, and now they're made famous in this subreddit. They're not normal people, if they're people at all, and they take great pride in all of this fanfare about their tweets. They don't care that they're hypocritical, or liars, or whatever else we point out. Remember "trolling?" Everyone gets trolled 24/7 now"
+
