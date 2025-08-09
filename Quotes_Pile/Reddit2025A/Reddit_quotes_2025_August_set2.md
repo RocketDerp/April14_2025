@@ -40,4 +40,29 @@ safely_beyond_redemp 2020-04-13
 
 * :::=== RoundSparrow_Commentary : EXACTLY. The insurection January 6, 2021 was the tine for social media to stand up and stop entertainment and become serious about QAnon cults. Jen Senko's March 2016 film about Fox News and other fiction-based media running politics. SOLID EVIDENCE in front of EVERYONE was presented on January 6, 2021. We The People did not stand up and halt entertainment and mocking and sustain serious nonfiction important topics. Social media did not stop entertainment during the 2 Trump Impeachment either, people are far too addicted to using social media to mock and insult Trump that they aren't REMOVING Donald Trump. His Tony Clifton act compusively glues the audience into reactions, feedback loops. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mlnc3r/ghislaine_maxwell_mysteriously_lands_in_cushy/n7rke95/
+
+ya-reddit-acct 2025-05-11 (recent account)
+
+"If none of the victims consider a more "personal" way to seek retribution from the perpetrators, maybe modeled after a recent health insurance denial "feedback", then the rest is all the same, with nothing to be learned or to be changed - just social media noise."
+
+* :::=== RoundSparrow_Commentary : January 6, 2021 was "social media noise" from November 2020. This fantasy of society of putting shitleaders at the top to them murder them. Instead of using social media to reform society, it is full of ficiton and action content with lists. Intelligent and good people don't elect terribleladers inthe first place. Social media has dragged the USA down, Russia invaded social media with shit ideas like this - QAnon to MAGA poetry of bullshit. Americans need to face up to their attraction to terrible leaders and fiction. Not just MAGA,not just Republicans,lost to Putin'sinformationwar since March 2013. To seriously act like gun-stroking MAGA isn't ready to shoot and murder "liberals" that they disagree with is denial of how much pro-violence (only against Ameircians, not NATO against Russia) media messages are being fed by Russia to ALL Americans. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlhqvk/wrong_ideas_have_deadly_consequences/n7rtsz2/
+
+JayNotAtAll 2015-11-27
+
+"This is what MAGA voters want. They want smart people to leave. They don't like intellectuals. They feel inferior and lack the ability or will to improve themselves so they just want to lower the bar so that they can feel superior.
+
+They don't realize that what makes America a powerful and modern nation are the intelligent class. Don't get me wrong. Farmers, mechanics, factory workers, etc. all play a vital role in keeping our society functioning.
+
+However, what makes our economy grow and stronger (and really all developed nations) are the intellectuals. They are creating new economic sectors and expanding them. This is why you see nations invest so heavily in education. It is one of the reasons Japan went from being a poorish country to the economic powerhouse it is now during the Meiji Restoration. Or Singapore going from a poor fishing village to one of the richest cities in the world. Or South Korea being one of the poorest countries on the planet in the 50s to one of the richest.
+
+If America divests in its intellectual class, it will decline over time and other countries will surpass us.
+
+People need to learn their place in society. The intellectual class weren't necessarily born intellectual. They put work into it. Getting a Ph.D. in micro biology isn't a walk in the park. It is a lot of hard work. You can't just say that you lived enough years on this planet so you are on the same tier as these people. You have to put in the effort."
 
