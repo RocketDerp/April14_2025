@@ -402,3 +402,42 @@ https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_ali
 Economou 2011-09-12
 
 "Of course Trump would say that. Trump loves dictators, seems he’s been dictating the law the past year. Anyway, Aliyev is a dictator that ethnically cleansed indigenous Armenians out of their homes after starving and bombing them for two years, got rewarded with a transit road, built and protected by the US. It’s not wonder Trump is buddy-buddy with him."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_aliyev_everyone/n7t1mlb/
+
+Leading_State5918 2024-05-03
+
+"He just makes his own bullshit up as he goes. Everybody loves me. Everybody thinks I'm the best. Nobody believes if I tell them not to. Rich people love my ideas, but I don't have any myself"
+
+* :::=== RoundSparrow_Commentary : Improvisational Tony Clifton, inteactive with the audience. The crowd follows, **those who hate Trump** adore sharing on social machines they are smarter than the idiot dumb Tony Clifton. It has consumed USA attention (and wrecked goodness) in expanding way for over a decade. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_aliyev_everyone/n7t1npg/
+
+Aggravating-Beach-22 2021-05-13
+
+"Is that a gift shop or the White House ?"
+
+* :::=== RoundSparrow_Commentary : [Hey Tony Clifton creator Andy, did you hear about this one? Is this a Truck Stop or Saint Peter's?](https://www.youtube.com/watch?v=dLxpNiF0YKs). Is Donald Trump a media magnet, a media mogal, or ? Did he find the one spotlight that everyone in the world has to cover his fiction performance, The White House... ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1mltqzr/to_cover_up_for_israel_and_the_idf/n7szknk/
+
+Epoxidharz 2016-01-10
+
+I think it’s smart - not because he’s more important, but because people will make an connection of „footballer != terrorist“ more likely than „random person I know nothing about != terrorist“.
+
+* :::=== RoundSparrow_Commentary : A healthy, fit, individual with a media audience doesn't just disappear without someone noticing. Everything is Media Ecology. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/
+
+Actor Brian Cox on Donald Trump: “He might be an idiot, but he’s a dangerous idiot. I shant be going back to America too much. I can’t deal with this man. I can’t believe they have voted for him. And they can’t see what he is. The guy is a liar."
+
+* :::=== RoundSparrow_Commentary : This is the ELEPHANT IN THE ROOM, Americans are so addicted to lies and manipulaiton that they can not distinghish truth from lies. As he Brian Cox, experience with deception of fiction acting, says: **"And they can’t see what he is. The guy is a liar." - a man experienced with audiences and fiction can see that USA audience is unable to recognize lies and fiction**. This echos what was said by Doctor Carl Jung: “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945 ===:::
+
