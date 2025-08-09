@@ -335,3 +335,33 @@ MegaPint549 2022-05-23
 
 * :::=== RoundSparrow_Commentary : A nation driven by fiction addiction in the human brain. Just like Russia for the past 25 years under Surkov methods. We haven't faced up that Heaven is fiction, we let MAGA believe they are all rewarded in Heaven... we are not addressing the problem by mocking. Fighting fiction with more fiction is only sinking the entire human race. We never escaped Levant fiction of Jesus stories. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_aliyev_everyone/n7sk9wl/
+
+rygelicus 2022-11-15
+
+"He turned the whitehouse into a showroom for his merch."
+
+* :::=== RoundSparrow_Commentary : Donald Trump has adopted at age 79 all the latest Internet engagement and marketing conventions. His transition from HDTV Reality shows to Internet is amazing. People say he is lazy and weak when his power to adopt new media like Twitter / Truth Social to exploit their short-lenth reaction commenting like "He turned the whitehouse into a showroom for his merch" popularity is out of this world. Donald Trump is the most charming person in history on the largest media industry plafrom ever created by mankind. He charmes people into self-harm, dehumanization, and hate. Putin's perfect symbolism warfare to wreck the world. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_aliyev_everyone/n7t1qct/
+
+Realistic_Let3239 2023-07-18
+
+"Between Trumps continued breaking of the law, as well as his attempt to retain power by force in 2021, I don't think it matters what the legality is. Trump will not leave the White House outside of a coffin, he has ICE as a personal army, a history of facing no consequences for breaking the law, and is in the process of tearing chunks out of the constitution.
+
+Even if he is forced out of power, he is stuffing so many cronies into office, that you'd need to clean house to avoid him acting like he's president still."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mls364/trump_to_azerbaijans_president_aliyev_everyone/n7smo3p/
+
+OdonataDarner 2022-11-14
+
+"Steve Bannon did a documentary on Epstein👈👀"
+
+* :::=== RoundSparrow_Commentary : [Steve Bannon, who worked with Cambridge Analytica doctors of psychology to mind-fuck everyday Americans](Cambridge_Analytica_Quotes.md), invoked a unprovable paradox-enigma QAnon topic that covered Donald Trump inclusive along with [Donald Trump Junior](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html)... Gullibility crisis in USA. The Russian society is way beyond the USA in Surkovian techniques. USA, We The Pepole, are eating this shit up. September 13, 2021 (before 2024 election win), from UK news, this is not domestic news: [Steve Bannon prepped Jeffrey Epstein for CBS interview, Michael Wolff claims. Ex-Trump strategist told financier to ‘stick to his message, which is that he is not a paedophile’](https://www.theguardian.com/books/2021/sep/13/steve-bannon-jeffrey-epstein-cbs-interview-michael-wolff-book) ===:::
+
