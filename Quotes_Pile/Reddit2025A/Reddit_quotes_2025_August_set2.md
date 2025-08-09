@@ -180,4 +180,14 @@ R50cent 2013-09-27
 
 "This is what they're all trying to do, and man oh man, is it pathetic."
 
- :::=== RoundSparrow_Commentary :  A twitter-length reaction comment from the social media consumer audience. Exactly what Tony Clifton performance gets from the audience feedback loop ("pathetic"). White House interacting with South Park creators who don't get it (Surkovian mind exploits), as likely the only answer is [sustained **serious and sincere alarm bells** going off like March 27, 2024 article](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). Sober up from the Surkovian onon eating, stop the total mockery. Halt entertainment, sober up from the mocking that Putin iniated in March 2013. ===:::
+* :::=== RoundSparrow_Commentary :  A twitter-length reaction comment from the social media consumer audience. Exactly what Tony Clifton performance gets from the audience feedback loop ("pathetic"). White House interacting with South Park creators who don't get it (Surkovian mind exploits), as likely the only answer is [sustained **serious and sincere alarm bells** going off like March 27, 2024 article](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). Sober up from the Surkovian onon eating, stop the total mockery. Halt entertainment, sober up from the mocking that Putin iniated in March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlpbg2/thats_not_owning_the_joke_thats_proving_it/n7rzt7o/
+
+Thunderchief646054 2018-08-03
+
+"Hilarious they’re trying to own the joke and act like they’re not bothered by the show. Unique what every other administration before this one has done when they get made fun of? Not a damn thing"
+
+* :::=== RoundSparrow_Commentary : This is not about taking over the White House, this is about taking over hearts and minds of EVERY PERSON, even those too young to vote, even those outside the USA legal voting pool or geography. Surkovian information warfare tactics exploit the human brain at the deepest level. ["And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."](https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/) - that's exactly what Surkovian techniques do, they go even deeper than fiction South Park content. The addiction to mocking and insulting Tony Clifton is so compusive that it all ends up just landing back on more power and wealth for Donald Trump, people abandon reality. That's a core technique of how the ["War Against Reality"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) works! Compusive fiction mockery addiction, A mocking B, B mocking C, C mocking A. ===:::
