@@ -191,3 +191,36 @@ Thunderchief646054 2018-08-03
 "Hilarious they’re trying to own the joke and act like they’re not bothered by the show. Unique what every other administration before this one has done when they get made fun of? Not a damn thing"
 
 * :::=== RoundSparrow_Commentary : This is not about taking over the White House, this is about taking over hearts and minds of EVERY PERSON, even those too young to vote, even those outside the USA legal voting pool or geography. Surkovian information warfare tactics exploit the human brain at the deepest level. ["And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."](https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/) - that's exactly what Surkovian techniques do, they go even deeper than fiction South Park content. The addiction to mocking and insulting Tony Clifton is so compusive that it all ends up just landing back on more power and wealth for Donald Trump, people abandon reality. That's a core technique of how the ["War Against Reality"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) works! Compusive fiction mockery addiction, A mocking B, B mocking C, C mocking A. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlpbg2/thats_not_owning_the_joke_thats_proving_it/n7sa3dk/
+
+ghostgabe81c 2018-03-31
+
+"Why would she even post this? Like even if it wasn’t making fun of her, no one looks flattering in a South Park style. The show could have an entire episode about how far my dick is and I wouldn’t share a single image of it because their model of me would be ugly as shit"
+
+* :::=== RoundSparrow_Commentary : Senses somethingh is wrong with the sitatuion, but not willing to consider that this is an information warfare technique, how Putin defeated the entire USA. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mlpbg2/thats_not_owning_the_joke_thats_proving_it/n7s7d9x/
+
+\_IratePirate\_  2015-11-02
+
+"Y’all know their point is leaning into the hate right ?
+
+They know they have that uncle effect that when they do it it makes it uncool (for the other side)
+
+They can in turn look at their followers and be like “look how I owned these libs by taking their meme and making it ours”
+
+They look stupid to everyone else, but all they care about is keeping their base happy and their mouths shut"
+
+* :::=== RoundSparrow_Commentary : That's all USA people keep doing: "their point is leaning into the hate". Russia seeded it since March 2013 using the Internet Research Agency. [Stephen Colbert called it out on Star Wars Force Day 2019]() but social media can not keep repeating and repeat that posting to hashtags and front page of Reddit! Surkov won, Putin won! The White House out-absurd Stephen Colbert and South Park both. The anser is NOT to keep adding mroe surreal absurd to the White House! Be SERIOUS, sincere, [new new sincerity is the answer to David Foster Wallace's Infinite Jest](https://en.wikipedia.org/wiki/New_sincerity#In_literary_fiction_and_criticism). ===:::
+
+
+&nbsp;
+
+&nbsp;
