@@ -8,7 +8,7 @@ daneilthemule 2020-05-26
 
 "It won’t change until we riot in the streets. Euro style. You want attention you gain it. One person complaining is a complainer. Everyone complaining is a problem."
 
-* :::=== RoundSparrow_Commentary : MAGA changed society without rioting in the streets. Middle East has violence and terrorism in the streets for thousands of years as each gorup of fiction mythology storytelling addicts consumes different interpretations of events and attacks the gentiles, non-believers, infidels. USA has let QAnon and MAGA adopt fiction news (Fox News, Newsmax, QAnon, memes, junk social media, clickbait fantasy). Donald Trump thrives off the idea that science is bad. That reason thinking is bad. And that poorly thought out actions are good, like riotsin the street (mindless action is not educatiion and teaching). People are likely going to die in USA saving the Pizzagate QAnon childern from the QAnon fantasy ideas and Donald Trump fantasy fiction. Think real hard about the role Fox News has played in educating adults, in the role Reddit and Bluesky and Twitter an Facebook has played in educating adults. Riots are a step away from education and teaching, anti-progress. One-line Twitter-thinking is Donald Trump's power,and this Reddit comment (popular upvoted) is the source of the problems of MAGA. Anti-education, anti-comprehension, anti-learning. ===:::
+* :::=== RoundSparrow_Commentary : MAGA changed society without rioting in the streets. Middle East has violence and terrorism in the streets for thousands of years as each group of fiction mythology storytelling addicts consumes different interpretations of events and attacks the gentiles, non-believers, infidels. USA has let QAnon and MAGA adopt fiction news (Fox News, Newsmax, QAnon, memes, junk social media, clickbait fantasy). Donald Trump thrives off the idea that science is bad. That reason thinking is bad. And that poorly thought out actions are good, like riotsin the street (mindless action is not educatiion and teaching). People are likely going to die in USA saving the Pizzagate QAnon children from the QAnon fantasy ideas and Donald Trump fantasy fiction. Think real hard about the role Fox News has played in educating adults, in the role Reddit and Bluesky and Twitter an Facebook has played in educating adults. Riots are a step away from education and teaching, anti-progress. One-line Twitter-thinking is Donald Trump's power,and this Reddit comment (popular upvoted) is the source of the problems of MAGA. Anti-education, anti-comprehension, anti-learning. ===:::
 
 &nbsp;
 
@@ -64,7 +64,7 @@ However, what makes our economy grow and stronger (and really all developed nati
 
 If America divests in its intellectual class, it will decline over time and other countries will surpass us.
 
-People need to learn their place in society. The intellectual class weren't necessarily born intellectual. They put work into it. Getting a Ph.D. in micro biology isn't a walk in the park. It is a lot of hard work. You can't just say that you lived enough years on this planet so you are on the same tier as these people. You have to put in the effort."
+People need to learn their place in society. The intellectual class weren't necessarily born intellectual. They put work into it. Getting a Ph.D. in micro biology isn't a walk in the park. It is a lot of hard work. You can't just say that you lived enough years on this planet so you are on the same tier as these people. You have to put in the effort"
 
 &nbsp;
 
