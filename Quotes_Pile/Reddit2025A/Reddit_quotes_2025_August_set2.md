@@ -295,3 +295,13 @@ Front page of Reddit:
 https://old.reddit.com/r/meirl/comments/1mlrlla/meirl/
 
 * :::=== RoundSparrow_Commentary : Bottle up the truth. Conceal the facts. Hide the factual truth. Donald Trump has made it to age 79 with this same technique. Instead of admitting reality and truth in public, bottle it up inside and adopt fiction. Go to your secret clergy of religion or mind doctors and have private secreative sessions about the symptoms of keeping secrets private and avoiding the truth. Religion has operated this way for thousands of years all over, not just USA.  Bottle up the truth. Conceal the facts. Hide the factual truth. The truth is that Allah and Yaweh are fiction stories, science fiction storytelling. The clergy all over the world has found people who hide and bottle up the truth is a good way to concentrate power. Now we have trained artificial intelligence (like ChatGPT) to give us the fiction "hallucinations" we so crave, our new clergy is generative AI. Can Elon Musk and Donald Trump tell when a large langauge model is telling them sweet lies like a private clergy any better than they can with Putin and Russia? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mlqzkf/ice_barbie_desperately_tries_to_get_in_on_south/n7s7fp7/
+
+"Charlie Kirk is trying to do the same and it's pathetic. They aren't and never will be in on the joke."
+
+* :::=== RoundSparrow_Commentary : Reddit community is trying to act like they are in on the joke, thinking this is all domestic... unable to cite Peter Pomerantsev or call out "Surkov technqiues" of year 2011 by name. Lost hearts and minds to to try and out-joke the others with surreal absurd antics. The Kremlin is more than a decade ahead of Reddit community. Not a soul scratching their head and saying... Didn't I read Peter Pomerantsev back in year 2014? Eating the Surovian onions one and all. Short twitter-length react commenting how *dumb stupid the other Americans are about surreal content mental exploits* while Putin and Surkov schemed all this pattern of back and forth mockery back in year 2013. We are living in runaway simulacra, runaway monomyth storytelling, reality abandoned for people entirely engaged in saying: the out-group did not get the joke! Dumb idiots! Meanwhile, the future of children is being wrecked by climate change and hate upon Canada and NATO partners all across the world. Putin won, Surkov won, [everyone thinks this is domestic USA in August 2025](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). ===::
+
+
