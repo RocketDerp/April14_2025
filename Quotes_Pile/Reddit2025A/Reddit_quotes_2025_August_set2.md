@@ -441,3 +441,11 @@ Actor Brian Cox on Donald Trump: “He might be an idiot, but he’s a dangerous
 
 * :::=== RoundSparrow_Commentary : This is the ELEPHANT IN THE ROOM, Americans are so addicted to lies and manipulaiton that they can not distinghish truth from lies. As he Brian Cox, experience with deception of fiction acting, says: **"And they can’t see what he is. The guy is a liar." - a man experienced with audiences and fiction can see that USA audience is unable to recognize lies and fiction**. This echos what was said by Doctor Carl Jung: “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945 ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mlsczl/actor_brian_cox_on_donald_trump_he_might_be_an/n7svqpr/
+
+DadBod_NoKids 2018-10-25
+
+"The worst part isnt even that they dont use info services, its that objective reality does not even matter to those people. Ive had someone verbatim tell me "i dont trust statistics or data". They live in the united states of delusion"
+
