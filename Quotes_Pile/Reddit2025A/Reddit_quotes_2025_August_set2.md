@@ -831,3 +831,11 @@ whoeve 2016-08-06
 
 * :::=== RoundSparrow_Commentary : .. Donald Trump mocking / insulting / mockery already showed that since year 2015. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mmhdat/after_using_chatgpt_man_swaps_his_salt_for_sodium/n7xxxax/
+
+After-Committee-1750 2020-12-04
+
+"I tattoo for a living and I was explaining that the design a client wanted on her finger wasnt a great idea for a 68 year old and that putting the same design anywhere else would be better. I explained several times in different ways that the design was too complicated for that location and that finger tattoos typically do not heal well but she was having a hard time understanding what I meant because she had a ton of online references (that were actually just AI and photoshop). She pulls out her phone and types into google “ are finger tattoos good” and googles AI tells her that, no in fact most finger tattoos fade very quickly and basically the same information I was telling her for the past 25 minutes. She finally says out loud, “Oh! So I should get this tattoo somewhere else then!” "
+
