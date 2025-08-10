@@ -211,3 +211,9 @@ https://www.youtube.com/watch?v=TBiFGhnXsh8
 Giving up on A.I. advancements, as if November 2022 ChatGPT to August 2025 that's it.   
 https://www.youtube.com/watch?v=hkAH7-u7t5k
 
+&nbsp;
+
+Motivation of out-grouop hate   
+Front page of Reddit, Sunday August 10, 2025    
+https://old.reddit.com/r/politics/comments/1mmgavh/trump_is_destroying_the_future_of_america_to_own/
+
