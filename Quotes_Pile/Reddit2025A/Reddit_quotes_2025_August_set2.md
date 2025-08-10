@@ -909,3 +909,13 @@ https://old.reddit.com/r/sports/comments/1mmmn9k/cowboys_wr_cee_dee_lamb_gets_ta
 
 The caption should actually read “ Cowboy’s WR Cee Dee Lamb gets in they way of official doing his job and gets taken out”
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mmkpwc/vp_jd_vance_we_know_that_jeffrey_epstein_had_a/n7ya7q3/
+
+tigershrike 2024-11-07 (account created last year at election)
+
+"the cult knows it too but the difference is that they simply don't care"
+
+* :::=== RoundSparrow_Commentary : MAGA does not want to face up to **media cults**. Rush Limbaugh audience was called "ditto-heads". Levant **media cults** are called Christians, Muslims, Jewish people who think **one and only one perfect storybooks in the Public Library** and you can not change a page in that book. Founding Father Thomas Jefferson took a KNIFE tothe King James English Bible and removed pages he did not agree with and shared it in year 1820. Because the Public Library is expanding and changing, not fixated on one book above all other books. One Fox News network, one Reddit media network of being in a cult / media addiction to QAnon Pizzagate sex messages / information cult. United States of America has put blind faith into Russian messages and memes from the Internet Research Agency. ["At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It **reinvents reality, creating mass hallucinations** that then translate into political action."](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) -- **September 9, 2014** - more than a decade ago, right at the rise of Donald Trump and the coming QAnon Pizzagate fantasy hallucinations. You don't believe it is possible media creates hallucinations? Study Rupert Muroch's media systems globally, go to Mecca and study what the Quran does to audiences. Go to Russia and ask about the Ukraine war reality. "the cult knows it too but the difference is that they simply don't care" is twitter-length simple-tnnk tweet-thinking message. Shallow, superficial, Pizzagate repetition to draem of fantasy of a [basement in Comet Ping Ping](https://www.bbc.com/news/blogs-trending-38156985) or that cats and dogs are being [eaten in Springfield Ohio](https://www.bbc.com/news/articles/c1l4g6g5d97o).  ===:::
+
