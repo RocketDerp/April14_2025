@@ -217,3 +217,8 @@ Motivation of out-grouop hate
 Front page of Reddit, Sunday August 10, 2025    
 https://old.reddit.com/r/politics/comments/1mmgavh/trump_is_destroying_the_future_of_america_to_own/
 
+&nbsp;
+
+James Joyce of Ireland's Finnegans wake is LSD drug - Marshall McLuhan      
+LSD from ChatGPT 5 /\    
+https://youtu.be/yAV5idvaqCA?t=720
