@@ -939,3 +939,93 @@ ameis314 2013-01-30
 
 * :::=== RoundSparrow_Commentary : As long as you get your social media screen game awards. About how you reacted and reacted and were reactionary to everything from QAnon and White House. As long as you lived your life in cloud computing on Reddit and other platforms and didn't actually use informaiton systems to leran about Russian winning hearts and minds of Americans that you should be rescuing. Can't see that this nonsense of Donald Trump and media entertainment was spelled out in 1985 by NYU's Neil Postman. One-line Twitter-think reaction comment about how mind-fucked Americans are with their media cult with zero-concern for being in a anti-MAGA media cult that Surkov mastered in Russia as anti-Putin cults that has kept him in power for 25 years. Being AGAINST Donald Trump is not the same as asserting truth about the war against nonfiction, war against Reality since March 2013. Mocking is not resisting. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mmkpwc/vp_jd_vance_we_know_that_jeffrey_epstein_had_a/n7y8sp6/
+
+Gnarly-Gnu 2024-05-22
+
+"He is a fucking fool. The judge handling Maxwell's case didn't even release the files until January of '24, and if Biden and his administration had released it then they would have cried election interference and fake news. Plus Biden's DOJ didn't answer to the POTUS as if he were a dictator so it was up to them."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mmkpwc/vp_jd_vance_we_know_that_jeffrey_epstein_had_a/n7ya0fx/
+
+spikernum1 2013-09-24
+
+"Every accusation is a confession
+
+Based on that fact, we can be CERTAIN that Jeffrey Epstein had a lot connections with right-wing politicians and right-wing billionaires. Republican billionaires and Republican political leaders went to Epstein island all the time. Who knows what they did.
+
+Edit: never mind how absurd Republicans are to accuse people (left wing or not) without proof. All while they ignore the hundreds of pictures of Trump and Epstein together. What's that saying about telling you to ignore the proof you see with your own eyes?"
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mmkpwc/vp_jd_vance_we_know_that_jeffrey_epstein_had_a/n7y8css/
+
+wardledo 2018-08-19
+
+"This will only ignite the MAGA base to continue to be in an uproar until they release the files. He knows what he’s doing. This is his chance to grab power and his running mate taught him all about it."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mmkpwc/vp_jd_vance_we_know_that_jeffrey_epstein_had_a/n7z2fyv/
+
+Successful_Bug6334 2022-05-16
+
+"JD Vance is like “dead man walking” - totally oblivious to the fact that he is officially Trump Road Kill. He will lie and blame shift to protect his Emperor. But very soon, Trump is going to set him up to take a very hard fall…career ending. Maybe he will get a panel show out of it…and definitely a book deal. Maybe that was his plan all along…maybe he will get an endorsement from a Mascara manufacturer as an added bonus."
+
+* :::=== RoundSparrow_Commentary : Russia since March 2013 has set-up Americans to take a very hard fall on the world stage of history and nothing can get people to stop mocking in the total mockery USA. Nobody wants to take serious the measles information warfare evidence disclosed by Johns Hopkins University dating back to year 2014. ["Vladimir Putin's Adviser Tells Americans: 'Russia Interferes in Your Brains, We Change Your Conscience' -- Published February 12, 2019](https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mmkpwc/vp_jd_vance_we_know_that_jeffrey_epstein_had_a/n7zmj18/
+
+surfteacher1962 2011-06-28
+
+"There was a big meeting Friday at the White House to plan strategy for the Epstein problem. I guess this is their solution, push the idea that it was all democrats who were at his island. Sadly, the moronic MAGA cult will believe every word."
+
+* :::=== RoundSparrow_Commentary : Putin is also coming to Alaska shortly after the "big meeting Friday at the White House". I don't see USA people wising up to the fiction vs. nonfiction warfare since March 2013, nonfiction is not winning. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mmp892/i_hate_people_who_litter/
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1mmmzl1/til_despite_how_her_work_is_often_interpreted/n7ywnpw/
+
+"When an artist insists their work is not what every eye plainly sees, they insult the public twice.
+
+First by thinking us gullible, and second by proving themselves the greater fool for believing we are."
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mmjsly/ill_never_understand_working_class_people_who/n7y0cod/
+
+Siny_AML 2013-07-31
+
+"Because they all have this misguided idea that if they behave and roll over just right…maybe one day they will also be able to say fuck you to someone they feel is beneath them."
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mmjsly/ill_never_understand_working_class_people_who/n7z8nl0/
+
+Chappoooo 2022-12-20
+
+"Genuine question. How does punching down feel good?
+
+I was bullied a lot of school. I remember there was a time where in order to "fit in", they asked me to target another student who was bullied more than me. I did. I made a nasty remark, and it did not feel good at all. I later apologised to the boy an hour or two later, but it didnt make me feel big, or strong. It made me feel weak, and horrified that I would add anything onto somebody else's troubles."
+
+* :::=== RoundSparrow_Commentary : Military boot camp the world over solves those group bonding problems of how to kill strangers on "the other side" of war. Russia sure has convince Russians to kill people in Ukraine. Japanese people did not know USA before attacking Pearl Harbor, but the military indoctrination teaches them how to kill strangers. This is something we need to take seriously globally and stop acting like information and schools can't teach people to become gangs of killers, terrorism already proves this isn't exclusive to governments. Since March 2013, Russian information warfare has convinced USA people to favor fiction over nonfiction and self-harm the future of the USA on the world stage. ===:::
+
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mmjsly/ill_never_understand_working_class_people_who/n7y3ztw/
+
+voteBlue77 2025-02-22 (new thhis year)
+
+"Critical thinking isn't taught in schools and propaganda is very effective"
+
+* :::=== RoundSparrow_Commentary : Media ecology and comparative mythology is not taught in schools. Psychology - we all have human brains, but only secret clergy teaches Dr. Arrham Brill and Edward Bernays techniques. We don't even teach how to recognize Surkov information warfare despite the Putin media invasion of USA since March 2013. ===:::
