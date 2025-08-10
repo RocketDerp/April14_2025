@@ -757,3 +757,28 @@ Russia Alaska topic.
 
 * :::=== RoundSparrow_Commentary : Filter-bubble abounds. What one person sees in USA on a Sunday will disappear by Monday, never seen or easily forgotten. Social media users will not repeat and assert important topics (not that this posting is what should be repeated). People do what ChatGPT does... identical prompt by a 25 students in a classroom and ChatGPT gives 30 unique copyriight-free responses. Never citing the authors or training material used fully. Then ChatGPT isn't plagerizing the training material. Social media doesn't want to get on the samge page of the import best goodness ideas, people want a stream of flowing memes to wash [away yesterday](https://www.youtube.com/watch?v=5VgRuLQgeSE). Change the fashions, you can't dress like 1975, you can't speak and dress like 1985, even if an idea was better. Make America "Great Again" shows no evidence of being driven by yesterday except the erasure of realty. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mmhdat/after_using_chatgpt_man_swaps_his_salt_for_sodium/n7xjqvd/
+
+bio4m 2013-07-13
+
+"People wont trust doctors and experts these days but if ChatGPT says it it must be true...
+
+We truly are in the darkest timeline"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mmhdat/after_using_chatgpt_man_swaps_his_salt_for_sodium/n7yawd1/
+
+haidere36 2016-05-28
+
+"No amount of intelligence is going to make you immune to propaganda. You might be exposed to an idea repeatedly on social media that doesn't sound incorrect on its face and which you never bother to verify, you might be given a piece of information from someone you trust which you never bother to verify, you might have a flaw somewhere in your worldview or knowledge base that you've accepted as true for so long that it's difficult to challenge, et cetera.
+
+Right now, our entire society is being flooded with corporate propaganda that "AI" is the solution to all our problems, the next step forward in technology, the leap that will make countless fields obsolete the way the car made horse-drawn carriages obsolete. You and I may understand that's not actually what it is, but there was a time when I didn't yet know how LLMs worked - was I stupid then? Did I magically become smart once I learned? I still don't fully understand it, anyways.
+
+I know it's comforting to believe you're simply too smart to ever fall for anything, but the reality is being an intelligent person doesn't mean you have an internal lie detector that can see through bullshit with 100% accuracy. You have to be willing to believe that some of your own beliefs are wrong in order to change them, to be willing to understand that people will take advantage of your wants and needs to manipulate you, and be willing to accept that some people will abuse your trust.
+
+Being a victim of manipulation doesn't make you stupid, it makes you human, just like everyone else."
+
+* :::=== RoundSparrow_Commentary : misunderstandings are a common problem. But we create a for-profit university with excuslive admission and lock away the most prized knowledge and understanding to create corporations with trade secrets, copyrights, to prevent spreading of good ideas. The Bible, Quran, Torah are royalty free copyright free, so the clergy keeps calling them factual truth because they are public domain / no fees. Nina Paley was correct in her Ted Talk, copyright is brain damage. We can't understand each other because we don't want to borrow other people's best ideas and words because we conceal them for profit and power. What a messy topic, the incentive people have to keep secret what is progress for all humanity. Why Wikipedia style sytems of global progress of learning and understanding are not called for by people. ===:::
