@@ -744,3 +744,16 @@ iftlatlw 2024-01-30
 "Even Epstein is a distraction. The real story is economic destruction. Stay focused."
 
 * :::=== RoundSparrow_Commentary : The real story of anti-real (war against Reality) is fiction, hate, dehumaniation. Health care, food supply, not just economics. [Donald Trump Junior promoted Epstein July 2023](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html) in the lead-up to 2024 election, QAnon fiction storytelling promoted Epstein, wrap anything in Epstein topic and MAGA crowd and Reddit + Bluesky crowd goes flocking. ["The Epstein Scandal Is Giving QAnon Everything Pizzagate Couldn’t" - **July 10, 2019**](https://www.vice.com/en/article/the-epstein-scandal-is-giving-qanon-everything-pizzagate-couldnt/) ===:::
+
+&nbsp;
+
+# Sunday August 10, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mmhts9/this_plus_the_billboards_that_are_up_in_russia/
+
+Russia Alaska topic.
+
+* :::=== RoundSparrow_Commentary : Filter-bubble abounds. What one person sees in USA on a Sunday will disappear by Monday, never seen or easily forgotten. Social media users will not repeat and assert important topics (not that this posting is what should be repeated). People do what ChatGPT does... identical prompt by a 25 students in a classroom and ChatGPT gives 30 unique copyriight-free responses. Never citing the authors or training material used fully. Then ChatGPT isn't plagerizing the training material. Social media doesn't want to get on the samge page of the import best goodness ideas, people want a stream of flowing memes to wash [away yesterday](https://www.youtube.com/watch?v=5VgRuLQgeSE). Change the fashions, you can't dress like 1975, you can't speak and dress like 1985, even if an idea was better. Make America "Great Again" shows no evidence of being driven by yesterday except the erasure of realty. ===:::
+
