@@ -716,3 +716,24 @@ All these people tripping over themselves in his inner-circle will ALWAYS come o
 Trump was a tabloid, con-artist, rapist piece of shit 20 years ago and now he's an even bigger tabloid, con-artist, rapist piece of shit now.
 
 The fact that ANYONE believes him anymore is just proof of my fellow American's gullibility. If a sucker is born every minute...a lot of them settled on the conservative side of politics."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mm0sjt/us_to_rewrite_its_past_national_climate_reports/n7uwxnu/
+
+BrownSugarBare 2014-07-07
+
+"The USA has collectively decided to check itself out of the educational and future technological race. 
+
+It does not mean other nations won't step in to fill the gap because unlike pre-nazi era, there are nations ready to fill the void and make their coin."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mm0sjt/us_to_rewrite_its_past_national_climate_reports/n7ubg9q/
+
+DrBeavernipples 2013-04-19
+
+"Man it’s so hard not to just throw up my hands and quit. We are so beyond fucked. How are people this stupid?"
+
+&nbsp;
+
