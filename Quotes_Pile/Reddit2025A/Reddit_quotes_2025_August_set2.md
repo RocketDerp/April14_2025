@@ -880,3 +880,5 @@ layeofthedead 2018-02-16
 "oh don't worry, his grandkids will be set to do the exact same thing, the trump dynasty is going to be grifting for however many decades we've got left because I have zero faith in the american people to realize they've been had"
 
 &nbsp;
+
+* :::=== RoundSparrow_Commentary : Please do not discount the possibility that an artificial intelligence ( Grok AI, etc ) can be trained to behave and communicate lime Donald Trump, mimic the late-night Truth Social Tweetstorms of Donald Trump, the media interviews and content creation of Donald Trump. It is easier to have computers do it than family. ===:::
