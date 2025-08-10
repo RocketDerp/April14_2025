@@ -807,3 +807,16 @@ Reddit front page.
 
 * :::=== RoundSparrow_Commentary : cliaming that Epstein isn't being repeated on Bluesky and Reddit in comments constantly. Nor are people on social media systems in August 2025 [showing much sketecism that QAnon (which was amplified by Putin / Russia / Kremlin)](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html) and even the Doanld Trump family (Trump Jr) actively parroted QAnon talking points [about Pizzagate and Epstein](https://www.vice.com/en/article/the-epstein-scandal-is-giving-qanon-everything-pizzagate-couldnt/). Who is Q? A symbol, like God, a wildcard meaning... floating outer-space *cloud computing* message entity. Mythological. Surkovian. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mmhdat/after_using_chatgpt_man_swaps_his_salt_for_sodium/n7xzfuk/
+
+ES_Legman 2016-11-07
+
+"ChatGPT is cranking all the idiots into turbo mode I swear.
+
+Every Physics forum now is full of crackpots that talk to GPT and think they are going to revolutionize science with their excellent ideas while having zero background and education on the matter. Now, we always had crackpots and wackadoos but for the past two years it has become insufferable.
+
+People without education and self awareness don't understand that they are built for engagement and they literally cannot know what is true or false so it's extremely dangerous to take it at face value. And many people use it as therapists or replacements for actual professional advice. Scary as fuck."
+
+* :::=== RoundSparrow_Commentary : the society role model is 79 year old Donald Trump who believes anything he hears off Fox News HDTV and Twitter messages from Russia. ===:::
