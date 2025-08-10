@@ -1,7 +1,10 @@
 https://autistics.life/@RoundSparrow/115004366110193318   
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lw2ag6dhuk2n   
 
-I thought people misunderstood autism - but after witnessing the past 18 months with #DonaldTrump in USA, I see the far deeper problem is everyday people think Donald Trump is honest, sincere, factual, accurate. The gullibility to falsehoods is huge crisis.
+&nbsp;
+
+
+I thought people misunderstood autism - but after witnessing the past 18 months with Donald Trump in USA, I see the far deeper problem is everyday people think Donald Trump is honest, sincere, factual, accurate. The gullibility to falsehoods is huge crisis.
 
 &nbsp;
 
