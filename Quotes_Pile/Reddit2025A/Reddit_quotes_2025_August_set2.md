@@ -1160,3 +1160,8 @@ They are constantly walking around with a big neon sign "I'm a tool and I don't 
 
 I'm sorry this happened to you, OP, this is bullshit."
 
+&nbsp;
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1mmut5n/i_dont_get_it/n80hrkq/
+
+"But if people didn't ask reddit easily googleable answers then where would Google get all of the answers from when you Google it"
