@@ -790,3 +790,20 @@ https://old.reddit.com/r/nottheonion/comments/1mmhdat/after_using_chatgpt_man_sw
 Blueshirt38 2016-09-25
 
 "Wow, checking that sub out really made me feel so much worse about AI. Some of them use it all day, for everything. Some peoples' jobs are just to input stuff into ChatGPT and put the output somewhere else. What a fucking joke."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mmhdat/after_using_chatgpt_man_swaps_his_salt_for_sodium/n7xl35k/
+
+ScreenTricky4257 2023-04-12
+
+"There's a joke to be made about AI answers becoming a bromide, but most people don't use "bromide" to mean "cliche" anymore."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mmhark/it_only_took_a_month/
+
+Reddit front page.
+
+* :::=== RoundSparrow_Commentary : cliaming that Epstein isn't being repeated on Bluesky and Reddit in comments constantly. Nor are people on social media systems in August 2025 [showing much sketecism that QAnon (which was amplified by Putin / Russia / Kremlin)](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html) and even the Doanld Trump family (Trump Jr) actively parroted QAnon talking points [about Pizzagate and Epstein](https://www.vice.com/en/article/the-epstein-scandal-is-giving-qanon-everything-pizzagate-couldnt/). Who is Q? A symbol, like God, a wildcard meaning... floating outer-space *cloud computing* message entity. Mythological. Surkovian. ===:::
+
