@@ -839,3 +839,31 @@ After-Committee-1750 2020-12-04
 
 "I tattoo for a living and I was explaining that the design a client wanted on her finger wasnt a great idea for a 68 year old and that putting the same design anywhere else would be better. I explained several times in different ways that the design was too complicated for that location and that finger tattoos typically do not heal well but she was having a hard time understanding what I meant because she had a ton of online references (that were actually just AI and photoshop). She pulls out her phone and types into google “ are finger tattoos good” and googles AI tells her that, no in fact most finger tattoos fade very quickly and basically the same information I was telling her for the past 25 minutes. She finally says out loud, “Oh! So I should get this tattoo somewhere else then!” "
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmgavh/trump_is_destroying_the_future_of_america_to_own/n7xchyy/
+
+LowellForCongress 2025-03-06 (this year)
+
+"He’s venture capitalisting the US. Basically harvesting everything without replanting for the future. The great reaping."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmgavh/trump_is_destroying_the_future_of_america_to_own/n7xed22/
+
+inhaledcorn 2014-12-18
+
+&nbsp;
+
+"He’s not trying to own the libs. There’s no great strategy. All he is doing is servicing his ego. That’s it. He doesn’t care about anyone or anything other than himself and his desires. It is only motivation for doing anything."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmgavh/trump_is_destroying_the_future_of_america_to_own/n7xp5sv/
+
+WTFisThisMaaaan 2023-05-06
+
+"Which is so weird because they're all about having as many kids as possible and leaving a legacy. Their kids are not going to speak to them if they end up with any sense (but I suppose the goal of these parents is to turn them into obedient, little copies of Mom and Dad so they can live vicariously through them)."
+
+* :::=== RoundSparrow_Commentary : It is much easier for Donald Trump to sit around a house, talk on the phone or in interviews, play golf in Florida, there are millions of 79 year old men who have proven this path in The Villages like my father Alfred and mother Charlotte. Take drugs, [go on sex trips, have a circle of people who all watch Fox News HDTV together](https://www.tampabay.com/news/health/2022/08/12/why-is-the-villages-known-as-the-std-capital-of-america/) and live in an egoism bubble. Donald Trump is not like that. Donald Trump is a Twitter addict who believes Russian memes. ===:::
+
