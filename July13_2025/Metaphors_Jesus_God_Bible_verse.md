@@ -65,6 +65,10 @@ Again, Bible verse "1 John 4:20"
 
 Again, Bible verse "1 John 4:20"
 
+### "I hate dirty homeless / immigrant smelly people" is wrong 
+
+Proverbs 14:31   
+
 &nbsp;
 
 # Atheists are not fixing the metaphor literacy
