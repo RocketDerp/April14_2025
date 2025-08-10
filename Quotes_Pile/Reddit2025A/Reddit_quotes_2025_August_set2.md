@@ -882,3 +882,15 @@ layeofthedead 2018-02-16
 &nbsp;
 
 * :::=== RoundSparrow_Commentary : Please do not discount the possibility that an artificial intelligence ( Grok AI, etc ) can be trained to behave and communicate lime Donald Trump, mimic the late-night Truth Social Tweetstorms of Donald Trump, the media interviews and content creation of Donald Trump. It is easier to have computers do it than family. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmmsxt/trump_demands_homeless_people_move_out_of/n7yn5t6/
+
+faith_apnea 2024-01-12
+
+"I laugh at fools that talk like this in real life
+
+How did you suckers vote for this poser twice?"
+
+* :::=== RoundSparrow_Commentary : MAGA behavior, MAGA fiith is in laughing at people. ===:::
