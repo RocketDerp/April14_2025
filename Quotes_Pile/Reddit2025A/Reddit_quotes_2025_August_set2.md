@@ -1079,3 +1079,50 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mmpldq/another_one/n7zkb4l/
 alohabuilder 2024-11-05
 
 "I’ve learned to read personality traits in my 35 years being self employed and hiring dozens and dozens of people over the years… the 1 constant I ran into was a personality that on the surface seems great, but really is the opposite. An example is that any employee when just interviewing them in a informal way , would inevitably get around to say things like “ don’t worry, I don’t steal stuff” or “ im big on honesty so just don’t lie to me cause it’s not how I like to be treated”… and it only takes about a month before these types show their true colors and steal and lie like crazy, then blame me for them having to do it. Most people believe they are judged with the best intentions if you ask them. But the reality is a person judges you by how THEY would respond or react. If they steal, they assume you must steal as well, otherwise they have to face their own shortcomings. It’s just easier to believe that others are as just as untrustworthy as they are because that’s how they really see the world."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mmr6zy/trump_warns_homeless_to_move_out_of_dc_immediately/n7znqba/
+
+xcrunner1988 2021-12-23
+
+"Yup. First they came for the immigrants, then the homeless, then “the gays”, then anyone deemed to have TDS. Gotta keep those camps full."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mmr6zy/trump_warns_homeless_to_move_out_of_dc_immediately/n800i55/
+
+tots4scott 2013-12-16
+
+"I agree with both of you, Trump will never care but his constituents can still be broken down. Not all of them, most of them are the type to wear adult diapers merely in an attempt to "trigger liberals", but it's still important since American Christians support the right so strongly but actual Christian and biblical teachings have been so mutated to fit American Brand Christianity."
+
+&nbsp;
+
+https://old.reddit.com/r/memes/comments/1mmtv9c/please_reverse_this_torture/n80gud5/
+
+Zulmoka531 2020-10-09
+
+"No, youtube, Spotify, certain parts of Reddit and other social media, news stories, protests. Certain health subjects such as LGBTQ+, suicide, eating disorders, etc…
+
+I even heard they are or already have, gone after TV channels like channel 4. But you’d have to as a UK resident on that one."
+
+&nbsp;
+
+https://old.reddit.com/r/memes/comments/1mmtv9c/please_reverse_this_torture/n80hsl1/
+
+YangoUnchained 2015-03-02
+
+"Across the world really. Global conservatism massively on the rise in the past decade. Voter apathy and misinformation are a big part of the cause."
+
+&nbsp;
+
+https://old.reddit.com/r/memes/comments/1mmtv9c/please_reverse_this_torture/n80atqg/
+
+Serious_Much 2014-01-10
+
+"Inciting violence is not just "Facebook posts"
+
+In the same way that someone would be arrested if they posted indecent images of under 18s on Facebook, trying to ask people to assault and harm others is a crime, even if it's posted on social media"
+
+&nbsp;
+
