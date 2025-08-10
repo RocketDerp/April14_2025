@@ -1029,3 +1029,53 @@ voteBlue77 2025-02-22 (new thhis year)
 "Critical thinking isn't taught in schools and propaganda is very effective"
 
 * :::=== RoundSparrow_Commentary : Media ecology and comparative mythology is not taught in schools. Psychology - we all have human brains, but only secret clergy teaches Dr. Arrham Brill and Edward Bernays techniques. We don't even teach how to recognize Surkov information warfare despite the Putin media invasion of USA since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mmjsly/ill_never_understand_working_class_people_who/n7ypqu1/
+
+FictionalDudeWanted 2018-11-16
+
+"Celebrity worship is just as bizarre and pathetic. Most rich ppl do not care about other ppl.  They dont even see them as humans; all they see and want is money and attention.  Normal person gets sick or dies...crickets.  A celeb gets sick or dies and it's front page news and they or their family expect the whole world to lavish them with social media attention or mourn them.  It's beyond disgusting."
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mmjsly/ill_never_understand_working_class_people_who/n809l93/
+
+RevolutionaryAnt2728 2025-04-12 (new this year)
+
+"none of your problems are caused by someone else being a billionaire."
+
+* :::=== RoundSparrow_Commentary : Media addiction to Fox News isn't accidental for rural Americans. Putin is a billionare, one of the richest people in the world, who had manipulated Americans into self-harm. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mmpldq/another_one/n7zfl7b/
+
+GoldenStarsButter 2020-07-20
+
+"At this point people aren't voting for Trump in spite of the disgusting things that he's done, but *because* of the disgusting things he's done that they wish they could get away with."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mmpldq/another_one/n7zkdqw/
+
+lookatthesunguys 2020-06-06
+
+"Yes, the same people who advocate for abusing the weak and causing suffering to the innocent tend to abuse the weak and cause suffering to the innocent. Or in other words, "Bad people behave badly." "
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mmpldq/another_one/n7zgnsw/
+
+ratbaby86 2023-10-09
+
+"What policy has maga promoted that doesn't ultimately hurt children or subject them to adults having free access to their genitals? Name one policy."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mmpldq/another_one/n7zkb4l/
+
+alohabuilder 2024-11-05
+
+"I’ve learned to read personality traits in my 35 years being self employed and hiring dozens and dozens of people over the years… the 1 constant I ran into was a personality that on the surface seems great, but really is the opposite. An example is that any employee when just interviewing them in a informal way , would inevitably get around to say things like “ don’t worry, I don’t steal stuff” or “ im big on honesty so just don’t lie to me cause it’s not how I like to be treated”… and it only takes about a month before these types show their true colors and steal and lie like crazy, then blame me for them having to do it. Most people believe they are judged with the best intentions if you ask them. But the reality is a person judges you by how THEY would respond or react. If they steal, they assume you must steal as well, otherwise they have to face their own shortcomings. It’s just easier to believe that others are as just as untrustworthy as they are because that’s how they really see the world."
