@@ -1126,3 +1126,37 @@ In the same way that someone would be arrested if they posted indecent images of
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1mmtkcu/bullet_holes_in_windows_after_fridays_cdc/n808y3r/
+
+tandem_kayak 2024-12-12
+
+"It's like we are living in two realities in this country. I think most of the country has forgotten there even were political assassinations this year. Short attention spans, and news coverage chasing the latest thing."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mmtkcu/bullet_holes_in_windows_after_fridays_cdc/n80hp05/
+
+AppealConsistent6749 2021-04-21
+
+"I’m ashamed to say how shocked I am that the media absolutely buried this story. The media has helped create this dystopian nightmare. And they continue to feed the nightmare machine."
+
+&nbsp;
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1mmm57o/someone_took_my_art_and_fed_it_to_an_ai_and_then/n7zc86z/
+
+SpookyBoisInc 2023-02-11
+
+" “AI is quickly catching up to human artists, here’s an image that I could not have made without stealing from you” The jokes truly write themselves"
+
+&nbsp;
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1mmm57o/someone_took_my_art_and_fed_it_to_an_ai_and_then/n7zmhwg/
+
+oasis_nadrama 2022-04-07
+
+"All of these users of automated plagiarism softwares seem stuck in perpetual "Gotcha!" mode, stunningly unaware that they are basically taking a thousand pics of themselves caught with their pants down.
+
+They are constantly walking around with a big neon sign "I'm a tool and I don't have any grasp of basic ethics".
+
+I'm sorry this happened to you, OP, this is bullshit."
+
