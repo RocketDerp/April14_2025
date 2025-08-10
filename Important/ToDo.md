@@ -186,3 +186,13 @@ https://www.youtube.com/watch?v=_tGwOv3scKw
 
 Fuck word now allowed on YouTube   
 https://www.youtube.com/watch?v=sTejjm8P25E   
+
+&nbsp;
+
+Moral sciences, ethics, moral language, inability to talk to other side   
+Still hesitant to see fragmentation    
+Not having unity, lack of common moral language    
+In 1980's and 1990's it was very hard for people to see that    
+We are 
+https://www.youtube.com/watch?v=FZYzaLTAL_w
+
