@@ -196,3 +196,7 @@ In 1980's and 1990's it was very hard for people to see that
 We are 
 https://www.youtube.com/watch?v=FZYzaLTAL_w
 
+&nbsp;
+
+The medium of printed cards vs. Reddit medium vs. national identity.   
+https://old.reddit.com/r/mildlyinfuriating/comments/1mmf1m6/mcdonalds_japan_has_a_new_collab_menu_where_you/
