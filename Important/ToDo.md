@@ -205,3 +205,9 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1mmf1m6/mcdonalds_japan_has_
 
 I Made a Floppy Disk from Scratch    
 https://www.youtube.com/watch?v=TBiFGhnXsh8
+
+&nbsp;
+
+Giving up on A.I. advancements, as if November 2022 ChatGPT to August 2025 that's it.   
+https://www.youtube.com/watch?v=hkAH7-u7t5k
+
