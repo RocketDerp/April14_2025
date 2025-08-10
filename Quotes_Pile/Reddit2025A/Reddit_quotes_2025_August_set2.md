@@ -894,3 +894,18 @@ faith_apnea 2024-01-12
 How did you suckers vote for this poser twice?"
 
 * :::=== RoundSparrow_Commentary : MAGA behavior, MAGA fiith is in laughing at people. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1mmmn9k/cowboys_wr_cee_dee_lamb_gets_taken_out_by_an/n7yqdmd/
+
+RotoDog 2021-09-24
+
+"There’s also dashed lines painted around the perimeter of the field which staff and players are supposed to stay behind."
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1mmmn9k/cowboys_wr_cee_dee_lamb_gets_taken_out_by_an/n7yo1y3/
+
+The caption should actually read “ Cowboy’s WR Cee Dee Lamb gets in they way of official doing his job and gets taken out”
+
