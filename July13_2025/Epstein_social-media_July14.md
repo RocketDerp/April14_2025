@@ -176,6 +176,16 @@ https://bsky.app/hashtag/InfiniteTrumpismARG001100
 
 &nbsp;
 
+# Sunday, August 10, 2025
+
+There are many in the population who seem to think electing Donald Trump in 2024 would release the "Epstein List". [The Trump family openly promoted the diea of the list leading up to the November 2024 election day. Donald Trump Jr. fed the social media society with expectations on the Epstein List topic. July 8, 2023.](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html)
+
+Donald Trump is famous for covering up rich men abusing poor people. Rich men abusing women / girls. The gullibility that people believe Donald Trump will release a honest list... the freanzy the past 35 days of people posting over and over on social media call for release of the list. Why do people trust such an obvious source of deception, mislreading information, falsehoods? Instead of calling for Donald Trump to resign from office. Instead of calling for honest and accurate politicians to lead the nation.
+
+&nbsp;
+
+&nbsp;
+
 ## Super Lie, Disco Ball 
 
 A spinning disco ball in a nightclub, reflecting indivdiaul ego desires of each person back to them, all seeing thier own reflection. That is what the Epstein information has become July 27, 2025.
