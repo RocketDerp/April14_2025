@@ -200,3 +200,8 @@ https://www.youtube.com/watch?v=FZYzaLTAL_w
 
 The medium of printed cards vs. Reddit medium vs. national identity.   
 https://old.reddit.com/r/mildlyinfuriating/comments/1mmf1m6/mcdonalds_japan_has_a_new_collab_menu_where_you/
+
+&nbsp;
+
+I Made a Floppy Disk from Scratch    
+https://www.youtube.com/watch?v=TBiFGhnXsh8
