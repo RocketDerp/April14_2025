@@ -699,4 +699,20 @@ President_Chump\_ 2020-03-30
 
 "remember when this con artist fuck called himself the "father of IVF"? he could say he invented electricity and his cult of pedo protectors would find a way to agree. everyday he goes on is proof there is no God, or at least, not a good one"
 
-* :::=== RoundSparrow_Commentary : Trump is proof there is a god, the god we create with our media addiction to monomyth fiction storytelling, the Surkovian monomyth meme patterns out of Russian Internet Research Agency since March 2013. :::===
+* :::=== RoundSparrow_Commentary : Trump is proof there is a god, the god we create with our media addiction to monomyth fiction storytelling, the Surkovian monomyth meme patterns out of Russian Internet Research Agency since March 2013. The REAL crisis I see, is why can't social media users have a Wiki list of every one of these contradictions and notes about it, and be able to call them by number or name? Number 3,200 on the list, etc. There is no effort to organize sustained organization of what the crisis is all about. [War Against Reality from Russia since March 2013](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Fiction vs. nonfiction warfare. :::===
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mllw3v/trump_drops_ivf_promise_preferring_to_blame_women/n7rre0n/
+
+Pantarus 2012-10-16
+
+"LOL.
+
+If the public hasn't figured out that he will say literally ANYTHING to get what he wants in the moment, just to backtrack, lie, or literally laugh in your face...by now? They never will.
+
+All these people tripping over themselves in his inner-circle will ALWAYS come out worse for wear once he's done with them.
+
+Trump was a tabloid, con-artist, rapist piece of shit 20 years ago and now he's an even bigger tabloid, con-artist, rapist piece of shit now.
+
+The fact that ANYONE believes him anymore is just proof of my fellow American's gullibility. If a sucker is born every minute...a lot of them settled on the conservative side of politics."
