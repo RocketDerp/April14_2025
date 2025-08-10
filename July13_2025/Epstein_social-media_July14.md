@@ -178,9 +178,14 @@ https://bsky.app/hashtag/InfiniteTrumpismARG001100
 
 # Sunday, August 10, 2025
 
-There are many in the population who seem to think electing Donald Trump in 2024 would release the "Epstein List". [The Trump family openly promoted the diea of the list leading up to the November 2024 election day. Donald Trump Jr. fed the social media society with expectations on the Epstein List topic. July 8, 2023.](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html)
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lw276bgj3k2a    
+https://autistics.life/@RoundSparrow/115004275081464013    
 
-Donald Trump is famous for covering up rich men abusing poor people. Rich men abusing women / girls. The gullibility that people believe Donald Trump will release a honest list... the freanzy the past 35 days of people posting over and over on social media call for release of the list. Why do people trust such an obvious source of deception, mislreading information, falsehoods? Instead of calling for Donald Trump to resign from office. Instead of calling for honest and accurate politicians to lead the nation.
+There are many in the population who seem to think electing Donald Trump November 5, 2024 would release the "Epstein List". [The Trump family openly promoted the diea of the list leading up to the November 2024 election day. Donald Trump Jr. fed the social media society with expectations on the Epstein List topic. July 8, 2023.](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html)
+
+Donald Trump is famous for covering up rich men abusing poor people. Rich men abusing women / girls. The gullibility that people believe Donald Trump will release a honest list... the frenzy the past 35 days of people posting over and over on social media call for release of the list. Why do people trust such an obvious source of deception, misleading information, falsehoods? Instead of calling for Donald Trump to resign from office. Instead of calling for honest and accurate politicians to lead the nation.
+
+Is this the biggest bamboozle in USA yet? Information strip tease? Run a [campaign hinting and teasing at a magical "Epstein List" that people latch on to](https://www.newsweek.com/list-trump-allies-who-called-release-epstein-files-2098693), and get into office, then play mind-games with the population / voters / society? How gullible do everyday people have to be? Trusting Donald Trump family to be accurate with information? The gullibility demonstrated here in trusting manipulative and deceptive people. Why vote for such extremely obvious people who are not accurate about information and facts? Why flock to people who are almost always incorrect and mistaken about information and comprehension?
 
 &nbsp;
 
@@ -188,8 +193,9 @@ Donald Trump is famous for covering up rich men abusing poor people. Rich men ab
 
 ## Super Lie, Disco Ball 
 
-A spinning disco ball in a nightclub, reflecting indivdiaul ego desires of each person back to them, all seeing thier own reflection. That is what the Epstein information has become July 27, 2025.
+A spinning disco ball in a nightclub, reflecting individual ego desires of each person back to them, all seeing their own reflection. That is what the Epstein information has become July 27, 2025.
 
 Texan Rick Roderick, 1993: ["we will be in a setting in which you won’t want the true, you will want the truer than true. You won’t even… The false won’t even be a good enough lie for you, you’ll want the lie better than a lie. I mean, the truer than true explanation."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/)
 
-It is wildcard memes, blank check meaning. It is Infinite Jest itself, in motion. It is electronic media systems, media notification opera, gone wild. ***Sex sells, private jet bling life, private islands / offsure wealth bling life.***
+
+It is wildcard memes, blank check meaning. It is Infinite Jest itself, in motion. It is electronic media systems, media notification opera, gone wild. ***Sex sells, private jet bling life, private islands / offshore wealth bling life.***
