@@ -867,3 +867,16 @@ WTFisThisMaaaan 2023-05-06
 
 * :::=== RoundSparrow_Commentary : It is much easier for Donald Trump to sit around a house, talk on the phone or in interviews, play golf in Florida, there are millions of 79 year old men who have proven this path in The Villages like my father Alfred and mother Charlotte. Take drugs, [go on sex trips, have a circle of people who all watch Fox News HDTV together](https://www.tampabay.com/news/health/2022/08/12/why-is-the-villages-known-as-the-std-capital-of-america/) and live in an egoism bubble. Donald Trump is not like that. Donald Trump is a Twitter addict who believes Russian memes. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmgavh/trump_is_destroying_the_future_of_america_to_own/n7xvf0w/
+
+layeofthedead 2018-02-16
+
+<img width="1022" height="616" alt="image" src="https://github.com/user-attachments/assets/3c2f3ebe-14cf-4f64-8f7f-49a7d7ba100e" />
+
+&nbsp;
+
+"oh don't worry, his grandkids will be set to do the exact same thing, the trump dynasty is going to be grifting for however many decades we've got left because I have zero faith in the american people to realize they've been had"
+
+&nbsp;
