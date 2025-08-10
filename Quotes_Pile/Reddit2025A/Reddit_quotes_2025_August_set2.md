@@ -782,3 +782,11 @@ I know it's comforting to believe you're simply too smart to ever fall for anyth
 Being a victim of manipulation doesn't make you stupid, it makes you human, just like everyone else."
 
 * :::=== RoundSparrow_Commentary : misunderstandings are a common problem. But we create a for-profit university with excuslive admission and lock away the most prized knowledge and understanding to create corporations with trade secrets, copyrights, to prevent spreading of good ideas. The Bible, Quran, Torah are royalty free copyright free, so the clergy keeps calling them factual truth because they are public domain / no fees. Nina Paley was correct in her Ted Talk, copyright is brain damage. We can't understand each other because we don't want to borrow other people's best ideas and words because we conceal them for profit and power. What a messy topic, the incentive people have to keep secret what is progress for all humanity. Why Wikipedia style sytems of global progress of learning and understanding are not called for by people. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mmhdat/after_using_chatgpt_man_swaps_his_salt_for_sodium/n7xylj4/
+
+Blueshirt38 2016-09-25
+
+"Wow, checking that sub out really made me feel so much worse about AI. Some of them use it all day, for everything. Some peoples' jobs are just to input stuff into ChatGPT and put the output somewhere else. What a fucking joke."
