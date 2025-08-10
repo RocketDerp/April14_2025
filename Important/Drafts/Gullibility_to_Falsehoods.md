@@ -38,6 +38,11 @@ https://en.wikipedia.org/wiki/ELIZA_effect
 
 &nbsp;
 
+================================
+-------------------------------------
+
+&nbsp;
+
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lw2e3ryp3c2d     
 https://autistics.life/@RoundSparrow/115004621486984402     
 
