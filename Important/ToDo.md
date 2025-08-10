@@ -226,3 +226,10 @@ https://youtu.be/yAV5idvaqCA?t=720
 &nbsp;
 
 https://old.reddit.com/r/politics/comments/1mmmsxt/trump_demands_homeless_people_move_out_of/
+
+&nbsp;
+
+Mass mind influence, film, subtext of language       
+https://www.youtube.com/watch?v=Uh3Crmvb8xM
+
+
