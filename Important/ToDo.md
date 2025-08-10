@@ -232,4 +232,8 @@ https://old.reddit.com/r/politics/comments/1mmmsxt/trump_demands_homeless_people
 Mass mind influence, film, subtext of language       
 https://www.youtube.com/watch?v=Uh3Crmvb8xM
 
+&nbsp;
+
+Media ecology, parenting, loud concert for baby     
+https://old.reddit.com/r/Fauxmoi/comments/1mmpdy6/maluma_stops_his_concert_in_mexico_city_to_scold/
 
