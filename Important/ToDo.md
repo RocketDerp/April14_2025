@@ -222,3 +222,7 @@ https://old.reddit.com/r/politics/comments/1mmgavh/trump_is_destroying_the_futur
 James Joyce of Ireland's Finnegans wake is LSD drug - Marshall McLuhan      
 LSD from ChatGPT 5 /\    
 https://youtu.be/yAV5idvaqCA?t=720
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmmsxt/trump_demands_homeless_people_move_out_of/
