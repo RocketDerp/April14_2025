@@ -68,3 +68,4 @@ Make these verses known by everyone of every religion (or atheist) age 12 to 120
 Matthew 6:5 - Trump posing with Bible   
 "1 John 3:17" - Wealth hoarding    
 "1 John 4:20" - "I love Jesus" is wrong, hate of anyone is wrong.   
+Proverbs 14:31  - Whoever oppresses a poor man insults his Maker, but he who is generous to the needy honors him.   
