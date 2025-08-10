@@ -51,3 +51,12 @@ Diary Of RoundSparrow. Sunday. Bible Day. Levant Bible Day.
 Here in United States of America, people will trust and believe Donald Trump as long as they can LOL LMAO on their social machines at South Park. You can be a 79 year old man with terrible information skills and confusion over facts and accuracy, and as long as people have South Park they accept the situation.
 
 People all around me in the USA are so gullible and drunk on humor memes and South Park comedy that they don't see the massive errors, mistakes, comprehension problems of RFK Jr and Donald Trump and other people leading the United States of America. People with the worst possible skills are worshiped as accurate, factual, correct sources of information. USA is a very very very very very very sick nation in the head to be so gullible. It is extremely alarming, extremely disturbing in August 2025 that people trust and believe Donald Trump and RFK Jr.
+
+&nbsp;
+
+People in USA are so gullible to computer screens, TV screens, people leading them with information. People trust Donald Trump is accurate and comprehends facts and figures. We The People are entirely broken in August 2025 to think Donald Trump is a source of accurate and correct information.
+
+People are attracted to fiction and falsehoods. 
+
+https://www.youtube.com/watch?v=k_JnCWT-_O8
+
