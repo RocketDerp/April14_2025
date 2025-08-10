@@ -820,3 +820,14 @@ Every Physics forum now is full of crackpots that talk to GPT and think they are
 People without education and self awareness don't understand that they are built for engagement and they literally cannot know what is true or false so it's extremely dangerous to take it at face value. And many people use it as therapists or replacements for actual professional advice. Scary as fuck."
 
 * :::=== RoundSparrow_Commentary : the society role model is 79 year old Donald Trump who believes anything he hears off Fox News HDTV and Twitter messages from Russia. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mmhdat/after_using_chatgpt_man_swaps_his_salt_for_sodium/n7xsoip/
+
+whoeve 2016-08-06
+
+"The fact that so many people hated the transition from chatGPT 4 to 5, when it stopped incessantly glazing everyone, really just shows how pathetic so many humans are."
+
+* :::=== RoundSparrow_Commentary : .. Donald Trump mocking / insulting / mockery already showed that since year 2015. ===:::
+
