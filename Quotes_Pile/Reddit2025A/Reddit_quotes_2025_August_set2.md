@@ -643,3 +643,60 @@ Spud70757 2015-03-29
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mllw3v/trump_drops_ivf_promise_preferring_to_blame_women/n7rdxkr/
+
+phoenix25 2011-09-27
+
+"10 years from now, people won’t believe you if you said the US used to be an education and research powerhouse"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mllw3v/trump_drops_ivf_promise_preferring_to_blame_women/n7sigil/
+
+donkeyrocket 2010-04-08
+
+"COVID and the anti-vax movement really kicked it into overdrive. Add in Trump who normalized on the national stage claiming anything you don't agree with as "fake" and emboldening anti-intellectuals, racists, bigots, sexists, etc. that they should stand firm and loudly proclaim their beliefs."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mllw3v/trump_drops_ivf_promise_preferring_to_blame_women/n7sj2dc/
+
+sqrtsqr 2023-09-12
+
+"Your wife's friend is a liar, she knows she's lying, and she's actively attempting to make Trump more endearing to both you and your wife. She isn't a friend, she is a propagandist.
+
+Stop letting her be in your presence. Your wife wants to hang out with her, that's sad, and you can't tell her not to, but you don't have to fucking participate in it."
+
+* :::=== RoundSparrow_Commentary : Reddit is full of no-identity liars and manipulators for Russia, Israel, Palestine, Iran, Trump, Musk, etc. Why doesn't this Reddit user hold social media peer users to the same standards as a real life family friend / human person? That's the meaning of throwing the human baby out with the toxic bathwater. "Stop letting her be in your presence. Your wife wants to hang out with her" posted while hanging out on Reddit full of fiction content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mllw3v/trump_drops_ivf_promise_preferring_to_blame_women/n7rl3n4/
+
+Leftblankthistime 2012-11-08
+
+"This guy- ya just gotta love him. He fooled millions of people into thinking when he’s telling the truth that he’s “just joking” and that when he’s lying he’s telling the literal truth. He opens his mouth and the media trips over themselves to put a microphone in front of it. He runs get rich quick grift after grift selling steaks, sneakers, bibles, cellphones, crypto and people run at him with fists full of money. All after bankrupting his own businesses, getting arrested and finally convicted on multiple counts of fraud.
+
+In what universe if anyone actually knew a person like this in their life would they associate themselves with them? He’s a walking trash bag of a human being. If he weren’t born into his privilege he’d have nothing at all."
+
+* :::=== RoundSparrow_Commentary : *just joking* mind exploit, the humor absurd surreal Tony Clifton comedy mind-fuck. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mllw3v/trump_drops_ivf_promise_preferring_to_blame_women/n7ropdj/
+
+gcwardii 2018-03-08
+
+"It’s especially astounding because he didn’t just appear on the scene in 2015. People knew what he was like for *decades*. I see so many comments here when people see a “resurfaced clip” from some 1990s talk show about “why hasn’t this been shown before?” The shit’s out there and it was not hiding."
+
+* :::=== RoundSparrow_Commentary : Russia mind-fucked *We The People, the population* since March 2013. Trump was Trump, he didn't change, what changed was people being attracted to self-harm of USA. Russia won, Surkov won hearts and minds to self-harm USA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mllw3v/trump_drops_ivf_promise_preferring_to_blame_women/n7rnnoq/
+
+President_Chump\_ 2020-03-30
+
+"remember when this con artist fuck called himself the "father of IVF"? he could say he invented electricity and his cult of pedo protectors would find a way to agree. everyday he goes on is proof there is no God, or at least, not a good one"
+
+* :::=== RoundSparrow_Commentary : Trump is proof there is a god, the god we create with our media addiction to monomyth fiction storytelling, the Surkovian monomyth meme patterns out of Russian Internet Research Agency since March 2013. :::===
