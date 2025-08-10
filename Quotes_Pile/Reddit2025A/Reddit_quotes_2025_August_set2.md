@@ -631,5 +631,15 @@ Daffodil236 2024-05-03
 
 "Why are people cheering and laughing at what he’s saying? That’s why we’re where we are today. And why did David Letterman even have that pig on his show? Nobody stands up to this guy and I just don’t get it."
 
-* :::=== RoundSparrow_Commentary :  It is a 1992 audience. 7 years before that Donald Trump public media apperance, a book was published in 1985. “It is not that television is entertaining but that it has made entertainment itself the natural format for the representation of all experience. […] The problem is not that television presents us with entertaining subject matter but that all subject matter is presented as entertaining. (87)” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985. ===:::
+* :::=== RoundSparrow_Commentary :  It is a 1992 audience. 7 years before that Donald Trump public media apperance, a book was published in 1985. “It is not that television is entertaining but that it has made entertainment itself the natural format for the representation of all experience. … The problem is not that television presents us with entertaining subject matter but that all subject matter is presented as entertaining.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mluk8s/oc_an_80_yearold_woman_being_arrested_on/n7t8bqz/
+
+Spud70757 2015-03-29
+
+"We've lost the plot as a fucking species at this point."
+
+&nbsp;
 
