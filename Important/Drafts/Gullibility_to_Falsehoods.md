@@ -31,3 +31,18 @@ November 30, 2022 is when ChatGPT was released to the public. Since 1985, I had 
 I was alarmed when people trusted ChatGPT in year 2023. But really these past 18 months, since January 2024 - how all the people in the United States of America are not screaming in alarm that trusting Donald Trump is a huge mistake. The gullibility is horrific in USA August 2025. It was terrible and awful in January 2024 and all year 2024, but year 2025 (this year) the gullible people in USA is unlike any in all world history. Trusting RFK Jr and Donald Trump is a massive sign of problems. Trusting ChatGPT on a computer screen in year 2023 is one thing, but believing Donald Trump is accurate and factual in August 2025 is a sickness I can't even describe! Every person in USA is suffering from extreme gullibility, how can they trust Donald Trump? That's the worst person to trust in all human history, he gets facts and information incorrect every hour of every day!
 
 https://en.wikipedia.org/wiki/ELIZA_effect
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lw2e3ryp3c2d     
+https://autistics.life/@RoundSparrow/115004621486984402     
+
+Diary Of RoundSparrow. Sunday. Bible Day. Levant Bible Day.
+
+Here in United States of America, people will trust and believe Donald Trump as long as they can LOL LMAO on their social machines at South Park. You can be a 79 year old man with terrible information skills and confusion over facts and accuracy, and as long as people have South Park they accept the situation.
+
+People all around me in the USA are so gullible and drunk on humor memes and South Park comedy that they don't see the massive errors, mistakes, comprehension problems of RFK Jr and Donald Trump and other people leading the United States of America. People with the worst possible skills are worshiped as accurate, factual, correct sources of information. USA is a very very very very very very sick nation in the head to be so gullible. It is extremely alarming, extremely disturbing in August 2025 that people trust and believe Donald Trump and RFK Jr.
