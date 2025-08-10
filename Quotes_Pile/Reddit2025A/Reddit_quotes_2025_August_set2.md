@@ -737,3 +737,10 @@ DrBeavernipples 2013-04-19
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mm4qt5/truly_pathetic_display/n7vavbo/
+
+iftlatlw 2024-01-30
+
+"Even Epstein is a distraction. The real story is economic destruction. Stay focused."
+
+* :::=== RoundSparrow_Commentary : The real story of anti-real (war against Reality) is fiction, hate, dehumaniation. Health care, food supply, not just economics. [Donald Trump Junior promoted Epstein July 2023](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html) in the lead-up to 2024 election, QAnon fiction storytelling promoted Epstein, wrap anything in Epstein topic and MAGA crowd and Reddit + Bluesky crowd goes flocking. ["The Epstein Scandal Is Giving QAnon Everything Pizzagate Couldn’t" - **July 10, 2019**](https://www.vice.com/en/article/the-epstein-scandal-is-giving-qanon-everything-pizzagate-couldnt/) ===:::
