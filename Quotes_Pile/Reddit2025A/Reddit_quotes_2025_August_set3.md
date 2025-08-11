@@ -333,3 +333,81 @@ Why is there absolutely no view of the bigger picture of the reality that we are
 
 * :::=== RoundSparrow_Commentary : These are the reasons I have created this GitHub. To go beyond short messages to show it is possible to connect the dots to James Joyce's Finnegans Wake publication **year 1924 onward**. Wake *the Finnegans*, Woke to Media Ecology, Ireland Dublin metaphors of **Woke** to clergy. "Why is there absolutely no view of the bigger picture of the reality"??? Romans 11:32 Bible verse WOKE WAKE of James Joyce's books. :::===
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83hrfe/
+
+ArchibaldCamambertII 2025-01-30 (new this year)
+
+"Because there is no politics in this country, there is only the televised spectacle of politics-as-kayfabe.
+
+Part of “doing politics” is providing members of a political party a political education, and for especially radical parties, an education in political economy.
+
+When is the last you went to a party meeting? Do you know anyone who goes to party meetings?
+
+We do not do politics in this country. The major parties are fronts for corporate cartels (like the EU itself, started as a coal and steel cartel propped up by the American military machine after WWII) specifically designed to diffuse democratic energy from below and obscure the reality of the world-the state-the economy with fetishized religious narratives and scapegoats.
+
+Americans believe they are doing “politics” when they “vote with their dollars,” because we are a society of hyper-individualized, hyper-atomized people who relate to each other as strangers and potential threats and so require an alienating transactional social ritual to mediate conflict between and coordinate activity among people.
+
+“Liberty” here is tied to property, and is individually maximal in its assertion of freedoms with absolutely no conception of a social embeddedness of which we are a part, and to which we belong.
+
+This is the ideology of the slaver, and explains how they could say with a straight face that slavery equals liberty, because to them liberty equals property. This country will not change until we overturn this paradigm and invoke a new socially embedded politics."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83nu33/
+
+Omnizoom 2017-01-30
+
+"Well to go back to “traditional” roots would require the job market to start paying these married men way more to support their families
+
+Cost of living would have to plummet for society to manage and support the old nuclear model because compared to 50 years ago houses are up like 1000% and cars are up 500% and groceries are up 200-300% depending on the item but I think wages are only up 150% comparatively
+
+No I did not double check and look up the exact numbers, I don’t think the exact number is relevant and the magnitudes are close enough"
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83rn0o/
+
+Softestwebsiteintown 2024-03-26
+
+"My sister is a teacher in the local school district and also has kids who go to local schools. We were talking about how silly it is that one day out of each week we have a different pickup time for our kids so the administration can have a weekly meeting, which is apparently too expensive and/or cumbersome to do before or after normal school hours once a week.
+
+My dad, always eager to chime in about politics he doesn’t understand, started railing against the teachers union for that. My sister, who has a significantly vested interest in all things teachers union since she is literally a part of it, quickly pointed out that the union is very much in favor of consistent off times for children because it’s better for the kids when no one is confused about what time they leave. Dad, undeterred, continued his claim that the teachers union is “too powerful” despite us literally having a discussion about a think happening that they were against.
+
+Forget about the *bigger* picture, you can’t even get these people to talk about the actual picture at all."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83lujd/
+
+retroguy02 2017-05-13
+
+"They don't think. Arrogant stupidity has been normalized as a virtue in modern American culture thanks to decades of brainwashing with anti-intellectual and exceptionalist propaganda."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n839f1q/
+
+Dingo8MyGayby 2019-03-21
+
+"The trad living influencers are just upper middle class rich or straight-up trust fund babies spouting that nonsense to the plebs to convince them it’s a suitable lifestyle"
+
+* :::=== RoundSparrow_Commentary : Twitter-length tweet thinking. Go deeper. Cite something, link something, mention an author or at least drop a poem / song. They are **punching down** and **bragging** about their lifestyle to people who have less money and status symbols than they do. That's Donald Trump's messages, that's the Rupert Murdoch message, punching down with bling bling lifestyle. How manhy people can be number 1 or in the top 10? Ten, that's the answer. Only ten can be at the top when that's your focus and concern. You win, competitition, [peoples living in competition](https://www.youtube.com/watch?v=edwk-8KJ1Js). Winner Takes All sports mentality politics against your neighbors in Mexico is not how democracy equality works. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83lv8x/
+
+HomeGrownCoffee 2020-02-29 (leap day!)
+
+"Someone much more eloquent than me summed it up nicely. These "Trad Wife" influencers are actually Trophy Wifes.
+
+They aren't dealing with sick kids, doing laundry, or scrubbing grout. They are baking sourdough bread in an immaculate kitchen. They are playing dress up with toddlers."
+
+* :::=== RoundSparrow_Commentary : They are selling fiction. Fiction outsells nonfiction. Trickle down content to the poors below who have no education on media ecology and media production. It's social content. It can't scale easily to 8 billion people in the world, it lacks compassion for out-groups. It's about selling images, selling media of bling life, like Donald Trump does to MAGA media consumers. ===:::
+
