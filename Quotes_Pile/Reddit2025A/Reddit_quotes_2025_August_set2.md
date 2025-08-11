@@ -1165,3 +1165,43 @@ I'm sorry this happened to you, OP, this is bullshit."
 https://old.reddit.com/r/ExplainTheJoke/comments/1mmut5n/i_dont_get_it/n80hrkq/
 
 "But if people didn't ask reddit easily googleable answers then where would Google get all of the answers from when you Google it"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mmsmcz/sam_altman_says_gen_z_are_the_luckiest_kids_in/n7zxtzp/
+
+DualActiveBridgeLLC 2023-09-21
+
+"Sam Altman and the rest of the tech con artist have crushed the idea of techno-optimism. I used to get excited learning about how our future would be improved by tech, now every invention I see my first thought is "I wonder how this is going to make my families life worse". And every time they come through."
+
+* :::=== RoundSparrow_Commentary : [Neil Postman's 1992 book is all about developing that self-awareness among the population](https://www.goodreads.com/work/quotes/1511641-technopoly-the-surrender-of-culture-to-technology). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mmsmcz/sam_altman_says_gen_z_are_the_luckiest_kids_in/n8096hy/
+
+UrineArtist 2017-09-08
+
+"No housing, no jobs, the worst geopolitical instability for decades, an ascendant far right and run away climate change, but software exists that can write a small python script for you.
+
+We've never had it so good."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mmsmcz/sam_altman_says_gen_z_are_the_luckiest_kids_in/n7zzvaa/
+
+Assplay_Aficionado 2025-02-08
+
+"I feel like when we look back at this in 50 years, Sam Altman will have books written about how he pulled off the greatest financial scam/con in American history, bigger than Madoff, etc.
+
+He'll make lizard man Mark Zuckerberg look like a saint in comparison.
+
+At least the robber barons created things."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mmtg8c/ukraine_will_not_let_russia_deceive_america/n80sisf/
+
+Harbournessrage 2017-04-14
+
+"This is it and i'm tired of people saying that the reason for this loop is Trump's stupidity or bad mental health or spinelessness. The guy does it consciously and fully aware of what he is doing. His every action is aligning with what Russia wants. He is an evil inhuman creature, just like Putin."
