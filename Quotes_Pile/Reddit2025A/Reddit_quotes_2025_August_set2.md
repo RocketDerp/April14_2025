@@ -1230,6 +1230,10 @@ TheModWhoShaggedMe 2025-04-10 (new this year)
 
 &nbsp;
 
+https://old.reddit.com/r/therewasanattempt/comments/1mmve83/to_shut_all_voices_speaking_up_about_gaza_genocide/n80j8wi/
+
+hamletswords 2012-07-14
+
 "If Isreal's goal is to really force people to hate Jews, they are doing a good job.
 
 I've never had a problem with Jewish people but the fact that so many are defending this kind of shit is disgusting.
