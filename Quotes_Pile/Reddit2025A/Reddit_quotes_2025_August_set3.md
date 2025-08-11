@@ -914,3 +914,13 @@ shannonator96 2014-10-06
 "This sentiment right here is why the Americans aren’t resisting. You’re all still in denial, thinking that this will end once his term is up."
 
 * ::=== RoundSparrow_Commentary : Denial abounds. This is the SECOND term for Donald Trump. People did not address the Russian information warfare durng Biden. Living in denial of [Putin's mind-fucking. Which is STILL ONGOING](https://www.nbcnews.com/news/investigations/russia-china-cuba-amplified-falsehoods-recent-hurricanes-us-official-s-rcna177672)... and now joined in by many nations who hate USA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n851hjm/
+
+raistan77 2020-06-30
+
+"He's already told Bondi to start prep work to seize control of NYPD and "clean up" New York
+
+Martial law is here"
