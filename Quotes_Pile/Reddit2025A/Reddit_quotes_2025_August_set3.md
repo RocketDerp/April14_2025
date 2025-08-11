@@ -208,4 +208,14 @@ Turns out the opposite is true. People just gravitate towards the echo chambers 
 
 It's starting to look like everything first has to burn to the ground before enough people start waking up. I guess that's the best we can hope for now. Let it all burn down fast, and as painless as possible. I'm SO ready for the ressurection."
 
-* :::=== RoundSparrow_Commentary : Media ecology is not opational teaching to a world of 8 billion people connected via telephone and Internet. This problem and **need for self-awareness and education**  was all called out by Marshall McLuhan at University of Toronto and Neil Postman at New York University in the 1950's, 1960's, 1970's, 1980's, 1990's... And starting in March 2013, Surkov students and Cambridge Analytica started an infomation warfare that exploited the lack of education and teaching of media ecology. :::===
+* :::=== RoundSparrow_Commentary : Media ecology is not opational teaching to a world of 8 billion people connected via telephone and Internet. This problem and **need for self-awareness and education**  was all called out by Marshall McLuhan at University of Toronto and Neil Postman at New York University in the [1950's](https://www.goodreads.com/work/quotes/1190489-the-mechanical-bride-folklore-of-industrial-man), 1960's, 1970's, 1980's, 1990's... And starting in March 2013, [Surkov students and Cambridge Analytica started an infomation war](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) that exploited the lack of education and teaching of media ecology. The [Pentagon did not comprehend the Finnegans Wake depth of this this media war](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village) in year 2013 and Russia won, Surkov won, Putin won. :::===
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n82ny3u/
+
+pokedmund 2016-12-27
+
+"Social media (and importantly the delay and lack of regulation on it) has been such a shit storm globally"
+
+* :::=== RoundSparrow_Commentary : No author cited, no article cited, no quote provided. This is exactly what social media Twitter-length reacton comments have done. Huge bold claims without any citations or expanded thinking on the topic. Tweet-thinking. It will scroll off the screen today and be rpeated tomorrow tree after tree, no forest fire solutions. It is a short tiny message declaring that we all have cancer spreading (MAGA was first to catch cancer on the front line of the information war) and offering no advice to call the hospital or ambulance and actually DEFEND against the spreading cancer / fires burning down people's lives. Just a comment that things suck with [no concern of defense against Russian information war against reality](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) that started in March 2013. Just commenting how many dead bodies there are from the spreading cancer and fire and no concern to actually rescue people now and in the future (prevention). ===:::
