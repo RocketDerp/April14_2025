@@ -273,3 +273,16 @@ Massive-Ride204 2025-04-01 (this year)
 "I knew we were in trouble when we started seeing news stories about no brainers like vaccination and the housewife "researcher" who barely graduated high school was given the same airtime and taken as seriously and the medical researcher"
 
 * :::=== RoundSparrow_Commentary :  “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985** ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n82ov8d/
+
+FIakBeard 2020-03-29
+
+"You could go one level up and just say that it all stems from capital interests. Serving the interests of the wealthy comes in many forms and evolves over different timelines, but at the end of the day the accumulation of wealth is what reigns supreme.
+
+I used to think that climate change was really going to be terrible for my grandkids, but we out here speedrunning it. Healthcare is a parody of itself and ironically they are probably going to get those "death panels" they were always crying about. Talking about sending homeless and kids with adhd and bipolar to camps. Perfectly usable NASA missions and NHS research getting shut down just because. Is it already too late? Is it too soon to walk to the Canada border and claim refugee status?"
+
+* :::=== RoundSparrow_Commentary : Look at Saudi Arabia Mecca fiction, Russia Kremlin fiction. You can go one level up and say ficiton addiction is the crisis globally. Look at Malala's October 8, 2013 book about fiction: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban ... Quran tells fiction story of Heaven awaiting after death. Bible tells science fiction story of Heaven awaiting after death, trash the Earth, it is all temporary. "Quant à moi, je ne vois pas dans la religion le mystère de l'incarnation, mais le mystère de l'ordre social; elle rattache au ciel une idée d'égalité qui empêche que le riche ne soit massacré par le pauvre." - **March 4, 1806**; Napoléon Bonaparte. ===:::
