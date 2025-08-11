@@ -1472,5 +1472,17 @@ EitherChannel4874 2023-08-18
 
 America stood by and watched for too long."
 
-* ::=== RoundSparrow_Commentary : America didn't just stand by, We The People touched their intimate smartphones and iPad devices and react-commented at Donald Trump for over 10 years, every day, all day, on social machines. Reactions like: Did you just wee what Tony Clifton did to that audience member? Did you listen to what Tony Clifton said about smoking and then lit up on stage? ===:::
+* ::=== RoundSparrow_Commentary : America didn't just stand by, We The People touched their intimate smartphones and iPad devices and react-commented at Donald Trump for over 10 years, every day, all day, on social machines. Twitter-style meme images, short little comments. Audience reactions commenting like: [Did you just wee what Tony Clifton did to that audience member? Did you listen to what Tony Clifton said about smoking and then lit up on stage?](https://www.youtube.com/watch?v=1ePe7Q_zH1c) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86bo46/
+
+yIdontunderstand  2017-06-20
+
+"Exactly. Biden lost the second civil war without firing a shot.
+
+And just like him most Americans didn't realise they had lost the country either.
+
+No constitution, no rule of law, no USA."
 
