@@ -662,3 +662,20 @@ ozziezombie 2011-11-22
 
 * :::=== RoundSparrow_Commentary : Yes. But informaiton warfare from Surkov students / IRA / Cambridge Analytica has convinced gun stroking people that fellow North Americans are the enmy, not Putin. In year 2025, people in USA are hating upon North Americans in Canada!  Canada! Wake the fuck up USA! Russia WON the March 2013 onward informaiton war, it is time for salvage / retreet and learning and study of informaiton warfare / cult deprogamming! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84hgkr/
+
+pichuguy27 2015-08-21
+
+"The marines subreddit banned all post of the number to call when you are given unconstitutional orders. That shows where we are."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84nu30/
+
+descendingangel87 2016-11-29
+
+"The US constitution is like the bible, people preach the shit out of it, but few have actually read it and it’s mostly cherry picked which parts they actually follow."
+
+* :::=== RoundSparrow_Commentary : If you can't comprehend and understand a 2,000 year old science fiction story form the Levant thinking, what chance do you have with the Great Seal of the United States of America 1776 and The Constitution? But social media users give one-line Twitter-length reactions to the situation and are not teaching and educating Bible verse "1 John 4:20" to the face of MAGA on the front-page of Bluesky and Reddit every day until people can recite that verse. [Bible literacy can be taught on social media, the only thing lacking is people getting on the *same page*](../../Important/USA_Bible_media_literacy.md) ===:::
