@@ -1145,5 +1145,28 @@ ArseneGroup 2022-11-21
 
 I do wonder what the goal is with all this - a misguided attempt at boosting left-wing sentiments or covert right-wing propaganda?"
 
-* ::=== RoundSparrow_Commentary : The current drive of Putins information warfare is unreality, war against reality. fiction addiction. ===:::
+* ::=== RoundSparrow_Commentary : The current drive of [Putin's information warfare is unreality](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/), war against reality. Fiction addiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mnd9ji/sudden_corruption_clarity/n84wazz/
+
+gigashadowwolf 2010-09-03
+
+"You just described this entire sub for the past year.
+
+More than half the political stuff posted here is factually wrong or at least extremely misleading.
+
+I am a liberal, I've voted Democrat in every presidential election I have been an adult for except 2004 when I did a write in because I didn't like Bush or Kerry. But if I even try to point out how these posts are disingenuous I get called a MAGAt and downvoted to oblivion. This sub takes circle jerking to a whole new level of extreme."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mnd9ji/sudden_corruption_clarity/n84wzli/
+
+cat_prophecy 2013-01-17
+
+"But fake news and "alterative facts" are okay when we do it. It's only bad when they do it!
+
+People's sense of irony is burned out and dead.
+
+It's like people who talk shit about everyone around them, and are surprised when they find out people talk shit about them."
