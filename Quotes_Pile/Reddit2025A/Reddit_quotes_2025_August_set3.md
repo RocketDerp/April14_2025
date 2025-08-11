@@ -571,7 +571,7 @@ It's weird when nowhere feels like home.
 
 Edit: a word"
 
-* :::=== RoundSparrow_Commentary : Yes. Even when Donald Trump is gone, the **aftermath of Cambridge Analytica and the IRA** will still be in the minds of meme consumers, the social machine users. ===:::
+* :::=== RoundSparrow_Commentary : Yes. Even when Donald Trump is gone, the **aftermath of Cambridge Analytica and the IRA** will still be in the minds of meme consumers, the social machine users. ChatGPT / GrokAI / large language mdoels are all trained on IRA and CA mind-fuck meme patterns. ===:::
 
 &nbsp;
 
@@ -580,3 +580,32 @@ https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_
 Weztinlaar 2019-10-06
 
 "Non-American but deployed overseas working with American military in the Middle East during J6... Had to tell a Master Sgt off for repeatedly telling his subordinates that 'its not really a coup it only lasted a few hours' and 'the right doesn't do coups thats a left wing thing'. Eventually the general in charge of the base had to put out a statement saying no more talk of J6 because there was enough support for J6 within the US military that it was becoming a really heated argument about whether J6 was good or bad."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84jz6b/
+
+jkman61494
+
+"On the flip side people need consider if Putin and Bibi are using Epstein to HELP Trump and their initiatives because Americans are fixated only on Epstein
+
+Take a look even in the last 3 weeks what’s going on in the 3 nations
+
+— Trump asserting more control over cities
+
+— Tx, Mo, In redoing districts
+
+— ending mRNA investment
+
+— Israel formally intends to take over all of Gaza
+
+— Russia moving forward on wanting “peace” by obtaining 1/3 of Ukraine.
+
+Meanwhile most of Reddit is just saying ITS A COVER FOR EPSTEIN!!!!!!
+
+Right now. They basically can do whatever they want and the only response they get is EPSTEIN! and not focusing on the fact millions will die unnecessarily due to getting rid of mRNA developments."
+
+* :::=== RoundSparrow_Commentary : Project 2025 manifesto of over 900 pages, is not a distraction from Epstein. QAnon promoted Pizzagate and Epstein. Project 2025 is happening, the plan was presented, the evidence of the actions / execution of that plan abound. [In 2025, Donald J. Trump signed 183 Executive orders (from EO 14147 through EO 14329)](https://www.federalregister.gov/presidential-documents/executive-orders/donald-trump/2025) that are not a distraction from the Epstein List. Addiction to QAnon / Pizzagate / Fiction is the crisis of USA society. ===:::
+
