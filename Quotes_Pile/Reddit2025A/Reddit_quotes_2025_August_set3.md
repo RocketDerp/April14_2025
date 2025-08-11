@@ -112,3 +112,44 @@ Eskarion 2016-06-22
 
 * :::=== RoundSparrow_Commentary : We are dealing with widespread symptoms of information overload, that is how I predicted the Arab Spring in December 2009 and participated online all 2010 and traveled to North Africa December 3, 2010 before it became world famous revolution a couple weeks later. The Internet and smartphone (iPhone introduced middle of year 2007) has changed everything about society. But it originated in USA, social media was created in USA, ASCII was in USA before Unicode. 8-bit computers could not easily process beyond the Latin alphabet, Japan was the big adopter of non-ASCII, but China and other non-Latin characters were not trivial to use social media systems such as CompuServe or BBS systems in 1980's (I created and sold BBS systems in 1985). RAM and fixed storage was so incredibly limited and expensive in the 1980's that double-byte character sets were difficult, and the resolution of computer screens so crude that complex Chinese languages were an not yet common. When I worked for SAP in the early 1990's, they were selling total business solutions connecting Asian factories to European and American companies, overseas factory to design / marketing / management centers. Unicode wasn't introduced until 1991 as a standard. SAP R/3 on newly introduced Windows NT (July 27, 1993) you could see the raw state of multiple-language. Even today in August 2025, social media apps like Bluesky and Mastodon don't deal with formatting of Arabic and Unicode the same way on hashtags, left side alignment, right-side alignment, etc. Back when I worked for SAP on R/3 and deployment / training centers on the newly emerging Windows NT 3.5 (first version)... you could see these problems. Copy/paste between apps was not easy once you mix Unicode languages. Ok, enough of the personal experience on this - the CORE message I want to assert: Teach people media ecology is not optional. The entire world of over 8 billion people is communicating together, we need to teach the history of media systems and how technical aspects like ASCII character sets vs. Unicode influence cultures. How Reddit used to have no image or video hosting and the social change that reaction-images of film scenes and clips changes behavior vs. long-form Unicode messages. Everything is media ecology. Tower of Babel metaphor abounds! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n82wix4/
+
+nemlocke 2023-10-06
+
+"The qualities that help people get elected to leadership are rarely the qualities that make good leaders.
+
+People elect leaders that project confidence and assert simple answers to complex problems.
+
+Good leaders will admit that complex problems will require difficult and nuanced solutions. However, people see this as weakness... becuase they're stupid."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83hd84/
+
+lumpytuna 2012-03-16
+
+"Technically, around 30% of any population do seem to be too 'stupid' for democracy. They are easily swayed by fear and emotion, so are easy to propagandise into voting against their own interests.
+
+I'm using the word stupid because you did. But it is not actually all related to IQ at all.
+
+This is how the Conservative and right wing parties always manage to stay close to, or in, power all over the world, despite not actually offering their voters policy that improves their lives. They can use propaganda, single issues, and culture wars to reliably capture that 30%.
+
+Once you have that 30%, all you need to do is work on disenfranchisement, gerrymandering, voter apathy and possibly even a bit of election interference/fraud to make sure it's enough to gain power."
+
+* :::=== RoundSparrow_Commentary : A very simple idea. Simplistic. Germany year 1944 vs. Germany year 1994 is radically differnt. the SYSTEM ITSELF of Nazi Germany is not the same as post Berlin Wall 1994 Germany (I worked for SAP and traveled to Walldorf, Germany in the early 1990's). The Reddit comment idea of "Technically, around 30% of any population" makes no accountiing for 1993 Japan vs. 1943 Japan. Germany in 1943 was not liberal or left, Japan in 1943 was not liberal or left, Islamic terrorists are not liberal or left, Palestine is not liberal or left, Israel in year 2024 is not liberal or left. People want to act like it is "Technically, around 30% of any population" on a constant basis in all places. Iran in year 2024 is not liberal or left, does not have liberael democracy. Iran in 1975... People need to WAKE UP from this simplsitic thinking of in-gorup vs. out-group Levant intepretations of gentile / nonbeliever / infidel. James Joyce of Ireland's 1924 onward publication of "Finnegans Wake" is about being *woke* to these topics, way before "Woke" became a MAGA talking point in the past 12 years... [since year 2014](https://www.independent.co.uk/news/uk/home-news/woke-meaning-word-history-b1790787.html)... which is right after the Russian Internet Research Agency ramped up since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83c349/
+
+"The same in the Netherlands. Serious housing crisis (and I mean serious!), prices of every day groceries and costs of health care are rising and some horrid politicians (I won't name names) tweet on X about 'it's all the fault of the immigrants' and 'they get homes while 'we' don't' and other racist, bigoted crap.
+
+No sir, it's because of the policies of three decades: privatization of housing, health care and public transportation enabled hedge funds, (foreign) investors and greedy corporations to get their grubby little hands on public funds. Lucrative tax loopholes enabled foreign multinationals to use my country as their own private tax paradise. Without paying a dime, of course. That's left to the citizens.
+
+And to divert the attention from their own failures and ineptitude, they use the age-old scapegoat. It used to be jews or gypsies, now it's moslems. A small (2-5%) percentage, easily identifiable portion of the population to blame. They treat politics as a reality show and a lot of people eat it up because it is served as bite sized one-liners.
+
+Hence the rise of right wing freaks."
+
+* :::=== RoundSparrow_Commentary : This message needs to go a step further on that final sentence: "Hence the rise of right wing freaks" - do people think land-lords, Donald Trump real estate king, are left-wing? The rise of the very idea of expensive rent culture and very few people owning everything like Putin does in Russia and Trump wants in USA is a right-wing value. The very idea of dividing things left vs. right, conservative vs liberal, is a one-bit TWO and ONLY TWO thinking system. The world doesn't divide this way, it is a grossly simplistic view. You are better off viewing fiction vs. nonfiction than left-wing vs. right-wing. Fiction can have 500 stories, truth and comprehension can have 1. You can make up **5,000 fiction stories** of how huamns interpret the world as Russia did with Cambrdige Analytica: ["Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа. Затем.. положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому."](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). Fiction vs. nonfiction is not a one-bit binary logic. Poetry and dream mythology [rock music lyrics](https://www.youtube.com/watch?v=V1LhC1zGouc) and the Quran of Mohammad (retcon of Jesus stories / dreams metaphors) are not simplistic, metaphors are complex and rich, not one-bit thinking of left-wing vs. right-wing, conservative vs. liberal bi-polar thinking of a society. ===:::
