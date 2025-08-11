@@ -528,3 +528,24 @@ Queasy_Student-\_- 2021-07-04 (Independence Day)
 "They were lapping up the illusion of the Apprentice. Trump is just an actor playing the role of a successful businessman. Don't they know that so-called reality TV is a construct far from reality?"
 
 * :::=== RoundSparrow_Commentary : Russia won, Putin won, Surkov won. NATO lost. USA lost. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84h291/
+
+LonelyChannel3819 2021-09-17
+
+"For sure. I just hate the fact that my fellow Americans asked for this. I think more often than not I’ll hear people blame Trump but he was selected, conjured if you will by the people. He’s not the disease, just a symptom. Democracy died the day we re-elected him."
+
+* :::=== RoundSparrow_Commentary : Symptom of loss of an Internet information war launched in March 2013 by Russia. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84jk7z/
+
+chrispg26 2019-03-01
+
+"Democracy died the day an insurrectionist was allowed to run for president."
+
+* :::=== RoundSparrow_Commentary : Democracy revealed how dead it was in January 2020 when a virus had been in the news about Wuhan, China and was arriving in North America... and **NOT A SOUL** on social media could repeat Stephen Colbert's **LESS THAN A YEAR EARLIER, ON STAR WARS THE FORCE DAY, 2019**.  I can not repeat enough. May the 4th 2019 comes BEFORE January 2020 when the COVID-19 virus reached North America attention. That is LESS THAN A FULL YEAR, May 2019 to January 2020. And NOBODY can SUSTAIN REPEATING ON THE INTERNET POSTINGS AND COMMENTS this Star Wars Day YouTube video May 4, 2019: https://www.youtube.com/watch?v=Ju7Yt0LMiVk ... "1,082,498 views ... May 4, 2019 ... Anti-vaxxers aren't just morons. Some are also Russian trolls." :::===
+  
