@@ -709,5 +709,18 @@ NizeDine 2015-12-24 (Christmas Eve)
 "It's so no protesters can enter... He's about to do some dark dark shit."
 
 
-* :::=== RoundSparrow_Commentary : The waves of the economic trade wars and attacking Canada and Greenland are still ready to come back and hit upon the shores of North America. Donald Trump gave a fuck-you middle finger signal to goodness itself (Canadians) on the world stage and that signal hasn't been reversed or announced as a mistake. Christmas Holiday Season 2025 is approaching and School Season is ramping... and a nation of 0.34 billion people in a world of over 8 billion people are going to get waves of counter-USA. Dometic USA people will start to notice that they have been bamboozled with the economy and feel hopeless that they can't do anything. Homeless has already been under attack, the vice is closing in on USA. Donald Trump already lit the fuse of economic warfare, the explosions haven't started yet. "do some dark dark shit" has been in your face all year 2025, not in the future, but already fuse lit. Russia won, Surkov won, Putin won since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : The waves of the economic trade wars and attacking Canada and Greenland are still ready to come back and hit upon the shores of North America. Donald Trump gave a fuck-you middle finger signal to goodness itself (Canadians) on the world stage and that signal hasn't been reversed or announced as a mistake. Christmas Holiday Season 2025 is approaching and School Season is ramping... and a nation of 0.34 billion people in a world of over 8 billion people are going to get waves of counter-USA. Dometic USA people will start to notice that they have been bamboozled with the economy and feel hopeless that they can't do anything. Homeless has already been under attack, the vice is closing in on USA. Humanism is abandoned. Donald Trump already lit the fuse of economic warfare, the explosions haven't started yet. "do some dark dark shit" has been in your face all year 2025, not in the future, but already fuse lit. Russia won, Surkov won, Putin won since March 2013. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mngdjg/anything_to_distract_from_releasing_the_epstein/n84ut8x/
+
+PhantroniX 2023-07-13
+
+"Talked to an old friend of mine a while ago who I discovered was MAGA
+
+He told me that things were the worst they've ever been under Biden, and now they're so much better already with Trump in charge.
+
+My question is.... are we living in the same fucking country? And has he been retarded the whole time I knew him?"
+
+* :::=== RoundSparrow_Commentary : No, your freind is not retarded. Russia deployed the most potent information warfare ever devised with the IRA starting up in March 2013. Reality is gone, people live in fiction. Russia won, Surkov won. ===:::
