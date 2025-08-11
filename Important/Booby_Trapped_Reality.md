@@ -47,5 +47,12 @@ Fox News entertament network emphasizes that other news networks are inocrrect. 
 
 People unable to distinguish fiction from nonfiction, informercial content / televangleism content of Rupert Murdoch from factual sincere informaton and nonfiction.
 
+### Fox News, Newsmax
 
+In USA, what is wrong with Fox News?
 
+Popularity. It has a huge influence that other information systems and news networks have to respond and adopt to. Ratings and popularity of fiction in almost any media exceeds nonfiction.
+
+Fox News creates the fiction narrative of wealth televangelism. That worship of the rich and asset holders in society will yield trickle-down benefits. That people with money and power are to be admired, respected, and given special treatment and legal system advantages.  Especially for rural Americans without much money, it informs poor people that trite people are their saviors and need their support and donations.
+
+Newsmax is a second-source of much of these same wealth televangelism values. Essentially Fox News and Newsmax networks promote the idea of "Stand Up For the Big Guy", that people capable of amassing wealth / land / assets are the saviors of the world. A religion style of "Stand Up For Allah", "Stand up for Jesus" because God needs your support. This is a proven Levant-based fiction storytelling pattern going back thousands and thousands of years, that powerful people are creators of the Earth's goods and services and tribute and prayers should be given toward the top / sky / heavens where these powerful people live outside normal society. The fiction story Hunger Games book and Film also depict the kind of wealth televangelism that Newsmax and Fox News cultivate in the rural poverty areas of the audience. The Levant idea that there is a "heaven" where the God and those who pass "Judgment Day" are handing down messages to the poor and sick of the world to "save their souls" with prayers and monuments (Mosque, Church, Synagogue, Scientology office / location). These news network values that it is important to listen and follow the leadership of such "God" figures / status symbols / status brands / status logos.  Anti-democracy, as the ideas and words of "Gods" of wealth and assets are to be treated above ideas from poor people or nonfiction / factual reality. Mythological living society. Anti-science, pro-fiction.
