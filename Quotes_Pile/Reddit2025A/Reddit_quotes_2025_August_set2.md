@@ -1205,3 +1205,35 @@ https://old.reddit.com/r/worldnews/comments/1mmtg8c/ukraine_will_not_let_russia_
 Harbournessrage 2017-04-14
 
 "This is it and i'm tired of people saying that the reason for this loop is Trump's stupidity or bad mental health or spinelessness. The guy does it consciously and fully aware of what he is doing. His every action is aligning with what Russia wants. He is an evil inhuman creature, just like Putin."
+
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1mmve83/to_shut_all_voices_speaking_up_about_gaza_genocide/n80um5f/
+
+Prophesy88 2020-09-09
+
+"They have been doing what they want the whole time. Only recently has the world actually started to take notice and that's only because they are SO blatantly committing mass genocide and multiple war crimes....so it gets to a point where people and media/celebrities think, "shit I need to get on the right side here before it's over"....well it's too late....the world stood by and let this happen....every country that supported Israel and now condemn them or give bullshit speeches about recognising Palestine, 'if Israel doesn't stop', you are all complicent in this!
+
+I am disappointed in myself right now but I'm going to quote Russian President Vladimir Putin:
+
+"If Russia had done just 10% of what Israel did in Gaza, NATO would now be at Moscow's gates. The West has taught us that human rights begin and end at the borders of Israel's interests"."
+
+* :::=== RoundSparrow_Commentary : a girl on January 3, 2009 started blogging about agressive men ruling her life. She was shot in the head after 3.5 years of speaking up, October 9, 2012. A year later, she published her book October 8, 2013. A full decade before October 7, 20223 Palestine terrorism attack in Israel. Malala's book crticizes EVERY religion, EVERY person in society, the whole world. [She openly talked about World War Three coming in her October 2013 interview with Jon Stewart](https://www.youtube.com/watch?v=gjGL6YY6oMs). She grasps that what fucked-up thinking goes on inside clergy and human minds is a GLOBAL problem of ALL PEOPLE. Yet, this is *not good enough for social media society to keep repeating every day, every week*. You know what we got since 2013 when Malala spoke? [Donald Trump in Moscow November 9, 2913 showing off girls/women and power men have over them](https://www.theguardian.com/us-news/2017/sep/18/trump-in-moscow-what-happened-at-miss-universe-in-2013). That's what social media society repeated every week since year 2013... Donald Trump. The medium is the society, Everything is Media Ecology. Social media users, show that you took the high road, show that you promoted Malala's approach to terrorism to Israel and Palestine and kept repeating. All the mannipulation about people taking "The High Road" is total bullshit. It costs ZERO to repeat passages from a book and repeat video interviews Malala gave. What audiences of social media show on every media platform is cravigns for the insult and shit-talk of Donald J. Trump, not actually offering GOOD IDEAS and solutions and defining GOODNESS ITSELF as Malala has done since January 2009. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1mmve83/to_shut_all_voices_speaking_up_about_gaza_genocide/n80nwaj/
+
+TheModWhoShaggedMe 2025-04-10 (new this year)
+
+"China, India and Egypt aren't in the west. They've also condoned and allowed this."
+
+&nbsp;
+
+"If Isreal's goal is to really force people to hate Jews, they are doing a good job.
+
+I've never had a problem with Jewish people but the fact that so many are defending this kind of shit is disgusting.
+
+I'm surpsied YHWH hasn't sent the locusts on them. No wonder they they were constantly persecuted throughout history- apparently they really ARE just awful people."
+
+* :::=== RoundSparrow_Commentary : **October 7, 2023** is Putin's birthday. If Russia wanted to make USA the most disrespected and loathed nation in the world, you would support Donald Trump and want Israel to dominate a poorly educated Palestine on the world stage. You would amplify that Israel is suppoted by USA and you let all the Donald Trump madness and Israel madness be paired together. All part of the 2013 onward long-term thinking and  schemes before starting the hot war with Ukraine in February 2014. Russia grasps that "Everything is Public Relations" and Surkov spelled this (PR playing) out again and again, and Peter Pomerantsev describes it. Asad went to Moscow after the fall of Syria... "On the morning of 8 December 2024, as rebel troops first entered Damascus, Assad fled to Moscow and was granted political asylum by the Russian government." REPEAT: October 7, 2023 Palestine terror attack was Putin's birthday, then December 8, 2024 Asad flees to Moscow. All this Israel wrecking of homes in Palestine and not preaching Maalala's books and words (Isreal could have dumped Malala material form Pakistan all over Palestine and told them to renounce terrorism, they had a FULL DECADE to do that as a psycologial opeation against Hamas)... abandons any "High Roads". Nobody is taking high roads. They money to dump Malala's videos and books on Palestine would have been far cheaper tham bombing. Intelligence agencies are not fighting with intelligence, using Malala books and interviews from Pakistan (which I empahsize is FAR AWAY form the Middle East, sees the big picture) - an innocent girl fighting terrorism, in thier dealings with Hamas terrorists. NOBODY is taking HIGH ROADS here. Did I repeat myself enough? Russia is running circles and has made the USA not fight information war at all, and people can't even see the opportunity Malala has presented in RALLY CRY for the HIGH ROAD. Make agressive terrorism men eat a girl's words. The rising up of gender is a hige historical reformation of Islam - probably bigger than Martin Luther in Germany 500+ years ago. WHY are people not even TRYING to throw 1 or 2 billion at Malala's book and media generation? A hell of a lto cheaper than Afghanistan war for 20 years against the Taliban that the USA had to pull out of like the Vietnam war ending. ===:::
