@@ -1331,3 +1331,11 @@ minervascats **2025-07-28 (new account)**
 "These people think we're as stupid as they are"
 
 * :::=== RoundSparrow_Commentary : The White House thinks Reddit is as media addicted to nonsense antics, Tony Clifton act, as the White House is addicted to Putin's domestic Russia Kremlin performance. Rephrased: media addicts think that We THe People are media addicts too. Drug addicts sharing the drug with others because they think the drug is awesome, as the drug (media addiction) wrecks the entire USA future. Twitter-length reaction comment, Tweet-thinking. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn06a9/diet_of_an_800_lbs_man_in_america/n81j567/
+
+A whole discusison about enabling an overweight American.
+
+* :::=== RoundSparrow_Commentary : one marriage, two people. You see people on social media go on and on and on about abuse, enabling, "settle for" a spouse that isn't good. But you won't see this same thing applied to people who supprot JD Vance, Donald Trump, Elon Musk, rich boss men, etc. As if an abusive Preisdent is perfectly fine, but an abusive husband is to be condemed. Why not condemn BOTH and why are the preachers (social medid Bible / church) condeming domestic abuse on a society-wide scale when clearly the clergy would call out a husband hitting and abusing a wife? Are people going to wise up that they are so conditioned to accept abuse from Donald Trump and they don't view MAGA as co-dependent that nees rescue? Where are the mental health professionals? **Why is Dr. Bandy X. Lee not on the front of Blueky and Reddit every 24 hours for all year 2024 and year 2025**? People are not awake to their situation, ]just as Dr. Carl Jung said about Nazi Germany was not self-aware of abuse on the large scale](../Doctors/Carl_Jung.md). ===:::
