@@ -1289,3 +1289,17 @@ Vegetable_Singer8845 2021-01-30
 
 "I think his manic "anti-Russian" moments are just planned cover, so his supporters can't see how compromised he is. Hell, Putin probably writes that shit FOR him."
 
+&nbps;
+
+"I pointed this out to some gay MAGA chud living in Arkansas of all godforsaken places that they were gonna come after gay marriage. He called me crazy and delusional. I pointed out that it was LITERALLY in Project 2025.
+
+I feel vindicated."
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mnn9in/at_this_point_they_just_have_a_thing_for/n86hnhh/
+
+RedDevilJennifer 2019-02-07
+
+* ::=== RoundSparrow_Commentary : didn't rescue a single person, didn't evem attempt much of a rescue other than a single one-time "pointed out" without repeating. Feels like a hero years later. Didn't say: "Hey, we on Reddit need to take that "First They Came For" poem from Nazi Germany seriously and not just feel vindicated and actually use social media systems to educate and teach people why that man wrote that poem" - we have a WIDESPREAD issue of people believing falsehoods from Russia since March 2013, and nobody wants to go into information warfare mode. [Putin made sexuality a core thrust in his December 2013 announcement: The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) ===:::
+
+&nbsp;
+
