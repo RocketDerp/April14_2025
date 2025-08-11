@@ -1358,3 +1358,10 @@ JebediahKerman4999  2025-04-25
 
 * ::=== RoundSparrow_Commentary : Why hasn't all this going on with Donald Trump / Elon Musk created a Bible confrontation uprising? Why isn't this list of Bible verses put in front of Trump and MAGA via social media uprising? "1 John 3:17", "1 John 4:20", Galatians 3:28 (Transgender), Matthew 6:12 (forgivess of Mexicans / immigrant trespass). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86swu4/
+
+Rematekans 2018-07-06
+
+"I cut contact with all the die-hard Nazis I was related to when they started to come out as nazis during trumps first term. And I have since told all of my center conservative people that I dont tolerate the nazi shit and Im 100% willing to fight over it. They are quiet because they know everyone is just waiting for the shoe to drop."
