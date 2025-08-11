@@ -505,6 +505,10 @@ EsseXploreR 2013-08-02
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84m1op/
+
+JDSchu 2014-04-30
+
 "Hey now. I remember one guy who was saying loud and clear that Donald Trump would be a dictator, and nobody listened.
 
 It was Donald Trump. He literally said he was going to be a dictator on day one.
@@ -515,3 +519,12 @@ The guy says exactly what he's going to do and then he does it and nobody every 
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84lpio/
+
+Queasy_Student-\_- 2021-07-04 (Independence Day)
+
+"They were lapping up the illusion of the Apprentice. Trump is just an actor playing the role of a successful businessman. Don't they know that so-called reality TV is a construct far from reality?"
+
+* :::=== RoundSparrow_Commentary : Russia won, Putin won, Surkov won. NATO lost. USA lost. ===:::
