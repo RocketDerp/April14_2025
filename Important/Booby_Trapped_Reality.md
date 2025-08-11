@@ -35,6 +35,8 @@ Removing of supernatural space alien elements, the magical science fiction aspec
 
 Weizenbaum, Joseph (1976). Computer Power and Human Reason: From Judgement to Calculation. W. H. Freeman. page 7.
 
+**ELIZA year 1966, it took a decade** until 1976 to realize and articulate what had been witnessed.
+
 &nbsp;
 
 ## Tabloid news, Infomercials
@@ -46,5 +48,4 @@ Fox News entertament network emphasizes that other news networks are inocrrect. 
 People unable to distinguish fiction from nonfiction, informercial content / televangleism content of Rupert Murdoch from factual sincere informaton and nonfiction.
 
 
-**ELIZA year 1966, it took a decade** until 1976 to realize and articulate what had been witnessed.
 
