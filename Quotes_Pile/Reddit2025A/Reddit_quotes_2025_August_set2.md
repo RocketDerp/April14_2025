@@ -1241,3 +1241,72 @@ I've never had a problem with Jewish people but the fact that so many are defend
 I'm surpsied YHWH hasn't sent the locusts on them. No wonder they they were constantly persecuted throughout history- apparently they really ARE just awful people."
 
 * :::=== RoundSparrow_Commentary : **October 7, 2023** is Putin's birthday. If Russia wanted to make USA the most disrespected and loathed nation in the world, you would support Donald Trump and want Israel to dominate a poorly educated Palestine on the world stage. You would amplify that Israel is suppoted by USA and you let all the Donald Trump madness and Israel madness be paired together. All part of the 2013 onward long-term thinking and  schemes before starting the hot war with Ukraine in February 2014. Russia grasps that "Everything is Public Relations" and Surkov spelled this (PR playing) out again and again, and Peter Pomerantsev describes it. Asad went to Moscow after the fall of Syria... "On the morning of 8 December 2024, as rebel troops first entered Damascus, Assad fled to Moscow and was granted political asylum by the Russian government." REPEAT: October 7, 2023 Palestine terror attack was Putin's birthday, then December 8, 2024 Asad flees to Moscow. All this Israel wrecking of homes in Palestine and not preaching Maalala's books and words (Isreal could have dumped Malala material form Pakistan all over Palestine and told them to renounce terrorism, they had a FULL DECADE to do that as a psycologial opeation against Hamas)... abandons any "High Roads". Nobody is taking high roads. They money to dump Malala's videos and books on Palestine would have been far cheaper tham bombing. Intelligence agencies are not fighting with intelligence, using Malala books and interviews from Pakistan (which I empahsize is FAR AWAY form the Middle East, sees the big picture) - an innocent girl fighting terrorism, in thier dealings with Hamas terrorists. NOBODY is taking HIGH ROADS here. Did I repeat myself enough? Russia is running circles and has made the USA not fight information war at all, and people can't even see the opportunity Malala has presented in RALLY CRY for the HIGH ROAD. Make agressive terrorism men eat a girl's words. The rising up of gender is a hige historical reformation of Islam - probably bigger than Martin Luther in Germany 500+ years ago. WHY are people not even TRYING to throw 1 or 2 billion at Malala's book and media generation? A hell of a lto cheaper than Afghanistan war for 20 years against the Taliban that the USA had to pull out of like the Vietnam war ending. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmyjs7/jd_vances_attempt_to_link_democrats_to_epstein/n81esg7/
+
+RimjobStevesDeadWife **2025-06-12 (recent account)**
+
+"They’re getting ready to release a heavily redacted set of files that only implicates democrats and when there’s a hue and cry over it they’re going to throw our calls to release the files in our face.
+
+This is transparently obvious"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmyjs7/jd_vances_attempt_to_link_democrats_to_epstein/n81fs2x/
+
+AngledLuffa 2007-08-02
+
+"This has gone on for so long, I find it impossible to believe they wouldn't have already asked Grok to "replace all stories about Trump with Clinton" or "highlight all stories about Trump with black highlighter" if the files weren't so saturated with Trump even the dumbest Q would start hating him"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmyjs7/jd_vances_attempt_to_link_democrats_to_epstein/n81gf0c/
+
+ratarley 2018-08-01
+
+"At this point, I’m convinced Trump had to have been running it with Epstein. This is the worst handled scandal in presidential history. I’m surprised they haven’t released fake files too, the maga cult is dumb enough to fall for it. So wtf is up?"
+
+* :::=== RoundSparrow_Commentary : This Reddit comment, is [Surkovian Onion Eating, not grasping that the whole pont is to draw an audience to White House](Surkovian_Onion_Eating.md) - onion seasoned with [QAnon seasame seedings](https://www.newsweek.com/qanon-followers-defend-donald-trump-jeffrey-epstein-plane-ghislaine-maxwell-trial-1654823). "This is the worst handled scandal in presidential history" - forgetting January 6, 2021 and all the build-up since November 2020 to it. Getting away with Traeson and calling Russia information warfare a "hoax" too. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmyjs7/jd_vances_attempt_to_link_democrats_to_epstein/n81gxdk/
+
+RimjobStevesDeadWife **2025-06-12 (recent account)**
+
+"The time it’s taking is because they’re trying to get a handle on the narrative. The most effective way for them to do that is to wear us all down. Particularly their own supporters. Then their supporters will be emotionally primed to roll their eyes and say, “they released the files what more do you want” or “omg you’re still on that? Old news!” "
+
+* :::=== RoundSparrow_Commentary : The White House has dozens of wild and crazy things gong on any week, whatever gets media attetnion - the feed the flames. That's how the War Against Reality works, that's how Surov kept Putin in power for 25 years. The more fiction they can tease people with, the more people yeild power and wealth to the anti-reality performers. It's been going on for 10 years, antics politics, wild and bizarre behaviors of Donald Trump White House / Campaign. If you don't read and study Peter Pomerantsev and Neil Postman, all this flies right under your radar. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmyjs7/jd_vances_attempt_to_link_democrats_to_epstein/n81diqh/
+
+sonicsludge 2018-05-15
+
+"I love how dumb they are and surprised they haven't been offed for being so stupid."
+
+* :::=== RoundSparrow_Commentary : I love how dumb Tony Clifton is interacting with the audience. Eating the Surkovian onions. A Twiter-length short message reaction comment about how stupid idot Donald Trump is, keeps USA society entertained. This Surkovian technique has kept Putin in power for 25 years. Essentially this Reddit comment is calling Putin and Surkov "being so stupid" when it's worked for decades. Also calling Neil Postman in 1985 ideas stupid. A complete lack of media ecology and informaiton warfare understanding. And it just keeps going on and on, Tony Clifton act audience reactions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmyjs7/jd_vances_attempt_to_link_democrats_to_epstein/n81gmyf/
+
+\_ficklelilpickle 2022-01-23
+
+"It’s amazing how they think everyone is personally devoted to specific politicians. Uh, no, just because someone is a Democrat does not mean that we don’t want the name released. Nobody should be above the law. Get that through your fucking heads already and find your sense of accountability."
+
+* :::=== RoundSparrow_Commentary : Works for monomyth religions.  One and ONLY ONE perfect book fiction story. All other religoins are wrong, just the one parents hand down is correct. Works all over the world. Very popular. Surkov and Putin have managed to create patterns of fiction that go that deep into the mind. It is media cults, not a Donald Turmp cult (yes that exists, but not as wide). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmyjs7/jd_vances_attempt_to_link_democrats_to_epstein/n816dm9/
+
+Plus-Drawing7431 **2025-06-23 (recent account)**
+
+"I don't know what Trump and co are so worried about. Polls show that half the base will continue to support him even if he proves to be a kiddy fiddler. The other half would take a few days to get used to it, but give them time - they'll be cool with it. Trump is King David."
+
+* :::=== RoundSparrow_Commentary : They are dragging it out because of audience engagement. There is an ongoing media freanzy and they want to get as much out of this information strip tease as possible. They made a huge dramatic event of the binders handed out in [February 2025: "Epstein list phase 1 released: Alec Baldwin, Michael Jackson, Mick Jagger mentioned in documents"](https://www.foxla.com/news/epstein-list-phase-1-released). People have such recency bias in August 2025 they can't see the forest of QAnon "Q Drops" buildup for the trees of today's latest social media reaction frenzy. This is like releasing trailers and hints about an upcoming 3 part film like Lord of the Rings film series. This is how Surkov information warfare / Russian governing works. ===:::
+
