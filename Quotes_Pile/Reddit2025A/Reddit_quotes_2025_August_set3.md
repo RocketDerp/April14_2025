@@ -1318,7 +1318,33 @@ They see it as a mental illness/moral failing/greatest sin. And well read the Bi
 
 They are just working up the courage to do it. Gay conservatives are really stupid because they really played with fire and are gonna get burned."
 
-* ::=== RoundSparrow_Commentary : Then you go to the public library and find an October 8, 2013 book from Pakistan about the Taliban of Afghanistan and Pakistan, and you quote it over and over and repeating and repeat on social media. But that takes staying focused and not jsut react-commenting to every MAGA event on social media every day. Malala has been raising issues since January 2009, over 15 years, and people in USA have all the media systems they need to repeat her words and ideas. Instead, people are repeating sports scores and quotes from television media fiction. ===:::
+* ::=== RoundSparrow_Commentary : Then you go to the public library and find an October 8, 2013 book from Pakistan about the Taliban of Afghanistan and Pakistan, and you quote it over and over and repeating and repeat on social media. But that takes staying focused and not jsut react-commenting to every MAGA event on social media every day. [Malala has been raising issues since January 2009, over 15 years](http://news.bbc.co.uk/2/hi/south_asia/7834402.stm), and people in USA have all the **media systems we need to repeat her words and ideas**. Instead, people are repeating sports scores and quotes from television media fiction. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n85ttpl/
+
+pickus_dickus 2025-01-10 (new this year)
+
+"It's like it's not really sinking in. Maybe it's easier to see it from the outside, but to me it seems the normal Americans do not grasp the seriousness of what is happening right now. The other part is too stupid to grasp anything other than own the libs. Their country is in the process of being transformed into a full dictatorship. Maybe it's time to insist on your representatives do their job... and maybe a bit of civil disobedience would help bring the msg over." 
+
+* ::=== RoundSparrow_Commentary : [“The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945](../Doctors/Carl_Jung.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86sjj2/
+
+itsalwaysme7 2017-02-21
+
+"This^ he has been orchestrating this from day 1, however, more than 1/2 of Americans voted for this and he fired all opposition. In addition to taking our rights away 1 by 1. American people have no power and the ones we voted in now has conceded to the current government to save themselves. The only few to speak out are Aoc, Crockett, Bernie, and Pritzker but really what can they do they are the minority."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86srn2/
+
+palmtreesandpizza 2022-06-19
+
+"Even a decade in I can’t believe how many people are willing to overlook decency and democracy and the constitution and their oaths over this fucking loser reality show host slumlord in a clownish tacky suit. He couldn’t be a more obvious moron and grifter."
+
+* :::=== RoundSparrow_Commentary : Russia won, Surkov won, since March 2013. ===:::
 
