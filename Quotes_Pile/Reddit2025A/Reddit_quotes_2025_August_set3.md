@@ -144,6 +144,8 @@ Once you have that 30%, all you need to do is work on disenfranchisement, gerrym
 
 https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83c349/
 
+jezebel103 2023-07-11
+
 "The same in the Netherlands. Serious housing crisis (and I mean serious!), prices of every day groceries and costs of health care are rising and some horrid politicians (I won't name names) tweet on X about 'it's all the fault of the immigrants' and 'they get homes while 'we' don't' and other racist, bigoted crap.
 
 No sir, it's because of the policies of three decades: privatization of housing, health care and public transportation enabled hedge funds, (foreign) investors and greedy corporations to get their grubby little hands on public funds. Lucrative tax loopholes enabled foreign multinationals to use my country as their own private tax paradise. Without paying a dime, of course. That's left to the citizens.
@@ -152,4 +154,58 @@ And to divert the attention from their own failures and ineptitude, they use the
 
 Hence the rise of right wing freaks."
 
-* :::=== RoundSparrow_Commentary : This message needs to go a step further on that final sentence: "Hence the rise of right wing freaks" - do people think land-lords, Donald Trump real estate king, are left-wing? The rise of the very idea of expensive rent culture and very few people owning everything like Putin does in Russia and Trump wants in USA is a right-wing value. The very idea of dividing things left vs. right, conservative vs liberal, is a one-bit TWO and ONLY TWO thinking system. The world doesn't divide this way, it is a grossly simplistic view. You are better off viewing fiction vs. nonfiction than left-wing vs. right-wing. Fiction can have 500 stories, truth and comprehension can have 1. You can make up **5,000 fiction stories** of how huamns interpret the world as Russia did with Cambrdige Analytica: ["Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа. Затем.. положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому."](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). Fiction vs. nonfiction is not a one-bit binary logic. Poetry and dream mythology [rock music lyrics](https://www.youtube.com/watch?v=V1LhC1zGouc) and the Quran of Mohammad (retcon of Jesus stories / dreams metaphors) are not simplistic, metaphors are complex and rich, not one-bit thinking of left-wing vs. right-wing, conservative vs. liberal bi-polar thinking of a society. ===:::
+* :::=== RoundSparrow_Commentary : This message needs to go a step further on that final sentence: "Hence the rise of right wing freaks" - do people think land-lords, Donald Trump real estate king, are left-wing? The rise of the very idea of expensive rent culture and very few people owning everything like Putin does in Russia and Trump wants in USA is a right-wing value. The very idea of dividing things left vs. right, conservative vs liberal, is a one-bit TWO and ONLY TWO sides thinking system (bi-polar mindset). The world doesn't divide this way, it is a grossly simplistic view. You are better off viewing fiction vs. nonfiction than left-wing vs. right-wing. Fiction can have 500 stories, truth and comprehension can have 1. You can make up **5,000 fiction stories** of how humans interpret the world as Russia did with Cambridge Analytica: ["Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа. Затем.. положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому."](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). Fiction vs. nonfiction is not a one-bit binary logic. Poetry and dream mythology [rock music lyrics](https://www.youtube.com/watch?v=V1LhC1zGouc) and the Quran of Mohammad (retcon of Jesus stories / dreams metaphors) are not simplistic, metaphors are complex and rich, not one-bit thinking of left-wing vs. right-wing, conservative vs. liberal bi-polar thinking of a society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83g0g3/
+
+exoskeletion 2017-11-30
+
+"Yup, foreigners and trans people are the "threats" to living standards here. Meanwhile, we privatised the damn water.
+
+Thames Water is predominately owned by a bunch of large wealth funds, and are £17bn in debt. They got a £3bn cash flow loan as they were out of cash (apparently at 9.75%!), and one of the things they spent this on were bonuses of £2.5m for senior management. As they attempt to get out of this hole, they have significantly increased customer bills.
+
+They will eventually fail, and the taxpayer will have to bail them out, much in the same way they have the banks, and several train companies.
+
+Privatised profits, Socialised losses.
+
+But look at that woman entering the bathroom, doesn't she have a strong jawline? Confront her!"
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n836bav/
+
+Sufficient_Depth_195 **2025-07-16 (recent account)**
+
+"Simple fixes to complex problems? That's populism, and it ain't nothing new! It was all the rage in the 1930s. And it is staging a mighty comeback."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83dh7m/
+
+thefaehost 2019-10-03
+
+"THIS. People want a simple answer and want things to be black and white as if gray doesn’t exist in between.
+
+Social problems are always complex because a society involves so many different people, cultures, beliefs, and morals. How could you simplify a single problem to one group of people?
+
+Because if you could do that, the group of people to blame would be the people in charge. They don’t wanna hear that though. It’s a class war they’ve convinced them is a culture war."
+
+* :::=== RoundSparrow_Commentary : Conservative vs. liberal. "People want a simple answer and want things to be black and white as if gray doesn’t exist in between." Everyone framing things in one-bit logic, left-wing vs. right-wing, left vs. right. Us and them. Left-wing news vs. right-wing news. Left-wing Bluesky vs. Right-wing Twitter. Left-wing MSNBC vs. right-wing Fox News. This entire division goes against the Founding Fathers media literacy education tool of the Great Seal of the United States of America from 1776 that we have entirely ignored and applied dumb-sht banal "The Illuminati" interpretation to. There is no LEFT vs. RIGHT in USA reason thinking. It is vertical, above and below, in 13-steps (not bi-polar left vs. right) up the pyramid. The Great Seal Pyramid Eye 👁 of the Founding Fathers of the United States of America is not a Jesus Cross of the Levant, the 👁 is the Public LIbrary, the Library of Alexandria in Africa Pyramid climbing metaphors. ["the sack of the Serapeum by Christians in 391 CE, and the destruction of a library by Islamic conquerors in 641 CE."](https://www.open.edu/openlearn/history-the-arts/library-alexandria/content-section-3) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83d0cd/
+
+Ecstatic-Nose-2541 2020-11-09
+
+"What also baffles me though...
+
+I used to think that the lack of free media was the key to spreading hate and misinforation, and to allowing the rise of fascism. Surely the internet would allow everyone to easily find the truth, no matter what's being claimed by politicians or their propaganda channels...
+
+Turns out the opposite is true. People just gravitate towards the echo chambers they WANT to believe, regardless of how easy it's become nowadays to make the distinction between facts and "alternative facts". Wilful ignorance, cognitive dissonance...I'm not even sure anymore that improved living standards or affordable quality education or healthcare reforms are enough to put up a meaningful fight against the millions of brainwashed cult victims and the massive misinformation platforms like fb and x and the podcast army of useful idiots like Joe Rogan, Russel Brand, Tucker Carlson,...
+
+It's starting to look like everything first has to burn to the ground before enough people start waking up. I guess that's the best we can hope for now. Let it all burn down fast, and as painless as possible. I'm SO ready for the ressurection."
+
+* :::=== RoundSparrow_Commentary : Media ecology is not opational teaching to a world of 8 billion people connected via telephone and Internet. This problem and **need for self-awareness and education**  was all called out by Marshall McLuhan at University of Toronto and Neil Postman at New York University in the 1950's, 1960's, 1970's, 1980's, 1990's... And starting in March 2013, Surkov students and Cambridge Analytica started an infomation warfare that exploited the lack of education and teaching of media ecology. :::===
