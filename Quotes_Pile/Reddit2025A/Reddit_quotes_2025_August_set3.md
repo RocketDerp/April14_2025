@@ -1117,3 +1117,33 @@ strangedaze23 2009-01-14
 
 "I guess the take over of Arkansas, Louisiana, New Mexico, Alaska, Tennessee is next because their per capita violent crime rates dwarf the rest of the country."
 
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mnd9ji/sudden_corruption_clarity/n85jqiy/
+
+Pat_The_Hat 2014-08-11
+
+"This entire subreddit is. It's a constant flood of politics by the same few users with boosted upvotes the moment they're posted."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mnd9ji/sudden_corruption_clarity/n866wl2/
+
+Ok-Lobster-919 2020-04-08
+
+"You should see what these guys have done to the "law" subreddit. It's just AdviceAnimals2, but aimed at people interested in the "law" topic on reddit."
+
+* ::=== RoundSparrow_Commentary : Reddit users witness the simulacra takever as individual trees, but do not see the forest of the multiple sites / Russia information war against Reality since March 2013. It isn't just Stephen Colbert / Pramount / 60 Minutes, it is Reddit. Comment creation and voting accounts. Elon Musk openly called-out Reddit community many times, people can not connect the dots of White House / DOGE / Musk / Trump. There is no calling for a sustained REVIEW, like weekly or monthly summary of bigger trends - just reaction after reacton to every hourly posting topic of tree after tree, no forest view. Recency bias abounds. Streaming meme platforms wipe out sustained dot connections. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mnd9ji/sudden_corruption_clarity/n85kjqs/
+
+ArseneGroup 2022-11-21
+
+"Yeah I'm familiar with u/LavenderBabble, flagrant bot account user and also abuses the block feature to stop people from calling out the bad behavior
+
+I do wonder what the goal is with all this - a misguided attempt at boosting left-wing sentiments or covert right-wing propaganda?"
+
+* ::=== RoundSparrow_Commentary : The current drive of Putins information warfare is unreality, war against reality. fiction addiction. ===:::
+
