@@ -743,4 +743,23 @@ CMDR_BunBun 2014-12-26
 
 "All this chaos is intentional. You're being desensitized to shocking news, injustice and constitutional violations. It is possible that any day now there will be a cyber attack, fed to you through your favorite social media app, that will consist of a deep fake. Said deep fake will be carefully crafted with Frontier AI and its content will pit the Federal government vs. the states. Reality will be hijacked and the US will never be the same."
 
-* :::=== RoundSparrow_Commentary : It's worse than that.. all the wealthy people in the world can't disinguish fiction LLM output from nonfiction. They BELIEVE ChatGPT / GrokAI - they are true believers in the egomania it induces. That is why they are all funding the artificial intelligence race, they BELIEVE it. TRUE BELIEVES. They don't care about nonfiction reality. And the population is addicted to fiction, they are the center of attention now telling fiction out of the White House. "Reality will be hijacked" - it slready happened, the IRA spun up in March 2013. Donald Trump is "Reality TV", scripted improv Tony Clifton dynamic hybrid, not true reality. ["It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating **mass hallucinations** that then translate into political action."](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) - September 9, 2014 - **year 2014**  ===:::
+* :::=== RoundSparrow_Commentary : It's worse than that.. all the wealthy people in the world can't distinguish fiction LLM output from nonfiction. They BELIEVE ChatGPT / GrokAI - they are true believers in the egomania it induces. That is why they are all funding the artificial intelligence race, they BELIEVE it. TRUE BELIEVES. They don't care about nonfiction reality. And the population is addicted to fiction, they are the center of attention now telling fiction out of the White House. "Reality will be hijacked" - it already happened, the IRA spun up in March 2013. Donald Trump is "Reality TV", scripted improvisation Tony Clifton dynamic hybrid, not true reality. ["It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating **mass hallucinations** that then translate into political action."](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) - September 9, 2014 - **year 2014**  ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mngdjg/anything_to_distract_from_releasing_the_epstein/n84lz4w/
+
+Needrain47 2021-05-11
+
+"ABSOLUTELY NOT. Martial law is not a distraction, for the love of god! More than one thing can be important at the same time! WTF is wrong with people."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mngdjg/anything_to_distract_from_releasing_the_epstein/n84ppkh/
+
+Karahi00 2018-06-25
+
+"People are famously prone to tunnel vision. Right know everyone is so focused on Epstein (which is surely important) and apparently forgot that Project 2025 is almost 50% complete and that technocrats and Christian zionist fascists are explicitly trying to destroy whatever semblance of democracy still existed in America in order to build their Randian dream world of CEO God kings ruling over their own fiefdoms."
+
