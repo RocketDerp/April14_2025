@@ -1279,4 +1279,13 @@ activoutdoors 2021-05-23
 
 "Laying the groundwork for his next manic pendulum mood swing back to Ukraine being the problem. He is a buffoon."
 
-* ::=== RoundSparrow_Commentary : This reddit comment is Surkovian onion eating. (or fake messages of a simulacra of resistance, opposition simualcra messages). Audience members interacting with Tony Clifton act of White House / Kremlin. [Taste testing the Tony Clifton act](../../Grim_Blunt/Society_of_grading_and_ranking_turds.md), react comments on social media. Not REMOVING and calling this out by name, Surkov techniques and saying we need to all STOP it NOW, but sitting in audience commenting about the next plot point int he predictaable storylines. This is what USA audience have been doing for TEN YEARS, a DECADE to Donald Trump. Not saying "this is just like Tony Cliifton, this is just like Surkov in Russia" but instead - react commenting and turd grading. ===:::
+* ::=== RoundSparrow_Commentary : This reddit comment is Surkovian onion eating. (or fake messages of a simulacra of resistance, opposition simualcra messages). Audience members interacting with Tony Clifton act of White House / Kremlin. [Taste testing the Tony Clifton act](../../Grim_Blunt/Society_of_grading_and_ranking_turds.md), react comments on social media. Not REMOVING and calling this out by name, Surkov techniques and saying we need to all STOP it NOW, but sitting in audience commenting about the next plot point int he predictaable storylines. This is what USA audience have been doing for TEN YEARS, a DECADE to Donald Trump. Not saying **"this is just like Tony Cliifton, this is just like Surkov in Russia back in year 2012"** with *alarmed self-awareness and call LOUDLY for NATO defense civic duty / partiots against information warfare*... but instead - react commenting and turd grading as to the ongoing fiction bullshit taste. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n85ap3b/
+
+Vegetable_Singer8845 2021-01-30
+
+"I think his manic "anti-Russian" moments are just planned cover, so his supporters can't see how compromised he is. Hell, Putin probably writes that shit FOR him."
+
