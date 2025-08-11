@@ -1462,3 +1462,15 @@ It's a mix of LALALAL I CAN'T HEAR YOU people consciously making a choice to jus
 
 * ::=== RoundSparrow_Commentary : They are well practices at communicating that the *out-group is extremely stupid*, over and over on one-line Twitter-length reaction comments since March 2013 IRA ramped up from Russsia. Mocking is not resisting. Calling people extremely stupid is not reaching about Surkov information warfare and Cambridge Analytica mind exploitation mechanics. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n85zqyp/
+
+EitherChannel4874 2023-08-18
+
+"It's already too late. Trump has the politicians, courts and national guard doing exactly what he wants.
+
+America stood by and watched for too long."
+
+* ::=== RoundSparrow_Commentary : America didn't just stand by, We The People touched their intimate smartphones and iPad devices and react-commented at Donald Trump for over 10 years, every day, all day, on social machines. Reactions like: Did you just wee what Tony Clifton did to that audience member? Did you listen to what Tony Clifton said about smoking and then lit up on stage? ===:::
+
