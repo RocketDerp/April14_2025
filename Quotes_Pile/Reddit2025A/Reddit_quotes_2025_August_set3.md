@@ -1348,3 +1348,13 @@ palmtreesandpizza 2022-06-19
 
 * :::=== RoundSparrow_Commentary : Russia won, Surkov won, since March 2013. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86j325/
+
+JebediahKerman4999  2025-04-25
+
+"It's because they are opposed to the tyranny of being forced to be nice. The freedom they want is what trump is giving them: being aggressive assholes threatening anyone they feel like."
+
+* ::=== RoundSparrow_Commentary : Why hasn't all this going on with Donald Trump / Elon Musk created a Bible confrontation uprising? Why isn't this list of Bible verses put in front of Trump and MAGA via social media uprising? "1 John 3:17", "1 John 4:20", Galatians 3:28 (Transgender), Matthew 6:12 (forgivess of Mexicans / immigrant trespass). ===:::
+
