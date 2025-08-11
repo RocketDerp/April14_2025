@@ -924,3 +924,13 @@ raistan77 2020-06-30
 "He's already told Bondi to start prep work to seize control of NYPD and "clean up" New York
 
 Martial law is here"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n858wl9/
+
+3suamsuaw 2024-05-03
+
+"At the rate things have been going so far: the US will just slip into dictatorship. There are hundreds of red lines already crossed, I've seen a few measly protests. Democrat leaders fail to mobilize, and 50% of the population is fine with whatever.
+
+Americans don't have any recollection of dictatorship. They will be lulled into it."
