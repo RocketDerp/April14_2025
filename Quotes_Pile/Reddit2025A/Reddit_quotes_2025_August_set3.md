@@ -572,3 +572,11 @@ It's weird when nowhere feels like home.
 Edit: a word"
 
 * :::=== RoundSparrow_Commentary : Yes. Even when Donald Trump is gone, the **aftermath of Cambridge Analytica and the IRA** will still be in the minds of meme consumers, the social machine users. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84hvrk/
+
+Weztinlaar 2019-10-06
+
+"Non-American but deployed overseas working with American military in the Middle East during J6... Had to tell a Master Sgt off for repeatedly telling his subordinates that 'its not really a coup it only lasted a few hours' and 'the right doesn't do coups thats a left wing thing'. Eventually the general in charge of the base had to put out a statement saying no more talk of J6 because there was enough support for J6 within the US military that it was becoming a really heated argument about whether J6 was good or bad."
