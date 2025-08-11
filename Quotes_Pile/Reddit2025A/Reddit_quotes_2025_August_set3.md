@@ -238,3 +238,29 @@ yenda1 2014-10-30
 
 "Honestly what kind of retarded country calls a bill "Big Beautiful Bill" it doesn't mean shit, it's 100% propaganda, 0% democracy"
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n82pant/
+
+EastOlive1305 2025-07-11 (recent account)
+
+"Yep, I had a American poster who didn't understand tariffs going back and forth with me, as soon as I explained how tariffs work to him he blocked me lol"
+
+* :::=== RoundSparrow_Commentary : social media blocking is egomania. Blocking immigrants in the USA, blocking Mexicans, blocking outsiders, [Donald Trump egomania - blocking reporters from the White House](https://www.theguardian.com/us-news/2025/feb/14/white-house-ap-ban-oval-office). In Germany 1937, they didn't have touch-screen block buttons, they had to use flame to burn paper when their egomania took them into burning magazines and newspapers, they didn't have Unicode messages on Reddit and Bluesky in Germany 1937. Did I repeat enough? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83e8rs/
+
+Mtshoes2 2014-03-09
+
+"This has been an overall trend since the rise of the internet and social media. 
+
+Like 2 decades or so ago Salman Rushdie lamented the rise of non professional book reviews on the Internet, and at the time I shrugged it off as democratization, and the breaking down of the old ivory tower etc. and overall I thought it was a good thing.
+
+But overtime the Internet has turned into some of the dumbest people posing as intellectuals to get their nut. Like people online are talking about eating rotten meat to be healthy, and staring at the sun to recharge their eyes, eating nothing but raw meat, drinking urine.... Just to focus on that little corner of crazy. 
+
+But I underestimated how badly the average person needs established structures and institutions to give structure to their beliefs and ideas. When they lose those things, they become extremely unhinged and begin seeking these structure seemingly anywhere. 
+
+Back in the earlier days of the internet the breatharians were made fun of, and understood as crazy people..... But somehow the breatharians, and all the others like them, won."
+
