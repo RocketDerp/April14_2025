@@ -1087,3 +1087,33 @@ ProdigalSheep 2011-06-13
 
 "They hate the libs because the libs have nuanced thoughts and opinions about politics that they can’t understand, so it makes them feel inferior. They hate the libs because the libs tell them that it’s not okay to be racist and misogynistic, and they need to have a villainized group to blame their problems on and feel superior to. Those are the real reasons they hate the libs."
 
+&nbsp;
+
+https://old.reddit.com/r/fednews/comments/1mnezp7/donald_trump_begins_authoritarian_takeover_of/n84paz6/
+
+ChickinSammich 2012-01-26
+
+"It's not hypocrisy, and it is consistent, you're just not framing it correctly.
+
+Their actual position is, has always been, continues to be, and will always be: "Anything we do is good, anything you do is bad, any harm we commit is justified, any perceived harm we can pin on you is unacceptable. Anything that we have to do to win is justifiable, and anything you do to fight back is unjustifiable."
+
+When you look at them from THAT framing, they're incredibly consistent. The ends justify the means to them. Their stated position on any given issue will always be "whatever would have to be true in order to support the notion that we are right and you are wrong" and that stated position is as malleable as it needs to be to justify the "what we want is right and what you want is wrong" overall position, which has *never* changed."
+
+&nbsp;
+
+https://old.reddit.com/r/fednews/comments/1mnezp7/donald_trump_begins_authoritarian_takeover_of/n84ikql/
+
+Morrit99 2020-04-16
+
+"I swear to god, he is rambling and people think he is poetic?? How can someone think 'That man is the person I will die on this hill for!' what is WRONG with you, America?? Are you witnessing what we said would happen? How authoritarian do you want? America - Yes"
+
+* ::=== RoundSparrow_Commentary : Russia won, Surkov won... information war since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/fednews/comments/1mnezp7/donald_trump_begins_authoritarian_takeover_of/n84f92z/
+
+strangedaze23 2009-01-14
+
+"I guess the take over of Arkansas, Louisiana, New Mexico, Alaska, Tennessee is next because their per capita violent crime rates dwarf the rest of the country."
+
