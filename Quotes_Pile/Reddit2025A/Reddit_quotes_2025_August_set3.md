@@ -798,3 +798,40 @@ AuzRoxUrSox 2016-05-18
 "And they warned of a police state with every democrat in office…..yet, here we are."
 
 * :::=== RoundSparrow_Commentary : Inverted meaning in language. Words meaning the absolute ass-backwards opposite of their meaning. Nobody wanted to take that Irish author James Joyce serious on the subject of Romans 11:32 verse ass-backwards Bible literacy equation. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n857yrm/
+
+HurinGaldorson 2023-05-29
+
+"Over on r/conservative, they're saying that this is bad because if Democrats ever get in again, they'll be the ones with all the power.
+
+Not that fascism is just bad, period... rather, it is only bad if the other party gets to do it.
+
+It's been a nice run, American democracy. So long and thanks for all the fish."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n85o5q3/
+
+senator_corleone3  2016-10-22
+
+"This suggests you have a short attention span, which is never good for analysis of events and policy."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n85ajtd/
+
+NeedleworkerChoice89 2021-07-10
+
+"Ding ding ding!
+
+It’s a team sport to them. They do not give a crap about America, they care about “their side” winning. If their side wins, whatever action to get that win is good. If their side loses, that same action is now bad."
+
+* :::=== RoundSparrow_Commentary : Russia won, Surkov won, since March 2013. ===:::
+
