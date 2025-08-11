@@ -679,3 +679,35 @@ descendingangel87 2016-11-29
 "The US constitution is like the bible, people preach the shit out of it, but few have actually read it and it’s mostly cherry picked which parts they actually follow."
 
 * :::=== RoundSparrow_Commentary : If you can't comprehend and understand a 2,000 year old science fiction story form the Levant thinking, what chance do you have with the Great Seal of the United States of America 1776 and The Constitution? But social media users give one-line Twitter-length reactions to the situation and are not teaching and educating Bible verse "1 John 4:20" to the face of MAGA on the front-page of Bluesky and Reddit every day until people can recite that verse. [Bible literacy can be taught on social media, the only thing lacking is people getting on the *same page*](../../Important/USA_Bible_media_literacy.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mngdjg/anything_to_distract_from_releasing_the_epstein/n84qp3s/
+
+gentleman_bronco 2014-06-07
+
+"It's amazing that the "don't tread on me" crowd is jerking off on all this treading on them."
+
+* :::=== RoundSparrow_Commentary : Eating the Surkovian onions. Surkov Governing techniques *blow minds* of audience. That's how Putin and Surkov got power for Putin that has lasted 25 years leading Russia. ""It's amazing!" social media one-line Twitter-thinking reaction mindsets. That's what Russian infomation warfare antics politics does to populations. TEN FUCKING YEARS OF AMERICANS GLUED TO THE DONALD TRUMP ICON STATUS SYMBOL. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mngdjg/anything_to_distract_from_releasing_the_epstein/n84p8ts/
+
+TheAnswerWithinUs 2016-06-23
+
+"The conservative cope right now is that the Epstein files are a distraction themselves to distract from trump being so amazing."
+
+* :::=== RoundSparrow_Commentary : James Jocye's Finnegans Wake iterates, the end of the book starts over the story. ouroboros or uroboros of an idea in the mind, eating itself. "the Epstein files are a distraction themselves to distract from trump being **so amazing**." ... And make no mistake, Donald Trump is amazing, at selling Tony Clifton act to the ENTIRE POPULATION, not just MAGA, not just Republicans, but EVERYONE. Donald Trump knows fiction outsells nonfiction. Hell of a Reddit usename: TheAnswerWithinUs - fiction addiction is within USA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mngdjg/anything_to_distract_from_releasing_the_epstein/n85g25w/
+
+NizeDine 2015-12-24 (Christmas Eve)
+
+"It's so no protesters can enter... He's about to do some dark dark shit."
+
+
+* :::=== RoundSparrow_Commentary : The waves of the economic trade wars and attacking Canada and Greenland are still ready to come back and hit upon the shores of North America. Donald Trump gave a fuck-you middle finger signal to goodness itself (Canadians) on the world stage and that signal hasn't been reversed or announced as a mistake. Christmas Holiday Season 2025 is approaching and School Season is ramping... and a nation of 0.34 billion people in a world of over 8 billion people are going to get waves of counter-USA. Dometic USA people will start to notice that they have been bamboozled with the economy and feel hopeless that they can't do anything. Homeless has already been under attack, the vice is closing in on USA. Donald Trump already lit the fuse of economic warfare, the explosions haven't started yet. "do some dark dark shit" has been in your face all year 2025, not in the future, but already fuse lit. Russia won, Surkov won, Putin won since March 2013. ===:::
+
