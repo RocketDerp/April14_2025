@@ -246,7 +246,7 @@ EastOlive1305 2025-07-11 (recent account)
 
 "Yep, I had a American poster who didn't understand tariffs going back and forth with me, as soon as I explained how tariffs work to him he blocked me lol"
 
-* :::=== RoundSparrow_Commentary : social media blocking is egomania. Blocking immigrants in the USA, blocking Mexicans, blocking outsiders, [Donald Trump egomania - blocking reporters from the White House](https://www.theguardian.com/us-news/2025/feb/14/white-house-ap-ban-oval-office). In Germany 1937, they didn't have touch-screen block buttons, they had to use flame to burn paper when their egomania took them into burning magazines and newspapers, they didn't have Unicode messages on Reddit and Bluesky in Germany 1937. Did I repeat enough? ===:::
+* :::=== RoundSparrow_Commentary : social media blocking is egomania. Blocking immigrants in the USA, blocking Mexicans, blocking outsiders, [Donald Trump egomania - blocking reporters from the White House](https://www.theguardian.com/us-news/2025/feb/14/white-house-ap-ban-oval-office). In Germany 1937, they didn't have touch-screen block buttons, they had to use flame to burn paper when their egomania took them into [burning books, magazines and newspapers](https://en.wikipedia.org/wiki/Nazi_book_burnings), they didn't have Unicode comment messages on Reddit and Bluesky in Germany 1937 to burn. Did I repeat enough? ===:::
 
 &nbsp;
 
@@ -264,3 +264,12 @@ But I underestimated how badly the average person needs established structures a
 
 Back in the earlier days of the internet the breatharians were made fun of, and understood as crazy people..... But somehow the breatharians, and all the others like them, won."
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83k7mb/
+
+Massive-Ride204 2025-04-01 (this year)
+
+"I knew we were in trouble when we started seeing news stories about no brainers like vaccination and the housewife "researcher" who barely graduated high school was given the same airtime and taken as seriously and the medical researcher"
+
+* :::=== RoundSparrow_Commentary :  “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985** ===:::
