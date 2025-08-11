@@ -411,3 +411,30 @@ They aren't dealing with sick kids, doing laundry, or scrubbing grout. They are 
 
 * :::=== RoundSparrow_Commentary : They are selling fiction. Fiction outsells nonfiction. Trickle down content to the poors below who have no education on media ecology and media production. It's social content. It can't scale easily to 8 billion people in the world, it lacks compassion for out-groups. It's about selling images, selling media of bling life, like Donald Trump does to MAGA media consumers. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83t1q3/
+
+Pretend-Marsupial258 2020-12-24 (meeting with friends on Christmas holiday and someone recommmended Reddit?)
+
+"Exactly. Some of the largest influencers have built entire fake houses on their estates to film their YouTube videos. Most of the actual work is done by nannies, while the influencer will film herself churning butter for 20 seconds."
+
+* :::=== RoundSparrow_Commentary : Donald Trump is the parenting role model for USA society, children who were age 8 in year 2015 have had tons of Donald Trump parenting media messages. We have a multi-generation problem of Reality TV star of "The Apprentice" being a social media content king. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83hgah/
+
+-neti-neti- 2022-01-15
+
+"No.
+
+Everything is literally an effort to make poor people poorer.
+
+Many young people’s only hope at ever having wealth nowadays, because the economy is so shit, would be what they inherit from their boomer parents. But by cutting Medicare they are ensuring that any of those savings will have to be used up before they can get passed onto the next generation
+
+Conservatives DO NOT have values. Not even trad wife bullshit. Don’t ever let them convince you they do."
+
+* :::=== RoundSparrow_Commentary : Conservatives value FICTION over nonfiction. Study Malala's October 8, 2013 book about the Taliban conservatives. Quran / Bible / Torah coservatives have many of the same values. Heaven is after life, who needs health care on Earth when Heaven wins with fiction storytelling? Donald Trump provides fiction storytelling to conservatives. Radio Mullah in Swat Valley Pakstian provides fictions storytelling to conservatives. Fox News provides fiction storytelling to conservatives. The White House in 2025 provides fiction storytelling... Putin provides fiction storytelling... conservative values. ===:::
+
+
