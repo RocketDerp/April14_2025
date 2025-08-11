@@ -934,3 +934,111 @@ https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is
 "At the rate things have been going so far: the US will just slip into dictatorship. There are hundreds of red lines already crossed, I've seen a few measly protests. Democrat leaders fail to mobilize, and 50% of the population is fine with whatever.
 
 Americans don't have any recollection of dictatorship. They will be lulled into it."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n85j32a/
+
+LeopardSea5252 2024-07-23
+
+"I agree that most of us are sweet summer children. Most people believe it will be never happen here and we are also so conditioned to work long hours to keep up with rising costs that it’s hard to take a second just for ourselves, our families, and our friends never mind fighting for a cause 😔"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n858geu/
+
+NameLips 2018-08-30
+
+"He's learned we won't do anything but bitch online."
+
+* ::=== RoundSparrow_Commentary : Twitter-length reaction-bitching like the very comment on Reddit. 9 whole words. Not citing any author, not citing any action plan, not citing that MAGA believes fiction and they are detached from reality. Online created the situation, but nobody watns to deal with the elephant of Reddit media ecology. "He's learned" - Putin since March 2013 IRA invasion of USA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n85gtl8/
+
+wellohwellok 2024-06-10
+
+"People might find it sarcastic and snarky but this is the most accurate comment in the discussion.
+
+The fed government has done enough systematically to prevent the outrage from morphing into any action that could serve as a legit threat to the federal government achieving its goals.
+
+Not enough people are willing to risk losing what little comfort they have left. They are too occupied/exhausted trying to keep their lives together as it is. If you go out and create a stir that amounts to anything more than noise, you will become a target and lose everything for zero gain in the fight, and harm you and your family's future along the way."
+
+* ::=== RoundSparrow_Commentary : The Federal Governing of Russia / FSB since year 2013 when the IRA went online and made every single American addicted to fiction antics / Donald Trump nonsense. ===:::
+
+&nbsp;
+
+&nbsp;
+
+## Checkpoint Monday B
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mniom8/reddit_will_block_the_internet_archive/n852wwp/
+
+FollowingFeisty5321 2023-03-20
+
+"Outrageous, especially with how often posts, threads and users get deleted!"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mniom8/reddit_will_block_the_internet_archive/n8558jf/
+
+motosandguns 2019-03-15
+
+"Reddit can’t have people recording all of the admin/moderator manipulation.
+
+It ruins their platform’s credibility. And thus its cultural relevance and shareholder value."
+
+* ::=== RoundSparrow_Commentary : Secretie message removal, secret moderators, secret moderation logs. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mniom8/reddit_will_block_the_internet_archive/n857w9w/
+
+jews4beer 2013-06-07
+
+"This is happening right when they started allowing people to hide their post history. Sites like the internet archive that do full scrapes (or others that hit the APIs directly) are still able to show that.
+
+This is almost certainly them taking steps to curb that to allow bot accounts to flourish."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mniom8/reddit_will_block_the_internet_archive/n85fdoc/
+
+SupervillainMustache 2024-03-03
+
+"I had no idea users could hide their history. I've been baffled as to why I clicked on some profiles that were empty."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mniom8/reddit_will_block_the_internet_archive/n85od0w/
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mniom8/reddit_will_block_the_internet_archive/n85od0w/
+
+potatoaster 2011-10-24
+
+"There has been an enormous uptick in AI posts and AI bot accounts. And tons of them were created 3+ years ago but only recently started posting. Either the botters are paying for ghost accounts with some age on them, or reddit's terrible security is allowing botters to take over dead accounts.
+
+Regardless, you are absolutely correct that it's time to leave."
+
+* ::=== RoundSparrow_Commentary : Reddit is hugely infuential to search engines and machine training material, so what you see on Reddit ends up into ChatGPT / GrokAI, etc. In terms of having an eye on Marshall McLuhan media ecology of "mass man", it is still a source. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mniom8/reddit_will_block_the_internet_archive/n85fsxc/
+
+InsuranceToTheRescue 2020-03-03
+
+"It's already impossible to determine a bot account. Handles are anonymous. Nothing public facing has to be related to anything identifying about yourself. Reddit is already a bot playground. Fuck, there's several subs where there's a bunch of pretty obvious ad/soliciting posts made by AI, complete with complementary AI comments from other accounts promoting the product."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mniom8/reddit_will_block_the_internet_archive/n85ad6w/
+
+sonic10158 2011-10-06
+
+"Internet enshittification is out of control"
