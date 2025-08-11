@@ -1310,3 +1310,24 @@ Plus-Drawing7431 **2025-06-23 (recent account)**
 
 * :::=== RoundSparrow_Commentary : They are dragging it out because of audience engagement. There is an ongoing media freanzy and they want to get as much out of this information strip tease as possible. They made a huge dramatic event of the binders handed out in [February 2025: "Epstein list phase 1 released: Alec Baldwin, Michael Jackson, Mick Jagger mentioned in documents"](https://www.foxla.com/news/epstein-list-phase-1-released). People have such recency bias in August 2025 they can't see the forest of QAnon "Q Drops" buildup for the trees of today's latest social media reaction frenzy. This is like releasing trailers and hints about an upcoming 3 part film like Lord of the Rings film series. This is how Surkov information warfare / Russian governing works. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmyjs7/jd_vances_attempt_to_link_democrats_to_epstein/n81a8ix/
+
+AusToddles 2018-07-11
+
+"I can only laugh to myself that they're struggling now because of the monster they created. They used "The Epstein Files" as the ultimate way to rile up their base... and now they can't release it because, sure, there's probably a bunch of Democrats in there but Trump's name is ALL over it
+
+So now you've got both sides calling for the release because Democrats attitude towards other democrats being in the files is "fuck them, if they're in them then let them hang" "
+
+* :::=== RoundSparrow_Commentary : Laughing away at Russian information warfare techniques, [eating the Surkovian onions without any self-awareness of how Surov governing works for the past 25 years in Russia](Surkovian_Onion_Eating.md). Very few social media users can grasp that the Trump White House is built upon antics, scandle, absurd behavior, surreal communications, shock and awe military tactics. Chuckehead nation can't be serious about Russian defeaitng NATO in information warfare because laughter is the best mind-fuck. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mmyjs7/jd_vances_attempt_to_link_democrats_to_epstein/n81gypk/
+
+minervascats **2025-07-28 (new account)**
+
+"These people think we're as stupid as they are"
+
+* :::=== RoundSparrow_Commentary : The White House thinks Reddit is as media addicted to nonsense antics, Tony Clifton act, as the White House is addicted to Putin's domestic Russia Kremlin performance. Rephrased: media addicts think that We THe People are media addicts too. Drug addicts sharing the drug with others because they think the drug is awesome, as the drug (media addiction) wrecks the entire USA future. Twitter-length reaction comment, Tweet-thinking. ===:::
