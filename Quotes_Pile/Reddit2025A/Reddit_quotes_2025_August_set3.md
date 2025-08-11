@@ -835,3 +835,47 @@ It’s a team sport to them. They do not give a crap about America, they care ab
 
 * :::=== RoundSparrow_Commentary : Russia won, Surkov won, since March 2013. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n854kir/
+
+Shirlenator 2011-11-30
+
+"Trump has already declared a civil war in America. The rest of us are just catching up."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n85e934/
+
+TheNewsDeskFive 2025-04-18 (this year)
+
+"We like to collectively tear down and eat alive anybody that tries to position themselves as a leader
+
+We like to think one person starts social movements and creates subsequent change, because we were largely taught a whitewashed version of our political and social history
+
+We have a really warped view of political action. The boot kicks, we sing, rinse and repeat"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n85deoe/
+
+Sickashell782 2020-01-02
+
+"Too busy getting fat and poking at their phones. Too busy trying to figure out how they’re going to pay for rent and groceries. Too busy working 2-3 jobs to afford said phone, rent and groceries. Too busy being brainwashed by foxnews and social media algorithms confirming their biases.
+
+At this point the Dems are complicit. I’ve been saying this for a while. They just don’t give a single solitary fuck. They’re (not ALL but the vast majority) braindead, wealthy, apathetic and they just don’t care. They’re complicit and deserve as much blame as the magats.
+
+There is no hero. There is no one who can do anything at this point. We’ve lost. And quite frankly, it looks really really really bad."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n85hhbe/
+
+ProfessionalOil2014 2024-12-14 (new this year)
+
+"Hillary was the most qualified person to ever run for president and you people still complained."
+
+* :::=== RoundSparrow_Commentary : Attitude: Hillary Clinton *not good enough*. Bernie Sanders: *not good enough*. Poeple in thier echo-chamber media filter-bubbles did not stand up repeating day after day that there was a Russian informationw war that [Hillary Clinton told people about Russia to our faces October 19, 2016](https://www.youtube.com/watch?v=VVrDjJixbSc), We The People were TOLD. Hillary Clinton worked for the USA State Department, she knew about Putin. ===:::
+
+&nbsp;
+
