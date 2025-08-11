@@ -724,3 +724,13 @@ He told me that things were the worst they've ever been under Biden, and now the
 My question is.... are we living in the same fucking country? And has he been retarded the whole time I knew him?"
 
 * :::=== RoundSparrow_Commentary : No, your freind is not retarded. Russia deployed the most potent information warfare ever devised with the IRA starting up in March 2013. Reality is gone, people live in fiction. Russia won, Surkov won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mngdjg/anything_to_distract_from_releasing_the_epstein/n84wwg6/
+
+kinotravels 2014-01-07
+
+"A MAGA person recently said to me that grocery prices are down. They are THAT delusional."
+
+* :::=== RoundSparrow_Commentary : ["It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating **mass hallucinations** that then translate into political action."](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) - September 9, 2014 - **year 2014** ===:::
