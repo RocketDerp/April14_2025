@@ -1365,3 +1365,33 @@ https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickl
 Rematekans 2018-07-06
 
 "I cut contact with all the die-hard Nazis I was related to when they started to come out as nazis during trumps first term. And I have since told all of my center conservative people that I dont tolerate the nazi shit and Im 100% willing to fight over it. They are quiet because they know everyone is just waiting for the shoe to drop."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86ctzu/
+
+DominosFan4Life69  2022-06-30
+
+"I think on the flip side of this redditors like to overestimate their importance and how much they're actually doing to fundamentally change things, which is not really much at all.  
+
+All the protests, all the post, all the bitching on here? What is it done? Nothing. We're sliding ever faster. 
+
+The answer is that everybody needs to get off this bullshit and understand that all of this is a distraction including this hell site."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n85uxl5/
+
+Buddhas_Warrior 2019-01-10
+
+"Because most think nothing will happen to them, until it does. Most think we're protected by the Constitution, but as we've seen, this Admin and the SCOTUS couldn't care less about that."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n868jv1/
+
+chiaboy 2011-03-11
+
+"Hear hear. "have we crossed the magical red line yet?"....many of my fellow countrymen are asleep at the switch. (sometimes understandable. Denial is an understandable response to seeing one's nation implode).
+
+People are fucking not meeting this moment."
