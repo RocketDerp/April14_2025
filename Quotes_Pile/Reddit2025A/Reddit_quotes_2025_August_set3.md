@@ -501,7 +501,17 @@ EsseXploreR 2013-08-02
 
 "Remember when all of those stupid pieces of shit were saying trump wasn't a fascist, and wouldnt become a dictator? So many truly braindead scumbags were so happy to parrot that."
 
-* :::=== RoundSparrow_Commentary : Remember when hard factual evidence was disclosed of a **Russian information warfare dating back to year 2014** to bewilder and make Americans behave hallow and superficial with one-line reaction comments on media platforms? [Validated by Johns Hopkins University and George Washington University going back to year 2014?](https://www.bbc.com/news/world-us-canada-45294192) Anyone remember? It was even covered on Fox News, mutliple times, nobody recalls? ===:::
+* :::=== RoundSparrow_Commentary : Remember when hard factual evidence was disclosed of a **Russian information warfare dating back to year 2014** to bewilder and make Americans *behave shallow and superficial* with one-line reaction comments on media platforms? [Validated by Johns Hopkins University and George Washington University going back to year 2014?](https://www.bbc.com/news/world-us-canada-45294192) Anyone remember? It was even covered on Fox News, mutliple times, nobody recalls? ===:::
+
+&nbsp;
+
+"Hey now. I remember one guy who was saying loud and clear that Donald Trump would be a dictator, and nobody listened.
+
+It was Donald Trump. He literally said he was going to be a dictator on day one.
+
+The guy says exactly what he's going to do and then he does it and nobody every believes him."
+
+* :::=== RoundSparrow_Commentary : THE KEY THING, year 2014 BBC, THE KEY THING: ["But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - year 2014 BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) THE KEY THING. A brain loophole, a mind exploit, Surkov is 100 years beyond Edward Bernays. THE KEY THING: [Vladimir Putin's Adviser Surkov Tells Americans: 'Russia Interferes in Your Brains, We Change Your Conscience' - Published February 12, 2019 Newsweek](https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793) ...  THE KEY THING, year 2014 BBC, THE KEY THING: ["But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake." year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) -- THE KEY THING! ===:::
 
 &nbsp;
 
