@@ -1395,3 +1395,14 @@ chiaboy 2011-03-11
 "Hear hear. "have we crossed the magical red line yet?"....many of my fellow countrymen are asleep at the switch. (sometimes understandable. Denial is an understandable response to seeing one's nation implode).
 
 People are fucking not meeting this moment."
+
+&nbsp;
+
+petty_throwaway6969 2020-06-04
+
+"Look at the posts and comments on Reddit. People are still saying this is just a distraction from the Epstein files. I’m hoping they’re right, but holy shit they are burying their heads in the sands and pretending that posting “Release the Epstein files” is actually doing something while the world is starting to burn around us. This could be our Reichstag moment and they would rather act like everything is alright so that they don’t have to care yet."
+
+* :::=== RoundSparrow_Commentary : Russia won, Surkov won, since March 2013. QAnon, Pizzagate, nonsense fiction has taken over Reddit / Bluesky / Everone since July 7, 2025 "Epstein List" FBI memo. Minds are blown beyond all belief. People blew out their minds over this Epstein List information Strip Tease that "Q Drop" information drip drip strip tease style mastered. ===:::
+
+&nbsp;
+
