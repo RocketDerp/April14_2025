@@ -1170,3 +1170,53 @@ cat_prophecy 2013-01-17
 People's sense of irony is burned out and dead.
 
 It's like people who talk shit about everyone around them, and are surprised when they find out people talk shit about them."
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n858bjs/
+
+oW_Darkbase 2012-07-19
+
+"What a fucking dumbass. It's beyond me how so many people voted for this disaster"
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n85tu0i/
+
+Fragmentia 2018-03-19
+
+"It's absolutely wild. My parents voted for Trump but have no fucking clue about the consequences of his policies."
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n8626vw/
+
+dosumthinboutthebots 2024-02-24
+
+"Same. It's because they get the news they do consume off Facebook, and the other far right Propaganda channels that exist like fox news, Newsmax and oan.
+
+They're both intelligent people but entirely uninformed on basically everything. I mean everything. They dk basic trump policies or any of his EO's and it's because these Propaganda networks don't report anything that makes their king look bad.
+
+If democrats can't win and keep these creeps out of power for years, America will cease to be the land of liberty for good"
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n863o3x/
+
+Ok-District-1484 2024-02-04
+
+"Bro u are not alone I lost my mom to this right wing fucks too, now she is alone at her b day with 70 and does not even have enough money to buy food, thats how u lose contact to anyone... now she is 24h/ on tiktok"
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n86dl0l/
+
+-Brodysseus 2019-10-20
+
+"America's support and endorsement of narcissistic behavior will be its downfall, unfortunately. We had it too good for too long."
+
+* ::=== RoundSparrow_Commentary : Levant Bible... 2,000 years ago: **Believe in this ONE AND ONLY ONE perfect storybook** in the entire world wide public library and you will be saved from Jesus Judgement Day. "narcissistic behavior will be its downfall" - from the Levant import book translated to English for King James. Reddit society doesn't want to stand up and fix the literacy problem, make Bible verse "1 John 4:20" front page every day in remedial learning. ===:::
+
+&nbsp;
+
+
