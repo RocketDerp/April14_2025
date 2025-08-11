@@ -549,3 +549,26 @@ chrispg26 2019-03-01
 
 * :::=== RoundSparrow_Commentary : Democracy revealed how dead it was in January 2020 when a virus had been in the news about Wuhan, China and was arriving in North America... and **NOT A SOUL** on social media could repeat Stephen Colbert's **LESS THAN A YEAR EARLIER, ON STAR WARS THE FORCE DAY, 2019**.  I can not repeat enough. May the 4th 2019 comes BEFORE January 2020 when the COVID-19 virus reached North America attention. That is LESS THAN A FULL YEAR, May 2019 to January 2020. And NOBODY can SUSTAIN REPEATING ON THE INTERNET POSTINGS AND COMMENTS this Star Wars Day YouTube video May 4, 2019: https://www.youtube.com/watch?v=Ju7Yt0LMiVk ... "1,082,498 views ... May 4, 2019 ... Anti-vaxxers aren't just morons. Some are also Russian trolls." :::===
   
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84o4a2/
+
+Shcatman 2019-08-01
+
+"It was always apathy. America’s “rugged” individualism led to the erosion of the village, of community, and of social support, and democracy. 
+
+We see it in the cars we drive (I need a big truck so I’m fine I don’t care about the other person), the school shootings (what about MY guns?), and in the president who will do anything to win (well I would do anything to win so he’s just like me)."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84lrbt/
+
+UnassumingNoodle 2017-03-21
+
+"That's been one of the hardest pills to swallow. Even once he's gone, even once all of this is over, behind us, and we begin building something better, the people who enabled this to happen will still be here.
+
+It's weird when nowhere feels like home.
+
+Edit: a word"
+
+* :::=== RoundSparrow_Commentary : Yes. Even when Donald Trump is gone, the **aftermath of Cambridge Analytica and the IRA** will still be in the minds of meme consumers, the social machine users. ===:::
