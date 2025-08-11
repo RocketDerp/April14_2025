@@ -483,3 +483,12 @@ pcnoobie245 2015-04-01
 
 * :::=== RoundSparrow_Commentary : Mocking and insulting isn't teaching. Mocking is not resistng. One-line Twitter-length reaction comments to Donald Trump have been gong on for over a decade on social machines. Why are people using social media not making Jen Senko's March 2016 film front-page topics every day in sustained repeating? Why isn't Neil Postman a household name? Instead, it is endless back and forth mockery, a total mockery nation. Russia won, Surkov won. "too ignorant to believe that their 2nd coming of jesus, trump" why isn't Bluesky and Reddit making Bible verse "1 John 3:17" front page repeating every 24 hours for years if you think Jesus is core to Donadl Trump power? Insstead, one-line reaction comments on Reddit and Bluesky. Where is the sense of **civic duty** to teach and educate if ignorance is the problem? Russia won, NATO lost, information war abounds! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n835xna/
+
+vassar888 2022-03-19
+
+"Whenever I try to point out blatant facts to my last conservative friend he tells me “you’ve got a different algorithm than I do, you’re not seeing the stuff I’m seeing” Hahahahaha wtf"
+
+* :::=== RoundSparrow_Commentary : Ha ha ha ha, chucklehead nation. Amused to Death, 1985. One group watches MSNBC, the other group watches [Fox News, different languages](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/). It was described in year 1985, before the Internet was opened to commercial use, before Eternal September. Quran Mosque media vemue vs. Bible Church media venue has been dong this media ecology pattern for over 1,000 years. [In year 1924, James Joyce of Dublin Ireland started to publish a book (in streaming chapters) from Paris France on the subject of media ecology titled "Wake the Fuck Up you Finnegans!"](https://jamesjoyce.ie/events/mamalujo-finnegans-wake-as-a-work-in-progress/) ===:::
