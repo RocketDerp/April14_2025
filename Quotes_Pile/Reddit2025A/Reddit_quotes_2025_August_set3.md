@@ -230,4 +230,11 @@ Omgazombie 2022-02-15
 
 * :::=== RoundSparrow_Commentary : No author cited, no article cited, no quote provided. This is exactly what social media Twitter-length reaction comments have done. Huge bold claims without any citations or expanded thinking on the topic. Tweet-thinking. It will scroll off the screen today and be repeated tomorrow tree after tree, no forest fire solutions. It is a short tiny message declaring that we all have cancer spreading ... in 1995 educator and teacher, school experienced, television show creator experience, celebrity experience... spelled it out in his book: ["unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media"](../Carl_Sagan_Quotes.md) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83h7qz/
+
+yenda1 2014-10-30
+
+"Honestly what kind of retarded country calls a bill "Big Beautiful Bill" it doesn't mean shit, it's 100% propaganda, 0% democracy"
 
