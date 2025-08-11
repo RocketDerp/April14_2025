@@ -447,4 +447,20 @@ InterviewOk1297 2025-04-13 (new this year)
 
 * :::=== RoundSparrow_Commentary : BINGO! A one-time economic gain of solders returning from Europe and Japan world war and having money saved and women waiting and baby boom / economic boom. Then the coputer and elctronics industry started building up in 1960's. Sports stars and rock music stars in the 1960's were paid almost nothing and the record cartels hadn't yet realized they could sell songs for 40 years, Hollywood didn't realize they could sell 1960's Star Trek for decades and keep earning off content copyright. All these are one-time gains until the rest of the world caught up. Just like the California gold rush in year 1849 and Alaska gold rush are one-time gains. You can clear-cut old-groth timber forests and dig out goold only once, it isn't a sustinable lifestyle. China's povery and growth is a one-tine systemic change. Exporting manufacturing (as Carl Sagan called out in year 1995 book: ["I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries"](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Carl_Sagan_Quotes.md). There is an absence in society of one-time gains. The video game industry money we see today isn't something we can keep inventing (the faith in funding artificial intelligence right now in year 2025...). At some point, we need to face the Nazi Germany equation about economic growth. The Second Bill of Rights January 1944 equation (5 months before D-Day Normandy landing). There are no more continents to discover on Earth, Europeans went to South America and North America and Central America in year 1492 onward... and there are now over 8 billion people. We need to start studying and having deeper dialog about [mythological fiction like the 2014 film Interstellar timeline and facing up that we do not want the world war ~~depicted~~ hinted at in 2014 film Interstellar. The "Resource Wars" took place in the 2030s, lasting for about 20 years.](https://www.youtube.com/watch?v=MIDrL5zRwxU). ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n82r9ae/
+
+ChronoAlone 2016-11-27
+
+"Yeah but they owned the libtards so it’s ok."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n82r2nx/
+
+throw_blanket04 2023-03-06
+
+"Medical practices are closing. Hospitals are closing. It’s going to get really bad."
+
+* :::=== RoundSparrow_Commentary : Harvard Medical School called all this out in early 2017 at the start of Donald Trump's term. [George Q. Daley, dean of Harvard Medical School - Harvard scientist worries we’re ‘reverting to a pre-Enlightenment form of thinking’ - February 23, 2017](https://www.washingtonpost.com/news/wonk/wp/2017/02/23/harvard-scientist-worries-were-reverting-to-a-pre-enlightenment-form-of-thinking/) ===:::
