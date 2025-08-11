@@ -464,3 +464,22 @@ throw_blanket04 2023-03-06
 "Medical practices are closing. Hospitals are closing. It’s going to get really bad."
 
 * :::=== RoundSparrow_Commentary : Harvard Medical School called all this out in early 2017 at the start of Donald Trump's term. [George Q. Daley, dean of Harvard Medical School - Harvard scientist worries we’re ‘reverting to a pre-Enlightenment form of thinking’ - February 23, 2017](https://www.washingtonpost.com/news/wonk/wp/2017/02/23/harvard-scientist-worries-were-reverting-to-a-pre-enlightenment-form-of-thinking/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83jze3/
+
+Flabbergasted_____ 2024-11-10 (account created after eleciton win by Trump)
+
+"Especially in rural areas where all the hospitals are closing, the nearest one that’s open is an hour+ away, and many of the people in those areas voted for the idiot that’s making it happen. But hey, they can blame Obama in a Facebook post while their family member bleeds out or dies of a stroke."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n82us21/
+
+pcnoobie245 2015-04-01
+
+"Sadly theyre too stupid and too ignorant to believe that their 2nd coming of jesus, trump, is to blame"
+
+* :::=== RoundSparrow_Commentary : Mocking and insulting isn't teaching. Mocking is not resistng. One-line Twitter-length reaction comments to Donald Trump have been gong on for over a decade on social machines. Why are people using social media not making Jen Senko's March 2016 film front-page topics every day in sustained repeating? Why isn't Neil Postman a household name? Instead, it is endless back and forth mockery, a total mockery nation. Russia won, Surkov won. "too ignorant to believe that their 2nd coming of jesus, trump" why isn't Bluesky and Reddit making Bible verse "1 John 3:17" front page repeating every 24 hours for years if you think Jesus is core to Donadl Trump power? Insstead, one-line reaction comments on Reddit and Bluesky. ===:::
+
