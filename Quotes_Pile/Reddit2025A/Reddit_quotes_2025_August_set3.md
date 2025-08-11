@@ -763,3 +763,11 @@ Karahi00 2018-06-25
 
 "People are famously prone to tunnel vision. Right know everyone is so focused on Epstein (which is surely important) and apparently forgot that Project 2025 is almost 50% complete and that technocrats and Christian zionist fascists are explicitly trying to destroy whatever semblance of democracy still existed in America in order to build their Randian dream world of CEO God kings ruling over their own fiefdoms."
 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mngdjg/anything_to_distract_from_releasing_the_epstein/n85cwqj/
+
+xScrubasaurus 2024-06-17
+
+"Yeah, this is actually one of the times that the Epstein list could actually be called the distraction. The leader taking control of the police is about as fascist takeover as it gets."
+
