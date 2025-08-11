@@ -1,10 +1,18 @@
 # Booby-Trapped Reality
 
+Living in a society where neighbors and friends trick and outsmart you or labor in advance to create illusions or exploit traditions and expectations. Terrorism cultures where people know you will be attending Church on Sunday or Mosque on Friday or a music concert and set bombs or gun attacks. Examples: [Manchester](https://en.wikipedia.org/wiki/Manchester_Arena_bombing), [Moscow](https://en.wikipedia.org/wiki/Crocus_City_Hall_attack), [Orlando](https://en.wikipedia.org/wiki/Pulse_nightclub_shooting), [Paris](https://en.wikipedia.org/wiki/November_2015_Paris_attacks).
+
+Information manipulation or using doctorates of psychology like [Dr. Abraham Brill in New York City](https://en.wikipedia.org/wiki/Torches_of_Freedom) to manipulate consumers or others into self-harm for profit or other motivation.
+
 September 9, 2014 The Alantic published on the World Wide Web an article titled ["Russia and the Menace of Unreality"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). I did not discover this article or the author until late year 2015.
+
+&nbsp;
 
 ## The Selling-Out to Unreality
 
 The telvision show ["The Apprentice"](https://www.youtube.com/watch?v=uShLa9e89vc) failed in Russia. A television producer hired to expand unreality shows, politics is scripted reality show.
+
+&nbsp;
 
 ## Levant Religions
 
