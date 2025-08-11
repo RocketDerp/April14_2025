@@ -492,3 +492,16 @@ vassar888 2022-03-19
 "Whenever I try to point out blatant facts to my last conservative friend he tells me “you’ve got a different algorithm than I do, you’re not seeing the stuff I’m seeing” Hahahahaha wtf"
 
 * :::=== RoundSparrow_Commentary : Ha ha ha ha, chucklehead nation. Amused to Death, 1985. One group watches MSNBC, the other group watches [Fox News, different languages](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/). It was described in year 1985, before the Internet was opened to commercial use, before Eternal September. Quran Mosque media vemue vs. Bible Church media venue has been dong this media ecology pattern for over 1,000 years. [In year 1924, James Joyce of Dublin Ireland started to publish a book (in streaming chapters) from Paris France on the subject of media ecology titled "Wake the Fuck Up you Finnegans!"](https://jamesjoyce.ie/events/mamalujo-finnegans-wake-as-a-work-in-progress/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84ha3j/
+
+EsseXploreR 2013-08-02
+
+"Remember when all of those stupid pieces of shit were saying trump wasn't a fascist, and wouldnt become a dictator? So many truly braindead scumbags were so happy to parrot that."
+
+* :::=== RoundSparrow_Commentary : Remember when hard factual evidence was disclosed of a **Russian information warfare dating back to year 2014** to bewilder and make Americans behave hallow and superficial with one-line reaction comments on media platforms? [Validated by Johns Hopkins University and George Washington University going back to year 2014?](https://www.bbc.com/news/world-us-canada-45294192) Anyone remember? It was even covered on Fox News, mutliple times, nobody recalls? ===:::
+
+&nbsp;
+
