@@ -644,3 +644,10 @@ Artzee 2011-12-23
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84ixrf/
+
+Mr_War 2017-03-17
+
+"Talking about a real fight gets you banned on most platforms. They have ignored peaceful protests for the last 15 years. All that's left is violence. If real leaders come to the front first maybe the violence can be minimal, but it's rebellion or nothing."
+
+* :::=== RoundSparrow_Commentary : Shallow, simplistic, Russian conditioned self-harm USA thinking reactions. There has been no HIGH ROAD. I have contacted the White House / Pentagon since year 2015 about the Russian informaiton warfare. Murdering, splattering brains, killing people isn't going to fix a media ecology problem. It will only deepen the abandonment of reason thinking in the minds. People have NOT taken the **HIGH ROAD** at all, the High Road is stop Reality TV "The Apprentice" entertainment addiction, confront addiction to reality TV Donald Trump. [Stop all Social Media Entertainment, we can live for a few months without entertainment and stop blowing our minds on every move of Donald Trump "The Apprentice" Reality TV antics](..//../Grim_Blunt/Stop_All_Entertainment.md) - show the ENTIRE EARTH, World Wide Web, that you stood up for SINCERITY, HONESTY, FACTS, SCIENCE THINKING, name-drop MALALA over and over, stop shoving dumb-ass memes into your minds and HALT ENTERTAINMENT and use Intellectual Weapons, take up Intelligence Arms and EDUCATE and TEACH our way out of this crisis. Not gun stroking USA shooing schools and shooting up grocery stores American violence worship that the television consumers of the world expect from USA. NOTE: Reddit username is "Mr_War" :::===
