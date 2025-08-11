@@ -903,4 +903,14 @@ Epirocker 2016-03-13
 
 "We are losing our minds but we aren’t able to do anything to stop it. Every check against the federal government has fallen. We are outgunned completely by the military. While I don’t think this will actually last past trumps term or the end of his life, this is going to be a very bad time."
 
-* :::=== RoundSparrow_Commentary :"We are losing our minds but we aren’t able to do anything to stop it" - you are LOSING YOUR MINDS to FICTION. You can face your media addiction to reaction commenting to Donald Trump and call a crisis of MEDIA ECOLOGY learning. "We are losing our minds but we aren’t able to do anything to stop it" - you can [**STOP ALL ENTERTAINMENT, SEND An S.O.S. TO THE WORLD WIDE WEB EVERY 12 HOURS OVER AND OVER EVERY DAY**](../../Grim_Blunt/Stop_All_Entertainment.md) - stand up for LITERACY and COMPREHENSION and EDUCATION on your FEET! Stand up for SCIENCE REALITY, not FICTION RFK Jr bullshit! REPEAT AND REPEATING On Social Media and STOP ENTERTAINMENT JUNK! ===:::
+* :::=== RoundSparrow_Commentary : "We are losing our minds but we aren’t able to do anything to stop it" - you are LOSING YOUR MINDS to FICTION. You can face your media addiction to reaction commenting to Donald Trump and call a crisis of MEDIA ECOLOGY learning. "We are losing our minds but we aren’t able to do anything to stop it" - you can [**STOP ALL ENTERTAINMENT, SEND An S.O.S. TO THE WORLD WIDE WEB EVERY 12 HOURS OVER AND OVER EVERY DAY**](../../Grim_Blunt/Stop_All_Entertainment.md) - stand up for LITERACY and COMPREHENSION and EDUCATION on your FEET! Stand up for SCIENCE REALITY, not FICTION RFK Jr bullshit! REPEAT AND REPEATING On Social Media and STOP ENTERTAINMENT JUNK! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n8512px/
+
+shannonator96 2014-10-06
+
+"This sentiment right here is why the Americans aren’t resisting. You’re all still in denial, thinking that this will end once his term is up."
+
+::=== RoundSparrow_Commentary : Denial abounds. This is the SECOND term for Donald Trump. People did not address the Russian information warfare durng Biden. Living in denial of [Putin's mind-fucking. Which is STILL ONGOING](https://www.nbcnews.com/news/investigations/russia-china-cuba-amplified-falsehoods-recent-hurricanes-us-official-s-rcna177672)... and now joined in by many nations who hate USA. ===:::
