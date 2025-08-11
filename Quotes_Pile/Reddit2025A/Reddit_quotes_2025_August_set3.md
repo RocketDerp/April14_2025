@@ -1042,3 +1042,48 @@ https://old.reddit.com/r/technology/comments/1mniom8/reddit_will_block_the_inter
 sonic10158 2011-10-06
 
 "Internet enshittification is out of control"
+
+&nbsp;
+
+https://old.reddit.com/r/fednews/comments/1mnezp7/donald_trump_begins_authoritarian_takeover_of/n84crhn/
+
+hi_im_eros 2015-06-23
+
+"It’s amazing how the right wing echo chambers typed like madmen for both Obama and Bidens
+
+Then their guy does the shit they’ve claimed to be so well armed to prevent and…silence. Just fake praise because at this point what do you do? Admit your were fooled? Online?
+
+On the same keyboard you’ve been raging on for a decade?
+
+What an era we are in."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/fednews/comments/1mnezp7/donald_trump_begins_authoritarian_takeover_of/n84fdde/
+
+8__D 2016-01-27
+
+"Anything to own the libs, a group they hate for no good reason - only because they were told to hate them.
+
+They're a bunch of cowardly sheep."
+
+&nbsp;
+
+https://old.reddit.com/r/fednews/comments/1mnezp7/donald_trump_begins_authoritarian_takeover_of/n84juru/
+
+jsc1429 2017-03-01
+
+"Yeah, they do not care at all about what is actually happening and how hypocritical the actions are. Just as long as it owns the libs and hurts the right people they could not care less about what’s happening"
+
+* ::=== RoundSparrow_Commentary : [“The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945](../Doctors/Carl_Jung.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/fednews/comments/1mnezp7/donald_trump_begins_authoritarian_takeover_of/n85iaew/
+
+ProdigalSheep 2011-06-13
+
+"They hate the libs because the libs have nuanced thoughts and opinions about politics that they can’t understand, so it makes them feel inferior. They hate the libs because the libs tell them that it’s not okay to be racist and misogynistic, and they need to have a villainized group to blame their problems on and feel superior to. Those are the real reasons they hate the libs."
+
