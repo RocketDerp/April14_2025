@@ -1243,3 +1243,40 @@ IshTheFace 2015-06-11
 
 "The fact that a whole administration can just stand behind him (like physically ), while he spouts his BS is crazy. Some of them were pro Ukraine until trump appointed them. Like Rubio. Nowadays, everyone is just "well the president wishes/says/thinks/wants etc. Like, does anyone think for themselves in this administration or are they all hand picked to just parrot what Trump wants?"
 
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n85k228/
+
+Big_Consequence_3958 2021-03-29
+
+"I have been stressing to all the Ukrainian YouTube content creators that Ukraine must consider Trump an asset of Russian intelligence or at the very least compromised with extortion material on him. I'm sure Ukrainian intelligence and defense forces know already but I still wanted them to hear it from an American. It is that crazy. I can't believe people voted for that man"
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n857vnd/
+
+rxVegan 2017-05-26
+
+"Every day this clown finds new ways to make the once prestigious position of POTUS an international embarrassment."
+
+* ::=== RoundSparrow_Commentary : Fictin outsells nonfiction. Surkov won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n85g9ps/
+
+RisenApe12 2023-07-16
+
+"He still thinks Ukraine invaded Russia, he has no clue what's going on in the world."
+
+* ::=== RoundSparrow_Commentary : This reddit comment is Surkovian onion eating. (or fake messages of a simulacra of resistance, opposition simualcra messages). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n857le6/
+
+activoutdoors 2021-05-23
+
+"Laying the groundwork for his next manic pendulum mood swing back to Ukraine being the problem. He is a buffoon."
+
+* ::=== RoundSparrow_Commentary : This reddit comment is Surkovian onion eating. (or fake messages of a simulacra of resistance, opposition simualcra messages). Audience members interacting with Tony Clifton act of White House / Kremlin. [Taste testing the Tony Clifton act](../../Grim_Blunt/Society_of_grading_and_ranking_turds.md), react comments on social media. Not REMOVING and calling this out by name, Surkov techniques and saying we need to all STOP it NOW, but sitting in audience commenting about the next plot point int he predictaable storylines. This is what USA audience have been doing for TEN YEARS, a DECADE to Donald Trump. Not saying "this is just like Tony Cliifton, this is just like Surkov in Russia" but instead - react commenting and turd grading. ===:::
