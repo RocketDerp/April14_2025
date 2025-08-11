@@ -1406,3 +1406,18 @@ petty_throwaway6969 2020-06-04
 
 &nbsp;
 
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86g3ww/
+
+Significant_Ad7326 2020-12-23
+
+"The best distractions are not just distractions. The Trump administration keeps up an energetic stampede of atrocity so that it’s all mutually distracting, and there’s even wasted opposition time and energy figuring out what’s “the” distractions. It’s all serious; it’s all also distracting. It’s a crime fiesta."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86n1hp/
+
+GeneralMalaise99 2023-07-19
+
+"The whole Epstein thing is a distraction from the actual scary stuff in my opinion. Like, what good would the release do? We all know he's a pedophile, sexual predator, conman narcissist. He'd face no consequences because he never has and never will. We already know he's on the list! Yet everyone hopes this will be his undoing. Nope! Meanwhile, our country is falling under the heel of fascism."
+
+* ::=== RoundSparrow_Commentary : Putin is not in control any more than Mecca is in control of the Runaway Quran Mosque monomyth storytelling for the past 1,400 years. Unless we face up to the global Compatative Mythology realization, Finnegans Wake from James Joyce / Ireland metaphors of 1924, we are all sinking globally back into fiction monomyth brain patterns. We are pulling our own *heart strings* and ignoring the direction our meme (John 1:1) addiction is leading us. Donald Trump is a symptom, Putin is a 25 year ongoing synptom. The Kremlin can't control this runaway simualcra, the Cambridge Anlytica echos and parrotin of IRA and CA are fed back into machine learning ChatGPT / GrokAI / large language models and we are dynamically creating custom echo chambers of egomania. Runaway simualcra, fiction runaway brain exploit storytelling. ===:::
