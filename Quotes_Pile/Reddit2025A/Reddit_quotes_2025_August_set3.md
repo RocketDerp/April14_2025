@@ -875,7 +875,32 @@ ProfessionalOil2014 2024-12-14 (new this year)
 
 "Hillary was the most qualified person to ever run for president and you people still complained."
 
-* :::=== RoundSparrow_Commentary : Attitude: Hillary Clinton *not good enough*. Bernie Sanders: *not good enough*. Poeple in thier echo-chamber media filter-bubbles did not stand up repeating day after day that there was a Russian informationw war that [Hillary Clinton told people about Russia to our faces October 19, 2016](https://www.youtube.com/watch?v=VVrDjJixbSc), We The People were TOLD. Hillary Clinton worked for the USA State Department, she knew about Putin. ===:::
+* :::=== RoundSparrow_Commentary : Attitude: Hillary Clinton *not good enough*. Bernie Sanders: *not good enough*. Poeple in thier echo-chamber media filter-bubbles did not stand up repeating day after day that there was a Russian informationw war that [Hillary Clinton told people about Russia to our faces October 19, 2016](https://www.youtube.com/watch?v=VVrDjJixbSc), We The People were TOLD. [Hillary Clinton worked for the USA State Department, she knew about Putin. March 6, 2011](https://communicationleadership.usc.edu/2011/03/06/secretary-clinton-and-the-information-war/) LONG BEFORE Donald Trump was running for the 2016 election. 2011 year comes WAY before year 2016. ===:::
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n853zou/
+
+Celestial_Hart 2023-03-28
+
+"Speak all you want, nobody is listening. They defied courts, continue to commit crimes against their own citizens, beat and jail protestors meanwhile democrats are literally just twiddling their thumbs giving feel good speeches. Six months ago was the time for action, now is the time for defense. We're fucked."
+
+* :::=== RoundSparrow_Commentary : "democrats are literally just twiddling their thumbs giving feel good speeches" what BULLSHIT. You can clearly see what people are doing, look at Twiter / Bluesky / Reddit / Facebook / TikTok / Instagram. People are ***REACT COMMENTING TO DONALD TRUMP*** every day and avoiding Neil Postman books. Avoiding Carl Sagan books. Avoidng anything that isn't amusing and entertaining fiction. "literally just twiddling their thumbs" flocking to FICTION and REACTION COMMMENTING in Twitter style. This is a media ecology war started by Russia on social media commnt sections by the IRA in March 2013. "Six months ago was the time for action" - Russia IRA ramped up online March 2013, Ukraine war started in February 2014. Not a soul on Reddit can say "Surkov", or "Peter Pomerantsev" about the techniques and organizations that infitrated Reddit. People in August 2025 don't even know how to day "War Against Reality", the title of Peter Pomerantsev's 2019 book! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n84zp4n/
+
+Environmental-Arm365 2022-02-08
+
+"People would do well to remember there was a reason the Roman legions were prohibited from entering Rome. Americans should be losing their minds over this shameless power grab and distraction from Cheetolini’s kiddie diddling."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n850q8i/
+
+Epirocker 2016-03-13
+
+"We are losing our minds but we aren’t able to do anything to stop it. Every check against the federal government has fallen. We are outgunned completely by the military. While I don’t think this will actually last past trumps term or the end of his life, this is going to be a very bad time."
+
+* :::=== RoundSparrow_Commentary :"We are losing our minds but we aren’t able to do anything to stop it" - you are LOSING YOUR MINDS to FICTION. You can face your media addiction to reaction commenting to Donald Trump and call a crisis of MEDIA ECOLOGY learning. "We are losing our minds but we aren’t able to do anything to stop it" - you can [**STOP ALL ENTERTAINMENT, SEND An S.O.S. TO THE WORLD WIDE WEB EVERY 12 HOURS OVER AND OVER EVERY DAY**](../../Grim_Blunt/Stop_All_Entertainment.md) - stand up for LITERACY and COMPREHENSION and EDUCATION on your FEET! Stand up for SCIENCE REALITY, not FICTION RFK Jr bullshit! REPEAT AND REPEATING On Social Media and STOP ENTERTAINMENT JUNK! ===:::
