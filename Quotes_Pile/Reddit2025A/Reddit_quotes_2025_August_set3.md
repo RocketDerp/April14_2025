@@ -1421,3 +1421,44 @@ GeneralMalaise99 2023-07-19
 "The whole Epstein thing is a distraction from the actual scary stuff in my opinion. Like, what good would the release do? We all know he's a pedophile, sexual predator, conman narcissist. He'd face no consequences because he never has and never will. We already know he's on the list! Yet everyone hopes this will be his undoing. Nope! Meanwhile, our country is falling under the heel of fascism."
 
 * ::=== RoundSparrow_Commentary : Putin is not in control any more than Mecca is in control of the Runaway Quran Mosque monomyth storytelling for the past 1,400 years. Unless we face up to the global Compatative Mythology realization, Finnegans Wake from James Joyce / Ireland metaphors of 1924, we are all sinking globally back into fiction monomyth brain patterns. We are pulling our own *heart strings* and ignoring the direction our meme (John 1:1) addiction is leading us. Donald Trump is a symptom, Putin is a 25 year ongoing synptom. The Kremlin can't control this runaway simualcra, the Cambridge Anlytica echos and parrotin of IRA and CA are fed back into machine learning ChatGPT / GrokAI / large language models and we are dynamically creating custom echo chambers of egomania. Runaway simualcra, fiction runaway brain exploit storytelling. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n85zah5/
+
+Clear-Magazine2 **2025-07-31 (fresh new account)**
+
+"Seeing this normalization of alarming rhetoric is troubling. It’s a gradual erosion of democracy where complacency breeds acceptance. History teaches us—milestones of authoritarianism often start small. Ignoring warning signs could lead to irreversible consequences. Awareness and engagement are crucial to halt this momentum."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86jvd9/
+
+LucywiththeDiamonds 2018-03-01
+
+"Watching this from germany and i constantly think the same. Its really hard to believe that just nothing happens ever while there is open corruption on the grandest scale and laws and even reality doesnt matter anymore.
+
+Then again our neonazis and far rights copied a lot of trumps playbook and have great success with it so im not very confident our future either."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86pixr/
+
+Alone-Presence3285 2023-10-21
+
+"That's what I keep telling my wife. Like what can we even fucking do about this? Half the country is enjoying this shit and we live in a heavily red area of the country so local reps are also actively enjoying this shit. I'm worried for our future and our kid's future but, like you, I'm not going to risk protesting nowadays. It's obvious that if this slide continues that liberals will be in the crosshairs eventually and I don't want to expose me or my family to that danger. Best for us to quietly disagree and try and raise our children the best we can. It's not like I'm a super hero in some book after all. I can only do so much and people, especially around me, don't want to listen to any different opinions."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86sd1c/
+
+DoubleJumps 2021-07-03
+
+"The average american is dramatically more oblivious and unaware than you would have imagined.
+
+I've had to learn this the hard way.
+
+It's a mix of LALALAL I CAN'T HEAR YOU people consciously making a choice to just not be involved in shit and figure someone else will take care of it, and people that are just extremely stupid."
+
+* ::=== RoundSparrow_Commentary : They are well practices at communicating that the *out-group is extremely stupid*, over and over on one-line Twitter-length reaction comments since March 2013 IRA ramped up from Russsia. Mocking is not resisting. Calling people extremely stupid is not reaching about Surkov information warfare and Cambridge Analytica mind exploitation mechanics. ===:::
+
