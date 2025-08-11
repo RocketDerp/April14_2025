@@ -771,3 +771,30 @@ xScrubasaurus 2024-06-17
 
 "Yeah, this is actually one of the times that the Epstein list could actually be called the distraction. The leader taking control of the police is about as fascist takeover as it gets."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n84xs9i/
+
+kon--- 2021-06-25
+
+"Look at MAGA going big government as fuck."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n84zezx/
+
+froginbog 2015-05-02
+
+"Larger deficit, bigger fed govt, fewer civil liberties, president above the law. They never stood for shit"
+
+* :::=== RoundSparrow_Commentary : People in USA stood for **fiction content**. Fiction from Bible, fiction from Donald Trump, fiction from Rupert Murdoch, fiction from Putin's IRA. Crowds stood for fiction entertainment. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnhuf9/trump_warns_fascist_dc_takeover_is_just_the/n857hk1/
+
+AuzRoxUrSox 2016-05-18
+
+"And they warned of a police state with every democrat in office…..yet, here we are."
+
+* :::=== RoundSparrow_Commentary : Inverted meaning in language. Words meaning the absolute ass-backwards opposite of their meaning. Nobody wanted to take that Irish author James Joyce serious on the subject of Romans 11:32 verse ass-backwards Bible literacy equation. ===:::
