@@ -48,5 +48,44 @@ Its not like they dont like Trump's policies. They just dont like that its happe
 
 If you can convince a group of people that another group of people are not as "human" as they are, they are more willing to accept and even demand harm to the other groups."
 
-* :::=== RoundSparrow_Commentary : Long-form social media is good, except that in this case no author or book or expanded material is cited. Where did this person hear these ideas, who is their source and research on the subject. There has become a trend to behave like RFK Jr and Donald Trump and provide long-form information but not cite well researched authors or writings. People aren't encouraged to go to the public library and instead consume a page of information and move on to a completely different subject. Improtant topics drown in the constant context changes, the social media streaming memes and reactions to Donald Trump White House. Absent is asserts like this Reddit message saying: "We really need to make Neil Postman's 1985 book a household name and get everyone on the sae page of these topics. Malala in Pakistan also had a lot to say in her 2013 book about how the Taliban used Radio Mullah to influence poor people." - there is no rally point of common understanding. It is just a message that is in conversation and not treating this as one of the most iportant and serious topics of our time that has been gong on since March 2013 rise of MAGA and Donald Trump's constant society attention and focus. ===:::
+* :::=== RoundSparrow_Commentary : Long-form social media is good, except that in this case no author or book or expanded material is cited. Where did this person hear these ideas, who is their source and research on the subject. There has become a trend to behave like RFK Jr and Donald Trump and provide long-form information but not cite well researched authors or writings. People aren't encouraged to go to the public library and instead consume a page of information and move on to a completely different subject. Improtant topics drown in the constant context changes, the social media streaming memes and reactions to Donald Trump White House. Absent is asserts like this Reddit message saying: "We really need to make Neil Postman's 1985 book a household name and get everyone on the sae page of these topics. Malala in Pakistan also had a lot to say in her 2013 book about how the Taliban used Radio Mullah to influence poor people." - there is no rally point of common understanding. You witness all July 2025 / August 2025 (past 6 weeks) constant calls for "Epstein List", but you do not see such messaging of constant calls "We all need to read Neil Postman's 1985 book" to address the intellectual problems of society, that MAGA bleieves falsehoods and fiction.  It is just a message that is in conversation that will be ignored after it ages out in 48 hours... and not treating this problem as one of the most iportant and serious topics of our time that has been gong on since March 2013 rise of MAGA and Donald Trump's constant society attention and focus. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83eh64/
+
+The_ChwatBot 2022-11-04
+
+"Yeah, there’s this guy on TikTok called The Elder Millenial that literally just spouts off with multiple easily disproven bullshit right wing propaganda videos all day every day to the point where I’m pretty sure it’s his full time job now.
+
+And even though the comments are usually calling out his lies, it doesn’t matter. He’ll leave the videos up even when he’s proven wrong because the engagement is all that matters. Lies or no lies—the guy has over half a million followers. For every one person who calls him out, ten more go “Yeah! You tell em! Stupid libs.”
+
+Like… How do we even combat this? The truth doesn’t matter as long as it affirms the beliefs of whomever’s consuming it. These damn phones have broken our brains and I honestly don’t see any way out of it.
+
+Not to mention, I was raised in the rural south and went to a backwoods podunk public school in a bottom five state in education rankings. And yet I was taught how to verify my sources. I was taught how to distinguish trusted information from opinion. How is it that so many other goddamn people have just completely forgot? Really makes my brain hurt."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83iqeg/
+
+ImaginationSea2767 2021-04-26
+
+"See I use to want to argue with some of these people but, one I know in real life proudly told me one of the "facts" he learned online from one of these creators.
+
+That fact was that the big planes spreading "chem trails" only have enough fuel for take off and that they dont need any for mid flight or landing.
+
+Completely blind to physics or math's.
+
+Altbough i would say half want to affirm their beliefs I think to the other half it doesnt even matter if it affirms their beliefs. From what I know of some of these people they ALL have some dark hole in there life, be it a mental problem, money problems, health problems or shitty up bringing ect. And they all want to blame it on someone or take their frustration out on someone, some higher power and fantasy land.
+
+All these people look to is some creator pumping them content and telling them how to feel, how to think and who to hate. With some sprinkles of hidden shady powers and evil people pulling the strings screwing them and everyone else over."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83aevm/
+
+Remote-Lingonberry71 2024-08-15
+
+"they kinda told the truth, they will never care about "your" feelings cause you arent a real person like they are so their feelings matter, yours dont. its part of conservatives embracing of authoritarianism over the last 40 odd years, they wouldnt be trying to gerrymander if they believed in democracy."
+
+* :::=== RoundSparrow_Commentary :  "its part of conservatives embracing of authoritarianism over the last 40 odd years" - 40 years ago is when Neil Postman's 1985 book about television media, electric media (social media) was created. Amusing / Entertaining ourselves to death. And it is a mistake to view "conservatives embracing of authoritarianism" as a recent trend, the entire stories of the Levant religions: Torah, Quran, Bible are all based on heavy authoritarianism teachings to children at the youngest age in Mosque, Church, Synagogue / parenting. All human history of Levant religions. [Study Malala in Swat Valley Pakistan year 2013](https://www.goodreads.com/work/quotes/24987300-i-am-malala-the-girl-who-stood-up-for-education-and-was-shot-by-the-tal), which is VERY FAR from Mecca and Quran origins, as is California from Bible / Jesus storytelling origins. "conservatives embracing of authoritarianism" in Saudi Arabia has been ongoing for thousands of years! It is really only since world war two that USA society broke free of the Bible / Church fiction authoritarianism indoctrination. ["And the scientific game, after all, may not be any truer, but it is vaster, and it takes in a bigger range of facts and experience. So it is this terrific moment that we face; it is a moment that has been maturing so to say since the days of the Greeks. And since the days of the Second World War, it has gone through all the planet."](Joseph_Campbell_Quotes.md) And by 1985 Neil Postman was describing the Fox News religion development before the 1996 opening of Fox News itself. "conservatives embracing of authoritarianism" - embrace of fiction storytelling over scintific reality. ===:::
