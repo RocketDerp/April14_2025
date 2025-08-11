@@ -35,5 +35,16 @@ Removing of supernatural space alien elements, the magical science fiction aspec
 
 Weizenbaum, Joseph (1976). Computer Power and Human Reason: From Judgement to Calculation. W. H. Freeman. page 7.
 
+&nbsp;
+
+## Tabloid news, Infomercials
+
+Infomercial news like Fox News network, Saturday Night Live's "Weekend Update" news, "The  Daily Show" (Daily News) that is news that booby-traps people into mockery of serious misunderstandings. Neil Postman's 1985 social theory about humor and entertainment degrading understanding to a point of cultural death and human death by systemic misunderstandings.
+
+Fox News entertament network emphasizes that other news networks are inocrrect. A constant emphasis on brand and source loyalty, not loyalth to truth and factuality, but to the brand of the news. Brand loaylty to consumer brands like auotmobiles, sports team brand loyalty, religion storytelling fiction loyalty, etc.
+
+People unable to distinguish fiction from nonfiction, informercial content / televangleism content of Rupert Murdoch from factual sincere informaton and nonfiction.
+
+
 **ELIZA year 1966, it took a decade** until 1976 to realize and articulate what had been witnessed.
 
