@@ -1299,7 +1299,26 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mnn9in/at_this_point_they_j
 
 RedDevilJennifer 2019-02-07
 
-* ::=== RoundSparrow_Commentary : didn't rescue a single person, didn't evem attempt much of a rescue other than a single one-time "pointed out" without repeating. Feels like a hero years later. Didn't say: "Hey, we on Reddit need to take that "First They Came For" poem from Nazi Germany seriously and not just feel vindicated and actually use social media systems to educate and teach people why that man wrote that poem" - we have a WIDESPREAD issue of people believing falsehoods from Russia since March 2013, and nobody wants to go into information warfare mode. [Putin made sexuality a core thrust in his December 2013 announcement: The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) ===:::
+
+didn't rescue a single person, didn't evem attempt much of a rescue other than a single one-time "pointed out" without repeating. Feels like a hero years later. Didn't say: "Hey, we on Reddit need to take that "First They Came For" poem from Nazi Germany seriously and not just feel vindicated and actually use social media systems to educate and teach people why that man wrote that poem" - we have a WIDESPREAD issue of people believing falsehoods from Russia since March 2013, and nobody wants to go into information warfare mode. [Putin made sexuality a core thrust in his December 2013 announcement: The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mnn9in/at_this_point_they_just_have_a_thing_for/n86nm4j/
+
+Dull-Attention-9104 **2025-06-27 (recent account)**
+
+"And i still keep having asshole conservatives act like they aren't pushing to make America a Christian version of Afghanistan.
+
+I will always stand by this regardless of how this makes people feel. Christians are just as if not worse then Muslims. And its mainly because america has a bias and cant see how insane Christianity can be.
+
+Literally both follow the same rules and have similar stances. Both hate gay people. But Christians love to dress their hatred up with some insane bs aka gay conversion therapy or praying the gay away. Which leads to them not wanting things like gay marriage to exist let alone gay rights. And then it becomes anti sodomy laws and well give it enough time they will start getting homicidal.
+
+They see it as a mental illness/moral failing/greatest sin. And well read the Bible and what it says about gay people. That's what Christians want. They feel god is displeased and that america needs biblical law to make what they see as wrong right. 
+
+They are just working up the courage to do it. Gay conservatives are really stupid because they really played with fire and are gonna get burned."
+
+* ::=== RoundSparrow_Commentary : Then you go to the public library and find an October 8, 2013 book from Pakistan about the Taliban of Afghanistan and Pakistan, and you quote it over and over and repeating and repeat on social media. But that takes staying focused and not jsut react-commenting to every MAGA event on social media every day. Malala has been raising issues since January 2009, over 15 years, and people in USA have all the media systems they need to repeat her words and ideas. Instead, people are repeating sports scores and quotes from television media fiction. ===:::
 
 &nbsp;
 
