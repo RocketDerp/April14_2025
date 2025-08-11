@@ -1219,4 +1219,27 @@ https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_b
 
 &nbsp;
 
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n85hu0a/
+
+Virtual-Food7492 2025-05-03 (recent account)
+
+"There is no funny thing. This is danger for Ukraine and Europe."
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n85pjxf/
+
+Jensbert 2019-11-27
+
+"This rapist will get a peace nobel price... Zelensky will go down as war mongerer... That´s what they will achieve by blackmailing and extortion. History will not be remembered as is. That´s their goal
+
+Sad times"
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1mnj1sq/i_was_a_little_bothered_by_the_fact_that/n85d86j/
+
+IshTheFace 2015-06-11
+
+"The fact that a whole administration can just stand behind him (like physically ), while he spouts his BS is crazy. Some of them were pro Ukraine until trump appointed them. Like Rubio. Nowadays, everyone is just "well the president wishes/says/thinks/wants etc. Like, does anyone think for themselves in this administration or are they all hand picked to just parrot what Trump wants?"
 
