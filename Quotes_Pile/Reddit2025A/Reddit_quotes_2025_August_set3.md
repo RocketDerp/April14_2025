@@ -285,4 +285,51 @@ FIakBeard 2020-03-29
 I used to think that climate change was really going to be terrible for my grandkids, but we out here speedrunning it. Healthcare is a parody of itself and ironically they are probably going to get those "death panels" they were always crying about. Talking about sending homeless and kids with adhd and bipolar to camps. Perfectly usable NASA missions and NHS research getting shut down just because. Is it already too late? Is it too soon to walk to the Canada border and claim refugee status?"
 
 * :::=== RoundSparrow_Commentary : Look at Saudi Arabia Mecca fiction, Russia Kremlin fiction. You can go one level up and say ficiton addiction is the crisis globally. Look at Malala's October 8, 2013 book about fiction: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
-― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban ... Quran tells fiction story of Heaven awaiting after death. Bible tells science fiction story of Heaven awaiting after death, trash the Earth, it is all temporary. "Quant à moi, je ne vois pas dans la religion le mystère de l'incarnation, mais le mystère de l'ordre social; elle rattache au ciel une idée d'égalité qui empêche que le riche ne soit massacré par le pauvre." - **March 4, 1806**; Napoléon Bonaparte. As Malala is pointing out October 8, 2013 echos Napoléon in year 1806 -- who cares about Climate Change when you have a temporary Earth and Heaven awaits? Taliban thinks Malala is an annoyance and put a bullet in her head on her school bus in year 2012, as Heaven awaits according to the science fiction Quran story. ===:::
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban ... Quran tells fiction story of Heaven awaiting after death. Bible tells science fiction story of Heaven awaiting after death, trash the Earth, it is all temporary. "Quant à moi, je ne vois pas dans la religion le mystère de l'incarnation, mais le mystère de l'ordre social; elle rattache au ciel une idée d'égalité qui empêche que le riche ne soit massacré par le pauvre." - **March 4, 1806**; Napoléon Bonaparte. As Malala is pointing out October 8, 2013 echos Napoléon in year 1806 -- who cares about Climate Change when you have a temporary Earth and Heaven awaits? Taliban thinks Malala is an annoyance and put a bullet in her head on her school bus in year 2012, as Heaven awaits according to the science fiction Quran storytelling fron year 635. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83by9h/
+
+PrettyCaffeinatedGuy **2025-07-18 (new account)**
+
+"My nana said she was fine with the cuts because it is hurting bums. I have been repeatedly informing her that she is considered one of the bums for needing Medicare and SNAP, even though she is still working well past retirement."
+
+* :::=== RoundSparrow_Commentary : Poor people don't have Rupert Murdoch media empire and Elon Musk Starlink ISP and Twitter media empire and Surkov students Russia media empire / Internet Research Agency since March 2013. Poor peple didn't hire doctorates of the mind from Cambridge Analytica. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n83zv82/
+
+yousonofabench 2025-06-14 (recent account)
+
+"There was an interesting article about how conservatives see laws in shades of grey that only apply to “bad” people who “deserve” it. Like, if they want illegal immigrants out they genuinely don’t think it will affect their handyman or their neighbor because they are one of the “good” ones. They think banning abortion wouldn’t ban them from getting one because they would have a “good” reason to do it. Honestly it explains a lot."
+
+* :::=== RoundSparrow_Commentary : absent words: egoism, egomania. Donald Trump is an egomaniac, JD Vance, Elon Musk, Putin, egomaniacs, Taliban in Swat Valley Pakistan. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n82qkbo/
+
+nottherealneal 2021-03-30
+
+"I mean stay at home and care for your kids and aging parents sounds like pretty normal trad wife shit.
+
+That's what conservatives want.
+
+Guess it's time for the man to step up and make some trad husband money to support them.
+
+Or does the traditional values thing only apply when it benefits them?"
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mn5smz/the_empire_is_collapsing_in_front_of_our_eyes/n830c1o/
+
+glasshomonculous 2018-07-30
+
+"This is what I don’t understand. How dense do you have to be to think that this current iteration of society supports these outdated ways of living…?
+
+Why is there absolutely no view of the bigger picture of the reality that we are all currently existing in?!?!"
+
+* :::=== RoundSparrow_Commentary : These are the reasons I have created this GitHub. To go beyond short messages to show it is possible to connect the dots to James Joyce's Finnegans Wake publication **year 1924 onward**. Wake *the Finnegans*, Woke to Media Ecology, Ireland Dublin metaphors of **Woke** to clergy. "Why is there absolutely no view of the bigger picture of the reality"??? Romans 11:32 Bible verse WOKE WAKE of James Joyce's books. :::===
+
