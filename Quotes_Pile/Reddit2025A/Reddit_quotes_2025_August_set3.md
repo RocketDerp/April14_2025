@@ -585,6 +585,10 @@ Weztinlaar 2019-10-06
 
 &nbsp;
 
+## Checkpoint Monday A
+
+&nbsp;
+
 https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84jz6b/
 
 jkman61494
@@ -607,5 +611,36 @@ Meanwhile most of Reddit is just saying ITS A COVER FOR EPSTEIN!!!!!!
 
 Right now. They basically can do whatever they want and the only response they get is EPSTEIN! and not focusing on the fact millions will die unnecessarily due to getting rid of mRNA developments."
 
-* :::=== RoundSparrow_Commentary : Project 2025 manifesto of over 900 pages, is not a distraction from Epstein. QAnon promoted Pizzagate and Epstein. Project 2025 is happening, the plan was presented, the evidence of the actions / execution of that plan abound. [In 2025, Donald J. Trump signed 183 Executive orders (from EO 14147 through EO 14329)](https://www.federalregister.gov/presidential-documents/executive-orders/donald-trump/2025) that are not a distraction from the Epstein List. Addiction to QAnon / Pizzagate / Fiction is the crisis of USA society. ===:::
+* :::=== RoundSparrow_Commentary : Project 2025 manifesto of over 900 pages, is not a distraction from Epstein. QAnon "Q" promoted Pizzagate and Epstein mind patterns for years and years. Project 2025 is happening, the plan was presented, the evidence of the actions / execution of that plan abound. [In 2025, Donald J. Trump signed 183 Executive orders (from EO 14147 through EO 14329)](https://www.federalregister.gov/presidential-documents/executive-orders/donald-trump/2025) that are not a distraction from the Epstein List. Addiction to QAnon / Pizzagate / Fiction is the crisis of USA society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84mu3h/
+
+BigConference7075 2021-03-23
+
+"Thank you. This needs to be said more. Trump can do anything now and the Epstein files don't matter at all at this point"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84rwhv/
+
+RoguePlanet2 2023-12-21
+
+"Besides, they could release video of Trump doing whatever on the island, and the base will continue to deny any of it is real. It's only for our own sanity that rational people want the evidence. Otherwise we need to remain focused on the destruction of our country from within."
+
+* :::=== RoundSparrow_Commentary : From within... denial of mutliple NATO contries and even Japan reporting Putin media invasion / Russian [executive function mental](https://en.wikipedia.org/wiki/Executive_functions) manipulation / active measures on the entire population since March 2013. Americans / USA can't even fight a information war with intellectual arms because people don't even grasp the waves of meme warfare that are washing over them. "will continue to deny any of it is real" Reddit comment in August 2025 people can't connect with [September 9, 2024 War Against Reality publication on The Atlantic](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mnfh6e/trump_says_police_are_now_allowed_to_do_whatever/n84uk8z/
+
+Artzee 2011-12-23
+
+"I am so scared for my future, I'm afraid it will get to the point of so much hopelessness and despair that there will be an epidemic of su*cides. I'm so full of anxiety it's getting harder to go to my custodial job. It's hard to eat. It's hard to do basic chores."
+
+* :::=== RoundSparrow_Commentary : It is impossible to THINK. It is impossible to keep a clear mind in the constant Donald Trump saturation media messages, signals from the White House, the antics politics and all the media machines in hands of people reacting to every move and shake of the Tony Clifton act that Donald Trump does. It is IMPOSSIBLE to mentally think in all this garbage junk Donald Trump noise. People are not thinking clearly and able to use reason thinking in their mind. [It is IMPOSSIBLE to COMMUNICATE unless you Speak Fox News and mimic Donald Trump Truth Social languages](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/). ===:::
+
+
+&nbsp;
 
