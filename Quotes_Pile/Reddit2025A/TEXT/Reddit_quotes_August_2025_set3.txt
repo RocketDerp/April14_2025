@@ -1,4 +1,4 @@
-Text file instead of Markdown, to see if that gets indexed maybe.
+Text file instead of Markdown, to see if that gets indexed maybe. I suppose Markdown to HTML would also make sense.
 
 Monday August 11, 2025
  
