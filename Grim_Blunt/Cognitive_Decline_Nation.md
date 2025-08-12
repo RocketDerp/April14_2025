@@ -191,3 +191,9 @@ https://www.youtube.com/watch?v=Lp-lIPi7rhI
 
 
 https://old.reddit.com/r/videos/comments/1mof6xx/joe_rogan_has_brought_up_this_same_graph_on_six/
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mobnlt/nobody_knows_what_trump_is_talking_about_anymore/
