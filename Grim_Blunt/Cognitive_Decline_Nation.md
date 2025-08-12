@@ -171,3 +171,6 @@ TIMESTAMPS:
 06:29 The Illusion of "Winning"   
 11:07 My Commitment—Universal resonance   
 13:09 Sublimation: Our future needs such attempts   
+
+Intro to her channel    
+https://www.youtube.com/watch?v=m3UZqzZnRSw
