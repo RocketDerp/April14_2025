@@ -6,7 +6,15 @@ helmsb 2011-12-02
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1mo72g0/it_didnt_even_take_a_year_lmao/n8ano69/
 
+YannFreaker 2019-07-13
+
+"It's so funny that these women are advocating fpr the removal of rights for LGBTQ+ community, forgetting that they are part of said community."
+
+* :::=== RoundSparrow_Commentary : Donald Trumnp society is so entertaining and amusing. In 1985, Neil Postman of NYU (Donald Trump's home city) [published a book about entertainment President Ronald Reagan's second term called "Amusing Ourselves To Death"](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). How media adiences find it so funny and attractive when an absurd surreal status symbol leads then that they self-harm ("to death") their own nation and children's future out of attaction to shit entertainment. Enshitification on a national scale because of addiction to terrible Ronald Reagan 1985 second term methods of media engagement. ===:::
+
+&nbsp;
 
 
 .
