@@ -56,40 +56,31 @@ https://www.youtube.com/watch?v=P6gtHQGbXmM
 
 **Harlan Ellison's Solution for Palestine and Israel**
 
-... opinion no no he says we're anxious to
-hear what you think. And he nudges and
-nudges and pushes at me already. I know I'm going to hate Israel and he keeps saying I want to know what you think. We want to know what you want. And he sounds like Jackie Mason. So I say listen trust
-me you don't want my opinion yeah. He screams we want your opinion we're dying for your opinion we're pling to have your opinion he goes on and on and on he will not let me off the hook.
+... opinion no no he says we're anxious to hear what you think. And he nudges and nudges and pushes at me already. I know I'm going to hate Israel and he keeps saying I want to know what you think. We want to know what you want. And he sounds like Jackie Mason. So I say: listen, trust me, you don't want my opinion yeah. He screams: we want your opinion! we're dying for your opinion! we're pling to have your opinion! He goes on and on and on he will not let me off the hook.
 
-So finally I reach the pimel line and I say okay... but remember the old Chinese adage be
-careful what you wish for because you might get it. And he goes haaha extremely
-clever! So what is your opinion and I said here's my opinion:
+So finally I reach the pimel line and I say okay... but remember the old Chinese adage be careful what you wish for because you might get it. And he goes: "haaha, extremely clever! So what is your opinion?" And I said: 
+
+here's my opinion:
 
 All of you guys out there in the Middle East are out of
 the same Melting Pot and you're all as crazy as a butterfly on absenth. I don't know whether you're all Canaanites at the base or you're all Jews at the base or out of the land of Nod or whatever the hell you were at the get go semites or whatnot but you've been fighting there now for something like 8,000 years and
 you've never had 5 minutes of quiet and peace. you're forever killing each other and sticking knives at each other and burning babies and the world has had to suffer with this.
 
 Great things have come out of the Middle East. Great things like the rubat of Omar kayam but stupidity
-seems to be your chief export. Stupidity and violence are your cash crops all you. And this was before September 11th and I said my solution to the problem in the
-Middle East is this:
+seems to be your chief export. Stupidity and violence are your cash crops all you. And this was before September 11th and I said my solution to the problem in the Middle East is this:
 
 We erect a wall 26 mil high around the entire Middle East about 14 mil deep that's Syria Lebanon Saudi
-Arabia Iraq Iran Israel Egypt all of you the whole bunch of you. 26 mile high with one door like a regular door in the front of a house and every 10 years we will open the door and look inside if
-you're still fighting we close the door.
+Arabia Iraq Iran Israel Egypt... all of you, the whole bunch of you. 26 mile high with one door. Like a regular door in the front of a house. And every 10 years we will open the door and look inside. If you're still fighting... we close the door.
 
 4:25    
-And as we say in yish loen gain let be you should live and be well go and fight
-and kill yourselves and no one will interfere but if we peek inside and it's
-safe if it's nice and it's comfy and there's flowers growing if you're not
-fighting and you got peace and quiet you can come out and play with the rest of
+And as we say in yish loen gain let be you should live and be well go and fight and kill yourselves and no one will interfere. But if we peek inside and it's safe, if it's nice and it's comfy and there's flowers growing... if you're not fighting and you got peace and quiet you can come out and play with the rest of
 us like human people.
 
-And the guy says: "what?", and I said: "do you want me to repeat that?" and he says "no thank you very much". Bam, he hangs up on me. Within an hour USIA calls up and says tours off.
+And the guy says: "what?", and I said: "do you want me to repeat that?" and he says "no thank you very much". Bam, he hangs up on me. Within an hour USIA calls up and says: tour is off.
 
 4:54   
 And I tell you I was relieved. Being a tough Jew is like being a tough Oriental kid kid in an all black
-neighborhood. it's like being an Irish kid in a Latino neighborhood. When you're
-an outsider, you got two choices: you either become a target for people to hit you to bully you and con you to take advantage of you and you wind up marrying people you shouldn't and you wind up in a job you shouldn't have with people who bully you... or you get tough.
+neighborhood. It's like being an Irish kid in a Latino neighborhood. When you're an outsider, you got two choices: you either become a target for people to hit you to bully you and con you... to take advantage of you... and you wind up marrying people you shouldn't... and you wind up in a job you shouldn't have with people who bully you... or you get tough.
 
 5:15   
 Now tough doesn't mean hard. I'm not a hard guy. I'm a tough guy. That means that I take no and I'm wrong more often than I'm right and when I am I admit it. And that's another part of being a tough
@@ -100,17 +91,10 @@ triple a (AAA) and she starts talking about *you people*. She was a black woman 
 International Jewish money conspiracy there's some Jew out there with two vshares because I'm working my ass
 off. Ah, you got to be able to accept responsibility for what you do and you've got to be able to try and convince a lot of people who aren't bad people... they're just ignorant. that's stupid just ignorant big difference that.
 
-Jews are not the Arrogant all-knowing chosen people. That is as elitist
-as the Christians who think
-that when the Rapture comes they're
-going up and we're going down. That's
-just elitism and it's a bad kind of
-elitism as opposed to my elitism which
-is based on intelligence which is a good
-elitism.
+Jews are not the Arrogant all-knowing chosen people. That is as elitist as the Christians who think that when the Rapture comes they're going up and we're going down. That's just elitism and it's a bad kind of
+elitism as opposed to my elitism... which is based on intelligence which is a good elitism.
 
-And if you don't like it I'llvpunch the out of you
-
+And if you don't like it... I'll punch the ... out of you
 
 &nbsp;
 
