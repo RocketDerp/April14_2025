@@ -1891,5 +1891,11 @@ GuyLookingForPorn 2019-06-07
 
 &nbsp;
 
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n89qcbw/
+
+ChillAMinute 2024-01-24
+
+"I was going to leave a sarcastic comment here but the entire situation is so beyond deplorable and disgusting. Regardless of the religious connotations, I get they are sick of being relentlessly pestered and poked at but sending a modern military to crush a population who lives in the Stone Age, that is landlocked by your military, and purposefully starving them and killing anyone who is trying to advocate for relief is heinous."
+
 
 
