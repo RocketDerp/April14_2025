@@ -100,6 +100,7 @@ And if you don't like it... I'll punch the ... out of you
 
 &nbsp;
 
+### cracking under USA society pressure, year 2025
 
 Cracking under the pressure. The USA is a pressure cooker of hate. Out-group hate.
 
