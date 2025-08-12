@@ -1677,3 +1677,47 @@ Mammoth_Winner2509 2025-07-09 (recent account)
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1mnttmo/oh/n87v0lm/
+
+JoeyFoxx 2017-06-15
+
+"They don't care if they get caught contradicting themselves; they don't care if they get caught lying; they don't care if they get caught in their hypocrisy.
+
+Being wrong is their entire personality."
+
+&nbsp;
+
+Same_Presentation692 2025-05-29 (recent account)
+
+"Here in Texas, suburban houses had “Pray for America!” signs all over their yards during Biden’s term. Those signs have mysteriously disappeared since the pedo in chief became president. Both their patriotism and religion are performative. It’s so sickening that it’s almost funny."
+
+* :::=== RoundSparrow_Commentary : "It’s so sickening that it’s almost funny." - once you come to terms that the entire Middle East religion systems have become about being funny and mocking the other religions, Torah vs. Quran vs. Bubble and that people are finding it funny todeath - you start to have the tools of James Joyce's Finnegans Wake and Neil Postman's 1985 book "Amusig Ourselves to Death" to address the people who are not self-aware that mocking and ... "Both their patriotism and religion are performative. It’s so sickening that it’s almost funny". It isn't just in Texas. You are seeing trees and not the entire global forest of media ecology. Learn about Swat Valley, Pakstin from Malala's October 8, 2013 book. Manh parallels to Texas. NOTE: it is impossible to easily know if this is a fake Kremlin or MAGA account on Reddit, my message of media ecology literacy stands even if the message is insincere. I have lived in Texas since the early 1990's mutliple times, I have studied extensively how people reacted to the Hill Country floods July 4, 2025 - as I used to live in Canyon Lake, Texas and have been to Kerville several times in RV full time living. The media ecology crisis defined by Neil Postman in New York City back in year 1985 applies to Texas society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mnttmo/oh/n88eby9/
+
+Current_Astronaut_58 2020-09-17
+
+"Absolutely, I’m beginning to think this is just an echo chamber or bots. This post makes no sense, but I legitimately want to be told where my first post thoughts are wrong. This doesn’t make sense, but I want to know why lol"
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mnttmo/oh/n88foxx/
+
+Alternative-Mind-659 2022-04-11
+
+"Like literally everything political these days, context is omitted to fit someone's agenda. In this case it's the left/OP's. Trying to reason with anyone here is the biggest waste of your time and I suggest not commenting any further to save whatever bit of sanity you have left."
+
+* :::=== RoundSparrow_Commentary : Reddit messages: Give up on Americans, give up on reason thinking, abadon the world to Putin's inforamtion warfare since March 2013 IRA invasion of social media. Give up on intellectual progress, go to sports entertainment and memes, don't stand up to the Kremlin war online with education and teaching. As if doing zero ("I suggest not commenting any further to save whatever bit of sanity you have left") is going to keep thing sane in USA under 10 years of Donald Trump and anti-intellectual agenda. You can go watch sports all day every day and not comment or teach education on social media - and Donald Trump and Putin are still going to wreck the world in conquest. Winning hearts and minds is part of the military technqiues of the Kremlin. The IRA went online in March 2013, then the Ukraine war started February 2014. Climate change and [pro-disease Russian measles spreading](https://www.bbc.com/news/world-us-canada-45294192) in August 2025 are sitll ongoing. ===::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mnttmo/oh/n893xff/
+
+Working_Cloud3924 2024-01-31
+
+"Joe Biden did not get 15 million more votes than Obama. They stole the 2020 election, an idiots coke heads ran the White House. I guess everybody here enjoyed six dollar gasoline or you weren’t old enough to pay for the gas. Maybe you enjoy the gay sex being filmed in Congress. Trump won a clear majority of the votes, and didn’t have to spend $1 billion like Kamala just to lose. Obama and his gang are all going to jail because they’re treasonous traitors. The classified info just keeps getting declassified, making them all look like guilty traders."
+
+* :::=== RoundSparrow_Commentary : No citations, no links, no authors quoted. Just a bunch of claims. Reddit is long-form social media. But like all news in USA, it's just a stream of conetnt that scrolls off screens and people don't view information itself as the problem. Every person in a filter-bubble and few people wanting to face that human truth and human comprehension are a global problem of 8 billion people. Why are stable systems of information that is refined like Wikipedia not being called for instead of a constant stream of reaction comments on Blueksy, Twitter, Redit, TikTok? The answer invovles people being addicted to the stimulation of constant content - which Donald Trump provides - constant breaking news and entertainment. Stable organized information with citations and cross-references, a Wikipedia style system, is something people don't even recognize is absent in the sports mentality streaming social machine society. Humanity, all across the globe, will sink if entertainment and mocking of truth as boring and tedious is how we program our minds, how we educate our children and adults alike to value information. ===:::
+
