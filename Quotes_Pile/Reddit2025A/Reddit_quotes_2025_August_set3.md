@@ -137,6 +137,14 @@ Your civil war has already started, your side is not acknowledged this and is lo
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mo8s8l/trump_plans_military_reaction_force_to_use/n8ae3f3/
+
+kia75 2014-02-24
+
+"There was a group specifically made to counteract this, the Oathkeepers. I'm certain every single Oathkeeper, formed during Obama's presidency to "keep their oath to the constitution and ignore any illegal act by the president" are ready to counteract this, right?"
+
+&nbsp;
+
 .
 
 .
