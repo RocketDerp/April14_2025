@@ -49,3 +49,13 @@ Reddit comments could change everything if people would get on the same page and
 3. Quote Christopher Wylie's two books from 2019 which are before Project 2025 was ever created, which are titled "Plot to break"
 
 Stand up for actually rescuing ourselves from the intellectual warfare situation instead of taste-testing each Donald Trump and MAGA turd and grading the flavor of the shit.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+.
+
+“This illustrates a recent tendency of masochistic self-immolation on the part of advertisers. They have discovered the great principle that real news is bad news. Up till now advertising has been all good news and, therefore, gets very little attention.” -  [War and Peace in the Global Village](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village). Marshall McLuhan, 1968. Page 152
