@@ -117,6 +117,26 @@ TwpMun 2024-06-05
 
 &nbsp;
 
+https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mocks_trumps_all_caps/n8b9owt/
+
+RepostFrom4chan 2012-11-02
+
+"Is there a reason American politicians are meming at a tyrant instead of fighting back in the war that said tyrant has actively already started against the countries own people? And for some reason you all think this is acceptable?
+
+It took you all 4 fucking years to join the last fight against fascism, do we really need to see this shit again?"
+
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mocks_trumps_all_caps/n8bohd8/
+
+RepostFrom4chan 2012-11-02
+
+"Your president has actively broken the constitution, used military forces on its own people, manipulated the economy for personal gain at the detriment of his own people, set up death and detention camps for American citizens on American soil, and continues to lie and spout propaganda daily to the public and encourages the rest of his government to do so directly to the American public.
+
+Your civil war has already started, your side is not acknowledged this and is losing due to sheer incompetence of your political leaders. California's gdp should have already been weaponized to fight back, but still haven't. Wake up friend, the barbarians are already inside the gates."
+
+&nbsp;
+
 .
 
 .
