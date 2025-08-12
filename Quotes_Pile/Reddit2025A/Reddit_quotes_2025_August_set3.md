@@ -12,7 +12,7 @@ bbqsox 2014-11-14
 
 Why wouldn’t he pick a serial fraud, multiple adulterer, pedophile, and constant liar?"
 
-* :::=== RoundSparrow_Commentary : Instead of react-commenting, snark, mocking, mockery. Social media users could be addressing this problem more directly: [Leavnt religions ar ass-backwards, inverted, good from bad reversed](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/). "God has a habit of picking people in direct opposition"... People are not using social media to educate when clearly understanding, comprehension, media ecology literacy problems are core to MAGA / Donald Trump attraction. ===:::
+* :::=== RoundSparrow_Commentary : Instead of react-commenting, snark, mocking, mockery. Social media users could be addressing this problem more directly: [Leavnt religions are being taught by clergy ass-backwards, inverted, good from bad reversed by clergy to audience](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/). "God has a habit of picking people in direct opposition"... People are not using social media to educate when clearly understanding, comprehension, media ecology literacy problems are core to MAGA / Donald Trump attraction. ===:::
 
 &nbsp;
 
