@@ -244,3 +244,9 @@ https://old.reddit.com/r/Fauxmoi/comments/1mmpdy6/maluma_stops_his_concert_in_me
 Front page of Reddit   
 Core point of James Joyce's Finnegans Wake, self-awareness of inherited English.    
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1mnq5rc/shakespeare/
+
+&nbsp;
+
+Neil Postman 1992 Technopoly questions applied to new AI    
+https://old.reddit.com/r/politics/comments/1mnsaez/educational_ai_risks_becoming_an_authoritarian/
+
