@@ -73,6 +73,18 @@ kaaredump 2011-05-21
 
 Putin will end up with half of Ukraine, Alaska, and guarantees that the US will look the other way if Russia invades other European countries."
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mo3eq2/panic_in_eastern_ukraine_as_trump_entertains_idea/n89hjou/
+
+Advanced_Aide3191 2025-02-23 (new this year)
+
+"This is what people get wrong about Putin, he was confident in Russia’s capacity to take Ukraine in a week, almost everyone including Ukraine believed this to be true.  If he had been successful, it would have been a great geopolitical victory for Russia. 
+
+Now Putin has failed and can’t get himself out of this mess without losing his head. This alone gives the US a massive advantage to not just clip Russia’s fangs but destroy their influence, however here comes Trump, the dumbo in chief , giving Putin everything he wanted and destroying America’s power along with it."
+
+
+* :::=== RoundSparrow_Commentary : Except that BBC Adam Curtis on December 31, 2014 broadcast this: "It is exactly what Surkov is alleged to have done in the Ukraine this year (2014). In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. **The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception**, in order to manage and control." - **year 2014** - denial of the IRA, denial of the Kremlin information warfare on Reddit. Just saying "Russian bots" does not in any way demosntrate self-awareness of Surkov techniques and the long-term thinking the Kremlin has demonstrated. On the flip side of social media, Surkov and Putin long-term year 2013 planning is the reason I emphaisze Malala so frequently. Same year 2013 timeline on world stage - and people on social media can't see her LONG-TERM plans of October 8, 2013 and how they interact with a decade-later October 7, 2023 Palestine terrorism. People are NOT taking "High Roads" on social media, they are not connecting the dots. Human beings are the source of love, compassion, goodness in the world - and if we don't CHOOSE with our FREE WILL to support and rally around goodness itself - leaders like Malala - and we continue to put leaders like Putin at the top of our governments... WE will be CHOOSING as people to have a shit world. Show me where social media has focused and sustained on Malala since year 2013? Show me where people grasp and understand the role Fox News has on audience, how EDUCATION and MEDIA CONSUMPTION (Fox News vs. Malala ideas) doesn't influence family and friends in USA. We are not facing up that our own brains are programmable. Malala in Pakistan is one of the few actually calling that out. All the while we are watching machine learning going on with ChatGPT and GrokAI - without focusing on the media we consume. Did Russia want to win the war qucker, perhaps, but they ALSO had concepts and ideas of using the Ukraine physical war as a platform for media manipulation - and they have DONE SO as Adam Curtis BBC spelled out December 31, 2014. ===:::
 
 
 
