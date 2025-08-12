@@ -1762,3 +1762,13 @@ No, they'll switch to the new talking points and pretend that the old ones never
 
 Even if you showed them a video of Trump himself saying he couldn't call out the National Guard, that only Pelosi could do that, they'll come with some excuse for why we've always been at war with Eurasia."
 
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1mo2ibf/bbc_rally_yesterday_in_london/n89b88z/
+
+GuyLookingForPorn 2019-06-07
+
+"Literally both sides of the conflict fucking hate the BBC. The problem is people don’t want news that tries to be unbiased, even if imperfectly, people want *their own bias*."
+
+&nbsp;
+
