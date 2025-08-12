@@ -52,6 +52,22 @@ BombOnABus 2018-08-19
 
 &nbsp;
 
+&nbsp;
+
+<img width="1120" height="760" alt="image" src="https://github.com/user-attachments/assets/20265755-dee1-40bf-b032-ff2bd38c97d1" />
+
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mocks_trumps_all_caps/n8b9na1/
+
+bpdish85 2019-04-09
+
+"Believe me, I'm aware. I was more referencing the fact that shit is playing out on social media, of all places, in caps-lock rage. It's ridiculous.
+
+Again - go Newsom for hitting back in a language this motherfucker understands and not being afraid to be loud and throw some weight around, but the whole process of it all makes me feel like I'm on drugs. Like, how is *this* how the dissolution of the US going to play out?"
+
+&nbsp;
+
 
 .
 
