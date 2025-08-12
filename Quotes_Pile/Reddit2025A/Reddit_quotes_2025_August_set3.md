@@ -185,7 +185,43 @@ https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accu
 I wish things could change to where the kinds of people who crave power wouldn't want it, so that only the right people ever got it. Make positions of power come with built-in detriments, not perks, so that only the people who are there for the right reasons would ever care to participate."
 
 
-* :::=== RoundSparrow_Commentary : What seems blindgly absent, deafening silent is social media users creating their own wish-list and desires for democracy and repeating them. Project 2025 put in everyone's face a list of desires and future changes. But social media society spends free time and spare time react-commenting to breaking news events and not using Wiki style systems or message systems to build up good ideas. Second Bill of Rights from January 1944 should have been a huge topic December 4, 2024 with the murder of the CEO of United Health Care in Manhattan... but I saw no focus on it. What good is health care at $1 a month of rent and housing goes up $7,500 a month? Donald Trump is a real estate king, why can't pepole see the Second Bill of Rights is not a huge lengthy list - the Wikipedia page is only a few pages - but it is comprehensive in the billionaires takeover of society / MAGA / Donald Trump / Elon Musk values. There is a society-wide breakdown of comprehension and understanding of the importance of stustained *important topic revisiting* by We The People. Neil Postman's 1985 book... ===:::
+* :::=== RoundSparrow_Commentary : What seems blindgly absent, deafening silent is social media users creating their own wish-list and desires for democracy and repeating them. Project 2025 put in everyone's face a list of desires and future changes. But social media society spends free time and spare time react-commenting to breaking news events and not using Wiki style systems or message systems to build up good ideas. Second Bill of Rights from January 1944 should have been a huge topic December 4, 2024 with the murder of the CEO of United Health Care in Manhattan... but I saw no focus on it. What good is health care at $1 a month of rent and housing goes up $7,500 a month? Donald Trump is a real estate king, why can't pepole see the Second Bill of Rights is not a huge lengthy list - the Wikipedia page is only a few pages - but it is comprehensive in the billionaires takeover of society / MAGA / Donald Trump / Elon Musk values. There is a society-wide breakdown of comprehension and understanding of the importance of stustained *important topic revisiting* by We The People. What I witness is 6 weeks of social media socity repeating "Epstein List" over and over, QAnon years of mental conditioning into that topic. Why aren't progressive ideas being named and asserted as lists? Neil Postman's 1985 book... ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8am87u/
+
+Sorry-Recognition983 2024-12-19
+
+"So like every conservative with the "no you" uno reverse card. They're all such deep thinkers"
+
+* :::=== RoundSparrow_Commentary :  A tiny short-length Twitter-length Tweet-thinking reaction comment that says it is only the out-group, only conservatives in August 2025 behaving this way. It is social media society in general, this is a media ecology issue top to bottom age 12 to age 120. "Uno" is a medium, and inverting topics is a crisis of shallow and reactionary thinking. This is what people are attracted to, this is what people are commenting and flocking to on social machines. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8aaqmz/
+
+brickmaster32000 2014-08-10
+
+"
+>  Greg Abbott is an embarrassment to everything Texas and Texans proclaim to be.
+
+Greg Abbott is everything Texans are. It is why they have to boast about being better because the fact is they continually act like he does and support him. That is who they actually are."
+
+* :::=== RoundSparrow_Commentary : Yes. Few people in social media socetiy recognize the "War Agains Reality" is a total forest perspective. Donald Trump is a fction content creator, fiction outsells nonfiction. The whole society needs to face that reality is being avoided, nonfiction is being avoided. We are brain-damaging each other with cloud computing media machine messages, feeding deception and falsehoods to each other. Fiction adiction has become a runaway crisis. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8aelso/
+
+Choice-Consequence59 2021-07-01
+
+"Texans have been under a Conservative regime for 40 years and what do we have to show for it? A Crippled power grid, less civil rights, and higher proportional taxes on working people than nearly any other state."
+
+&nbsp;
+
+
+
 
 
 
