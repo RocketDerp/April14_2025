@@ -120,9 +120,37 @@ As fucked up as what is happening in Gaza, if you want to understand the crux of
 
 * :::=== RoundSparrow_Commentary : It seems to me that modern media consumers are not facing up to the global history of conflicts, world wars, and technology of warfare since year 1901. It is technically possible to travel across the world, from North America to the Iraq and inflict huge numbers of deaths. In the name of preventing deaths of the mower powerful and wealthy nation, much of this is now done with rockets and from airplanes in the sky - with almost none of the people doing the killing having much risk. A small crew of an airplane can kill thousands of people on the ground using sophisticated technology. People are entirely detached from what goes on at macro scale of the entire Earth in terms of hate and warfare, dehumanizaton, of out-groups. Malala from Pakistan is one of the few people today who gets media coverage who calls out this gross and disgusting behavior of humans in regard to out-group patterns (men vs. women, religion vs. religion, elder vs. children marriage and sexual exploitation). Yet, I don't see social media society showing any interest in repeating Malala's memes / wrods / speeches / video interviews since year 2013 when she did press tours and published her book. Instead, since year 2013 I see the opening of the Ukraine war and people discussing ideas from Putin and Donald Trump every single day for over a decade. Where is social media actually educating people and teaching people about true progress that Malala of Pakistan speaks of? Or even Pussy Riot from Russia? Do people think Ukraine and Pakistan are covered in the 1,400 year old Quran stories and 2,000 year old Bible stories? If social media users don't show interest in people outside of Donald Trump and MAGA - who exactly is teaching moraity of good from bad? Donald Trump is teaching morality: immigrants bad, liberals bad. Why is nobody asserting far supperior morality teachers in the face of MAGA and Donald Trump and Israel and Palestine? Humans learn civilization from each other. Society is a form of technology, and if we do not teach and educate each other on choices and values of society, we end up in war and hate. Technology of killing machines and murder devices alone is chasing humanity, it is becoming easier and easier to splatter brains with military force and terrroism acts than we have found to teach morality. But really, how hard and difficult is it for people on social media to stop repeating Donald Trump and MAGA and repeat Malala from Pakistean's 2013 book instead? Everything is media ecology. Why is [Pussy Riot not good enough to repeat with regularity on social media](https://www.youtube.com/watch?v=s-bKFo30o2o) isntead of mimicing and behaving like Donald Trump role model? ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8a1ais/
 
+ImReverse_Giraffe 2019-06-02
 
+"Except its not just in response to Oct 7th. That was just the straw that broke the canals back. But Hamas had been launching rockets into Israel constantly for years. In no world is it ok to launch rockets indiscriminately at civilian populations every single day."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8aizzc/
+
+LittleKitty235 2015-10-23
+
+"Look up the definition of genocide. It doesn’t require death camps or even murder. Displacing or even relocating the Jews was already a genocide. They intentionally removed the Jewish culture from Germany from the start
+
+They started off just mass shooting jews but it took too many bullets and mental toll on their troops. That is why the death camps were built. So it could be done cheaper"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8a6upl/
+
+h8sm8s 2015-06-21
+
+"Netanyahu using arguments popular on Reddit earlier in the genocide. When you’re getting your argument from reddit you’re not just a sociopath but an idiot too."
+
+&nbsp;
+
+"When Israelis don’t even realize anymore how unhinged they sound."
+
+* :::=== RoundSparrow_Commentary : USA 2025, Russia 2014, Palestine 2023, Israel 2025, Sudan, Germany 1943, Japan 1943, Cambodia 1973, on and on and on and on and on. People act like national flags and oceans somehow change the behavior of the human brain when it comes to mob mentality and Mass Psychosis behaviors. As Carl Jung emphasized in 1945, Germany did not grasp with self-awareness either. Do we teach this in schools? They sure don't [teach Mass Psychosis as a topic in USA schools](https://www.youtube.com/watch?v=09maaUaRT4M)! They don't even seem to teach the term "egomania" in USA schools because it applies to Donald Trump and Elon Musk and I rarely see people use it. What I see is baby-talk about Trump wearing diapers and being a baby child. Why is Dr. Bandy X Lee ignored on Reddit and not cited? ===:::
 
 
 
