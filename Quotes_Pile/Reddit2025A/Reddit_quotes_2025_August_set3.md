@@ -150,7 +150,7 @@ h8sm8s 2015-06-21
 
 "When Israelis don’t even realize anymore how unhinged they sound."
 
-* :::=== RoundSparrow_Commentary : USA 2025, Russia 2014, Palestine 2023, Israel 2025, Sudan, Germany 1943, Japan 1943, Cambodia 1973, on and on and on and on and on. People act like national flags and oceans somehow change the behavior of the human brain when it comes to mob mentality and Mass Psychosis behaviors. As Carl Jung emphasized in 1945, Germany did not grasp with self-awareness either. Do we teach this in schools? They sure don't [teach Mass Psychosis as a topic in USA schools](https://www.youtube.com/watch?v=09maaUaRT4M)! They don't even seem to teach the term "egomania" in USA schools because it applies to Donald Trump and Elon Musk and I rarely see people use it. What I see is baby-talk about Trump wearing diapers and being a baby child. Why is Dr. Bandy X Lee ignored on Reddit and not cited? ===:::
+* :::=== RoundSparrow_Commentary : USA 2025, Russia 2014, Palestine 2023, Israel 2025, Sudan, Germany 1943, Japan 1943, Cambodia 1976 (Killing Fields), on and on and on and on and on. People act like national flags and oceans somehow change the behavior of the human brain when it comes to mob mentality and Mass Psychosis behaviors. As Carl Jung emphasized in 1945, Germany did not grasp with self-awareness either. Do we teach this in schools? They sure don't [teach Mass Psychosis as a topic in USA schools](https://www.youtube.com/watch?v=09maaUaRT4M)! They don't even seem to teach the term "egomania" in USA schools because it applies to Donald Trump and Elon Musk and I rarely see people use it. What I see is baby-talk about Trump wearing diapers and being a baby child. Why is Dr. Bandy X Lee ignored on Reddit and not cited? ===:::
 
 
 
