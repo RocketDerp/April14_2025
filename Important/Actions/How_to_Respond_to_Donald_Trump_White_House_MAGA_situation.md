@@ -1,3 +1,8 @@
+Tuesday, August 12, 2025
+
+&nbsp;
+
+
 > “Fighting back” What do you want him to do?
 
 use his (Governor of California) Hollywood California media empire and gifted media artists / schools / social media platform. Allocate a 1 billion dollar emergency budget.
