@@ -145,6 +145,20 @@ kia75 2014-02-24
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mo8s8l/trump_plans_military_reaction_force_to_use/n8b2xse/
+
+IcyTransportation961 2022-12-03
+
+"No.
+
+All the people thinking this is reactionary have not been paying attention.
+
+There have been EOs about doing this since his first week, they've been planning to put the military on the streets since before this term.
+
+They've just been creating reasons to justify it."
+
+&nbsp;
+
 .
 
 .
