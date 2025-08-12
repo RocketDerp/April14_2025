@@ -78,6 +78,45 @@ agreenshade 2023-11-14
 
 &nbsp;
 
+https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mocks_trumps_all_caps/n8b689j/
+
+HolyRomanEmperor 2012-01-08
+
+"I think it’s also highlighting the way Trump explains simple concepts as a way to make the recipient look ignorant and make himself the big brain"
+
+
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mocks_trumps_all_caps/n8bavgi/
+
+1studlyman 2015-03-06
+
+"This is how the duopoly of American political parties are a ratcheting us to the right.
+
+We get corporate neoliberal democrats every cycle who move barely anything left running against fascist demagogue republicans who are burning everything down and succeeding in their far-right agenda. The best Newsom will do if he win the presidency is nothing. And people here will gobble it up because of the fascist opposition.
+
+And if Newsom gets the DNC ticket and loses the presidential race, the blame will be shifted to the voters once again. Then in 2032 the DNC will run yet another establishment politician. Calling it now."
+
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mocks_trumps_all_caps/n8bfx9h/
+
+DueBanana9425 2025-01-20 (this year)
+
+"Sorry, no that is not true. The only issue where he gone against trans people is women's sports. Nothing else. California is still the best state for LGBTQ+. If you are a single issue voter, then yeah he is against trans rights, but single issue voters are what got USA into this mess."
+
+* :::=== RoundSparrow_Commentary : Russia won, Putin won, Surkov won. Rusisan information warfare since March 2013 is what got us into this mess. Denial abounds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mocks_trumps_all_caps/n8b5h5m/
+
+TwpMun 2024-06-05
+
+"People saying 'this is funny' ignoring the very serious message he's putting out is interesting. He seems to be the only Governor willing to do anything."
+
+&nbsp;
+
 .
 
 .
