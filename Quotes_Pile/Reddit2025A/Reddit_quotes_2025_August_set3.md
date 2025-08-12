@@ -152,9 +152,40 @@ h8sm8s 2015-06-21
 
 * :::=== RoundSparrow_Commentary : USA 2025, Russia 2014, Palestine 2023, Israel 2025, Sudan, Germany 1943, Japan 1943, Cambodia 1976 (Killing Fields), on and on and on and on and on. People act like national flags and oceans somehow change the behavior of the human brain when it comes to mob mentality and Mass Psychosis behaviors. As Carl Jung emphasized in 1945, Germany did not grasp with self-awareness either. Do we teach this in schools? They sure don't [teach Mass Psychosis as a topic in USA schools](https://www.youtube.com/watch?v=09maaUaRT4M)! They don't even seem to teach the term "egomania" in USA schools because it applies to Donald Trump and Elon Musk and I rarely see people use it. What I see is baby-talk about Trump wearing diapers and being a baby child. Why is Dr. Bandy X Lee ignored on Reddit and not cited? These tiny Tweet-length Twitter thinking reaction comments of "unhinged" are made by the thousands each day, people on social media who can not match their thoughts and concerns up to book atuhors, long-form articles and cite them. Instead, it's 500 Twitter-think messages that people ignore as they scroll off the page (they will no longer be on front page of Reddit tomorrow) and wait for another "breaking news event" to repeat the same concerns. There is no sustained focus on the topic nor call for same. Even something as simple as being able to cite a specific person and their analaysis of the situation such as "we should all repeat what Harlan Ellison said about the past 8,000 years in the Middle East" and "We should all focus on and repeat that Joseph Campbell in 1987 said the 3 Middle East religoins had disqualified themselves for the future, and what MAGA in USA has done with Donald Trump $59.99 Bible and Palestine Isreal conflict of October 7, 2023... and September 11, 2001 and other events show this to be true. The clergy needs deep reformation." And you do see some of these types of activites on Reddit / Bluesky and other social media, but it doesn't get sustained attention. The conflicts between the groups is sustained (8,000 years from Harlan Ellison perspective)... but the need to expand compassion and love and world peace gets mocked and avoided as topics. Humanity is the originator of love and compassion teaching and education, and yet, we don't behave as if human persons on social media have any role in teaching it. Only that Russian "bots" can teach MAGA to hate and believe anti-science falsehoods. Only a faith in social media negative, not a true positive. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n89pic3/
+
+achiller519 2019-01-30
+
+"Yikes dude!
+
+Netanyahu could do a genocide in an afternoon, Putin would have done a 3 days special operation in Ukraine and Trump would have ended the Russia-Ukraine war in 24 hours.
+
+Some leaders have gone completely nuts and also lost the track of time."
+
+* :::=== RoundSparrow_Commentary : The losing track of time is the social media society. And endless consumption of fragments of ideas that are short and scoll off the screen and people not declaring the need to revisit topics in a way that isn't just reacting to "breaking news" or entertaining poses / framing of a subject. People treat the "news cycle" like human beings don't control it. Wehn infact, Sunday Church Day, Friday Islamic Prayer Day, are demonstrations of humanity controlling the information / education / news cycles. Why don't we have a world conflict day of the week, Tuesday and Saturday and revisit if ideas are going forward? People like Malala in Pakstian make breaking news in year 2012 for getting shot on a school bus - but since there is no "breaking news" then progress of education, understanding, leraning, comprehension doesn't get reviwed until a school gets bombed or school shooting. It's all reactionary and often incredibly superficial and shallow in the popularity of react-comments. This is exactly what Neil Postman in his 1985 book "Amusing Ourselves To Death" was warning us about. Fragmented comprehension from the way we all consume information / "news cycle". Thre is an absence of social media assertion that people in Palestine deserve freedom, liberty such as a 16 year old child who would want to plan their life in university. There is an absence of what the clergy is supposed to do in society: promote compassion, love, a "world view" from outer-space gods upon humanity to see the bigger picture of our behaviors. The kind of view Carl Sagan had in Pale Blue Dot book and poem. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8afcre/
+
+WingerRules 2014-10-06
+
+"It's not projection, they know what they're doing. They know a huge portion of Americans dont follow politics closely enough or are locked into Fox News enough to not know stuff like this is bullshit, so they effectively confuse the discourse and facts for low info Americans. Yesterday, Abbott came out and made the statement that they're gerrymandering in response to California, knowing for a fact a big chunk on people wont know California only announced they're doing it in response to Texas doing it.
+
+Its the same tactic of "firehose of disinformation" experts said Russia uses on their population."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8aavhk/
+
+"Jesus Christ, Abbot is a fucking piece of shit.
+
+I wish things could change to where the kinds of people who crave power wouldn't want it, so that only the right people ever got it. Make positions of power come with built-in detriments, not perks, so that only the people who are there for the right reasons would ever care to participate."
 
 
-
+* :::=== RoundSparrow_Commentary : What seems blindgly absent, deafening silent is social media users creating their own wish-list and desires for democracy and repeating them. Project 2025 put in everyone's face a list of desires and future changes. But social media society spends free time and spare time react-commenting to breaking news events and not using Wiki style systems or message systems to build up good ideas. Second Bill of Rights from January 1944 should have been a huge topic December 4, 2024 with the murder of the CEO of United Health Care in Manhattan... but I saw no focus on it. What good is health care at $1 a month of rent and housing goes up $7,500 a month? Donald Trump is a real estate king, why can't pepole see the Second Bill of Rights is not a huge lengthy list - the Wikipedia page is only a few pages - but it is comprehensive in the billionaires takeover of society / MAGA / Donald Trump / Elon Musk values. There is a society-wide breakdown of comprehension and understanding of the importance of stustained *important topic revisiting* by We The People. Neil Postman's 1985 book... ===:::
 
 
 
