@@ -30,10 +30,27 @@ dzeieio 2020-03-09
 
 "If only there were lessons from history that could have shown us the likely outcome of electing one of the worst human beings to ever set foot on this earth...."
 
+* :::=== RoundSparrow_Commentary : We have a society-wide loss of language and comprehension. People in USA can read history but they can not relate it to their constant meme consumption on social machines since March 2013. Recency bias of meme consumers and HDTV consumers is horrific in year 2025 USA. ["You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions consider a loss that Americans don’t have good language for, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox."](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) ===:::
 
-* :::=== RoundSparrow_Commentary : We have a society-wide loss of language and comprehension. People in USA can read history but they can not relate it to their constant meme consumption on social machines since March 2013. Recency bias of meme consumers and HDTV consumers is horriric in year 2025 USA. ["You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions consider a loss that Americans don’t have good language for, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox."](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) ===:::
+&nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1mo72g0/it_didnt_even_take_a_year_lmao/n8a88jq/
 
+cluelessoblivion 2019-02-13
+
+"It's worse than that. He's been parodied as the soulless villain of dozens of blockbuster movies going back 40+ years. His dad was the target of a fucking Woody Guthrie song. It's like if Hitler and his dad had been wealthy despised businessmen since 1890 instead of a poor homeless war vet."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mo72g0/it_didnt_even_take_a_year_lmao/n8aays6/
+
+BombOnABus 2018-08-19
+
+"Unfortunately, it's like all that, but then Hitler played a successful version of himself on a German game show and that was enough to erase everyone's memory of what he had done...except in one city, like Munich, that was just going "ARE YOU FUCKING KIDDING ME!?!? NOT HIM!!!" "
+
+* :::=== RoundSparrow_Commentary : Tony Clifton act is what audiences engage since March 2013 when the IRA starting waging war on USA. People adore insulting and mocking Tony Clifton and calling him stupid idiot and rating every Truth Social message and media apperance. Compusive addiction to hate and dehumanization abounds in USA 2025. ===:::
+
+&nbsp;
 
 
 .
