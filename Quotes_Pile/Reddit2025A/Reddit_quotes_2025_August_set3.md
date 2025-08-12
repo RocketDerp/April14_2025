@@ -193,6 +193,46 @@ Imagine how excited Russia is? (As well as China, Iran, etc) They literally got 
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mobnlt/nobody_knows_what_trump_is_talking_about_anymore/n8bzim7/
+
+JayTNP 2017-02-06
+
+"the media knows the two sides aren’t both on the same level of maturity. They hold Dems to a higher standard on everything because they know they are the adults in the room. It’s sickening and needs to be called out."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1moikb9/russia_is_suspected_to_be_behind_breach_of/n8cfzcy/
+
+notmyworkaccount5 2019-08-16
+
+"The trump admin is just matryoshka dolls of Russian agents and security breaches all the way down, you have to be the most credulous child to believe this man isn't working for Putin."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1moikb9/russia_is_suspected_to_be_behind_breach_of/n8cmaad/
+
+Dahhhkness 2013-08-14
+
+"Russia's government does a lot of stuff that conservatives would love to do here. Silencing liberal journalists, laws against "gay propaganda," oligarchs being given free reign to do whatever they want, consequence-free imprisonment and killings of opponents, and some of he most permissive "states' rights" in the world."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1moikb9/russia_is_suspected_to_be_behind_breach_of/n8d216h/
+
+omnie_fm 2019-09-27
+
+"Sabotaging our country's defenses so that an adversary can take advantage is treasonous. It's treason. Super-treason, even."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1moikb9/russia_is_suspected_to_be_behind_breach_of/n8cjhvw/
+
+ChanceryTheRapper 2023-05-03
+
+"Wow, too bad some people have spent the last decade declaring that any and every accusation of Russia meddling in our government was a hoax, right?"
+
+&nbsp;
+
 .
 
 .
