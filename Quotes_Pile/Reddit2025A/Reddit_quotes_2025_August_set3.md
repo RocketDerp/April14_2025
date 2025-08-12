@@ -1721,3 +1721,44 @@ Working_Cloud3924 2024-01-31
 
 * :::=== RoundSparrow_Commentary : No citations, no links, no authors quoted. Just a bunch of claims. Reddit is long-form social media. But like all news in USA, it's just a stream of conetnt that scrolls off screens and people don't view information itself as the problem. Every person in a filter-bubble and few people wanting to face that human truth and human comprehension are a global problem of 8 billion people. Why are stable systems of information that is refined like Wikipedia not being called for instead of a constant stream of reaction comments on Blueksy, Twitter, Redit, TikTok? The answer invovles people being addicted to the stimulation of constant content - which Donald Trump provides - constant breaking news and entertainment. Stable organized information with citations and cross-references, a Wikipedia style system, is something people don't even recognize is absent in the sports mentality streaming social machine society. Humanity, all across the globe, will sink if entertainment and mocking of truth as boring and tedious is how we program our minds, how we educate our children and adults alike to value information. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mnua0u/1010_for_mental_gymnastics_no_notes/n87im39/
+
+formerfawn 2023-05-08
+
+"Like.... obviously he was lying? He PARDONED all the violent J6 convicts. There's no deniability that he wanted them to do what they were doing.
+
+Is there anyone out there who believes he couldn't have stopped them?"
+
+* :::=== RoundSparrow_Commentary : Truth is not attractive anymore. It is considered tedious and boring. Truth went out of fashion. Factual reality is no longer cool or in style. Societies can live without truth and sincerity, that's what Malala describes Swat Valley, Pakistan society like under the Taliban. And Russia under Putin for the past 25 years people live in fiction. Middle East Palestine and Israel both live under clergy of Torah and Quran fiction that one and only one book is perfect in all the public library. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mnua0u/1010_for_mental_gymnastics_no_notes/n884snq/
+
+jhau01 2020-10-08
+
+"Exactly this.
+
+Trump supporters spent years claiming that January 6th 2021 was Nancy Pelosi's fault, as they claimed she had responsibility for calling out the National Guard in Washington DC. Of course, at the same time, Trump supporters claimed that it was either, or both, a peaceful walk through the halls of Congress, or a violent invasion for by Antifa disguised as Trump supporters.
+
+Now that Trump himself has called out the National Guard and gone on television to explain that he is calling out the National Guard, I fully expect those same Trump supporters to not say anything at all."
+
+* :::=== RoundSparrow_Commentary : The entire USA has been under siege from Kremlin informaiton warfare against reality itself since March 2013. A war against understanding and comprehension. A war in which [people no longer grasp the same languages](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/). There is so much meme slang, Fox News speak, Reddit jargon, cultural divisions of meaning and shallow understanding. Russia won, Surkov won. The USA minds no longer recgonize what year 2012 and before was like, everything is a streaming reactionar meme thinking with [filter-bubble subscribe and blocking](https://en.wikipedia.org/wiki/Filter_bubble).. Everything is media ecology. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mnua0u/1010_for_mental_gymnastics_no_notes/n88csbq/
+
+kandoras 2013-03-20
+
+"
+> I fully expect those same Trump supporters to not say anything at all.
+
+No, they'll switch to the new talking points and pretend that the old ones never existed.
+
+Even if you showed them a video of Trump himself saying he couldn't call out the National Guard, that only Pelosi could do that, they'll come with some excuse for why we've always been at war with Eurasia."
+
