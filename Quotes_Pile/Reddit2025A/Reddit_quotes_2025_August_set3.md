@@ -40,11 +40,28 @@ yamwhatiyam8000 2024-03-13 (self declared Australian)
 
 I doubt that anyone can reverse the damage that has been done to society , politics and the economy under this administration."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89obnj/
+
+RowAwayJim71 2024-11-07 (account created at election 2024)
+
+"Unfortunately none of this stops with Trump. People still don’t get it. Trump is *THE* useful idiot. Emphasis on idiot! The Heritage Foundation is the actual head of this administration, which was the goal the whole time.
+
+Trump can literally do whatever the fuck, say whatever the fuck, and act as horrible as he wants because all it does is distract from what his administration is actually doing. Trump is the Talking Head; the puppet."
+
+* :::=== RoundSparrow_Commentary : People for 10 years seem unable to describe Donald Trump behaving like Tony Clifton in his media audience interaction. People adore mocking and hate upon Trump, that's the Tonly Clifton act. Trump has an eye for the other end of the television set. Trump knows how to make the screen flicker and vertical sync, how to make it go out of focus. He knows how to get inside people's heads, under their skin, to be the center of attention as a hate magnet. Disco ball of egomania audience. Trump commands a fixation on Trump. Walking Talking *Infinite Jest* mind exploit. ===:::
 
 
 
 
 
+
+
+
+
+
+&nbsp;
 
 &nbsp;
 
