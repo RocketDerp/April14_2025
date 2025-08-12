@@ -62,11 +62,9 @@ I am the senior editorial reporter for the Jerusalem Post and I would love to in
 2:30    
 ... I have no opinion. no no, he says, we're anxious to hear what you think. And he nudges and nudges and pushes at me already. I know I'm going to hate Israel and he keeps saying I want to know what you think. We want to know what you want. And he sounds like Jackie Mason. So I say: listen, trust me, you don't want my opinion yeah. He screams: we want your opinion! we're dying for your opinion! we're pling to have your opinion! He goes on and on and on he will not let me off the hook.
 
-So finally I reach the pimel line and I say okay... but remember the old Chinese adage be careful what you wish for because you might get it. And he goes: "haaha, extremely clever! So what is your opinion?" And I said: 
+So finally I reach the pimel line and I say okay... but remember the old Chinese adage be careful what you wish for because you might get it. And he goes: "haaha, extremely clever! So what is your opinion?" And I said... here's my opinion:
 
-here's my opinion:
-
-All of you guys out there in the Middle East are out of the same Melting Pot. And you're all as crazy as a butterfly on absenth. I don't know whether you're all Canaanites at the base or you're all Jews at the base or out of the land of Nod or whatever the hell you were at the get go semites or whatnot but you've been fighting there now for something like 8,000 years and you've never had 5 minutes of quiet and peace. you're forever killing each other and sticking knives at each other and burning babies and the world has had to suffer with this.
+**All of you guys out there in the Middle East are out of the same Melting Pot. And you're all as crazy as a butterfly on absenth**. I don't know whether you're all Canaanites at the base or you're all Jews at the base or out of the land of Nod or whatever the hell you were at the get go. Semites or whatnot, but **you've been fighting there now for something like 8,000 years. And you've never had 5 minutes of quiet and peace. You're forever killing each other and sticking knives at each other and burning babies and the world has had to suffer with this.**
 
 Great things have come out of the Middle East. Great things like the rubat of Omar kayam but stupidity seems to be your chief export. Stupidity and violence are your cash crops all you. And this was before September 11th and I said my solution to the problem in the Middle East is this:
 
