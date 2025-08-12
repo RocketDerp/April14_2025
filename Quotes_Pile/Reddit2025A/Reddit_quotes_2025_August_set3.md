@@ -1486,3 +1486,33 @@ And just like him most Americans didn't realise they had lost the country either
 
 No constitution, no rule of law, no USA."
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86o0xe/
+
+GeneralMalaise99 2023-07-19
+
+"You think THIS is his Achilles heel?! After everything he's done and faced no consequences? He said he could shoot someone in the street in Manhattan and his supporters wouldn't care, remember? Everyone knows he's on the gd list. They don't care!"
+
+&nbsp;
+
+\_Captain_Random\_  2016-04-23
+
+"Seriously? All of THIS is happening and your main concern is still the Epstein files?? Your government is being completely dismantled and your rights are being actively stripped away before your (and the world’s) very eyes… but let’s focus on some files that won’t do shit after everything you’ve already let that man get away with. The rest of the world has already written you guys off as a lost cause. You just don’t learn."
+
+* :::=== RoundSparrow_Commentary : REPEATING: Project 2025 manifesto of over 900 pages, is not a distraction from Epstein. QAnon "Q" promoted Pizzagate and Epstein mind patterns for years and years. Project 2025 is happening, the plan was presented, the evidence of the actions / execution of that plan abound. [In 2025, Donald J. Trump signed 183 Executive orders (from EO 14147 through EO 14329)](https://www.federalregister.gov/presidential-documents/executive-orders/donald-trump/2025) that are not a distraction from the Epstein List. Addiction to QAnon / Pizzagate / Fiction is the crisis of USA society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mnls4w/fascism_happens_quickly/n86paqu/
+
+gravgp2003 2013-07-29
+
+"true, but most people don't care because at that crossing there's a starbucks and an apple store. shit is gonna have to get real uncomfortable for the general population before anything happens. when it does, the feds will already be dug in and there will be so many outside forces, the propaganda and power vacuums will suck up any good intentions that are left.
+
+people talk about the start of a new civil war, but really, its already begun. we're just too close to realize it. this country is going to shit because of a fringe set of the entire population. useful idiots, not yet billionaires, actual billionaires, and sociopaths. wait till the tariffs hit or the 2nd shot heard round the world. its gonna be a total shit show and the system of government we thought was strong/capitalism has been totally exposed. i'm sure at some point they'll be going through posts on reddit to find the dissenters.
+
+can't bury our heads much longer with tiktok bullshit or whatever brainrot fad is going on now. home to roost."
+
+&nbsp;
+
