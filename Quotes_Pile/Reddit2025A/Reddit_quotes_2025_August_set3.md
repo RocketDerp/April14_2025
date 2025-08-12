@@ -233,6 +233,14 @@ ChanceryTheRapper 2023-05-03
 
 &nbsp;
 
+https://old.reddit.com/r/MurderedByWords/comments/1mocmlp/capital_takeover_cry/n8c35bx/
+
+BeefistPrime 2020-10-22
+
+"I'm so fucking sick of people saying shit like "oh wow if we continue down this path things are going to get pretty bad" and it's like motherfucker you're going to be saying that same shit as you're lead to the gas chambers. Everyone is so fucking delusional about how far away we are from shit being really bad. We're there. He's fucking occupying a US city with the military and threatening to do it for more and we've all just sort of accepted shit like that. Everyone is so convinced that things like this only happen in oppressive remote places that they're denying it's happening right here in front of them."
+
+&nbsp;
+
 .
 
 .
