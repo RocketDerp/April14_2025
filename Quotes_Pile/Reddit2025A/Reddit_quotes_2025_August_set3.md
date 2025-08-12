@@ -16,6 +16,17 @@ Why wouldn’t he pick a serial fraud, multiple adulterer, pedophile, and consta
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89pijl/
+
+ilikebiiiigdicks 2025-05-08 (new this year)
+
+"I can think of something else that’d put an end to his nonsense but saying it will get me a ban."
+
+* :::=== RoundSparrow_Commentary : The gun stroking murder fantasy messages you see all over social media in encoded langauge and symbols. Killing / murdering Donald Trump is only going to create a new form of chaos. We The Peple, the population, need to actually stand up for GOODNESS itself. Education, learning, comprehension, understanding, reality. Russian information warfare has one-line twitter-think messages like this one treated as good ideas. They are not good ideas, they lack goodness. Donald Trump lacks goodness. The answer is to reform the population of 0.34 billion people, not fixate on one person, the media ecology crisis of MAGA / Fox News / Redddit audience is EVERYONE, not just Donald Trump. Russia mind-fucked everyong using IRA and Cambridge Analytica since March 2013. ===:::
+
+
+&nbsp;
+
 https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89ikzl/
 
 1-randomonium 2023-03-03
