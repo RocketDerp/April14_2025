@@ -159,6 +159,36 @@ They've just been creating reasons to justify it."
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo8s8l/trump_plans_military_reaction_force_to_use/n8akzt8/
+
+kong210 2022-05-22
+
+"I dont see them nullifying the constitution. They dont need to and I think it is too blatant for them.
+
+The reason that they have so much success to date is because they break the norms, rules and laws without there being adequate enforcement to counter them.
+
+Why do they need to take the formal step of nullifying constitution, which is clearly against the constitution, when they can just continue to ignore it and not galvanise support against them."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo8s8l/trump_plans_military_reaction_force_to_use/n8ak4ur/
+
+BigMax 2008-05-27
+
+"Russia and Fox News really are fired up right now.
+
+They spent the last 30 years convincing the United States that it's biggest enemy on the planet is it's own people, and they really have succeeded.
+
+We're going to literally mobilize our troops against ourselves.
+
+Imagine how excited Russia is? (As well as China, Iran, etc) They literally got us to hate ourselves and now fight ourselves."
+
+&nbsp;
+
 .
 
 .
