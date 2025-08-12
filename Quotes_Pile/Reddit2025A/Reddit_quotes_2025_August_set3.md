@@ -1552,4 +1552,20 @@ thissomeotherplace 2013-07-23
 
 * :::=== RoundSparrow_Commentary : Donald Trump's orange skin color is outside black / brown skin colors and made everyone talk about skin color, orange skin. People think Tony Clifton dressing up odd is dumb and stupid as they engage the Tony Clifton performance. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/law/comments/1mnp7tq/washington_dc_mayor_muriel_bowser_i_think_i_speak/n87czfk/
+
+hangint3n 2018-05-08
+
+"No you're no longer in a constitutional crisis. You're constitution no longer means anything. You're in a quasi- dictatorship on the way to the full thing. Events are moving so fast Americans just can't keep up to their new political reality. YOU'RE NOT A DEMOCRACY ANYMORE!"
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1mnw4zd/the_governor_not_falling_for_this_crap/n881jvv/
+
+Proper-Emu1558 2020-11-13
+
+"It is completely bizarre to me that republicans, the folks from the party known for “freedom,” are continually cheering for the government to put the boot of authoritarianism on their necks. People truly do contain multitudes."
+
+* :::=== RoundSparrow_Commentary : Russia won, Putin won, Surkov won. USA lost hearts and minds to self-harm. ===:::
