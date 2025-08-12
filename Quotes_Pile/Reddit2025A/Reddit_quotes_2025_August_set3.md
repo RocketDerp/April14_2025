@@ -1,5 +1,45 @@
 feed from top of page to eliminate scroll?
 
+# Tuesday August 12, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89p53j/
+
+bbqsox 2014-11-14
+
+"But he’s God’s chosen king! God has a habit of picking people in direct opposition to every single thing he calls good.
+
+Why wouldn’t he pick a serial fraud, multiple adulterer, pedophile, and constant liar?"
+
+* :::=== RoundSparrow_Commentary : Instead of react-commenting, snark, mocking, mockery. Social media users could be addressing this problem more directly: [Leavnt religions ar ass-backwards, inverted, good from bad reversed](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/). "God has a habit of picking people in direct opposition"... People are not using social media to educate when clearly understanding, comprehension, media ecology literacy problems are core to MAGA / Donald Trump attraction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89ikzl/
+
+1-randomonium 2023-03-03
+
+"The trouble with Trump is that he's prepared to keep up this onslaught every day, every week for the remainder of his natural life. He'll double down on any pushback with even more authoritarianism and illegal/unconstitutional means, from using federal agencies to harass any people in his way to actually rigging the entire political system so that his yes men are permanently running America.
+
+And this is largely because he knows that without all of this, he and his family businesses are doomed the moment he leaves office. He is essentially bullying the entire world into submission, and all the powerful people currently forced to play nice while he's ordering them around won't be so forgiving when he no longer has the ability to back up his threats.
+
+Vance doesn't have the same baggage or motivation, and more importantly he gets his advice from a different group of slightly less nasty people(The tech oligarchs like Musk aren't fans of the tariffs or the White House interfering in the day-to-day functioning of businesses and universities)."
+
+* :::=== RoundSparrow_Commentary : Exactly: "The trouble with Trump is that he's prepared to keep up this onslaught every day, every week for the remainder of his natural life. He'll double down on any pushback" - people who claim Donald Trump is lazy, weak, does nothing - entirely do not grasp the labor it takes to constantly be in media and on media platforms. Donald Trump is not lazy and weak, it is a denial of Mass Psychois in the population to see Trump as doing nothing / weak. A failure to grasp the loyalty and how others do work for Donald Trump, how social media society carries water for Trump. Mocking Trump is not resisting. Mocking MAGA is not resisting. Humanity has to face up that humanity is the very source of education and learning. Garbage media content (Trump mocking, Trump insulting) into our human brains, garbage out. We learn from Donald Trump, he is our teacher. We need to address who we are learning from! We need self-awareness on a Neil Postman educaiton and media ecology level. ===:::
+
+&nbsp;
+
+&nbsp;
+
+
+
+
+
+
+
+&nbsp;
+
 # Monday August 11, 2025
 
 &nbsp;
@@ -1771,4 +1811,6 @@ GuyLookingForPorn 2019-06-07
 "Literally both sides of the conflict fucking hate the BBC. The problem is people don’t want news that tries to be unbiased, even if imperfectly, people want *their own bias*."
 
 &nbsp;
+
+
 
