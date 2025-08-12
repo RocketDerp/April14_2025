@@ -16,6 +16,25 @@ YannFreaker 2019-07-13
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1mo72g0/it_didnt_even_take_a_year_lmao/n8ape0c/
+
+Kooky_Ad_5794 2024-08-17
+
+"Yea that’s a wild take on his part.. like Trump was gonna abolish Islam or something. There’s a good chance that’s just as much as he was comfortable telling you.. if he hates “Islam” there’s a good chance he hates several other boogeymen too just doesn’t have the balls to say it"
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mo72g0/it_didnt_even_take_a_year_lmao/n8a1s9f/
+
+dzeieio 2020-03-09
+
+"If only there were lessons from history that could have shown us the likely outcome of electing one of the worst human beings to ever set foot on this earth...."
+
+
+* :::=== RoundSparrow_Commentary : We have a society-wide loss of language and comprehension. People in USA can read history but they can not relate it to their constant meme consumption on social machines since March 2013. Recency bias of meme consumers and HDTV consumers is horriric in year 2025 USA. ["You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions consider a loss that Americans don’t have good language for, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox."](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) ===:::
+
+
+
 
 .
 
