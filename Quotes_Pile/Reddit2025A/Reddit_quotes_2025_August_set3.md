@@ -63,6 +63,21 @@ Trump can literally do whatever the fuck, say whatever the fuck, and act as horr
 
 * :::=== RoundSparrow_Commentary : People for 10 years seem unable to describe Donald Trump behaving like Tony Clifton in his media audience interaction. People adore mocking and hate upon Trump, that's the Tonly Clifton act. Trump has an eye for the other end of the television set. Trump knows how to make the screen flicker and vertical sync, how to make it go out of focus. He knows how to get inside people's heads, under their skin, to be the center of attention as a hate magnet. Disco ball of egomania audience. Trump commands a fixation on Trump. Walking Talking *Infinite Jest* mind exploit. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mo3eq2/panic_in_eastern_ukraine_as_trump_entertains_idea/n89bao4/
+
+kaaredump 2011-05-21
+
+"The worlds dumbest head of state negotiating with one of the most ruthless, calculating, cunning dictator of all times, what could possibly go wrong?
+
+Putin will end up with half of Ukraine, Alaska, and guarantees that the US will look the other way if Russia invades other European countries."
+
+
+
+
+
+
 
 
 
