@@ -175,6 +175,10 @@ Why do they need to take the formal step of nullifying constitution, which is cl
 
 &nbsp;
 
+<img width="1196" height="852" alt="image" src="https://github.com/user-attachments/assets/b3b223dd-f7fe-4b2d-bfb1-534e2ffda708" />
+
+&nbsp;
+
 https://old.reddit.com/r/politics/comments/1mo8s8l/trump_plans_military_reaction_force_to_use/n8ak4ur/
 
 BigMax 2008-05-27
