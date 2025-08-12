@@ -429,3 +429,20 @@ smiffer67 2013-12-14
 "Love watching this show. He absolutely hates trump and his descriptions of trump are so funny."
 
 Make no mistake to anyone outside USA in the future trying to make sense of this. Neil Postman was correct in year 1985 with book "Amusing Ourselves To Death", a nonfiction book originating in Donald Trump's Home Town, New York City / New York University. This is USA sense of entertainment and humor, that politics is a sports mentality with "winner take all", and very few on media sustain challenge of this. Those in the business of selling their own popularity and content don't want people to recognize the impact of media ecology literacy on society. There is a concept in society that every poor person dreams they may become a billionaire, but also many educated people hope they will become a best selling author or comedian or musician or other media star - because as Donald Trump has said outright: once you are a media star, you can grab people. We have witnessed our own personal friends admire famous people in that way our whole lifetime, infatuation with an author / fashion / style / tone / language / of someone. USA of 2025 was built on Hollywood as the most powerful education and teaching system, music industry / film industry / entertainment industry. The next year after publication of Neil Postman's 1985 "Amusing Ourselves To Death", in California the filming at Skywalker Ranch started for "Power of Myth" - explaining how fiction mythology storytelling hasn't just created the success of George Lucas at the peak of his power in 1986... but the Middle East religions of the Torah / Bible / Quran fiction storytelling and Mecca Quran theme park.
+
+&nbsp;
+
+&nbsp;
+
+# Tuesday August 12, 2025
+
+&nbsp;
+
+"This is hilarious bc it really uses Trumps lack of English skills to highlight how weak and lame he is."
+
+https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mocks_trumps_all_caps/n8b3h6d/
+
+wedgiesurvivor 2022-11-11
+
+Americans adore the Donald Trump behaving as Tony Clifton act, it gives We The People endless entertainment to insult and mock back at Tony Clifton's terrible talents. People in USA society are so engaged with Donald Trump's behaviors, manners, performance, style. Compusive mockery nation. This top voted comment on Reddit is Twitter-length Tweet-thinking, nobody has a clue they are amusing our nation to death in constant attraction to the Tony Clifton style of Surkov Governing.
+
