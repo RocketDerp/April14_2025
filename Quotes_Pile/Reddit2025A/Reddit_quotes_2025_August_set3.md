@@ -1,3 +1,34 @@
+https://old.reddit.com/r/agedlikemilk/comments/1mo72g0/it_didnt_even_take_a_year_lmao/n8a2vwl/
+
+helmsb 2011-12-02
+
+"When you vote based on hate for others, don’t be surprised when you find yourself the target of that hate."
+
+&nbsp;
+
+
+
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
 feed from top of page to eliminate scroll?
 
 # Tuesday August 12, 2025
