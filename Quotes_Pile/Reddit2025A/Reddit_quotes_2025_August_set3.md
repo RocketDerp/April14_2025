@@ -1568,4 +1568,112 @@ Proper-Emu1558 2020-11-13
 
 "It is completely bizarre to me that republicans, the folks from the party known for “freedom,” are continually cheering for the government to put the boot of authoritarianism on their necks. People truly do contain multitudes."
 
-* :::=== RoundSparrow_Commentary : Russia won, Putin won, Surkov won. USA lost hearts and minds to self-harm. ===:::
+* :::=== RoundSparrow_Commentary : Russia won, Putin won, Surkov won. USA lost hearts and minds to self-harm since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1mnw4zd/the_governor_not_falling_for_this_crap/n88da45/
+
+cpatkyanks24 2023-07-02
+
+"They haven’t been the party of freedom since before Reagan. They’re the party of hating Democrats. Take every Trump action and view it through the lens if how many people in the opposition party he can stomp on, and you suddenly find a common rationale for everything. With this mindset you also get away with hurting your own supporters, which is why the open contempt he shows for them doesn’t cause him any negative impact. Their priority is ALSO hating Democrats."
+
+* :::=== RoundSparrow_Commentary : Reddit society has a tendacy to live in total denial of media ecology. People back in 1979 (before Ronald Reagan) didn't have Facebook, Elon Musk Twitter, Reddit addictions and Cambridge Analytica mental information warfare payloads. It is acting like September 11, 2001 didn't change the USA attitude towards Muslims / Islam followers to say 1979 USA. It is a deep denial on Reddit that cloud computing of Reddit servers haven't changed behavior of people and that Donald Trump Truth Social messages are how politicians behaved... Marshall McLuhan emphasized, **Reddit users sayng 1979 is sae are completely unaware of social medida Kremlin information warfare impact on their lives sice March 2013 ramp up of the IRA**.  “The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.”
+— Marshall McLuhan [Quotes from the film “This is Marshall McLuhan: The Medium is the Massage”, an experimental documentary produced by Ernest Pintoff and Guy Fraumeni, narrated by actor Edward Binnes and broadcasted on NBC TV (19 March 1967)](https://www.themediumisthemassage.com/the-film/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1mnw4zd/the_governor_not_falling_for_this_crap/n88gumv/
+
+EitherInevitable4864 2021-06-07
+
+"For one, we need to help people in our life who don't read the news, "aren't political," or even voted for him to actually see the truth. Otherwise they'll eat up the propaganda "
+
+* :::=== RoundSparrow_Commentary : Social media everyday people, age 12 to age 120, voters and non-voters alike - can do that by halting entertainment. Be serious, sustain serious, stop all the insulting and mockery that Donald Trump / Elon Musk / White House is built upon. Stop sports consumption, stop fiction addiction and show that USA society can use the spare time and free time that social medua users to every day for 10 years to react-comment about Donald Trump and share sports scores and video games and other non-essential... quote books written by dead authors. Quote MLK Jr, quote Neil Postman, quote books about Nazi Germany, quote art work and books about Russia, teach about the Taliban. Say you care about human beings, not just wealth and bling life of Donald Trump private jets and Trump's addiction to Fox News HDTV fiction content. [Show you want to reform the USA and actually defend the world agaisnt Putin and Trump through peaceful teaching / education / betterment progress of comprehension of factual nonfiction reality.](../../Grim_Blunt/Stop_All_Entertainment.md) - stand up for goodness and not just non-stop Donald Trump entertainment mockery fiction content addictions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1mnw4zd/the_governor_not_falling_for_this_crap/n885kbe/
+
+Correct-Basil-8397 2021-05-13
+
+"The more I see the more I disagree with this sentiment. There’s literally been nothing but bad news and more deterioration for the last 6 months. We don’t stand a chance. Anyone who can should just get the hell out while the borders are still open"
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1mnw4zd/the_governor_not_falling_for_this_crap/n88dywn/
+
+cpatkyanks24 2023-07-02
+
+"This man constantly repeats dystopian level shit that is completely divorced from any kind of reality that actually exists in any of these cities. I lived in New York City for six years (moved out last year temporarily). I have never, not one time, at ANY point, walked outside towards the subway on my way to work feeling terrified for my life. I came home at 2-3 AM especially in college years more times than I can count. It is safer than 95% of suburbs.
+
+This fucking prick just walks out and just yells “CRIME CRIME CRIME” over and over again towards the clouds trying to convince people of this alternative reality that only happens in his head. The disappointing thing to me isn’t even him at this point. He’s a lost cause, he is what he is. The capitulation of an entire political party that has reformed their entire platform to worship this man as a messiah is the disappointing part. How do these people sleep at night."
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1mnw4zd/the_governor_not_falling_for_this_crap/n88fbug/
+
+Falkens_OXCOM_Theory 2023-12-31
+
+"I am convinced those that worship him in the maga group are too damn lazy to think for themselves. They accept what he says because it is easier than actually learning. Tools!"
+
+* :::=== RoundSparrow_Commentary : Tools of media addiction, entertainment addiction, entertained by Donald Trump content of fiction. Scientology is build upon fiction entertainment, so is The Bible and Church, entertainment addiction. Fox News is fiction entertainment. Sober up, be serious. Stand up for goodness and comprehension, not compusive worship to fiction storytelling addictios. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1mnw4zd/the_governor_not_falling_for_this_crap/n88hbvw/
+
+cpatkyanks24 2023-07-02
+
+"Thing is you can’t even argue with them. If you prove their beliefs wrong with objective data, they say the data is fake made up by radical Democrats. If something bad happens in their life as a result of a Trump policy, it’s “well Biden did it.” I truly don’t know how to get through to people like that.
+
+These people are trained at this point to believe half the country is evil. We didn’t start this shit - I don’t recall any of this animosity from the general public in 2012 (aka the last election I wasn’t scared shitless about), besides the usual Fox suspects. I didn’t visit a traditionally red state and have the first thing coming into my mind be “oh what a shithole this place is.” One guy with a massive ego started spewing this nonsense over and over again and a media gave him free airtime because they thought he was funny. The chain of events it started to get us to this point will never have me not utterly mind blown."
+
+* :::=== RoundSparrow_Commentary : Russia won, Surkov won, since March 2013. USA people have a civic duty to study Russian information warfare and start teachng cult deprogramming. Stop mocking and insulting the cult of MAGA and address the problem on social media, sustain teaching of ficiton addiciton war. Defend against Putin's IRA aftermath, stop acting like it will fix itself and rescue people. Look to Malala standing up to ignorance and poor literacy in Swat Valley Pakistan since January 2009 for ideas. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1mnw4zd/the_governor_not_falling_for_this_crap/n87zu2j/
+
+Competitive_Bid7071Wright County 2020-08-22
+
+"I’m glad to see Walz is doing something to fight back against Trumps authoritarian fantasies. I wish more Democratic or anti-authoritarian political leaders were like him instead of just sitting back and doing nothing, or outright choosing to work with Trump despite so many of his actions being unlawful and illegal."
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1mnw4zd/the_governor_not_falling_for_this_crap/n88o3qj/
+
+shouldehwouldehcould 2025-05-08 (new this year)
+
+"it's also littered with a ton of passive commentary of its current situation. too bad a snappy comeback on social media means fuck all."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mnttmo/oh/n87osy4/
+
+jeffcrafff 2016-04-06
+
+"I mean, yeah, can we stop being shocked and appalled by their hypocrisy? Karma farming on Republicans' double standards is getting a bit repetitive, at this point it's like being surprised that water is wet."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mnttmo/oh/n87m2vm/
+
+Careful-Depth-9420 2024-11-01
+
+"My BIL told me to my face back under Obama presidency that if he had the opportunity he would shoot him like a dog in the streets. My sis agreed.
+
+They are STILL talking about the Trump ear spectacle and how deranged the democrats are without respect for the president."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mnttmo/oh/n8822kg/
+
+Mammoth_Winner2509 2025-07-09 (recent account)
+
+"It didn't used to be that way. Back when I used Twitter, I used it exclusively for news updates and jokes. Nothing else. It was perfect. I got my real world news, my sports news, and my funnies all in one place."
+
+* :::=== RoundSparrow_Commentary : And people can't face up that Neil Postman's 1985 book is correct. Funny, humor, amusement is the exploit of Russian information warfare since March 2013. People think Donald Trump is hilarious and funny. Mixing entertainment with news without actually caring if the "news" you consume is factual or truth has driven the USA into addiction to fiction funny content. Donald Trump provides fiction, Fox News provides funny fiction. [Tweet-length news is reactionary thinking. Learning media ecology is not optional in a world wide web. Donald Trump is evidence of this on a massive scale](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). ===:::
+
+&nbsp;
+
