@@ -1540,5 +1540,16 @@ ProfessorElk 2024-11-06 (account created at election 2024)
 
 "Trump got elected by criticizing people’s looks"
 
-* :::=== RoundSparrow_Commentary : Mocking and insulting, South Park, is the common deepest faith in the USA. Faith in mockery. No matter the problem, people in USA think adopting Donald Trump insutling and mocking will make it better for future of the world. ===:::
+* :::=== RoundSparrow_Commentary : Mocking and insulting, South Park, is the common deepest faith in the USA. Faith in mockery. No matter the problem, people in USA think adopting Donald Trump insutling and mocking will make it better for future of the world. This has been gong on for over 10 years. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mnlqui/noem_slams_south_park_mockery/n860xe6/
+
+thissomeotherplace 2013-07-23
+
+"Weird, since their regime's whole domestic policy is based on people's appearance"
+
+* :::=== RoundSparrow_Commentary : Donald Trump's orange skin color is outside black / brown skin colors and made everyone talk about skin color, orange skin. People think Tony Clifton dressing up odd is dumb and stupid as they engage the Tony Clifton performance. ===:::
+
 
