@@ -68,6 +68,15 @@ Again - go Newsom for hitting back in a language this motherfucker understands a
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mocks_trumps_all_caps/n8bmbit/
+
+agreenshade 2023-11-14
+
+"It was always going to happen like this... Made for tv in a social media era, applauded by idiots, led by a con man, shallow and completely devoid of human dignity. Everything about this is the worst qualities of ourselves."
+
+&nbsp;
 
 .
 
