@@ -59,3 +59,19 @@ Stand up for actually rescuing ourselves from the intellectual warfare situation
 .
 
 “This illustrates a recent tendency of masochistic self-immolation on the part of advertisers. They have discovered the great principle that real news is bad news. Up till now advertising has been all good news and, therefore, gets very little attention.” -  [War and Peace in the Global Village](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village). Marshall McLuhan, 1968. Page 152
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mobnlt/nobody_knows_what_trump_is_talking_about_anymore/n8ayn6d/
+
+
+What Trump has been doing since 2016 is called "Bullshitting" in philosophy.    
+The difference between lying and bullshitting is that the liar still cares about what is true, while the Bullshitter is indifferent about the truth.
+
+The issue with Bullshitting is that it is an order of magnitude more difficult to disprove it than it is to create it.     
+That is also why Trump and other conservative populists have been so successfull on social media.    
+You can just push out BS and eventually something catches on and spreads through social media, people just upvote and share stuff because it represents something that fits their bias and any sort of actual counterarguement drowns in the endless stream of new BS.
