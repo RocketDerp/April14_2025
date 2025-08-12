@@ -187,7 +187,7 @@ BigMax 2008-05-27
 
 They spent the last 30 years convincing the United States that it's biggest enemy on the planet is it's own people, and they really have succeeded.
 
-We're going to literally mobilize our troops against ourselves.
+We're going to literally mobilize our troops *against ourselves*.
 
 Imagine how excited Russia is? (As well as China, Iran, etc) They literally got us to hate ourselves and now fight ourselves."
 
