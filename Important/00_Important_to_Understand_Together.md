@@ -18,3 +18,15 @@
 
 "Survival is the second law of life. The first is that we are all one."    
 A Joseph Campbell Companion: Reflections on the Art of Living, page 37
+
+&nbsp;
+
+&nbsp;
+
+### James Joyce of Dublin Ireland
+
+Joyce had a sense that language wasn't working, page 3 of Finnegans Wake and the Tower of Babel in the thunderword. 
+
+If we can't communicate compasson and love thorugh langauge, if we can't end wars and conflicts through langauge, we are suffering at our own egoism. Gorup egomania, mob mentality. Our language conflicts of not grasping a common goodness and being attracted to Putin and Donald Trump and Hitler and other terrible systems. [MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL](https://www.youtube.com/watch?v=09maaUaRT4M)
+
+The James Joyce's themes of "Earwocker", earworm, and what we latch on to and what we repeat in our minds. And even what we repeat of aquired media with intention of repeating, such as Sunday Church and Islamic prayer patterns daily.
