@@ -287,7 +287,15 @@ Snapplecola 2014-11-08
 
 "This is the end of American democracy while we sit and meme and say trump got slammed by some stupid facebook comment they have consolidated power. There will never be another fair election it is just a matter of time till people start disappearing. The fight for freedom is already lost because no one cared."
 
-* :::=== RoundSparrow_Commentary : People did care. Care about the memes... orange skin color, the diapers, the McDonald's diet, the golf outing, the QAnon Pizzagate + Epstein List. Nobody cared about media addiction being the very mechanism of Donald Trump Reality TV "The Aprentice" star, Neil Postman's 184 page book being repeated enough to stop compusively reacting to media and learn how Russian informaiton warfare works since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : People did care. Care about the memes... orange skin color, the diapers, the McDonald's diet, the golf outings, the QAnon Pizzagate + Epstein List. Nobody cared about media addiction being the very mechanism of Donald Trump Reality TV "The Aprentice" star power, Neil Postman's 184 page book being repeated enough to stop compusively reacting to media and learn how Russian information warfare works since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mombgi/why_arent_we_calling_vance_boelter_a_christian/n8d9x29/
+
+I_HateToSayAtodaso 2016-11-15
+
+"Well, because in this backwards ass country, we somehow only see brown people who commit terrorist acts as such. Terrorists on Jan 6th were pardoned and are celebrated by the Trump regime.  Other white, Christian nationalist terrorists go unclaimed by the right as they label them as mentally ill lone wolves. As a country overall, we have been unwilling to label white and/or Christian nationalist terrorists as what they actually are and it has normalized this behavior."
 
 &nbsp;
 
