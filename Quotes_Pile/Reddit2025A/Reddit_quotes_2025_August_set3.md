@@ -26,11 +26,19 @@ And this is largely because he knows that without all of this, he and his family
 
 Vance doesn't have the same baggage or motivation, and more importantly he gets his advice from a different group of slightly less nasty people(The tech oligarchs like Musk aren't fans of the tariffs or the White House interfering in the day-to-day functioning of businesses and universities)."
 
-* :::=== RoundSparrow_Commentary : Exactly: "The trouble with Trump is that he's prepared to keep up this onslaught every day, every week for the remainder of his natural life. He'll double down on any pushback" - people who claim Donald Trump is lazy, weak, does nothing - entirely do not grasp the labor it takes to constantly be in media and on media platforms. Donald Trump is not lazy and weak, it is a denial of Mass Psychois in the population to see Trump as doing nothing / weak. A failure to grasp the loyalty and how others do work for Donald Trump, how social media society carries water for Trump. Mocking Trump is not resisting. Mocking MAGA is not resisting. Humanity has to face up that humanity is the very source of education and learning. Garbage media content (Trump mocking, Trump insulting) into our human brains, garbage out. We learn from Donald Trump, he is our teacher. We need to address who we are learning from! We need self-awareness on a Neil Postman educaiton and media ecology level. ===:::
+* :::=== RoundSparrow_Commentary : Exactly: "The trouble with Trump is that he's prepared to keep up this onslaught every day, every week for the remainder of his natural life. He'll double down on any pushback" - people who claim Donald Trump is lazy, weak, does nothing - entirely do not grasp the labor it takes to constantly be in media and on media platforms. There are media cults in USA that say Trump is baby / child / unaccomplshed. Donald Trump is not lazy and weak, it is a denial of Mass Psychois in the population to see Trump as doing nothing / weak. A failure to grasp the loyalty and how others do work for Donald Trump, how social media society carries water for Trump. Mocking Trump is not resisting. Mocking MAGA is not resisting. Humanity has to face up that humanity is the very source of education and learning. Garbage media content (Trump mocking, Trump insulting) into our human brains, garbage out. We learn from Donald Trump, he is our teacher. We need to address who we are learning from! We need self-awareness on a Neil Postman educaiton and media ecology level. ===:::
 
 &nbsp;
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89ltfv/
+
+yamwhatiyam8000 2024-03-13 (self declared Australian)
+
+"He certainly cannot be worse than Trump but I doubt that he has the strength of character to achieve much in the way of reforms that will make any difference.
+
+I doubt that anyone can reverse the damage that has been done to society , politics and the economy under this administration."
 
 
 
