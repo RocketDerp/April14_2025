@@ -299,6 +299,57 @@ I_HateToSayAtodaso 2016-11-15
 
 &nbsp;
 
+https://old.reddit.com/r/TikTokCringe/comments/1mok6h5/family_decides_to_ruin_someone_elses_graduation/n8d9k93/
+
+TigerLilly_Tink43 2024-04-04
+
+"You can't fight bigotry with bigotry. Bigotry begets bigotry. In fact, Israel is a prime example of that - European jews were genocided, Israel was born to protect against genocide and is genociding in the name of anti-genocide. This is how it works.   
+Pilgrims came to america to flee religious persecution then slaughtered native americans for not following their religion.    
+Christians were persecuted under polytheist Roman rule, came to power and persecuted polytheists into extinction.    
+The other is never a monolith."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mok6h5/family_decides_to_ruin_someone_elses_graduation/n8cur8d/
+
+Lissomex 2019-08-11
+
+"It's been barely 100 years since the wheels starting turning for the Nazi party and somehow everyone forgot? How the hell did Israel forget, clearly, the most?? Is this "it happened to me so I'm allowed to do it to other people" behavior? "My dad hit my mom so I'm going to hit my wife" bs? I'm so confused. Why??? For a tiny piece of land??"
+
+&nbsp;
+
+https://old.reddit.com/r/Economics/comments/1moccma/breaking_ej_antoni_trumps_candidate_to_lead_the/n8b3t93/
+
+the_new_hunter_s 2010-12-22
+
+"We argue just as much internally as they do with their wives. Ask them the last time they disagreed with another conservative? I literally get pissed at you weekly. They just believe whatever fox says."
+
+&nbsp;
+
+https://old.reddit.com/r/Economics/comments/1moccma/breaking_ej_antoni_trumps_candidate_to_lead_the/n8bga99/
+
+Past_Sky_4997 2025-05-05 (recent account)
+
+"If they want to be called conservatives, they need to tell us what they're trying to conserve.
+
+Example above is another destruction/removal/breakdown of norms, rules etc.
+
+They don't want to keep anything as it is now, and they're not building anything either (apart from camps, of course). They're just chaos."
+
+
+&nbsp;
+
+https://old.reddit.com/r/Economics/comments/1moccma/breaking_ej_antoni_trumps_candidate_to_lead_the/n8b9j0f/
+
+MuckRaker83 2021-03-09
+
+"Most of my patients in the hospital have Fox News on in their rooms every waking moment. I have to hear it all day.
+
+And it's all insane. They live in an entirely different reality. Constant rage-inducing bullshit, without end."
+
+* :::=== RoundSparrow_Commentary : Social media users make these comments about work, friend, family all the time. Since March 2016, Jen Senko's film about right-wing media has been in wide release. But people are unwilling to stand up for "The Little Guy" in ssutained way and make that 2016 film a constant repeated topic in comments on social media. Authors are not cited, films not cited, just streams of comments that flow day after day and nobody wanting to organize around a leader on these subjects. ===:::
+
+
 .
 
 .
