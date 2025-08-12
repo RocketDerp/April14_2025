@@ -241,6 +241,56 @@ BeefistPrime 2020-10-22
 
 &nbsp;
 
+https://old.reddit.com/r/MurderedByWords/comments/1mocmlp/capital_takeover_cry/n8crqc7/
+
+JoeSmithDiesAtTheEnd  2019-08-30
+
+"My crazy MAGA neighbor (with over a dozen pro-Trump flags) had an Eptstein Flag ("this flag didn't hang itself") for the better part of a year.
+
+The minute marching orders changed, his Epstein flag came down.
+
+Meanwhile, he's still got his Joe Biden "That's All Folks", Looney Toons flag hanging up.
+
+This neighbor is my real world point of reference for what MAGA is actually thinking. He's always got a flag for the latest marching orders. If this guy ever takes down his Trump flags, then I'll believe MAGA is over. In the meantime, it's business as usual for them."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mocmlp/capital_takeover_cry/n8bmzbk/
+
+chickberry33 2018-07-01
+
+"I have never been this afraid for our future. not even during the Cold war era bomb drills, at school in Kansas, when we sat lined up along the wall with our heads between our knees."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mocmlp/capital_takeover_cry/n8cp8r1/
+
+DualWeaponSnacker 2017-12-17
+
+"I understand that the rest of the world hates us right now, Germany didn’t liberate themselves. We need help and we aren’t going to get it. I literally go to work every day to feed people (food bank) and make enough to just get by with a Masters degree. I can’t flee (trans with no passport or extra money). I can’t even move states right now because the job market is horrific and I can’t afford to break my lease.
+
+I show up to every event/protest. My actual existence is gonna be a crime soon, probably. I got a literal Masters degree for public entity leadership and admin. My whole life is about helping people. Do not presume to call me lazy or content to sit on my hands. Germany was liberated by a worldwide effort and nobody gave a shit about Germans. It was when Hitler came for other people’s nations that they stood up. I almost want Trump to invade Canada at this point, so we can get some help. We. Need. Help. We are poor. We are without means. We are scared."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mocmlp/capital_takeover_cry/n8bmzds/
+
+GreatBigBellyFlop 2020-09-28
+
+"It’s already over. Americans are content to sit on their hands and bitch about it online. They even had the playbook beforehand so they knew what was coming, still nothing."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mocmlp/capital_takeover_cry/n8c4kl2/
+
+Snapplecola 2014-11-08
+
+"This is the end of American democracy while we sit and meme and say trump got slammed by some stupid facebook comment they have consolidated power. There will never be another fair election it is just a matter of time till people start disappearing. The fight for freedom is already lost because no one cared."
+
+* :::=== RoundSparrow_Commentary : People did care. Care about the memes... orange skin color, the diapers, the McDonald's diet, the golf outing, the QAnon Pizzagate + Epstein List. Nobody cared about media addiction being the very mechanism of Donald Trump Reality TV "The Aprentice" star, Neil Postman's 184 page book being repeated enough to stop compusively reacting to media and learn how Russian informaiton warfare works since March 2013. ===:::
+
+&nbsp;
+
 .
 
 .
