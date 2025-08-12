@@ -129,3 +129,21 @@ USA holds THe Bible in such high esteem. Atheists are reactionary to the Bible, 
 Cracking under the pressure. The USA is a pressure cooker of hate. Out-group hate.
 
 The hate of Canadians in 2025 is so blatent, so obvious, it's outright domestic abuse behavior. It is drug abuse and food abuse behavior on a national scale. It's playing games with a weapon like playing with a gun in the house because guns are cool. It is so obvious sickening behavior to attack Canada like Trump and MAGA started doing in year 2025. Predatory agressive behavior. Egomania nation, USA.
+
+
+&nbsp;
+
+&nbsp;
+
+# Media Ecology, Amused to Death
+
+Amused to Death 1985 book modern 
+
+### TikTok Brain
+
+Tuesday, August 12, 2025 video    
+
+https://www.youtube.com/watch?v=cqz4-HVE2sY
+
+Boredom, control your attention, context bewilderment
+
