@@ -30,3 +30,8 @@ Joyce had a sense that language wasn't working, page 3 of Finnegans Wake and the
 If we can't communicate compasson and love thorugh langauge, if we can't end wars and conflicts through langauge, we are suffering at our own egoism. Gorup egomania, mob mentality. Our language conflicts of not grasping a common goodness and being attracted to Putin and Donald Trump and Hitler and other terrible systems. [MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL](https://www.youtube.com/watch?v=09maaUaRT4M)
 
 The James Joyce's themes of "Earwocker", earworm, and what we latch on to and what we repeat in our minds. And even what we repeat of aquired media with intention of repeating, such as Sunday Church and Islamic prayer patterns daily.
+
+Despite recognizing the Earth is full of hate conflicts in our population of over 8 billion people, we seem largely unwilling to repeat: The ENTIRE WORLD needs to expand love and compassion languages and ends war, end hate. 
+
+Carl Sagan: ["The Earth is a very small stage in a vast cosmic arena. Think of the rivers of blood spilled by all those generals and emperors so that, in glory and triumph, they could become the momentary masters of a fraction of a dot. Think of the endless cruelties visited by the inhabitants of one corner of this pixel on the scarcely distinguishable inhabitants of some other corner, how frequent their misunderstandings, how eager they are to kill one another, how fervent their hatreds. Our posturings, our imagined self-importance, the delusion that we have some privileged position in the Universe, are challenged by this point of pale light."](https://www.planetary.org/worlds/pale-blue-dot)
+
