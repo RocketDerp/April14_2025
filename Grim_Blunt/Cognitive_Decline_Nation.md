@@ -48,6 +48,8 @@ Unhinged from what? Unhinged from truth, reality, goodness.
 
 &nbsp;
 
+# Harlan Ellison, Middle East 8000 years
+
 This is rough draft raw even for me ;) I hope I can keep revisiting this topic, but it is very grim. Nobody wants to deal with this addiction to out-group hate in the Middle East. 
 
 Automated Youtube transcript, so not formatted and may have some errors. Audio in link.
