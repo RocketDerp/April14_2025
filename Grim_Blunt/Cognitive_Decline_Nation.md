@@ -160,7 +160,7 @@ https://www.youtube.com/watch?v=D8sfMiQrBFg
 
 In a world increasingly torn by ideological battles, political shouting matches, and binary thinking, we’ve forgotten how to simply listen. This episode is an invitation to remember — to see how the desire to “win” has become the hidden engine of division and suffering. When we fight to be right, we stop seeking to understand. When we silence the other, we lose ourselves."
 
-&nbps;
+&nbsp;
 
 Exactly! Comprehension takes time, reactionary outcomes since the Internet Research Agency and Cambridge Analytica of March 2013 onward. People do not comrpehend complex ideas before reacting to them. There is no more pondering, the race of social media reaction / Donald Trump interactive audience Tony Clifton reaction interaction...
 
