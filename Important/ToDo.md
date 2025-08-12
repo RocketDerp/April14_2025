@@ -238,3 +238,9 @@ Media ecology, parenting, loud concert for baby
 https://old.reddit.com/r/Fauxmoi/comments/1mmpdy6/maluma_stops_his_concert_in_mexico_city_to_scold/
 
 (not from video, found on Internet) "Much like James Joyce, Kubrick was an artist capable of building layer upon layer of meaning and reference into his work."
+
+&nbsp;
+
+Front page of Reddit   
+Core point of James Joyce's Finnegans Wake, self-awareness of inherited English.    
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1mnq5rc/shakespeare/
