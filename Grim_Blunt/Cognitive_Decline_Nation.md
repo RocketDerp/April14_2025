@@ -56,7 +56,11 @@ https://www.youtube.com/watch?v=P6gtHQGbXmM
 
 **Harlan Ellison's Solution for Palestine and Israel**
 
-... opinion no no he says we're anxious to hear what you think. And he nudges and nudges and pushes at me already. I know I'm going to hate Israel and he keeps saying I want to know what you think. We want to know what you want. And he sounds like Jackie Mason. So I say: listen, trust me, you don't want my opinion yeah. He screams: we want your opinion! we're dying for your opinion! we're pling to have your opinion! He goes on and on and on he will not let me off the hook.
+2:07     
+I am the senior editorial reporter for the Jerusalem Post and I would love to interview you. And I said just fire away. And the first out of his mouth is... what do you as an American Jew think of the situation in the Middle East? And I said to him: well, why would you ask me that I'm a writer... I write amusing little fantasies. I'm a professional liar, I'm not a political commentator. I don't know what your people are going through over there I have no comment...
+
+2:30    
+... I have no opinion. no no, he says, we're anxious to hear what you think. And he nudges and nudges and pushes at me already. I know I'm going to hate Israel and he keeps saying I want to know what you think. We want to know what you want. And he sounds like Jackie Mason. So I say: listen, trust me, you don't want my opinion yeah. He screams: we want your opinion! we're dying for your opinion! we're pling to have your opinion! He goes on and on and on he will not let me off the hook.
 
 So finally I reach the pimel line and I say okay... but remember the old Chinese adage be careful what you wish for because you might get it. And he goes: "haaha, extremely clever! So what is your opinion?" And I said: 
 
@@ -94,7 +98,7 @@ off. Ah, you got to be able to accept responsibility for what you do and you've 
 Jews are not the Arrogant all-knowing chosen people. That is as elitist as the Christians who think that when the Rapture comes they're going up and we're going down. That's just elitism and it's a bad kind of
 elitism as opposed to my elitism... which is based on intelligence which is a good elitism.
 
-And if you don't like it... I'll punch the ... out of you
+And if you don't like it... I'll punch the shit out of you!
 
 &nbsp;
 
