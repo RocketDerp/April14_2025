@@ -147,3 +147,27 @@ https://www.youtube.com/watch?v=cqz4-HVE2sY
 
 Boredom, control your attention, context bewilderment
 
+&nbsp;
+
+&nbsp;
+
+### How her audience reacts
+
+The first few minutes how she points out the abusive responses from audience.   
+https://www.youtube.com/watch?v=D8sfMiQrBFg
+
+"This episode is not about taking sides — not between science and spirituality, not between reason and faith, not between left and right. It is about stepping beyond the war of opinions, into the deeper space of human resonance.
+
+In a world increasingly torn by ideological battles, political shouting matches, and binary thinking, we’ve forgotten how to simply listen. This episode is an invitation to remember — to see how the desire to “win” has become the hidden engine of division and suffering. When we fight to be right, we stop seeking to understand. When we silence the other, we lose ourselves."
+
+&nbps;
+
+Exactly! Comprehension takes time, reactionary outcomes since the Internet Research Agency and Cambridge Analytica of March 2013 onward. People do not comrpehend complex ideas before reacting to them. There is no more pondering, the race of social media reaction / Donald Trump interactive audience Tony Clifton reaction interaction...
+
+TIMESTAMPS:   
+00:00 Request for your understanding   
+02:01  Personal benefits and negative consequences of "taking sides"   
+04:20  Do we want debates or peace?   
+06:29 The Illusion of "Winning"   
+11:07 My Commitment—Universal resonance   
+13:09 Sublimation: Our future needs such attempts   
