@@ -1516,3 +1516,29 @@ can't bury our heads much longer with tiktok bullshit or whatever brainrot fad i
 
 &nbsp;
 
+https://old.reddit.com/r/AdviceAnimals/comments/1mnps43/hes_expecting_a_massive_public_backlash/
+
+"He's expecting a MASSIVE public backlash."
+
+* :::=== RoundSparrow_Commentary : He is expecting massive media engagement, media overage, and people to give up their future out of **media content addiction, mocking addiction, mocking Donald Trump addicts.** This has been going on for 10 years, people aren't waking up at the Neil Postman / Joseph Campbell / Surkov informationw arfare level. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mnlqui/noem_slams_south_park_mockery/n85rrbn/
+
+turndownforwomp 2021-12-20
+
+"Hey Kristi, I thought it was liberals who couldn’t take a joke?"
+
+* :::=== RoundSparrow_Commentary : MAGA right, liberal left, everyone doesn't want to face conservative Neil Postman's 1985 book "joking ourselves to death, entertaining ourselves to death with South Park and Donald Trump". One single book of 184 pages that spells out Ronald Reagan 1985 second term taken to the TCP/IP year 2025 future. A one-line Twitter mockery Tweet-think reaction comment. Crowd favorite for 10 years. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mnlqui/noem_slams_south_park_mockery/n85t0oc/
+
+ProfessorElk 2024-11-06 (account created at election 2024)
+
+"Trump got elected by criticizing people’s looks"
+
+* :::=== RoundSparrow_Commentary : Mocking and insulting, South Park, is the common deepest faith in the USA. Faith in mockery. No matter the problem, people in USA think adopting Donald Trump insutling and mocking will make it better for future of the world. ===:::
+
