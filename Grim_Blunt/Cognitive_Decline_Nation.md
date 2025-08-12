@@ -174,3 +174,13 @@ TIMESTAMPS:
 
 Intro to her channel    
 https://www.youtube.com/watch?v=m3UZqzZnRSw
+
+&nbsp;
+
+&nbsp;
+
+### Gravity's Rainbow 
+
+August 12, 2025 response to Donald Trump power   
+Technology and power    
+https://www.youtube.com/watch?v=Lp-lIPi7rhI
