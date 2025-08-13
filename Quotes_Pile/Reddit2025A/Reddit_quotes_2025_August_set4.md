@@ -87,3 +87,12 @@ Every comment about how hot the police women are, or how men aren’t allowed to
 
 * :::=== RoundSparrow_Commentary : December 20, 2013 ... before the start of the Ukraine war in February 2014 ... December 20, year 2013. [Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's **"traditional values"** and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) - and Putin and Trump are meeting this week (August year 2025) in Alaska for follow-up on that December 2013 organized efforts to *grab women by the pussy*. Don't forget: [Pussy Grabs Back](https://www.newsweek.com/pussy-riot-vow-grab-back-trump-new-song-513733) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/southpark/comments/1mp4dwl/south_park_skipping_another_week_amid_heavy/n8gtu5t/
+
+KimJongFat 2012-03-09
+
+"I feel like this is intentionally being done so Paramount Plus subscribers keep extending their subscriptions."
+
+* :::=== RoundSparrow_Commentary : I am not agreeing with this short-thinking Twitter-length statement. But I do ponder that South Park was beyond subscription paywalls and now people who have heard all the hype about the first two episodes that already aired are rewatching the massive collection of previous episodes. Maybe even some of the video games have increased in sales? Fanatasy on my part: If South Park could do an episode on 1985 Neil Postman book and how it relates to Suprkov and Putin's first 12 years rise to power (1999 to 2011, throw in Robert Reich on ecomics of the USA Holiday Chrstmas year-end mmpact upon Q1 2026... focus on those 3 topics... the war could dramatically turn arund. ===:::
