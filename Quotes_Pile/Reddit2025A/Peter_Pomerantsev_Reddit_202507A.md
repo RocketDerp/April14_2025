@@ -1594,3 +1594,13 @@ Representative_Pick3 2020-07-19
 "They are doing this all on purpose. The Senators are all in on it. Ask why 6 of them were in Russia for the 4th of July in 2018 at Putin's invitation? They want to fuckin ruin this country so the oligarchy can swoop in and buy it up for pennies on the dollar.. This keeps up, we are all looking like Russia in a few years."
 
 * :::=== RoundSparrow_Commentary : The ["Conservative International 2013" movement was announced in December 2013](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/)... right before the February 2014 military war started with Ukraine. ===:::
+
+&nbsp;
+
+# Wednesday, August 13, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/
+
+I don't even know where to begin on describing this public statement. It's pure Surkov "key thing" mass mind exploit of the population. This statement comes as Donald Trump is meeting with Putin in Alaska in 2 days.  "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake" - [Adam Cutis, year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
