@@ -151,5 +151,17 @@ princess_raven 2018-01-28
 
 He's doing 'good' shit for his ultra wealthy pedo buddies and doesn't understand why the peasantry isn't falling to their knees to blow him for it."
 
-* :::=== RoundSparrow_Commentary : Remedial morality in USA isn't optional education. A World Wide Reformation is overdue. Islam is the newet of the Levant morality religion faiths from yeat 635... and Malala's Pakistan reform of Quran/Islam to modern dey science thinking hasn't been as well received (yet?) as Martin Luther in Germany 507+ years ago... October 31, 1517 ===:::
+* :::=== RoundSparrow_Commentary : Remedial morality in USA isn't optional education. A World Wide Reformation is overdue. Islam is the newet of the Levant morality religion faiths from year 635... and Malala's Pakistan reform of Quran/Islam to modern dey science thinking hasn't been as well received (yet?) as Martin Luther in Germany 507+ years ago... October 31, 1517 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8i699p/
+
+groupnight 2023-10-17
+
+"If what Russia was doing didn't help trump, he would not be so dismissive of Russian hacking America's court systems
+
+trump knows this is what russia does, because he asked them to do it"
+
+* :::=== RoundSparrow_Commentary : No citations to authors, articles on the subject. Twitter-length reactionary thinking. Barking at trees when breakng news subject simualates the audience, not seeing or able to describe the Novembe 2012 onward forest of Russia's winning of hearts and midns to self-harm the USA (not only one single person self-harm the future of the USA, but the entire popoulation becoming so addicted to Donald Trump's antics and fumbles that mocking and insulting and total mockery takes over the entire nation in Surkovian anti-rality / fiction life). ===:::
 
