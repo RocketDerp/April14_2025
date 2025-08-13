@@ -384,3 +384,13 @@ Regular-Rub-489 2021-04-30
 "Who knew he was so sensitive that a sign would make him so angry. I thought women were supposed to be the emotional ones according to his supporters?"
 
 &nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1mpf78i/to_b_a_part_of_the_f_your_feelings_crowd/n8j5l0a/
+
+Donkeyboya 2021-02-09
+
+"Why do the hardcore Trump supporters all look and sound the same? Leathery, middle-aged men with an Andrew Tate "chin", and a voice that sounds like their balls have yet to descend?"
+
+* :::=== RoundSparrow_Commentary : Reddit social media users in August 2025 adopting Donald Trump MAGA values: hate, mocking, insutling. A Total Mockery that Donald Trump **role model** inspires for over a decade, endless mockery, it never ends, the mocking Twitter-length reaction commenting to MAGA Trumpism. ===:::
+
+&nbsp;
