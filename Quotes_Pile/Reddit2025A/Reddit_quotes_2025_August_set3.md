@@ -553,6 +553,23 @@ Just kidding, I love this."
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1morymo/newsom_says_california_will_draw_new_electoral/n8edn0v/
+
+upthetruth1 2023-12-17
+
+"We should remember white supremacy is not just a US phenomenon, it's common in Latin America, too, and many Latinos practice white supremacy internally and externally to the point that many Latinos see themselves as white and fight to be seen as white (literal court cases where Hispanics were deemed white legally even if they aren't white socially), even at the expense of their own rights and dignities."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1morymo/newsom_says_california_will_draw_new_electoral/n8ejxkp/
+
+phoenix14830 2016-04-08
+
+"Never underestimate the MAGA cult. ICE could take a man's wife and kids and he'd still vote for Trump again."
+
+* :::=== RoundSparrow_Commentary : The cult is short-tiny Tweet-length messages like this very one. Simple-think. Cult of ignorance. Cult of media messages that stream away and nobody can recall year 1980 [Isaac Asimov Laments the “Cult of Ignorance”](https://www.openculture.com/2016/10/isaac-asimov-laments-the-cult-of-ignorance-in-the-united-states.html#google_vignette)  - and if MAGA is a cult, why isn't Reddit teaching cult depgoramming and making Jen Senko's March 2016 film a front-page topic every 12 hour for years and years until the cult has beeen directly addressed? Because people do not want to directly address the elephant in the room... compassion for strangers. Resucing MAGA. Because Russian informaiton warfare has turned all people into tribal thinking, group mob mentality, anti-compassion for the out-group. Surkov won. "Never underestimate the MAGA cult" - but underestimate the Kremlin ability to push QAnon cult, subreddit vs. subreddit cult, the [5,000 simulacra (alternate reality, ARG) screen games of soical maedia since March 2013](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) against MULTIPLE NATO nations - not just USA USA MAGA MAGA USA cult. ===:::
+ 
+
 .
 
 .
