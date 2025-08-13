@@ -316,3 +316,10 @@ Thank you for your interesting and diverse content. Your videos are a real sourc
 18 minutes ago     
 You are masterful in the art of making videos. Each frame is like a work of art. Bravo!🏒🙊⚽️"
 
+&nbsp;
+
+See if my non-fake comment is disappeared
+
+<img width="1678" height="464" alt="image" src="https://github.com/user-attachments/assets/4eaa62e9-9838-4b4a-bb4f-4a674403b5eb" />
+
+"@6:20 - but it's a common fantasy from book authors, competitive athletes, video game makers. If only that person hadn't gotten that knee injury in university sports they would have made it professional. If only the Olympic athlete had not gotten sick on the flight to the host nation. There are only 3 recognized winners, gold / silver / bronze - mathematically you can't all be number 1. There are tuns of great musicians on YouTube and they don't all get "big break" and become profitable. For every 1 famous, there are hundreds who had complications or didn't have social connections."
