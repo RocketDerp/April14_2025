@@ -251,3 +251,10 @@ Neil Postman 1992 Technopoly questions applied to new AI
 https://old.reddit.com/r/politics/comments/1mnsaez/educational_ai_risks_becoming_an_authoritarian/    
 Rick Roderick 1993: "But any intellect that powerful has a tendency to become totalitarian. This is the fundamental problem and nowhere would that be more evident than in the experience of the Germans who were, you know, great at their technology, the advance in science and so on, a world as instrumentally rational, you know, the famous joke that their trains run on time, but the flipside of enlightenment has been to, sort of, give up before the overpowering forces of technology in a more abject surrender than any that was ever called for in religion. I mean, to just abjectly surrender before the powers of technology and given the current state of the powers of technology, they far surpass the characteristics that we associate with God. I mean, think of it in this simple way. In The Bible, in the book of Revelations, the apocalypse is a magnificent myth, but long ago it became what in our society? A reality! A technologically achievable reality. What had been a myth became a technologically achievable reality."
 
+&nbsp;
+
+&nbsp;
+
+Information passing down from person to person, person to book, book to person, etc.   
+Name theories of 1950's to 1974    
+https://www.youtube.com/watch?v=ya1PrgkOO98
