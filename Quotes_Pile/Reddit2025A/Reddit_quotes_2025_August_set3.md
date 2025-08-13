@@ -459,226 +459,6 @@ RabbleRouser_1 2020-12-22
 
 feed from top of page to eliminate scroll?
 
-# Tuesday August 12, 2025
-
-&nbsp;
-
-https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89p53j/
-
-bbqsox 2014-11-14
-
-"But he’s God’s chosen king! God has a habit of picking people in direct opposition to every single thing he calls good.
-
-Why wouldn’t he pick a serial fraud, multiple adulterer, pedophile, and constant liar?"
-
-* :::=== RoundSparrow_Commentary : Instead of react-commenting, snark, mocking, mockery. Social media users could be addressing this problem more directly: [Leavnt religions are being taught by clergy ass-backwards, inverted, good from bad reversed by clergy to audience](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/). "God has a habit of picking people in direct opposition"... People are not using social media to educate when clearly understanding, comprehension, media ecology literacy problems are core to MAGA / Donald Trump attraction. ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89pijl/
-
-ilikebiiiigdicks 2025-05-08 (new this year)
-
-"I can think of something else that’d put an end to his nonsense but saying it will get me a ban."
-
-* :::=== RoundSparrow_Commentary : The gun stroking murder fantasy messages you see all over social media in encoded langauge and symbols. Killing / murdering Donald Trump is only going to create a new form of chaos. We The Peple, the population, need to actually stand up for GOODNESS itself. Education, learning, comprehension, understanding, reality. Russian information warfare has one-line twitter-think messages like this one treated as good ideas. They are not good ideas, they lack goodness. Donald Trump lacks goodness. The answer is to reform the population of 0.34 billion people, not fixate on one person, the media ecology crisis of MAGA / Fox News / Redddit audience is EVERYONE, not just Donald Trump. Russia mind-fucked everyong using IRA and Cambridge Analytica since March 2013. ===:::
-
-
-&nbsp;
-
-https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89ikzl/
-
-1-randomonium 2023-03-03
-
-"The trouble with Trump is that he's prepared to keep up this onslaught every day, every week for the remainder of his natural life. He'll double down on any pushback with even more authoritarianism and illegal/unconstitutional means, from using federal agencies to harass any people in his way to actually rigging the entire political system so that his yes men are permanently running America.
-
-And this is largely because he knows that without all of this, he and his family businesses are doomed the moment he leaves office. He is essentially bullying the entire world into submission, and all the powerful people currently forced to play nice while he's ordering them around won't be so forgiving when he no longer has the ability to back up his threats.
-
-Vance doesn't have the same baggage or motivation, and more importantly he gets his advice from a different group of slightly less nasty people(The tech oligarchs like Musk aren't fans of the tariffs or the White House interfering in the day-to-day functioning of businesses and universities)."
-
-* :::=== RoundSparrow_Commentary : Exactly: "The trouble with Trump is that he's prepared to keep up this onslaught every day, every week for the remainder of his natural life. He'll double down on any pushback" - people who claim Donald Trump is lazy, weak, does nothing - entirely do not grasp the labor it takes to constantly be in media and on media platforms. There are media cults in USA that say Trump is baby / child / unaccomplshed. Donald Trump is not lazy and weak, it is a denial of Mass Psychois in the population to see Trump as doing nothing / weak. A failure to grasp the loyalty and how others do work for Donald Trump, how social media society carries water for Trump. Mocking Trump is not resisting. Mocking MAGA is not resisting. Humanity has to face up that humanity is the very source of education and learning. Garbage media content (Trump mocking, Trump insulting) into our human brains, garbage out. We learn from Donald Trump, he is our teacher. We need to address who we are learning from! We need self-awareness on a Neil Postman educaiton and media ecology level. ===:::
-
-&nbsp;
-
-&nbsp;
-
-https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89ltfv/
-
-yamwhatiyam8000 2024-03-13 (self declared Australian)
-
-"He certainly cannot be worse than Trump but I doubt that he has the strength of character to achieve much in the way of reforms that will make any difference.
-
-I doubt that anyone can reverse the damage that has been done to society , politics and the economy under this administration."
-
-&nbsp;
-
-https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89obnj/
-
-RowAwayJim71 2024-11-07 (account created at election 2024)
-
-"Unfortunately none of this stops with Trump. People still don’t get it. Trump is *THE* useful idiot. Emphasis on idiot! The Heritage Foundation is the actual head of this administration, which was the goal the whole time.
-
-Trump can literally do whatever the fuck, say whatever the fuck, and act as horrible as he wants because all it does is distract from what his administration is actually doing. Trump is the Talking Head; the puppet."
-
-* :::=== RoundSparrow_Commentary : People for 10 years seem unable to describe Donald Trump behaving like Tony Clifton in his media audience interaction. People adore mocking and hate upon Trump, that's the Tonly Clifton act. Trump has an eye for the other end of the television set. Trump knows how to make the screen flicker and vertical sync, how to make it go out of focus. He knows how to get inside people's heads, under their skin, to be the center of attention as a hate magnet. Disco ball of egomania audience. Trump commands a fixation on Trump. Walking Talking *Infinite Jest* mind exploit. ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/worldnews/comments/1mo3eq2/panic_in_eastern_ukraine_as_trump_entertains_idea/n89bao4/
-
-kaaredump 2011-05-21
-
-"The worlds dumbest head of state negotiating with one of the most ruthless, calculating, cunning dictator of all times, what could possibly go wrong?
-
-Putin will end up with half of Ukraine, Alaska, and guarantees that the US will look the other way if Russia invades other European countries."
-
-&nbsp;
-
-https://old.reddit.com/r/worldnews/comments/1mo3eq2/panic_in_eastern_ukraine_as_trump_entertains_idea/n89hjou/
-
-Advanced_Aide3191 2025-02-23 (new this year)
-
-"This is what people get wrong about Putin, he was confident in Russia’s capacity to take Ukraine in a week, almost everyone including Ukraine believed this to be true.  If he had been successful, it would have been a great geopolitical victory for Russia. 
-
-Now Putin has failed and can’t get himself out of this mess without losing his head. This alone gives the US a massive advantage to not just clip Russia’s fangs but destroy their influence, however here comes Trump, the dumbo in chief , giving Putin everything he wanted and destroying America’s power along with it."
-
-
-* :::=== RoundSparrow_Commentary : Except that BBC Adam Curtis on December 31, 2014 broadcast this: "It is exactly what Surkov is alleged to have done in the Ukraine this year (2014). In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. **The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception**, in order to manage and control." - **year 2014** - denial of the IRA, denial of the Kremlin information warfare on Reddit. Just saying "Russian bots" does not in any way demosntrate self-awareness of Surkov techniques and the long-term thinking the Kremlin has demonstrated. On the flip side of social media, Surkov and Putin long-term year 2013 planning is the reason I emphaisze Malala so frequently. Same year 2013 timeline on world stage - and people on social media can't see her LONG-TERM plans of October 8, 2013 and how they interact with a decade-later October 7, 2023 Palestine terrorism. People are NOT taking "High Roads" on social media, they are not connecting the dots. Human beings are the source of love, compassion, goodness in the world - and if we don't CHOOSE with our FREE WILL to support and rally around goodness itself - leaders like Malala - and we continue to put leaders like Putin at the top of our governments... WE will be CHOOSING as people to have a shit world. Show me where social media has focused and sustained on Malala since year 2013? Show me where people grasp and understand the role Fox News has on audience, how EDUCATION and MEDIA CONSUMPTION (Fox News vs. Malala ideas) doesn't influence family and friends in USA. We are not facing up that our own brains are programmable. Malala in Pakistan is one of the few actually calling that out. All the while we are watching machine learning going on with ChatGPT and GrokAI - without focusing on the media we consume. Did Russia want to win the war qucker, perhaps, but they ALSO had concepts and ideas of using the Ukraine physical war as a platform for media manipulation - and they have DONE SO as Adam Curtis BBC spelled out December 31, 2014. ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/technology/comments/1mo4you/googles_gemini_ai_tells_a_redditor_its_cautiously/n8a0cks/
-
-Beat_the_Deadites 2014-01-28
-
-"My highest-average comments here tend to be lowbrow regurgitations of common reddit memes, short snippets that please the hive-mind.
-
-My longer form, more insightful comments get a few upvotes (occasionally a lot of downvotes if I wax philosophical on a controversial subject).
-
-Point being, reddit and redditors seem to reward being an artificial human equivalent rather than a creative, random though generator that then follows those thoughts into new places.
-
-That's also how real life works, just more slowly. We like predictable patterns. The world can be scary, but it's comforting to know that the Browns will always suck."
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n89qcbw/
-
-ChillAMinute 2024-01-24
-
-"I was going to leave a sarcastic comment here but the entire situation is so beyond deplorable and disgusting. Regardless of the religious connotations, I get they are sick of being relentlessly pestered and poked at but sending a modern military to crush a population who lives in the Stone Age, that is landlocked by your military, and purposefully starving them and killing anyone who is trying to advocate for relief is heinous."
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8a16sq/
-
-1shmeckle 2016-03-16
-
-"Following 9/11 - where the deaths were a much much smaller percentage of its total population - the US launched multiple wars that resulted in 4.5 *million* deaths (both direct and indirect) across Iraq, Afghanistan, Syria, and Yemen. The *vast* majority of the people who were old enough to have political opinions in 2002 were supportive (we're talking 80% plus and even after support fell somewhat, re-electing George Bush).
-
-As fucked up as what is happening in Gaza, if you want to understand the crux of the pushback by Israel and its supporters, you have to keep this context in mind (which, is similar to how China and most developing countries look at American hypocrisy). They see that the US did it (and, the Europeans, though they don't like to admit their participation) and Americans had no problem with it for years until the war dragged on longer than expected and people realized it was based on (the obviously) false information. Meanwhile when another country acts in the same way as the US but on a smaller scale, they're accused (as they should be) of genocide, war crimes, etc."
-
-* :::=== RoundSparrow_Commentary : It seems to me that modern media consumers are not facing up to the global history of conflicts, world wars, and technology of warfare since year 1901. It is technically possible to travel across the world, from North America to the Iraq and inflict huge numbers of deaths. In the name of preventing deaths of the mower powerful and wealthy nation, much of this is now done with rockets and from airplanes in the sky - with almost none of the people doing the killing having much risk. A small crew of an airplane can kill thousands of people on the ground using sophisticated technology. People are entirely detached from what goes on at macro scale of the entire Earth in terms of hate and warfare, dehumanizaton, of out-groups. Malala from Pakistan is one of the few people today who gets media coverage who calls out this gross and disgusting behavior of humans in regard to out-group patterns (men vs. women, religion vs. religion, elder vs. children marriage and sexual exploitation). Yet, I don't see social media society showing any interest in repeating Malala's memes / wrods / speeches / video interviews since year 2013 when she did press tours and published her book. Instead, since year 2013 I see the opening of the Ukraine war and people discussing ideas from Putin and Donald Trump every single day for over a decade. Where is social media actually educating people and teaching people about true progress that Malala of Pakistan speaks of? Or even Pussy Riot from Russia? Do people think Ukraine and Pakistan are covered in the 1,400 year old Quran stories and 2,000 year old Bible stories? If social media users don't show interest in people outside of Donald Trump and MAGA - who exactly is teaching moraity of good from bad? Donald Trump is teaching morality: immigrants bad, liberals bad. Why is nobody asserting far supperior morality teachers in the face of MAGA and Donald Trump and Israel and Palestine? Humans learn civilization from each other. Society is a form of technology, and if we do not teach and educate each other on choices and values of society, we end up in war and hate. Technology of killing machines and murder devices alone is chasing humanity, it is becoming easier and easier to splatter brains with military force and terrroism acts than we have found to teach morality. But really, how hard and difficult is it for people on social media to stop repeating Donald Trump and MAGA and repeat Malala from Pakistean's 2013 book instead? Everything is media ecology. Why is [Pussy Riot not good enough to repeat with regularity on social media](https://www.youtube.com/watch?v=s-bKFo30o2o) isntead of mimicing and behaving like Donald Trump role model? ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8a1ais/
-
-ImReverse_Giraffe 2019-06-02
-
-"Except its not just in response to Oct 7th. That was just the straw that broke the canals back. But Hamas had been launching rockets into Israel constantly for years. In no world is it ok to launch rockets indiscriminately at civilian populations every single day."
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8aizzc/
-
-LittleKitty235 2015-10-23
-
-"Look up the definition of genocide. It doesn’t require death camps or even murder. Displacing or even relocating the Jews was already a genocide. They intentionally removed the Jewish culture from Germany from the start
-
-They started off just mass shooting jews but it took too many bullets and mental toll on their troops. That is why the death camps were built. So it could be done cheaper"
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8a6upl/
-
-h8sm8s 2015-06-21
-
-"Netanyahu using arguments popular on Reddit earlier in the genocide. When you’re getting your argument from reddit you’re not just a sociopath but an idiot too."
-
-&nbsp;
-
-"When Israelis don’t even realize anymore how unhinged they sound."
-
-* :::=== RoundSparrow_Commentary : USA 2025, Russia 2014, Palestine 2023, Israel 2025, Sudan, Germany 1943, Japan 1943, Cambodia 1976 (Killing Fields), on and on and on and on and on. People act like national flags and oceans somehow change the behavior of the human brain when it comes to mob mentality and Mass Psychosis behaviors. As Carl Jung emphasized in 1945, Germany did not grasp with self-awareness either. Do we teach this in schools? They sure don't [teach Mass Psychosis as a topic in USA schools](https://www.youtube.com/watch?v=09maaUaRT4M)! They don't even seem to teach the term "egomania" in USA schools because it applies to Donald Trump and Elon Musk and I rarely see people use it. What I see is baby-talk about Trump wearing diapers and being a baby child. Why is Dr. Bandy X Lee ignored on Reddit and not cited? These tiny Tweet-length Twitter thinking reaction comments of "unhinged" are made by the thousands each day, people on social media who can not match their thoughts and concerns up to book atuhors, long-form articles and cite them. Instead, it's 500 Twitter-think messages that people ignore as they scroll off the page (they will no longer be on front page of Reddit tomorrow) and wait for another "breaking news event" to repeat the same concerns. There is no sustained focus on the topic nor call for same. Even something as simple as being able to cite a specific person and their analaysis of the situation such as "we should all repeat what Harlan Ellison said about the past 8,000 years in the Middle East" and "We should all focus on and repeat that Joseph Campbell in 1987 said the 3 Middle East religoins had disqualified themselves for the future, and what MAGA in USA has done with Donald Trump $59.99 Bible and Palestine Isreal conflict of October 7, 2023... and September 11, 2001 and other events show this to be true. The clergy needs deep reformation." And you do see some of these types of activites on Reddit / Bluesky and other social media, but it doesn't get sustained attention. The conflicts between the groups is sustained (8,000 years from Harlan Ellison perspective)... but the need to expand compassion and love and world peace gets mocked and avoided as topics. Humanity is the originator of love and compassion teaching and education, and yet, we don't behave as if human persons on social media have any role in teaching it. Only that Russian "bots" can teach MAGA to hate and believe anti-science falsehoods. Only a faith in social media negative, not a true positive. ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n89pic3/
-
-achiller519 2019-01-30
-
-"Yikes dude!
-
-Netanyahu could do a genocide in an afternoon, Putin would have done a 3 days special operation in Ukraine and Trump would have ended the Russia-Ukraine war in 24 hours.
-
-Some leaders have gone completely nuts and also lost the track of time."
-
-* :::=== RoundSparrow_Commentary : The losing track of time is the social media society. And endless consumption of fragments of ideas that are short and scoll off the screen and people not declaring the need to revisit topics in a way that isn't just reacting to "breaking news" or entertaining poses / framing of a subject. People treat the "news cycle" like human beings don't control it. Wehn infact, Sunday Church Day, Friday Islamic Prayer Day, are demonstrations of humanity controlling the information / education / news cycles. Why don't we have a world conflict day of the week, Tuesday and Saturday and revisit if ideas are going forward? People like Malala in Pakstian make breaking news in year 2012 for getting shot on a school bus - but since there is no "breaking news" then progress of education, understanding, leraning, comprehension doesn't get reviwed until a school gets bombed or school shooting. It's all reactionary and often incredibly superficial and shallow in the popularity of react-comments. This is exactly what Neil Postman in his 1985 book "Amusing Ourselves To Death" was warning us about. Fragmented comprehension from the way we all consume information / "news cycle". Thre is an absence of social media assertion that people in Palestine deserve freedom, liberty such as a 16 year old child who would want to plan their life in university. There is an absence of what the clergy is supposed to do in society: promote compassion, love, a "world view" from outer-space gods upon humanity to see the bigger picture of our behaviors. The kind of view Carl Sagan had in Pale Blue Dot book and poem. ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8afcre/
-
-WingerRules 2014-10-06
-
-"It's not projection, they know what they're doing. They know a huge portion of Americans dont follow politics closely enough or are locked into Fox News enough to not know stuff like this is bullshit, so they effectively confuse the discourse and facts for low info Americans. Yesterday, Abbott came out and made the statement that they're gerrymandering in response to California, knowing for a fact a big chunk on people wont know California only announced they're doing it in response to Texas doing it.
-
-Its the same tactic of "firehose of disinformation" experts said Russia uses on their population."
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8aavhk/
-
-"Jesus Christ, Abbot is a fucking piece of shit.
-
-I wish things could change to where the kinds of people who crave power wouldn't want it, so that only the right people ever got it. Make positions of power come with built-in detriments, not perks, so that only the people who are there for the right reasons would ever care to participate."
-
-
-* :::=== RoundSparrow_Commentary : What seems blindgly absent, deafening silent is social media users creating their own wish-list and desires for democracy and repeating them. Project 2025 put in everyone's face a list of desires and future changes. But social media society spends free time and spare time react-commenting to breaking news events and not using Wiki style systems or message systems to build up good ideas. Second Bill of Rights from January 1944 should have been a huge topic December 4, 2024 with the murder of the CEO of United Health Care in Manhattan... but I saw no focus on it. What good is health care at $1 a month of rent and housing goes up $7,500 a month? Donald Trump is a real estate king, why can't pepole see the Second Bill of Rights is not a huge lengthy list - the Wikipedia page is only a few pages - but it is comprehensive in the billionaires takeover of society / MAGA / Donald Trump / Elon Musk values. There is a society-wide breakdown of comprehension and understanding of the importance of stustained *important topic revisiting* by We The People. What I witness is 6 weeks of social media socity repeating "Epstein List" over and over, QAnon years of mental conditioning into that topic. Why aren't progressive ideas being named and asserted as lists? Neil Postman's 1985 book... ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8am87u/
-
-Sorry-Recognition983 2024-12-19
-
-"So like every conservative with the "no you" uno reverse card. They're all such deep thinkers"
-
-* :::=== RoundSparrow_Commentary :  A tiny short-length Twitter-length Tweet-thinking reaction comment that says it is only the out-group, only conservatives in August 2025 behaving this way. It is social media society in general, this is a media ecology issue top to bottom age 12 to age 120. "Uno" is a medium, and inverting topics is a crisis of shallow and reactionary thinking. This is what people are attracted to, this is what people are commenting and flocking to on social machines. ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8aaqmz/
-
-brickmaster32000 2014-08-10
-
-"
->  Greg Abbott is an embarrassment to everything Texas and Texans proclaim to be.
-
-Greg Abbott is everything Texans are. It is why they have to boast about being better because the fact is they continually act like he does and support him. That is who they actually are."
-
-* :::=== RoundSparrow_Commentary : Yes. Few people in social media socetiy recognize the "War Agains Reality" is a total forest perspective. Donald Trump is a fction content creator, fiction outsells nonfiction. The whole society needs to face that reality is being avoided, nonfiction is being avoided. We are brain-damaging each other with cloud computing media machine messages, feeding deception and falsehoods to each other. Fiction adiction has become a runaway crisis. ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8aelso/
-
-Choice-Consequence59 2021-07-01
-
-"Texans have been under a Conservative regime for 40 years and what do we have to show for it? A Crippled power grid, less civil rights, and higher proportional taxes on working people than nearly any other state."
-
-&nbsp;
-
 
 
 
@@ -2465,5 +2245,228 @@ https://old.reddit.com/r/europe/comments/1mo2ibf/bbc_rally_yesterday_in_london/n
 GuyLookingForPorn 2019-06-07
 
 "Literally both sides of the conflict fucking hate the BBC. The problem is people don’t want news that tries to be unbiased, even if imperfectly, people want *their own bias*."
+
+&nbsp;
+
+&nbsp;
+
+
+# Tuesday August 12, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89p53j/
+
+bbqsox 2014-11-14
+
+"But he’s God’s chosen king! God has a habit of picking people in direct opposition to every single thing he calls good.
+
+Why wouldn’t he pick a serial fraud, multiple adulterer, pedophile, and constant liar?"
+
+* :::=== RoundSparrow_Commentary : Instead of react-commenting, snark, mocking, mockery. Social media users could be addressing this problem more directly: [Leavnt religions are being taught by clergy ass-backwards, inverted, good from bad reversed by clergy to audience](https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/). "God has a habit of picking people in direct opposition"... People are not using social media to educate when clearly understanding, comprehension, media ecology literacy problems are core to MAGA / Donald Trump attraction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89pijl/
+
+ilikebiiiigdicks 2025-05-08 (new this year)
+
+"I can think of something else that’d put an end to his nonsense but saying it will get me a ban."
+
+* :::=== RoundSparrow_Commentary : The gun stroking murder fantasy messages you see all over social media in encoded langauge and symbols. Killing / murdering Donald Trump is only going to create a new form of chaos. We The Peple, the population, need to actually stand up for GOODNESS itself. Education, learning, comprehension, understanding, reality. Russian information warfare has one-line twitter-think messages like this one treated as good ideas. They are not good ideas, they lack goodness. Donald Trump lacks goodness. The answer is to reform the population of 0.34 billion people, not fixate on one person, the media ecology crisis of MAGA / Fox News / Redddit audience is EVERYONE, not just Donald Trump. Russia mind-fucked everyong using IRA and Cambridge Analytica since March 2013. ===:::
+
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89ikzl/
+
+1-randomonium 2023-03-03
+
+"The trouble with Trump is that he's prepared to keep up this onslaught every day, every week for the remainder of his natural life. He'll double down on any pushback with even more authoritarianism and illegal/unconstitutional means, from using federal agencies to harass any people in his way to actually rigging the entire political system so that his yes men are permanently running America.
+
+And this is largely because he knows that without all of this, he and his family businesses are doomed the moment he leaves office. He is essentially bullying the entire world into submission, and all the powerful people currently forced to play nice while he's ordering them around won't be so forgiving when he no longer has the ability to back up his threats.
+
+Vance doesn't have the same baggage or motivation, and more importantly he gets his advice from a different group of slightly less nasty people(The tech oligarchs like Musk aren't fans of the tariffs or the White House interfering in the day-to-day functioning of businesses and universities)."
+
+* :::=== RoundSparrow_Commentary : Exactly: "The trouble with Trump is that he's prepared to keep up this onslaught every day, every week for the remainder of his natural life. He'll double down on any pushback" - people who claim Donald Trump is lazy, weak, does nothing - entirely do not grasp the labor it takes to constantly be in media and on media platforms. There are media cults in USA that say Trump is baby / child / unaccomplshed. Donald Trump is not lazy and weak, it is a denial of Mass Psychois in the population to see Trump as doing nothing / weak. A failure to grasp the loyalty and how others do work for Donald Trump, how social media society carries water for Trump. Mocking Trump is not resisting. Mocking MAGA is not resisting. Humanity has to face up that humanity is the very source of education and learning. Garbage media content (Trump mocking, Trump insulting) into our human brains, garbage out. We learn from Donald Trump, he is our teacher. We need to address who we are learning from! We need self-awareness on a Neil Postman educaiton and media ecology level. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89ltfv/
+
+yamwhatiyam8000 2024-03-13 (self declared Australian)
+
+"He certainly cannot be worse than Trump but I doubt that he has the strength of character to achieve much in the way of reforms that will make any difference.
+
+I doubt that anyone can reverse the damage that has been done to society , politics and the economy under this administration."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mo4fax/republican_speaker_mike_johnson_said_democrats/n89obnj/
+
+RowAwayJim71 2024-11-07 (account created at election 2024)
+
+"Unfortunately none of this stops with Trump. People still don’t get it. Trump is *THE* useful idiot. Emphasis on idiot! The Heritage Foundation is the actual head of this administration, which was the goal the whole time.
+
+Trump can literally do whatever the fuck, say whatever the fuck, and act as horrible as he wants because all it does is distract from what his administration is actually doing. Trump is the Talking Head; the puppet."
+
+* :::=== RoundSparrow_Commentary : People for 10 years seem unable to describe Donald Trump behaving like Tony Clifton in his media audience interaction. People adore mocking and hate upon Trump, that's the Tonly Clifton act. Trump has an eye for the other end of the television set. Trump knows how to make the screen flicker and vertical sync, how to make it go out of focus. He knows how to get inside people's heads, under their skin, to be the center of attention as a hate magnet. Disco ball of egomania audience. Trump commands a fixation on Trump. Walking Talking *Infinite Jest* mind exploit. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mo3eq2/panic_in_eastern_ukraine_as_trump_entertains_idea/n89bao4/
+
+kaaredump 2011-05-21
+
+"The worlds dumbest head of state negotiating with one of the most ruthless, calculating, cunning dictator of all times, what could possibly go wrong?
+
+Putin will end up with half of Ukraine, Alaska, and guarantees that the US will look the other way if Russia invades other European countries."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mo3eq2/panic_in_eastern_ukraine_as_trump_entertains_idea/n89hjou/
+
+Advanced_Aide3191 2025-02-23 (new this year)
+
+"This is what people get wrong about Putin, he was confident in Russia’s capacity to take Ukraine in a week, almost everyone including Ukraine believed this to be true.  If he had been successful, it would have been a great geopolitical victory for Russia. 
+
+Now Putin has failed and can’t get himself out of this mess without losing his head. This alone gives the US a massive advantage to not just clip Russia’s fangs but destroy their influence, however here comes Trump, the dumbo in chief , giving Putin everything he wanted and destroying America’s power along with it."
+
+
+* :::=== RoundSparrow_Commentary : Except that BBC Adam Curtis on December 31, 2014 broadcast this: "It is exactly what Surkov is alleged to have done in the Ukraine this year (2014). In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. **The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception**, in order to manage and control." - **year 2014** - denial of the IRA, denial of the Kremlin information warfare on Reddit. Just saying "Russian bots" does not in any way demosntrate self-awareness of Surkov techniques and the long-term thinking the Kremlin has demonstrated. On the flip side of social media, Surkov and Putin long-term year 2013 planning is the reason I emphaisze Malala so frequently. Same year 2013 timeline on world stage - and people on social media can't see her LONG-TERM plans of October 8, 2013 and how they interact with a decade-later October 7, 2023 Palestine terrorism. People are NOT taking "High Roads" on social media, they are not connecting the dots. Human beings are the source of love, compassion, goodness in the world - and if we don't CHOOSE with our FREE WILL to support and rally around goodness itself - leaders like Malala - and we continue to put leaders like Putin at the top of our governments... WE will be CHOOSING as people to have a shit world. Show me where social media has focused and sustained on Malala since year 2013? Show me where people grasp and understand the role Fox News has on audience, how EDUCATION and MEDIA CONSUMPTION (Fox News vs. Malala ideas) doesn't influence family and friends in USA. We are not facing up that our own brains are programmable. Malala in Pakistan is one of the few actually calling that out. All the while we are watching machine learning going on with ChatGPT and GrokAI - without focusing on the media we consume. Did Russia want to win the war qucker, perhaps, but they ALSO had concepts and ideas of using the Ukraine physical war as a platform for media manipulation - and they have DONE SO as Adam Curtis BBC spelled out December 31, 2014. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mo4you/googles_gemini_ai_tells_a_redditor_its_cautiously/n8a0cks/
+
+Beat_the_Deadites 2014-01-28
+
+"My highest-average comments here tend to be lowbrow regurgitations of common reddit memes, short snippets that please the hive-mind.
+
+My longer form, more insightful comments get a few upvotes (occasionally a lot of downvotes if I wax philosophical on a controversial subject).
+
+Point being, reddit and redditors seem to reward being an artificial human equivalent rather than a creative, random though generator that then follows those thoughts into new places.
+
+That's also how real life works, just more slowly. We like predictable patterns. The world can be scary, but it's comforting to know that the Browns will always suck."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n89qcbw/
+
+ChillAMinute 2024-01-24
+
+"I was going to leave a sarcastic comment here but the entire situation is so beyond deplorable and disgusting. Regardless of the religious connotations, I get they are sick of being relentlessly pestered and poked at but sending a modern military to crush a population who lives in the Stone Age, that is landlocked by your military, and purposefully starving them and killing anyone who is trying to advocate for relief is heinous."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8a16sq/
+
+1shmeckle 2016-03-16
+
+"Following 9/11 - where the deaths were a much much smaller percentage of its total population - the US launched multiple wars that resulted in 4.5 *million* deaths (both direct and indirect) across Iraq, Afghanistan, Syria, and Yemen. The *vast* majority of the people who were old enough to have political opinions in 2002 were supportive (we're talking 80% plus and even after support fell somewhat, re-electing George Bush).
+
+As fucked up as what is happening in Gaza, if you want to understand the crux of the pushback by Israel and its supporters, you have to keep this context in mind (which, is similar to how China and most developing countries look at American hypocrisy). They see that the US did it (and, the Europeans, though they don't like to admit their participation) and Americans had no problem with it for years until the war dragged on longer than expected and people realized it was based on (the obviously) false information. Meanwhile when another country acts in the same way as the US but on a smaller scale, they're accused (as they should be) of genocide, war crimes, etc."
+
+* :::=== RoundSparrow_Commentary : It seems to me that modern media consumers are not facing up to the global history of conflicts, world wars, and technology of warfare since year 1901. It is technically possible to travel across the world, from North America to the Iraq and inflict huge numbers of deaths. In the name of preventing deaths of the mower powerful and wealthy nation, much of this is now done with rockets and from airplanes in the sky - with almost none of the people doing the killing having much risk. A small crew of an airplane can kill thousands of people on the ground using sophisticated technology. People are entirely detached from what goes on at macro scale of the entire Earth in terms of hate and warfare, dehumanizaton, of out-groups. Malala from Pakistan is one of the few people today who gets media coverage who calls out this gross and disgusting behavior of humans in regard to out-group patterns (men vs. women, religion vs. religion, elder vs. children marriage and sexual exploitation). Yet, I don't see social media society showing any interest in repeating Malala's memes / wrods / speeches / video interviews since year 2013 when she did press tours and published her book. Instead, since year 2013 I see the opening of the Ukraine war and people discussing ideas from Putin and Donald Trump every single day for over a decade. Where is social media actually educating people and teaching people about true progress that Malala of Pakistan speaks of? Or even Pussy Riot from Russia? Do people think Ukraine and Pakistan are covered in the 1,400 year old Quran stories and 2,000 year old Bible stories? If social media users don't show interest in people outside of Donald Trump and MAGA - who exactly is teaching moraity of good from bad? Donald Trump is teaching morality: immigrants bad, liberals bad. Why is nobody asserting far supperior morality teachers in the face of MAGA and Donald Trump and Israel and Palestine? Humans learn civilization from each other. Society is a form of technology, and if we do not teach and educate each other on choices and values of society, we end up in war and hate. Technology of killing machines and murder devices alone is chasing humanity, it is becoming easier and easier to splatter brains with military force and terrroism acts than we have found to teach morality. But really, how hard and difficult is it for people on social media to stop repeating Donald Trump and MAGA and repeat Malala from Pakistean's 2013 book instead? Everything is media ecology. Why is [Pussy Riot not good enough to repeat with regularity on social media](https://www.youtube.com/watch?v=s-bKFo30o2o) isntead of mimicing and behaving like Donald Trump role model? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8a1ais/
+
+ImReverse_Giraffe 2019-06-02
+
+"Except its not just in response to Oct 7th. That was just the straw that broke the canals back. But Hamas had been launching rockets into Israel constantly for years. In no world is it ok to launch rockets indiscriminately at civilian populations every single day."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8aizzc/
+
+LittleKitty235 2015-10-23
+
+"Look up the definition of genocide. It doesn’t require death camps or even murder. Displacing or even relocating the Jews was already a genocide. They intentionally removed the Jewish culture from Germany from the start
+
+They started off just mass shooting jews but it took too many bullets and mental toll on their troops. That is why the death camps were built. So it could be done cheaper"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n8a6upl/
+
+h8sm8s 2015-06-21
+
+"Netanyahu using arguments popular on Reddit earlier in the genocide. When you’re getting your argument from reddit you’re not just a sociopath but an idiot too."
+
+&nbsp;
+
+"When Israelis don’t even realize anymore how unhinged they sound."
+
+* :::=== RoundSparrow_Commentary : USA 2025, Russia 2014, Palestine 2023, Israel 2025, Sudan, Germany 1943, Japan 1943, Cambodia 1976 (Killing Fields), on and on and on and on and on. People act like national flags and oceans somehow change the behavior of the human brain when it comes to mob mentality and Mass Psychosis behaviors. As Carl Jung emphasized in 1945, Germany did not grasp with self-awareness either. Do we teach this in schools? They sure don't [teach Mass Psychosis as a topic in USA schools](https://www.youtube.com/watch?v=09maaUaRT4M)! They don't even seem to teach the term "egomania" in USA schools because it applies to Donald Trump and Elon Musk and I rarely see people use it. What I see is baby-talk about Trump wearing diapers and being a baby child. Why is Dr. Bandy X Lee ignored on Reddit and not cited? These tiny Tweet-length Twitter thinking reaction comments of "unhinged" are made by the thousands each day, people on social media who can not match their thoughts and concerns up to book atuhors, long-form articles and cite them. Instead, it's 500 Twitter-think messages that people ignore as they scroll off the page (they will no longer be on front page of Reddit tomorrow) and wait for another "breaking news event" to repeat the same concerns. There is no sustained focus on the topic nor call for same. Even something as simple as being able to cite a specific person and their analaysis of the situation such as "we should all repeat what Harlan Ellison said about the past 8,000 years in the Middle East" and "We should all focus on and repeat that Joseph Campbell in 1987 said the 3 Middle East religoins had disqualified themselves for the future, and what MAGA in USA has done with Donald Trump $59.99 Bible and Palestine Isreal conflict of October 7, 2023... and September 11, 2001 and other events show this to be true. The clergy needs deep reformation." And you do see some of these types of activites on Reddit / Bluesky and other social media, but it doesn't get sustained attention. The conflicts between the groups is sustained (8,000 years from Harlan Ellison perspective)... but the need to expand compassion and love and world peace gets mocked and avoided as topics. Humanity is the originator of love and compassion teaching and education, and yet, we don't behave as if human persons on social media have any role in teaching it. Only that Russian "bots" can teach MAGA to hate and believe anti-science falsehoods. Only a faith in social media negative, not a true positive. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo53wp/netanyahu_if_we_wanted_genocide_it_would_take_one/n89pic3/
+
+achiller519 2019-01-30
+
+"Yikes dude!
+
+Netanyahu could do a genocide in an afternoon, Putin would have done a 3 days special operation in Ukraine and Trump would have ended the Russia-Ukraine war in 24 hours.
+
+Some leaders have gone completely nuts and also lost the track of time."
+
+* :::=== RoundSparrow_Commentary : The losing track of time is the social media society. And endless consumption of fragments of ideas that are short and scoll off the screen and people not declaring the need to revisit topics in a way that isn't just reacting to "breaking news" or entertaining poses / framing of a subject. People treat the "news cycle" like human beings don't control it. Wehn infact, Sunday Church Day, Friday Islamic Prayer Day, are demonstrations of humanity controlling the information / education / news cycles. Why don't we have a world conflict day of the week, Tuesday and Saturday and revisit if ideas are going forward? People like Malala in Pakstian make breaking news in year 2012 for getting shot on a school bus - but since there is no "breaking news" then progress of education, understanding, leraning, comprehension doesn't get reviwed until a school gets bombed or school shooting. It's all reactionary and often incredibly superficial and shallow in the popularity of react-comments. This is exactly what Neil Postman in his 1985 book "Amusing Ourselves To Death" was warning us about. Fragmented comprehension from the way we all consume information / "news cycle". Thre is an absence of social media assertion that people in Palestine deserve freedom, liberty such as a 16 year old child who would want to plan their life in university. There is an absence of what the clergy is supposed to do in society: promote compassion, love, a "world view" from outer-space gods upon humanity to see the bigger picture of our behaviors. The kind of view Carl Sagan had in Pale Blue Dot book and poem. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8afcre/
+
+WingerRules 2014-10-06
+
+"It's not projection, they know what they're doing. They know a huge portion of Americans dont follow politics closely enough or are locked into Fox News enough to not know stuff like this is bullshit, so they effectively confuse the discourse and facts for low info Americans. Yesterday, Abbott came out and made the statement that they're gerrymandering in response to California, knowing for a fact a big chunk on people wont know California only announced they're doing it in response to Texas doing it.
+
+Its the same tactic of "firehose of disinformation" experts said Russia uses on their population."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8aavhk/
+
+"Jesus Christ, Abbot is a fucking piece of shit.
+
+I wish things could change to where the kinds of people who crave power wouldn't want it, so that only the right people ever got it. Make positions of power come with built-in detriments, not perks, so that only the people who are there for the right reasons would ever care to participate."
+
+
+* :::=== RoundSparrow_Commentary : What seems blindgly absent, deafening silent is social media users creating their own wish-list and desires for democracy and repeating them. Project 2025 put in everyone's face a list of desires and future changes. But social media society spends free time and spare time react-commenting to breaking news events and not using Wiki style systems or message systems to build up good ideas. Second Bill of Rights from January 1944 should have been a huge topic December 4, 2024 with the murder of the CEO of United Health Care in Manhattan... but I saw no focus on it. What good is health care at $1 a month of rent and housing goes up $7,500 a month? Donald Trump is a real estate king, why can't pepole see the Second Bill of Rights is not a huge lengthy list - the Wikipedia page is only a few pages - but it is comprehensive in the billionaires takeover of society / MAGA / Donald Trump / Elon Musk values. There is a society-wide breakdown of comprehension and understanding of the importance of stustained *important topic revisiting* by We The People. What I witness is 6 weeks of social media socity repeating "Epstein List" over and over, QAnon years of mental conditioning into that topic. Why aren't progressive ideas being named and asserted as lists? Neil Postman's 1985 book... ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8am87u/
+
+Sorry-Recognition983 2024-12-19
+
+"So like every conservative with the "no you" uno reverse card. They're all such deep thinkers"
+
+* :::=== RoundSparrow_Commentary :  A tiny short-length Twitter-length Tweet-thinking reaction comment that says it is only the out-group, only conservatives in August 2025 behaving this way. It is social media society in general, this is a media ecology issue top to bottom age 12 to age 120. "Uno" is a medium, and inverting topics is a crisis of shallow and reactionary thinking. This is what people are attracted to, this is what people are commenting and flocking to on social machines. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8aaqmz/
+
+brickmaster32000 2014-08-10
+
+"
+>  Greg Abbott is an embarrassment to everything Texas and Texans proclaim to be.
+
+Greg Abbott is everything Texans are. It is why they have to boast about being better because the fact is they continually act like he does and support him. That is who they actually are."
+
+* :::=== RoundSparrow_Commentary : Yes. Few people in social media socetiy recognize the "War Agains Reality" is a total forest perspective. Donald Trump is a fction content creator, fiction outsells nonfiction. The whole society needs to face that reality is being avoided, nonfiction is being avoided. We are brain-damaging each other with cloud computing media machine messages, feeding deception and falsehoods to each other. Fiction adiction has become a runaway crisis. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mo6a9q/texas_gov_greg_abbott_accuses_rep_jasmine/n8aelso/
+
+Choice-Consequence59 2021-07-01
+
+"Texans have been under a Conservative regime for 40 years and what do we have to show for it? A Crippled power grid, less civil rights, and higher proportional taxes on working people than nearly any other state."
 
 &nbsp;
