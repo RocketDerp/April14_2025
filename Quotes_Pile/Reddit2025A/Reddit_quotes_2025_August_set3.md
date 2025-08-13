@@ -461,6 +461,20 @@ TrumpSux89 2024-07-26
 
 &nbsp;
 
+https://old.reddit.com/r/NoShitSherlock/comments/1motu12/trump_has_parked_humvees_on_the_national_mall_the/n8fmam7/
+
+younggun1234 2014-04-12
+
+"This is the most frustrating aspect about this with other people.
+
+Like if you're not seeing the parallels with 1930s Germany, you're either uneducated, stupid, or being willfully ignorant cuz you think you'll be one of the groups to come out on top once this passes.
+
+But anyone with a high school diploma should know what is happening."
+
+* :::=== RoundSparrow_Commentary : War is entertainment video games that your brother plays on the "PlayStation". The March 2013 onward Internet Resaerch Agency invasion of USA media systems is all about turning USA into unreality, a video screen game. Kremlin and White House absurd surreal mockery has people beieve this is a film, a movie, not the future of their children. Surkov won, Russia won hearts and minds. ===:::
+
+&nbsp;
+
 .
 
 .
