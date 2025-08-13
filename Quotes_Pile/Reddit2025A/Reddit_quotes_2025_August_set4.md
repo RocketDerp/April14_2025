@@ -38,3 +38,18 @@ No one who helped or defended Kyle at the time has since apologized."
 * :::=== RoundSparrow_Commentary : Content creators have defenders, like Donald Trump content creator has defenders, when you are a content creator media star, Trump says you can grab them by the sexual organs. Everything is Media Ecology. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mp6bmr/what_is_happening_in_the_uk/n8hd3p3/
+
+Rhubarb_and_bouys 2024-11-05 (USA election time)
+
+"And it's the reason decent guys think women are "bitches". I am an outgoing, friendly person. Just accidentally making eye contact (literally not even realizing it) has had men follow me ONE HOUR to my house. Ignoring men's catcalls has led to a HOST of insults/verbal abuse "not even that hot!", "probably a fucking lezzie", etc. It made me NOT be nice to any men because they took everything as hitting on them.
+
+You know when men think women are hitting on them because they have a wedding ring? I am pretty sure women just think it's not safe to talk to them because they wont fucking stalk or assault them for not accepting their advances.
+
+When I became old enough (about 55) to not be attractive to men, I could be myself without fear.
+
+Terrible men make it harder for everyone."
+
+* :::=== RoundSparrow_Commentary : Why are girls not standing up for women in Iran and Pakistan and Afghanistan and Russia and not just viewing this as USA / UK issue? Why not compare Donald Trump to the Taliban? [Why aren't women on social media (and men) joing (reposting, ReTweeting constantly with spare time that social media users use for commenting) a world-wide women/girls movement established by Malala in year 2013](https://www.youtube.com/watch?v=gjGL6YY6oMs)? Why is that (this reddit posting) is only in reaction to men and police and Donad Trump and people can't hear Malala calling out to the entire Pale Blue Dot to rally behind her movement for girls / women in the most female-abused parts of the world? Because the *better off world* doesn't want to face that it is a global problem of the human brain, education / teaching, our minds. It isn't a issue in only one nation that female are subjigated and sold for money. We don't teach love, we market and advertise lust, McDonald's I'm Loving it consumption morality lessons from billionaires. [Released year 1983, "How many tears will the children cry 'Til they suffer no more sadness? Stop the madness! Oh, stop the madness!"](https://www.youtube.com/watch?v=gncyDkWWY_w) ===:::
+
