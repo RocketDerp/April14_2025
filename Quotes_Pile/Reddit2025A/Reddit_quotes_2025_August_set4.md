@@ -455,3 +455,22 @@ Ritaredditonce 2018-09-28
 
 "Stephen Miller is laughing."
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mphfuh/ice_sent_3_us_citizen_children_including_boy_with/n8jl0ci/
+
+June_Fatality 2025-01-03 (new this year)
+
+"Right wing racists are laughing. Don't forget that there are still thousands of terrible Americans who prayed for this."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mphfuh/ice_sent_3_us_citizen_children_including_boy_with/n8juy4r/
+
+boofin19 2018-08-14 (tomorrow)
+
+"MAGA is laughing. They love hurting anyone they believe is different from them."
+
+* :::=== RoundSparrow_Commentary : "Leopards at MAGA face" is celebrated all over Bluesky / Reddit, sustained topic. Cheering on that conservatards are worse than libtards. Total mockery. Neil Postamn in year 1985 publsshed a book about "Amusing ourselves to death" Total Mockery. ===:::
+
+
