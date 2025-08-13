@@ -541,6 +541,18 @@ But if he runs in 2028, fuck it let’s go"
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1morymo/newsom_says_california_will_draw_new_electoral/n8enq8l/
+
+Chickabeeinthewind 2010-10-27
+
+"I love it too. And then I daydream about Newsom leaning into this for four years until he is subsumed by the malignant persona on the very night he is elected to the highest office. And then we’re left with another President infected with the Trump mind virus, but decades younger and infinitely more cunning. ‘You are what you pretend to be.’ -Kurt Vonnegut, ‘Mother Night’
+
+Just kidding, I love this."
+
+* :::=== RoundSparrow_Commentary : "Just kidding" - - S.O.S. - - ["March 27, 2024 — Our politics are unhinged. He saw it coming 40 years ago. Who got it right? 'It' being: everything. Our current mess. The low information..."](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) - the media addiction and parenting crisis (Donald Trump role model since year 2015 of "success") aren't going away, the brainrot from social media isn't being addressed in the population. A new leader that doesn't address the deplorables of socieity (everyone, 100% all inclusive, not just MAGA, not just Republicans) who let Russia mind-fuck and Cambride Analytica mind-fuck take over their nation since year 2013 without organizing a intgellectual malitia who can recite Neil Postman / Peter Pomerantsev / Marshall McLuhan / Christopher Wylie / Hannah Arendt / etc... our population of 0.34 billion people will continue to be mind-fucked by the world of 8 billion from outside. And we hav taken the IRA's March 2013 onward information war payloads and trained our Large Language Models / LLM on them already! ===:::
+
+&nbsp;
+
 .
 
 .
