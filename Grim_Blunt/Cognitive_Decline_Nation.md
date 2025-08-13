@@ -197,3 +197,17 @@ https://old.reddit.com/r/videos/comments/1mof6xx/joe_rogan_has_brought_up_this_s
 &nbsp;
 
 https://old.reddit.com/r/politics/comments/1mobnlt/nobody_knows_what_trump_is_talking_about_anymore/
+
+&nbsp;
+
+&nbsp;
+
+### Low-effort media content
+
+High effort on "fititng in" with latest style, fashion, graphics, production values / audience values of style. But low-effort on the ideas, thiking.
+
+Thinking becomes more and more difficult when Fox News / CNN saturate the people around you. You can't condense ideas into sound-bites. Teacher / Edicator / TV show creator Carl Sagan said this in 1995, and it is the basis of Neil Postman's 1985 book.
+
+With people around you react-commenting and consuming reaction images and comments on every media platform, thinking becomes more and more difficult because there is a breakdown of language. This was articulated here about Fox News audience: https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+
