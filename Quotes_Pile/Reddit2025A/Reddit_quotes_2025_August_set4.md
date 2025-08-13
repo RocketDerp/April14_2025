@@ -125,3 +125,31 @@ Jubjars 2021-03-07
 
 Follow his wholly unchristlike values for salvation, or be crushed beneath his pedo feet."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8iimqx/
+
+piggybacktrout 2012-08-02
+
+"Praised be brother, praised be. And as we stand here under Trump's voluminous orange light Jesus, we pray for you to protect him from the Barack Hussein Obama's and Joseph Robinette Biden's of the world, please father, son, and holy Spirit keep the underground pizza pedophile ring known as the Epstein files, that I will say were fabricated by the unhinged communist Democrats, everyone knows it's all lies, our supreme glorious leader of the fourth Reich is an innocent man, he's never grabbed a woman by the pussy. So lord please bless this big Mac combo meal from McDonald's that includes a large diet coke and fries, to nourish our great orangesness that is our only hope and you know people say is like a really smart guy. Amen"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8if4gz/
+
+chloe38 2014-01-04
+
+"Except he never talks about any good shit. Only bad. He wants to be the villain and nothing else. I hate him with a passion but I would also give him credit for any good stuff he does."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8il6sa/
+
+princess_raven 2018-01-28
+
+"Unfortunately, his definition of "good" and ours differ greatly, as does his definition of what he's actually accomplished. Felon47 has bragged about stopping multiple wars this term and thinks he handled Covid with a flourish. He views his immigration policy as a good thing - because he's a white supremacist.
+
+He's doing 'good' shit for his ultra wealthy pedo buddies and doesn't understand why the peasantry isn't falling to their knees to blow him for it."
+
+* :::=== RoundSparrow_Commentary : Remedial morality in USA isn't optional education. A World Wide Reformation is overdue. Islam is the newet of the Levant morality religion faiths from yeat 635... and Malala's Pakistan reform of Quran/Islam to modern dey science thinking hasn't been as well received (yet?) as Martin Luther in Germany 507+ years ago... October 31, 1517 ===:::
+
