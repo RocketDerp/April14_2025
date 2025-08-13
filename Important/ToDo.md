@@ -342,3 +342,10 @@ me: "Computer industry lore... I used to work for SAP at their USA HQ back in 19
 
 <img width="1704" height="830" alt="image" src="https://github.com/user-attachments/assets/faa214d8-28c9-4adb-b322-afc7f78af53c" />
 
+&nbsp;
+
+&nbsp;
+
+1980 vs 2025 computer size / body ideals 
+
+https://old.reddit.com/r/anime_irl/comments/1mpd41g/anime_irl/
