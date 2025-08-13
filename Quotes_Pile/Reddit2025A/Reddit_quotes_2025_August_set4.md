@@ -356,3 +356,13 @@ https://old.reddit.com/r/politics/comments/1mp8e1k/trump_loses_it_at_people_bein
 buried20kleague 2013-02-18
 
 "The point of this meeting is so he can be alone behind a closed door with Putin to discuss whatever he wants with no monitoring. Not on a phone that might be tapped, or with any advisors in the room. Like he's done with him before. It shouldn't be legal and should concern all of us. Then again, everything he does should concern all of us."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mp80zv/how_can_trump_be_trusted_with_crime_in_dc_when_he/n8hkkux/
+
+o_MrBombastic_o 2013-02-26
+
+"None of the things he's doing are distractions, all of the things he's doing are steps out of Project 2025 which he's half way through completing. He would be doing these things if Epstien files were never brought up in the 1st place. He's following the plan step by step"
+
+&nbsp;
