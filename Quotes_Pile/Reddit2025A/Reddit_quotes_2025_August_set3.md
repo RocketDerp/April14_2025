@@ -529,6 +529,18 @@ JamUpGuy1989 2022-06-19
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1morymo/newsom_says_california_will_draw_new_electoral/n8ek23r/
+
+EuphoricAndroid 2020-04-09
+
+"If all Newsom does is troll Trump for the next 4ish years, I’m all for it
+
+But if he runs in 2028, fuck it let’s go"
+
+* :::=== RoundSparrow_Commentary : Always more trolling, always more unreality and fiction. Operation Matthew 4:19 was approved in November 2012, Russia has been trolling We The People on the Intrenet since March 2013, and the addicts to the trolling want more MAGA trolling. We have drowned to Russian trolling and people can't imagine any life without nonstop trolling. Smartphone adicts always wwant more shit. Putin is meeting with Trump this week in Alaska, trolling Trump already. ===:::
+
+&nbsp;
+
 .
 
 .
