@@ -277,3 +277,9 @@ https://youtu.be/S_yPBkRmLRs?t=415
 Carl Jung on a woman who had inner mythology disclosures    
 Hélène Smith    
 https://www.youtube.com/watch?v=iia39Wsw_A4
+
+&nbsp;
+
+Choice marriage honesty, economic honesty, money required to raise children after pregnancy     
+Origins of Marriage, why were wedding rituals divised all over the Pale Blue Dot. My view is often that men wanted casual sex, recreational sex, and adults had to teach children the consequences of sexual pleasure - obligation to care for, feed, raise a child. The rituals of marriage were divsed so that women were not quickly impregnated and then abandoned. These rituals of marriage served as a society firmware educational fix to a hardware (biological) reality. To both the age 13 boys and age 13 girls.  Witnessing wedding rituals conveyed that parental bonding obligations went beyond sexual lust and attraction that men have to women.   
+https://old.reddit.com/r/SipsTea/comments/1mp37hd/thoughts/
