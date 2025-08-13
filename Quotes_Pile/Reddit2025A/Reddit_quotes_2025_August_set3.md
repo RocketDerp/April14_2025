@@ -437,6 +437,14 @@ RabbleRouser_1 2020-12-22
 
 &nbsp;
 
+https://old.reddit.com/r/interestingasfuck/comments/1moqdzk/back_in_2005_comedian_george_carlin_predicted/n8e8p5c/
+
+FIakBeard 2020-03-29
+
+"People expect it to be overt and in our faces, then you try and tell them about the banality of evil and their eyes glaze over and they check their phone."
+
+&nbsp;
+
 .
 
 .
