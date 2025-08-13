@@ -337,3 +337,15 @@ I've never seen a person "graded on a curve" as large as Donald Trump."
 
 * :::=== RoundSparrow_Commentary : You have never seen people who had executive function mental manipulation by Cambridge Analytca ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mp8e1k/trump_loses_it_at_people_being_mean_about_his/n8hvogf/
+
+Reddengray 2021-01-28
+
+"He needs to be mocked 365/24/7 by everyone, There is so much to target. He's fat, dumb, wears a diaper, a pedo, a russian asset and a closeted homosexual (why else would YMCA be his favorite song).
+
+Mock him until his heart explodes along wth his diaper"
+
+* :::=== RoundSparrow_Commentary : The mocking has been gong on since year 2013, the MOCKING NEVER ENDS with DOnald Trump in the news! ===:::
+
