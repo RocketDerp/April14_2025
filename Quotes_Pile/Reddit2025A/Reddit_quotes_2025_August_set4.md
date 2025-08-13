@@ -218,3 +218,14 @@ emw9292 2021-10-06
 These people are so stupid, so idiotic, so immoral, and that’s ok to them because they’re still immature fifth graders who never learned critical thinking, being empathetic, or learned at all and therefore cannot acknowledge when they’re wrong and will die (see: Covid) to prove they’re right even when intellectualism, facts, science, etc, or even one brain cell proves them wrong.
 
 It’s raging insecurity and fear that drives these people whose brains and minds never progressed to double-digits in age."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8ibxft/
+
+KatieBarTheDoor1977 **2025-05-22 (recent account)**
+
+"Mainstream won't question this bullshit anymore for the simple reason that everything Trump does gets massive views, gets massive clicks, gets massive engagement. That spells huge revenues. Trump is his own 24/7 news cycle. Mainstream is just as complicit in the horrific shape we are in as Trump himself."
+
+* :::=== RoundSparrow_Commentary : The sports of insulting and mocking Donald Trump over poopy diapers, golf course, orange skin makeup, mannerisms, gestures, Twitter / Truth Social, parades, antics is huge! Surkov inforamtion warfare is all about creating fiction addiction and addiciton to superficial and shallow absurd surreal behaviors. Donald Trump is doing a great job of Tony Clifton act on multiple stages with multiple players. "Mainstream won't question this bullshit" it is not just mainstream media making money, social media has nonstop reaction commenting to Donald Trump, hate upon Trump. ===:::
+
