@@ -475,6 +475,50 @@ But anyone with a high school diploma should know what is happening."
 
 &nbsp;
 
+https://old.reddit.com/r/NoShitSherlock/comments/1motu12/trump_has_parked_humvees_on_the_national_mall_the/n8fmlk8/
+
+Corteran 2014-09-15
+
+"He's doing it right now. This is for Fox and the right wing media to show Trump's cult images of our brave soldiers defending the homeland from violent criminal gangster thugs, to stoke more racial "urban" fears about big democrat run cities and how lawless they are, fabricating a reason to invoke the Insurrection Act.
+
+Trump's first term was like learning to ride a bike with the training wheels on and seeing how far he could go. Now the training wheels are off and no one around him will hold him back. Trump may be a fucking dunce, but I guarantee he's never forgotten his most important lessons.
+
+Always attack, never admit fault or guilt, never defend yourself or apologize, only counterattack and do so disproportionately. (He fears nothing because he will ignore accusations, admit to nothing, and attack the messenger. Epstein files don't mean shit to him)
+
+Demand absolute loyalty from those around you. Eliminate and ruin anyone who isn't. (Comey, Cohen, everyone else fired in the 1st term)
+
+Use fear to control and manipulate people both as a weapon and a shield. (that's what this is. Look at those scary urban thugs, here I will protect you!).
+
+Use the legal system and courts as a weapon because justice doesn't matter any more than winning does. You can always lie about outcomes, win the war through intimidation and harassment. (Almost no court in the land can touch him, but he can use all of them to attack anyone he wants. He's done this over 4.000 times)
+
+The media is to be manipulated for influencing public opinion, character assassination, intimidation, disinformation, obfuscation and propaganda.
+
+Trump may have been wearing a dunce-cap at Wharton but he was Roy Cohn's best student, we are in a shitload of trouble, and the moment people surround the White House or do anything similar, hello Insurrection Act.
+
+I'm not optimistic."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1motu12/trump_has_parked_humvees_on_the_national_mall_the/n8euso0/
+
+rygelicus 2022-11-15
+
+"This is partly to try and impress Putin with how much of a fascist he can be just like his heroes. "Look at me, I called out the military on my own people. I am a tough man just like you Vlad." "
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1motu12/trump_has_parked_humvees_on_the_national_mall_the/n8evy0k/
+
+Krypteia213 2021-02-19
+
+"We really are the dumbest species on this earth. 
+
+For having this amazing brain we have, we sure are stupid as fuck"
+
+* :::=== RoundSparrow_Commentary : Everybody on social media talks about skin color, racial. But the one thing people don't say is that education is the competititon of the world. The distinguishing difference that made wealth and poverty, say Mexico vs. USA and Canada, is stable life with education. And not just any education, but also inclusive of liberal arts and not just Nazi Geramny (which had very high education but unable to stand up with clergy and compassion for out-groups, a problem that humanity has not much solved). Social media users view calling someone stupid and dumb as insults, as competition. Egoism of going to a better school and demonstrating a better job. Social media society has had since October 8, 2013 release of Malala Yousafzai's book to repeat and say... yes, what the world needs is more education to not make it about egoism of graduate degrees and big name brand unviersities (Harvard, Cambridge, Standford, MIT, etc)... but even improvements in general public knoledge (Wikipedia and similar open pubic systems, advertising free, translations to multiple languages like you see on Wikipedia). Donald Trump represents anti-understanding, anti-coomprehension. Style and fashion and status symbol replacing educated understanding between people. Malala Yousafzai's father was a school teacher and she stood up for sharing education with other people. Not about competting, but inclusive sharing. And social media society grey-rocked and avoided Malala Yousafza since year 2013 while flocking to Donald Trump. ===:::
+
+&nbsp;
+
 .
 
 .
