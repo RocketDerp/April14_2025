@@ -349,6 +349,18 @@ And it's all insane. They live in an entirely different reality. Constant rage-i
 
 * :::=== RoundSparrow_Commentary : Social media users make these comments about work, friend, family all the time. Since March 2016, Jen Senko's film about right-wing media has been in wide release. But people are unwilling to stand up for "The Little Guy" in ssutained way and make that 2016 film a constant repeated topic in comments on social media. Authors are not cited, films not cited, just streams of comments that flow day after day and nobody wanting to organize around a leader on these subjects. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1monjgu/_/n8diqyb/
+
+NullRazor 2013-08-19
+
+"Trump's entire political agenda is Treason.
+
+Period."
+
+&nbsp;
+
 
 .
 
