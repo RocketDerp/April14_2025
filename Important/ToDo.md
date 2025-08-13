@@ -283,3 +283,8 @@ https://www.youtube.com/watch?v=iia39Wsw_A4
 Choice marriage honesty, economic honesty, money required to raise children after pregnancy     
 Origins of Marriage, why were wedding rituals divised all over the Pale Blue Dot. My view is often that men wanted casual sex, recreational sex, and adults had to teach children the consequences of sexual pleasure - obligation to care for, feed, raise a child. The rituals of marriage were divsed so that women were not quickly impregnated and then abandoned. These rituals of marriage served as a society firmware educational fix to a hardware (biological) reality. To both the age 13 boys and age 13 girls.  Witnessing wedding rituals conveyed that parental bonding obligations went beyond sexual lust and attraction that men have to women.   
 https://old.reddit.com/r/SipsTea/comments/1mp37hd/thoughts/
+
+&nbsp;
+
+August 11 2019. Comic Funny cartoon entertainment as Neil Postman described in his 1985 book "Amusing Oursevles To Death"    QAnon comic strips, "Q Drop" strips, information strip tease. Pizzagate framing.   How the population was mind-fucked by QAnon + Russia influencers on Twitter media platform since year 2017   
+https://old.reddit.com/r/agedlikewine/comments/1mp5222/tweet_on_epsteins_island/
