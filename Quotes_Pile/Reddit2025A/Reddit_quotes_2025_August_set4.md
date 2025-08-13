@@ -96,3 +96,32 @@ KimJongFat 2012-03-09
 "I feel like this is intentionally being done so Paramount Plus subscribers keep extending their subscriptions."
 
 * :::=== RoundSparrow_Commentary : I am not agreeing with this short-thinking Twitter-length statement. But I do ponder that South Park was beyond subscription paywalls and now people who have heard all the hype about the first two episodes that already aired are rewatching the massive collection of previous episodes. Maybe even some of the video games have increased in sales? Fanatasy on my part: If South Park could do an episode on 1985 Neil Postman book and how it relates to Suprkov and Putin's first 12 years rise to power (1999 to 2011, throw in Robert Reich on ecomics of the USA Holiday Chrstmas year-end mmpact upon Q1 2026... focus on those 3 topics... the war could dramatically turn arund. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8i4gnj/
+
+LeadSoldier6840 2020-05-09
+
+"And he's specifically working for Russia. If it's not that he's apathetic, he is actively working to destroy America."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8i6197/
+
+Fingerprint_Vyke 2024-01-05
+
+"How was that not obvious when he was denying aid to blue states during covid?
+
+He only started to take covid seriously when it turned out it was wrecking old conservatives in red states who refused to take it seriously."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8icijn/
+
+Jubjars 2021-03-07
+
+"Jesus will save you, submit to him. He is not the Antichrist, but the second coming.
+
+Follow his wholly unchristlike values for salvation, or be crushed beneath his pedo feet."
+
