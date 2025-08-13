@@ -347,5 +347,12 @@ Reddengray 2021-01-28
 
 Mock him until his heart explodes along wth his diaper"
 
-* :::=== RoundSparrow_Commentary : The mocking has been gong on since year 2013, the MOCKING NEVER ENDS with DOnald Trump in the news! ===:::
+* :::=== RoundSparrow_Commentary : The mocking has been gong on since year 2013, the MOCKING NEVER ENDS with Donald Trump in the news! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mp8e1k/trump_loses_it_at_people_being_mean_about_his/n8hturr/
+
+buried20kleague 2013-02-18
+
+"The point of this meeting is so he can be alone behind a closed door with Putin to discuss whatever he wants with no monitoring. Not on a phone that might be tapped, or with any advisors in the room. Like he's done with him before. It shouldn't be legal and should concern all of us. Then again, everything he does should concern all of us."
