@@ -373,5 +373,6 @@ hughjazz45 2023-05-01
 
 "There’s literally not a group of people on earth whose feelings it’s easier to hurt than American conservatives. Their entire movement is based on being perpetually upset and emotional about everything around them, all the time"
 
-* :::=== RoundSparrow_Commentary : I'm not against people having emotions, it is the constant hate and dehumanization, and egomania. The driving force is egoism of storybook sprremacy (Donald Trump storytelling supremacy, Fox News storytellig supremacy, Quran storytelling supremacy, Bible storytelling supremacy, Upanisahds storytelling supermacy, Torah storytelling supremacy, Scientology storytelling supremacy, Star Wars fans storytelling supremacy, etc, etc, etc - all fiction storytelling). ===:::
+* :::=== RoundSparrow_Commentary : I'm not against people having emotions, it is the constant hate and dehumanization, and egomania. The driving force is egoism of storybook supremacy (Donald Trump storytelling supremacy, Fox News storytelling supremacy, Quran storytelling supremacy, Bible storytelling supremacy, Upanishads storytelling supremacy, Torah storytelling supremacy, Scientology storytelling supremacy, Star Wars fans storytelling supremacy, Radio Mullah storytelling supremacy, Alex Jones storytelling supremacy, etc, etc, etc - all fiction storytelling). ===:::
+
 
