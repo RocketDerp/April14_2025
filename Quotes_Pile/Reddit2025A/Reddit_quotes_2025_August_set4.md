@@ -473,4 +473,13 @@ boofin19 2018-08-14 (tomorrow)
 
 * :::=== RoundSparrow_Commentary : "Leopards at MAGA face" is celebrated all over Bluesky / Reddit, sustained topic. Cheering on that conservatards are worse than libtards. Total mockery. Neil Postamn in year 1985 publsshed a book about "Amusing ourselves to death" Total Mockery. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mphfuh/ice_sent_3_us_citizen_children_including_boy_with/n8jn448/
+
+Hadrian23 2015-07-20
+
+"No, they understand it.   
+They define empathy and caring as "Evil" and the "Other" must be crushed, not understood.    
+These people are total ass holes who revel in the pain the cause."
 
