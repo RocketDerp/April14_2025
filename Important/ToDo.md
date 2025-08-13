@@ -258,3 +258,10 @@ Rick Roderick 1993: "But any intellect that powerful has a tendency to become to
 Information passing down from person to person, person to book, book to person, etc.   
 Name theories of 1950's to 1974    
 https://www.youtube.com/watch?v=ya1PrgkOO98
+
+
+&nbsp;
+
+Yin and Yang of society, and still having faith in getting there    
+Beieving in humanity    
+https://youtu.be/S_yPBkRmLRs?t=415
