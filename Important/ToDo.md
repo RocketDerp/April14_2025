@@ -259,6 +259,11 @@ Information passing down from person to person, person to book, book to person, 
 Name theories of 1950's to 1974    
 https://www.youtube.com/watch?v=ya1PrgkOO98
 
+&nbsp;
+
+Concerns of Finnegans Wake, word meanings, names...    
+https://old.reddit.com/r/CuratedTumblr/comments/1mom90j/fake_names/
+
 
 &nbsp;
 
