@@ -63,3 +63,14 @@ selphiefairy 2016-07-20
 
 Comments like this really shows how misinformed people are still about sexual harassment and misogyny. People like this don’t harass women because they like them. They do it because they hate them."
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mp6bmr/what_is_happening_in_the_uk/n8hp149/
+
+thingstopraise 2025-02-28
+
+"Right, it's not about the attractiveness. It's about the power dynamic where the men feel good about making the women uncomfortable. Even "ugly" women are raped. Women in head-to-toe coverings are raped. Elderly women are raped.
+
+I once had men slow down and follow me in a creeper van, keeping pace with me, on an unpopulated stretch of road. It was terrifying. They were going so slowly that my jogging pace was faster than them, but I didn't want to put my back to them so I ended up at this awkward shuffle.
+
+We came to a stretch of road where there was a weird three-way intersection. A car came up at the intersection where I needed to cross so I paused, thinking that the creeper van would drive on. Nope. They stopped to keep staring at me. This whole encounter was "only" like thirty seconds, but it felt like a lifetime."
