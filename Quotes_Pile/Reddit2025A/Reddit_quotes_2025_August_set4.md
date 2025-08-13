@@ -74,3 +74,16 @@ thingstopraise 2025-02-28
 I once had men slow down and follow me in a creeper van, keeping pace with me, on an unpopulated stretch of road. It was terrifying. They were going so slowly that my jogging pace was faster than them, but I didn't want to put my back to them so I ended up at this awkward shuffle.
 
 We came to a stretch of road where there was a weird three-way intersection. A car came up at the intersection where I needed to cross so I paused, thinking that the creeper van would drive on. Nope. They stopped to keep staring at me. This whole encounter was "only" like thirty seconds, but it felt like a lifetime."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mp6bmr/what_is_happening_in_the_uk/n8hoark/
+
+Critical-Adeptness-1 2020-10-22
+
+"A lot of men in the comments are very, very upset to be reminded that women don’t exist in public exclusively for their pleasure and because you refuse to exercise self-control, women need draconian measures like cat call police units in the UK and women only train cars in Japan to have some semblance of safety when they want to leave the house.
+
+Every comment about how hot the police women are, or how men aren’t allowed to talk to women anymore, huh, is yet another example of why for these measures are welcomed by women. Think it’s Orwellian? Then shut the fuck up. Here, in the streets, everywhere—shut the fuck up and mind your business. Learn to keep your words and thoughts to yourself and make your community a safe place for everyone."
+
+* :::=== RoundSparrow_Commentary : December 20, 2013 ... before the start of the Ukraine war in February 2014 ... December 20, year 2013. [Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's **"traditional values"** and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International."](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) - and Putin and Trump are meeting this week (August year 2025) in Alaska for follow-up on that December 2013 organized efforts to *grab women by the pussy*. Don't forget: [Pussy Grabs Back](https://www.newsweek.com/pussy-riot-vow-grab-back-trump-new-song-513733) ===:::
+
