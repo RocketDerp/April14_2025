@@ -405,6 +405,35 @@ Beagleman11 2025-01-21 (reddit account created at Trump inaguration)
 
 * :::=== RoundSparrow_Commentary : [BBC's Adam Curtis On The "Contradictory Vaudeville" Of Post-Modern Politics](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1monjgu/_/n8dyl2q/
+
+NephewHotTake 2024-09-28
+
+"I know this sub is probably a bot fest just like most of Reddit but I’ll just say it.
+
+These goofballs don’t care about what they say or whatever information they use… reality is whatever they want it to be.
+
+If the Epstein files are useful information against the democrats then they exist, if they are dangerous information to MAGA then they don’t exist."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mon4y4/breaking_in_a_powerful_moment_a_massive_crowd_has/n8dfrrq/
+
+UnTides 2024-09-29
+
+"So brave of them to be out on the streets in the middle of a white collar crime wave. Any one of them could easily get swindled out of a security deposit by a landlord, or be victim of identity theft from DOGE leak, or have their tax dollars stolen to fund retrofitting a president's bribe jet."
+
+* :::=== RoundSparrow_Commentary : Mock, mock back, mockery. We are livig in a Total Mockery of entertainment media networks, social machines, media machines, stimulating the population. Runaway simualcras. Surkov won, Russia won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mon4y4/breaking_in_a_powerful_moment_a_massive_crowd_has/n8e222n/
+
+RabbleRouser_1 2020-12-22
+
+"Sensationalism doesn't help. Exaggerating crowd sizes is what Trump does. I'm all for protests but this crowd is nowhere near massive. It's maybe 20 people deep. It's the camera angle. This should be 200 people deep."
 
 &nbsp;
 
