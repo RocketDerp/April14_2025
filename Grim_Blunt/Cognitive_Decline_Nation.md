@@ -211,3 +211,22 @@ Thinking becomes more and more difficult when Fox News / CNN saturate the people
 With people around you react-commenting and consuming reaction images and comments on every media platform, thinking becomes more and more difficult because there is a breakdown of language. This was articulated here about Fox News audience: https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
 
 
+&nbsp;
+
+&nbsp; 
+
+&nbsp;
+
+
+### Newsweek headline August 13, 2025  "Were all brainwashed" 
+
+https://www.newsweek.com/trump-supporter-detained-ice-agents-immigration-2112676     
+https://old.reddit.com/r/politics/comments/1mp7n4h/trump_supporter_detained_by_ice_agents_regrets/    
+
+Just as declared in Newsweek headline February 12, 2019 - "The illusion of choice is the most important illusion, the main trick of Western democracy especially…. The rejection of this illusion in favor of the reality that everything is predestined will allow society to reflect first on our vision of democratic development," Surkov wrote. "Foreign politicians talk about Russia's interference in elections and referendums around the world. In fact, the matter is even more serious: **Russia interferes in your brains, we change your conscience**, and there is nothing you can do about it."     
+https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
+
+Working together... [Trump, Cambridge Analytica and the Internet Research Agency mind-fucked](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) every person who uses social media or talks to pepople (second hand smoke influence) who use social media since March 2013 rampup of the IRA. A primary symptom of the Kremin mind fucking outcomes is people being unwilling to discuss facts and details of players (Surkov, Putin, etc), dates, names of orgaizations, reported by mutliple NATO nations, etc.  Ukraine is the most on top of it, USA is mind-fucked into avoidamnce of the topic (and avoidance of Neil Postman, now dead author, 1985 book).
+
+Americans have not defended, no sense of civic duty, nobody is taking seriously that measles is still spreading in North America (Texas, Canada, etc) from mind-fucked people that Russia has attacked since year 2014 on Twitter and other media platforms: https://www.bbc.com/news/world-us-canada-45294192
+
