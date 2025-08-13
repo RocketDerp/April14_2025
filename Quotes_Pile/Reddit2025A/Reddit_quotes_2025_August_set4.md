@@ -229,3 +229,67 @@ KatieBarTheDoor1977 **2025-05-22 (recent account)**
 
 * :::=== RoundSparrow_Commentary : The sports of insulting and mocking Donald Trump over poopy diapers, golf course, orange skin makeup, mannerisms, gestures, Twitter / Truth Social, parades, antics is huge! Surkov inforamtion warfare is all about creating fiction addiction and addiciton to superficial and shallow absurd surreal behaviors. Donald Trump is doing a great job of Tony Clifton act on multiple stages with multiple players. "Mainstream won't question this bullshit" it is not just mainstream media making money, social media has nonstop reaction commenting to Donald Trump, hate upon Trump. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8i7y2n/
+
+Oystermeat 2016-10-10
+
+"You heard it here first, Trump confirms Russia interference in 2016 election.   
+Hope that doesn't fuck up Bondi's plan on incriminating Obama"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8iaadr/
+
+Public_Cranberry4152 2024-11-26
+
+"It's just sportsball to them and he is their team."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8ica3s/
+
+GhostofBreadDragons 2025-05-07 (recent account)
+
+"No it is worse. They at least turn on their sports heroes. 
+
+This is because they have been given permission to hate. They don’t care about all the other stuff as long as they are allowed to hate the things that make them uncomfortable. Whether it be civil rights, immigrants, or people telling them they have to change to protect the environment. If it inconveniences them they want to be allowed to hate it whether they are in the right or not. They don’t care about the consequences and they are completely willing to ignore any faults if they can do what they want and someone tells them their feelings are justified."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8iclh9/
+
+betasheets2 2024-05-11
+
+"MAGA are the stupidest people alive. In the richest and most powerful country and THIS is the trash you elect?"
+
+* :::=== RoundSparrow_Commentary : Nobody else was willing to provide White House ficiton content / [entertainment](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) every hour of every day except Donald Trump. Do you see the trash people elect on Reddit social media voting patterns? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8i9kb5/
+
+eugene20 2019-03-23
+
+"God god, it's your literal job to defend against such attacks.    
+But no, the Pentagon cut it's anti Russian cyber ops, and now the President's response to an inevitable attack is 'Are you surprised? It's what they do'"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8ied0e/
+
+Yitram 2014-04-17
+
+"This by itself, even ignoring EVERYTHING else he's done should lead to impeachment and conviction. It shows a lack of conviction to his oath of office."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8ik22h/
+
+Yoko-Ohno_The_Third 2018-06-06
+
+"I remember conservatives simping over Putin. I was one of them, and I cringe every time I think about how much I used to parrot all the bullshit fox news had to say. They are really a 24/7 propaganda machine."
+
+&nbsp;
+
