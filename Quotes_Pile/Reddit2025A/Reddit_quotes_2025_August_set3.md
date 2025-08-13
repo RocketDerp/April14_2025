@@ -361,6 +361,52 @@ Period."
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1monjgu/_/n8dn7da/
+
+this-is-some_BS 2022-10-09
+
+"It's crazy how little the average American pays attention to actual news and recent history. The only President to deliver a budget surplus and pay down the debt since 1970 was Clinton and yet every fucking 4 years Republicans roll out all the fiscal bullshit about the debt and pin it on Dems. Trump's first term increased the national debt by about 40% but he's going to fix it. FFS we are a stupid country."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1monjgu/_/n8dyfdw/
+
+UltraCynar 2015-03-25 (March 25, the day of Jesus inception)
+
+"It's what Conservatives do the world over. Conservatives are not fiscally responsible."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1monjgu/_/n8dnm42/
+
+BloodFartz69 2024-06-26
+
+"It's cool because MAGAtards don't connect dots unless you do all the work to connect them and then broadcast it on newsmax/oan/fox/truth. They love it when authoritarians shit in their mouth and tell them it's just Hershey's."
+
+* :::=== RoundSparrow_Commentary : This is what USA society consideres entertainment. Social machine society, USA. “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **1985** ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1monjgu/_/n8dpngi/
+
+BetterMistake3823 **2025-07-06 (recent account)**
+
+"Too many are doing one thing and purposely saying another or vise versa. It is on purpose. They are taking direction from their leader."
+
+* :::=== RoundSparrow_Commentary : Yes, but this is Twitter-length short reaciton comment and people can't find Peter Pomerantsev year 2014 publications or [BBC Adam Curtis NYE 2014 video](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) and match this up to Kremlin media techinques. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1monjgu/_/n8drjds/
+
+Beagleman11 2025-01-21 (reddit account created at Trump inaguration)
+
+"The double standard is crazy. Like trump is going to raise the national debt by trillions of dollars, is covering up the Epstein files because he knows that he’s in them, has pardoned multiple murders and drug dealers, wrecked the US economy, and so much more while Kamala laughs weird. Trump voters have no excuses."
+
+* :::=== RoundSparrow_Commentary : [BBC's Adam Curtis On The "Contradictory Vaudeville" Of Post-Modern Politics](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). ===:::
+
+
+&nbsp;
 
 .
 
