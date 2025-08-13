@@ -316,6 +316,18 @@ Thank you for your interesting and diverse content. Your videos are a real sourc
 18 minutes ago     
 You are masterful in the art of making videos. Each frame is like a work of art. Bravo!🏒🙊⚽️"
 
+"@ChauKhaiLienen   
+26 minutes ago   
+I have been watching you for a long time and your content continues to amaze me with its variety. Thank you for your professionalism.💫🍪🥀"
+
+"@TonCaoMinhnh    
+26 minutes ago    
+Thank you very much for your professionalism and talent. Your videos are always at the highest level.🧬🍫❤️"
+
+"@MacManhCanhnh   
+26 minutes ago     
+Your channel is like a pleasant discovery for me. Thank you for the warm atmosphere and interesting content.🦖😎🖼"
+
 &nbsp;
 
 See if my non-fake comment is disappeared
