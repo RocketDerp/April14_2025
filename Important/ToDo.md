@@ -335,3 +335,10 @@ See if my non-fake comment is disappeared
 <img width="1678" height="464" alt="image" src="https://github.com/user-attachments/assets/4eaa62e9-9838-4b4a-bb4f-4a674403b5eb" />
 
 "@6:20 - but it's a common fantasy from book authors, competitive athletes, video game makers. If only that person hadn't gotten that knee injury in university sports they would have made it professional. If only the Olympic athlete had not gotten sick on the flight to the host nation. There are only 3 recognized winners, gold / silver / bronze - mathematically you can't all be number 1. There are tuns of great musicians on YouTube and they don't all get "big break" and become profitable. For every 1 famous, there are hundreds who had complications or didn't have social connections."
+
+&nbsp;
+
+me: "Computer industry lore... I used to work for SAP at their USA HQ back in 1993, and R/3 was booming like crazy and the money was pouring in. We had standing orders with every major laptop company (IBM, Toshiba, etc) for their HIGHEST-END models, as many as they could sell us, for the extremely well paid salespeople. If a new model came out with color TFT screens even slightly better than an old model, we would order as many as the factory could provide. It seems that the wealthy Corporate America companies taking the sales pitch for software loved seeing a demo of the latest laptop hardware models... salespeople had found a sexy way to get corporate executive attention, the Windows laptop, while demonstrating the pretty bland-looking R/3 thin client app."
+
+<img width="1704" height="830" alt="image" src="https://github.com/user-attachments/assets/faa214d8-28c9-4adb-b322-afc7f78af53c" />
+
