@@ -264,4 +264,5 @@ https://www.youtube.com/watch?v=ya1PrgkOO98
 
 Yin and Yang of society, and still having faith in getting there    
 Beieving in humanity    
+134,221 views  Oct 10, 2022    
 https://youtu.be/S_yPBkRmLRs?t=415
