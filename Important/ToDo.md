@@ -271,3 +271,9 @@ Yin and Yang of society, and still having faith in getting there
 Beieving in humanity    
 134,221 views  Oct 10, 2022    
 https://youtu.be/S_yPBkRmLRs?t=415
+
+&nbsp;
+
+Carl Jung on a woman who had inner mythology disclosures    
+Hélène Smith    
+https://www.youtube.com/watch?v=iia39Wsw_A4
