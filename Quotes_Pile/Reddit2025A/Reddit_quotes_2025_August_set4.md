@@ -394,3 +394,37 @@ Donkeyboya 2021-02-09
 * :::=== RoundSparrow_Commentary : Reddit social media users in August 2025 adopting Donald Trump MAGA values: hate, mocking, insutling. A Total Mockery that Donald Trump **role model** inspires for over a decade, endless mockery, it never ends, the mocking Twitter-length reaction commenting to MAGA Trumpism. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1mpf78i/to_b_a_part_of_the_f_your_feelings_crowd/n8j5v97/
+
+TheManOfTimeAndSpace 2013-05-23
+
+"I was at a gas station a bit back where they were selling trump shit on the corner, and they were flying the "fuck your feelings" flag, and some driving by flipped him off and called him an asshole. The grifter selling cult merch then turns to no one in particular but so everyone would hear, "people are SO rude nowadays." "
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mpcujt/tnx_tariffs/n8ixbia/
+
+Temporary_Search_760 2024-12-25 (Christmas)
+
+" "The problem with socialism is eventually you run out of other people's money" - Margaret Thatcher, an advocate of the free market.
+
+Funny how capitalism was supposed to be about the free market but ended up subsidising rich people at the expense of poor people. What happens when poor people can’t be squeezed anymore? I think we’re about to find out."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mpcujt/tnx_tariffs/n8j29yr/
+
+Downtown-Cobbler-578 2025-06-18 (recent account)
+
+"That’s a way over simplification in a winner take all constitutional republic. As someone who lives in a solidly blue state my vote means nothing. As does someone who lives in a solidly red state. You are thinking of a parliamentary form of representative government. One where democracy is actually a thing. This is the kind of two party political gaslighting that perpetuates a clearly broken system."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mp4bvz/oc_members_of_the_national_guard_deployed_on/n8gu4lm/
+
+a-borat 2016-06-01
+
+"Did Fuckstick-1 say anything about the CDC attack or the Minnesota representatives who were assasinated by his mentally-deficient supporters yet?"
+
+* :::=== RoundSparrow_Commentary : Donald Trump, status symbolism, for the past 10 years has inspired this as constant social media engagement messages. ===:::
