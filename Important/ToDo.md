@@ -288,3 +288,10 @@ https://old.reddit.com/r/SipsTea/comments/1mp37hd/thoughts/
 
 August 11 2019. Comic Funny cartoon entertainment as Neil Postman described in his 1985 book "Amusing Oursevles To Death"    QAnon comic strips, "Q Drop" strips, information strip tease. Pizzagate framing.   How the population was mind-fucked by QAnon + Russia influencers on Twitter media platform since year 2017   
 https://old.reddit.com/r/agedlikewine/comments/1mp5222/tweet_on_epsteins_island/
+
+&nbsp;
+
+&nbsp;
+
+Media Mercenary, paid influencer (very small customer base of specialists who know influencer is paid) talks about how media events for the elite influencers is key to hardware industry.    
+https://youtu.be/LTCbx5KdqpU?t=279
