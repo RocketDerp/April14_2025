@@ -428,3 +428,11 @@ a-borat 2016-06-01
 "Did Fuckstick-1 say anything about the CDC attack or the Minnesota representatives who were assasinated by his mentally-deficient supporters yet?"
 
 * :::=== RoundSparrow_Commentary : Donald Trump, status symbolism, for the past 10 years has inspired this as constant social media engagement messages. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mp4bvz/oc_members_of_the_national_guard_deployed_on/n8hbko2/
+
+cakes28 2018-07-15
+
+"We lived in Chicago for years and recently moved back to our home state. The number of boomers that clutch their chests and exclaim “Thank god you made it out!” Is hilarious. Like they genuinely think we’re walking to the L with an AK-47 strapped to our back, dodging gunfire and shattered glass."
