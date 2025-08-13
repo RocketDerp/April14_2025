@@ -295,3 +295,24 @@ https://old.reddit.com/r/agedlikewine/comments/1mp5222/tweet_on_epsteins_island/
 
 Media Mercenary, paid influencer (very small customer base of specialists who know influencer is paid) talks about how media events for the elite influencers is key to hardware industry.    
 https://youtu.be/LTCbx5KdqpU?t=279
+
+Very fake-looking generic comments that could apply to any YouTube video:  
+
+<img width="1708" height="670" alt="image" src="https://github.com/user-attachments/assets/2db3b7fa-6760-493e-950d-8d95e6016c17" />
+
+&nbsp;
+
+All at the same minute, all in same style:
+
+"@KieuLinhNgococ   
+18 minutes ago    
+Continue to inspire your audience. Your videos are a real oasis of interesting ideas and creativity.🦘🐃🌜"
+
+"@DinhPhuocTuan    
+18 minutes ago    
+Thank you for your interesting and diverse content. Your videos are a real source of inspiration.🛖😎🥨"   
+
+"@VoThaoNhuhu     
+18 minutes ago     
+You are masterful in the art of making videos. Each frame is like a work of art. Bravo!🏒🙊⚽️"
+
