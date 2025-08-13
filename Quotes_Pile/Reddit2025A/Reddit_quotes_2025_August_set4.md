@@ -436,3 +436,15 @@ https://old.reddit.com/r/pics/comments/1mp4bvz/oc_members_of_the_national_guard_
 cakes28 2018-07-15
 
 "We lived in Chicago for years and recently moved back to our home state. The number of boomers that clutch their chests and exclaim “Thank god you made it out!” Is hilarious. Like they genuinely think we’re walking to the L with an AK-47 strapped to our back, dodging gunfire and shattered glass."
+
+&nbsp;
+
+https://old.reddit.com/r/youtube/comments/1mpbt4j/oh_my_god_its_happening/n8j85ph/
+
+Human-Ad-3293 2023-09-11 (historic day of September in USA)
+
+"Well fuck, then let's all just give up, bend over and take it then since nothing works and not everyone is able to shoot ceos or protest for multiple uninterrupted months (how many days have you protested in public in a row btw)"
+
+* :::=== RoundSparrow_Commentary : Donald Trump sustains, YouTube sustains, "the little guy" mocks the other "little guy" and tells them to give up, punching sideways and punching down that "The Big Guy" should win. ===:::
+
+
