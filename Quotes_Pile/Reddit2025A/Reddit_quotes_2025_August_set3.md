@@ -445,6 +445,22 @@ FIakBeard 2020-03-29
 
 &nbsp;
 
+https://old.reddit.com/r/PoliticalHumor/comments/1mos1r6/thank_you_for_your_attention_to_this_matter/n8er8m5/
+
+Ivanovic-117 2021-04-06
+
+"They reported you because they couldn’t handled the truth?"
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1mos1r6/thank_you_for_your_attention_to_this_matter/n8fewpe/
+
+TrumpSux89 2024-07-26
+
+"Yup, I always get those self harm reports everytime I post negatively about Trump lol. So immature."
+
+&nbsp;
+
 .
 
 .
