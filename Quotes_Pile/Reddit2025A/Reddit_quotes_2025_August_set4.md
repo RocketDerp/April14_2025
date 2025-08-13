@@ -299,3 +299,41 @@ BrianWonderful 2008-07-20
 
 "It also points out that Trump considers property (ie, land/buildings/cities/etc) to be the primary item of negotiation (which we already knew from his whole life), and implies that he is trying to set up some sort of trading deal with Russia. What is he going to give them?"
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mpaagu/trump_79_sparks_dementia_concerns_with_weird_cold/n8i38ek/
+
+DiscoChiligonBall 2025-05-26 (new this year)
+
+"The issue is not that Donald Trump is dumb.
+
+It's not that he has dementia.
+
+It's not that he clearly doesn't understand anything real.
+
+It's not that he is so woefully unqualified for any job that doesn't involve shitting himself in public.
+
+It's not that he's a 34x convicted felon, rapist, and clearly is mentioned in every page of the Epstein files and coverup.
+
+It's not that he's a pedophile and very likely trafficked and raped children with Epstein and Maxwell.
+
+It's that apparently there are people who feel like they cannot or WILL NOT remove him from office because of any of these things due to their personal political profit.
+
+He is the actual worst possible human we could have in political power and the people who think he's perfect for the role are the ones who are screwing everyone over - especially themselves."
+
+* :::=== RoundSparrow_Commentary : "the issue" is media ecology. Neil Postman's 1985 book "Amusing Ourselves To Death". People can not resist mocking and insutling how bad Donald Trump behaves. Tony Clifton on stage interacting with audience. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mpaagu/trump_79_sparks_dementia_concerns_with_weird_cold/n8i5g5f/
+
+NoneMoreBLK 2017-07-19
+
+"The people worried about Biden's mental acuity when he was running for POTUS in 2020 due to his age (78), made no such critique of Donald Trump when he ran in 2024 despite being the same age (78).
+
+I've never seen a person "graded on a curve" as large as Donald Trump."
+
+* :::=== RoundSparrow_Commentary : You have never seen people who had executive function mental manipulation by Cambridge Analytca ===:::
+
