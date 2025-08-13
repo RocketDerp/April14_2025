@@ -165,3 +165,56 @@ trump knows this is what russia does, because he asked them to do it"
 
 * :::=== RoundSparrow_Commentary : No citations to authors, articles on the subject. Twitter-length reactionary thinking. Barking at trees when breaking news subject stimulates the audience, not seeing or able to describe the November 2012 onward forest of Russia's winning of hearts and minds to self-harm the USA (not only one single person self-harm the future of the USA, but the entire population becoming so addicted to Donald Trump's antics and fumbles that mocking and insulting and total mockery takes over the entire nation in Surkovian anti-reality / fiction life). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8i47ft/
+
+9ersaur 2012-09-21
+
+"The USA is defenseless"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8idav2/
+
+plasmaSunflower 2019-10-30
+
+"Cold war 2.0 and this was Russia's plan all along"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8il13e/
+
+BannedByRWNJs 2024-07-10
+
+"Donald J Trump is a bomb that Putin dropped right into the Oval Office."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8if1uo/
+
+Smokeejector 2021-12-01
+
+"The media companies all have been told to fall in line, and have been threatened with canceling their federal broadcast licenses if they don't. This is the it, they don't want to go out of business for going against him"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8i4vbe/
+
+publiusrex888 2022-03-31
+
+"What the fucking fuck? Can you imagine for a fucking second the nuclear explosion of bullshit fox would unleash if Obama did shit like this? Where's the fucking line anymore?"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/n8ihb3p/
+
+emw9292 2021-10-06
+
+"A majority of people have been so damaged and are so broken and Trump is taking advantage of that.
+
+These people are so stupid, so idiotic, so immoral, and that’s ok to them because they’re still immature fifth graders who never learned critical thinking, being empathetic, or learned at all and therefore cannot acknowledge when they’re wrong and will die (see: Covid) to prove they’re right even when intellectualism, facts, science, etc, or even one brain cell proves them wrong.
+
+It’s raging insecurity and fear that drives these people whose brains and minds never progressed to double-digits in age."
