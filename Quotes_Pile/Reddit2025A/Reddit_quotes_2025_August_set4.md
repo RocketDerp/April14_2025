@@ -447,4 +447,11 @@ Human-Ad-3293 2023-09-11 (historic day of September in USA)
 
 * :::=== RoundSparrow_Commentary : Donald Trump sustains, YouTube sustains, "the little guy" mocks the other "little guy" and tells them to give up, punching sideways and punching down that "The Big Guy" should win. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mphfuh/ice_sent_3_us_citizen_children_including_boy_with/n8jlmdg/
+
+Ritaredditonce 2018-09-28
+
+"Stephen Miller is laughing."
 
