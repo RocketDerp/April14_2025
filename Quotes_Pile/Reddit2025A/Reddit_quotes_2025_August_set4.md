@@ -24,3 +24,17 @@ Serious_Comedian 2016-05-16
 
 
 &nbsp;
+
+https://old.reddit.com/r/cartoons/comments/1mp1geq/which_cartoon_creator_is_this/n8gpbj3/
+
+Lizardsupremecy 2021-12-27 (those days between Christmas and New Year)
+
+"Worth noting that Kyle A Carroza also started a multi-year harrassment campaign against one of the disabled artists that worked for him.
+
+Because they drew Fosters Home of imaginary Friends and invader zim porn. He also sexually harrassed this person prior to this campaign and when they tried to speak out he got her blacklisted from the industry. She lost their healthcare and went into hospice care a couple years ago.
+
+No one who helped or defended Kyle at the time has since apologized."
+
+* :::=== RoundSparrow_Commentary : Content creators have defenders, like Donald Trump content creator has defenders, when you are a content creator media star, Trump says you can grab them by the sexual organs. Everything is Media Ecology. ===:::
+
+&nbsp;
