@@ -519,6 +519,16 @@ For having this amazing brain we have, we sure are stupid as fuck"
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1morymo/newsom_says_california_will_draw_new_electoral/n8eh0h3/
+
+JamUpGuy1989 2022-06-19
+
+"If the Democrats can allow Newsom to be like this during a Presidential run in 2028 then he'll easily win."
+
+* :::=== RoundSparrow_Commentary : This is a serious Twitter-length short-message Tweet-think statement that is popular on Reddit in August 2025. That all it takes to fix the massive media addiction problems of the United States of America populatio (We The People) is to adopt the social media Twitter-thinkig behvioras of MAGA and Putin's Kremlin. Which has been the problem all along, a Russian informaiton war that started in March 2013 that turned *politics* into 24 hours a day 7 days a week social media nonsense. ===:::
+
+&nbsp;
+
 .
 
 .
