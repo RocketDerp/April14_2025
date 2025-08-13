@@ -293,3 +293,9 @@ Yoko-Ohno_The_Third 2018-06-06
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mpaagu/trump_79_sparks_dementia_concerns_with_weird_cold/n8idtme/
+
+BrianWonderful 2008-07-20
+
+"It also points out that Trump considers property (ie, land/buildings/cities/etc) to be the primary item of negotiation (which we already knew from his whole life), and implies that he is trying to set up some sort of trading deal with Russia. What is he going to give them?"
+
