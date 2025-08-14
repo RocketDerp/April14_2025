@@ -411,7 +411,7 @@ Not_Bears 2023-09-26
 
 &nbsp;
 
-* :::=== RoundSparrow_Commentary : And it isn't like there are no external events to connect the dots of Russia infuennce. Donald Trump goes to Moscow in November 2013, Russia announces Conservative International movement in December 2013, Ukraine invasions starts February 2014 and Ukraine has been nothing but fatih-faith out of Russia, badness itself. The rise of Donald Trump to winning in November 2016 goes right along with the Ukraine war that Russia has persisted. We [have collected and validated Twitter messages going back to year 2014 that have been disclosed to the public world wide](https://www.bbc.com/news/world-us-canada-45294192). Measles, "meh". ===:::
+* :::=== RoundSparrow_Commentary : And it isn't like there are no external events to connect the dots of Russia infuennce. Donald Trump goes to Moscow in November 2013, Russia announces [Conservative International](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) movement in December 2013, Ukraine invasions starts February 2014 and Ukraine has been nothing but bad-faith out of Russia, badness itself against Ukraine. The rise of Donald Trump to winning in November 2016 goes right along with the Ukraine war that Russia has persisted. We [have collected and validated Twitter messages going back to year 2014 that have been disclosed to the public world wide](https://www.bbc.com/news/world-us-canada-45294192). Measles, "meh". ===:::
 
 
 .
