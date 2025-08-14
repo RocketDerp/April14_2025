@@ -80,8 +80,27 @@ General_Tso75 2017-09-25
 
 "2A folks were all bluster. It was just a bully tactic to get to this authoritarianism. They are fine with tyranny that favors them."
 
+&nbsp;
 
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8ngdn6/
 
+Raise_A_Thoth 2024-11-12 (account created after 2024 election)
+
+"What the actual fuck. I've been trying to reserve my outrage at all of the daily horrendous shit this admin pulls, but when the administration says "there is no limit to the authority of the President" that's just some of the fucking most traitorous un-American shit I've ever heard.
+
+Not to be some Gadsen-flag-flying cockwomble, but America's government is supposed to be limited in very specific and sometimes vague ways. The authority of any one branch is government is supposed to be limited by the other two branches on a regular basis. The authority of the government is supposed to be limited very specifically to protect people's civil rights. Even the most conservative, elitist, racist, sexist men from the founding wanted a rule of law and guaranteed fair trials, limited arresting power to terrorize citizens, and a presumptuin of innocence.
+
+Obviously execution of those and excuses for why blacks and women (& others) haven't been considered "citizens" consistently has been key in the struggle, but they are just saying wrong, traitorous shit right now."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8nhwaq/
+
+letdogsvote 2010-04-08
+
+" "Fuck the Constitution and state and federal laws, Trump is God." - Homan and MAGA"
+
+* :::=== RoundSparrow_Commentary : Simple twitter-length short thinking, tweet-thinking. God will fix it all. Proeject 2025 is the newest retcon of 10 commandments. ===:::
 
 
 
