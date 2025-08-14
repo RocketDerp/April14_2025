@@ -303,10 +303,43 @@ DiarrheaRadio 2023-08-03
 
 "And the mods on the Rogan subreddit allowed propaganda to freely flow. They should be held accountable as well."
 
-* :::=== RoundSparrow_Commentary : Fictio outsells nonfiction. Conservative vs. Liberal is gridning gears topic. Fiction vs. nonfiction explains: Fox News, Joe Rogan, Donald Trump, Putin information warfare attractions. People flock to fiction. ChatGPT has been programmed on IRA and CA content, now LLM systems like GrokAI and ChatGPT can generate personalized ego-pleasing fiction. Many podcasters have adopted this fiction because they are all catching on to what Elon Musk caught on to purchasing Twitter years ago... fiction outsells nonfiction. Donald Trump was a pioneer in using fiction to lead the USA population. The Pied Piper provides fiction. [We Found The Piper, but we Lost the Rats](https://www.youtube.com/watch?v=e7olfvXs2R4) ===:::
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. Conservative vs. Liberal is grinding gears topic. Fiction vs. nonfiction explains: Fox News, Joe Rogan, Donald Trump, Putin information warfare attractions. People flock to fiction. ChatGPT has been programmed on IRA and CA content, now LLM systems like GrokAI and ChatGPT can generate personalized ego-pleasing fiction. Many podcasters have adopted this fiction because they are all catching on to what Elon Musk caught on to purchasing Twitter years ago... fiction outsells nonfiction. Donald Trump was a pioneer in using fiction to lead the USA population. The Pied Piper provides fiction. [We Found The Piper, but we Lost the Rats](https://www.youtube.com/watch?v=e7olfvXs2R4) ===:::
 
 &nbsp;
 
+https://old.reddit.com/r/SipsTea/comments/1mq2cmc/survivorship_bias_in_one_pic/n8pfp6e/
+
+hiressnails 2016-01-01 (new years)
+
+I'm 30, I only started biking last year, and people make fun of my helmet. It's so stupid."
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1mq2cmc/survivorship_bias_in_one_pic/n8ovdwk/
+
+Darmok47 2018-03-28
+
+"I was at my grandma's wake a few years ago and my uncles were all reminiscing with some family friends about their high school days, including going drag racing on weekends, American Graffiti style. My uncle asked oh yeah, what happened to so and so? And the answer was that he was killed in one of those races when his car rolled over."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mq403u/hope_walz_gov_walzs_daughter_kiss_my_as_fox_news/n8pacnx/
+
+minnie203 2016-10-21
+
+"Yeah, I live in a government town and it seems like these big employers tend to just follow each other in a race to the bottom, where one orders more office presence and it gives others permission to do it too. I feel like as a matter of principle, governments of any level should be setting the standard for providing good working conditions and it's disheartening to see them following their private sector counterparts into the gutters instead. I remember hearing the Australian civil service was going through the same thing recently.
+
+Corporate lobbying: always at the scene of the crime I guess :/"
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mq403u/hope_walz_gov_walzs_daughter_kiss_my_as_fox_news/n8o8tak/
+
+Sitar21  2022-10-28
+
+"I despise western mainstream media as a whole,but faux news and what it created is beyond insane. Straight up manufacturing consent and full on state propaganda"
+
+* :::=== RoundSparrow_Commentary : Swat Valley Pakistan's Radio Mullah information network and Russia's media networks are very much like Fox News. Fiction addiction. ===:::
 
 .
 
