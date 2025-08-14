@@ -124,6 +124,16 @@ AquaSquatch 2014-03-29
 
 &nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1mpwsn1/cnn_issued_a_major_update_about_donald_trumps/n8mzq91/
+
+TheConnASSeur 2019-07-03
+
+"Yes. And MAGA didn't give a shit because they are all terrible people who only use morality as a shield so they can keep being terrible but still cling to the hope that the Christian God is a shitty accountant."
+
+* :::=== RoundSparrow_Commentary : Study of Levant monomyth, comparative mythology education, is essential to grasp the depth of Surkov information warfare since March 2013. "the hope that the Christian God is a shitty accountant" is the core of James Joyce's body of work, Bible verse Romans 11:32 - that people don't recognize God Himself (Jesus, Allah, Yahweh, God) is the source of sin. Romans 11:32 - and the importance of grasping the idea that you have *never seen God* character in Bible esrse "1 John 4:20" ===:::
+
+&nbsp;
+
 .
 
 .
