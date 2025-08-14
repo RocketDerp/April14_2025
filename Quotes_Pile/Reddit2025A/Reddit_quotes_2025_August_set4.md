@@ -369,6 +369,16 @@ IrishWeebster 2024-06-02
 
 "Hasn't fuckin stopped him so far, don't see why it would now. Doing illegal shit and getting away with it could be the title of his presidential biography."
 
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1mq2ixr/til_of_early_film_star_roscoe_fatty_arbuckle_he/n8nqpmn/
+
+MrMojoFomo 2023-07-14
+
+"The crimes he was charged with were the rape and murder of actress Virginia Rappe. I originally included this in the title but the post was removed for violation of Rule 4 "No politics/agenda pushing"
+
+lol"
+
 .
 
 .
