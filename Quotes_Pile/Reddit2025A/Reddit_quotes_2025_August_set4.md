@@ -112,12 +112,27 @@ DontShoot_ImJesus 2013-12-30
 
 * :::=== RoundSparrow_Commentary : In QAnon [Pizzagate / Comet Ping Pong fiction media systems](https://en.wikipedia.org/wiki/Pizzagate_conspiracy_theory), "Q Drops", facts and reality don't matter. The chase for the next "Q Drop" chapter in the [recursive fiction](https://southwestcontemporary.com/a-neverending-story-finnegans-wake-in-the-information-age/) monomyth story. The fiction storytelling addiciton to streaming memes and junk content on Reddit (and other social machines) matters. An audience driven by attraction to fantasy island. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1mpwsn1/cnn_issued_a_major_update_about_donald_trumps/n8n33zz/
 
+AquaSquatch 2014-03-29
 
+"Trump's appearances on the flight logs predate the purchase of the island. Plus he's a lazy slob that could just rape kids at mar-a-lago."
 
+* :::=== RoundSparrow_Commentary : I do not think Donald Trump is lazy. Being a media star and constantly being on stage is extremely hard work, and he is laboring extremely hard. Donald Trump works very hard to locate and organize people to self-harm the USA future, compusively serving his media addiction to Putin's monomyth warfare (of Surkov design). ===:::
 
+&nbsp;
 
+.
+
+.
+
+.
+
+.
+
+.
 
 
 .
