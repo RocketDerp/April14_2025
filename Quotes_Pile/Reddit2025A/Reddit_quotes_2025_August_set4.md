@@ -102,8 +102,15 @@ letdogsvote 2010-04-08
 
 * :::=== RoundSparrow_Commentary : Simple twitter-length short thinking, tweet-thinking. God will fix it all. Proeject 2025 is the newest retcon of 10 commandments. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1mpwsn1/cnn_issued_a_major_update_about_donald_trumps/n8neb93/
 
+DontShoot_ImJesus 2013-12-30
+
+"The article makes no mention of Epstein island. Are you making that up or have a source?"
+
+* :::=== RoundSparrow_Commentary : In QAnon Pizzagate, "Q Drops", facts and reality don't matter. The chase for the next "Q Drop" chapter in the recursive fiction story. The fiction storytelling addiciton to streaming memes and junk content on Reddit (and other social machines) matters. An audience driven by attraction to fantasy island. ===:::
 
 
 
