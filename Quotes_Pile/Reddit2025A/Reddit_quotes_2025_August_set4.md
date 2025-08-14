@@ -252,6 +252,30 @@ It would be comedy if it wasnt tragedy."
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8owcbv/
+
+AlphaGoldblum 2016-04-10
+
+"This leads to the elephant in the room that nobody wants to address.
+
+Let's say Democrats do win in the midterms and even the general election (assuming there is one) - are we just supposed to forget that our neighbors were cheering and even participating in all this cruelty? That some of them fully went mask-off and loudly declared themselves neo-nazis or general white nationalists?
+
+Will Homan get prison time for what he's doing? Stephen Miller? The DOGE guys?
+
+Because beating them on the political stage means nothing. All it did the first time around was inflame their beliefs and desire to be even more cruel, to break the country down even more fundamentally."
+
+* :::=== RoundSparrow_Commentary : Russian inforamtion warfare since March 2013 has changed values in every day society, every hour of every day on social media people are avoidant of learning. Why idn't Jen Senko's March 2016 film a household name by now? A baby boomer stood up, "The Little Guy" vs. Fox News and mass dehumanization via media systems. And nobody wants to drop her name or repeat her film about brainwashing. Instead, people flock to the latest memes and junk on social machines and don't want to stay focused on the deeper problems of addiciton to fiction. Fox News is fiction. Donald Trump is fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8nmans/
+
+specqq 2018-09-02
+
+"It's shameful to be a member of the same species."
+
+* :::=== RoundSparrow_Commentary : Exactly. Donald Trump and Putin's Kremlin are dragging down the entire human race, over 8 billion people, since their November 2012 agreeement to use Cambridge Analytica and Russian Internet Reserch agency to wage war against reality and sincerity. ===:::
+
 
 
 .
