@@ -198,6 +198,14 @@ Many Republicans low key believe Democrats are subhuman (similar to views they h
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8o2jvp/
+
+HBKdfw 2021-08-21
+
+"To him, Democrats are the enemy. They are animals. So yes, by calling his child victims democrats, he is dehumanizing them."
+
+&nbsp;
+
 .
 
 .
