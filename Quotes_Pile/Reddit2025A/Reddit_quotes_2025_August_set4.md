@@ -742,3 +742,18 @@ Advanced_Simian 2020-07-18
 
 &nbsp;
 
+https://old.reddit.com/r/Damnthatsinteresting/comments/1mq8ci0/electric_ford_mustang_malfunctions_no_steering_or/n8p2ild/
+
+Guilty-Log6739 2021-04-18
+
+"Seriously. Brakes always have more stopping power than the vehicle’s acceleration capabilities. Stand up on the brake if you have to. This is very bizarre"
+
+&nbsp;
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1mq8ci0/electric_ford_mustang_malfunctions_no_steering_or/n8p5bqr/
+
+FuturesPaperBoy 20204-06-20 (recent account)
+
+"What these people should take into consideration is that Jesus may be a demolition derby driver."
+
+ :::=== RoundSparrow_Commentary : Levant God brings hurricanes, earthquakes, thunderstorms, forest fires, floods, diseases, etc. Not really in the rescue business. Prayer isn't a call to firefighters. ===:::
