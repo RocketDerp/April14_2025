@@ -166,6 +166,14 @@ Blochamolesauce 2016-02-05
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mq4hx5/ohio_requires_buses_for_private_school_kids/n8obkj4/
+
+atrich 2009-10-09
+
+"They're making public school non-functional so all kids have to go to their private schools where they are indoctrinated by teachers with degrees in Supply-side Jesus"
+
+&nbsp;
+
 
 .
 
