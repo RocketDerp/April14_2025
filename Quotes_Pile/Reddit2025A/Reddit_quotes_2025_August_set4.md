@@ -110,7 +110,7 @@ DontShoot_ImJesus 2013-12-30
 
 "The article makes no mention of Epstein island. Are you making that up or have a source?"
 
-* :::=== RoundSparrow_Commentary : In QAnon Pizzagate, "Q Drops", facts and reality don't matter. The chase for the next "Q Drop" chapter in the recursive fiction story. The fiction storytelling addiciton to streaming memes and junk content on Reddit (and other social machines) matters. An audience driven by attraction to fantasy island. ===:::
+* :::=== RoundSparrow_Commentary : In QAnon [Pizzagate / Comet Ping Pong fiction media systems](https://en.wikipedia.org/wiki/Pizzagate_conspiracy_theory), "Q Drops", facts and reality don't matter. The chase for the next "Q Drop" chapter in the recursive fiction story. The fiction storytelling addiciton to streaming memes and junk content on Reddit (and other social machines) matters. An audience driven by attraction to fantasy island. ===:::
 
 
 
