@@ -156,6 +156,17 @@ landisthegnome 2012-01-10
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mq3ya2/lula_says_trump_would_be_put_on_trial_in_brazil/n8o9fpv/
+
+Blochamolesauce 2016-02-05
+
+"Well a brain dead turtle stopped the initial trial from going through, which sucked. Then an ineffectual AG sat on ass for 4 years, which also sucked. And now we’re neck deep in multiple constitutional crises… fun times!!"
+
+* :::=== RoundSparrow_Commentary : MAGA values; superficial, banal, mocking, shallow, anti-citation, anti naming an author or source on these claims, just Twitter-length reaction commenting thinking. Tweet-thinking name-calling... *he looks like a Turtle, that is how I pick politicians - their looks!* USA values of meme consumers nation. It is all street-gangs of the social machines language, slang, shit-talk about "the others" being the problem and not about Neil Postman's 1985 book "Amsuing Ourselves To Death" describingt the nationwide all-inclusive USA problem (and Kremlin information warfare from March 2013 onward... exploitation of these out-group reacationary mindsets). ===:::
+
+&nbsp;
+
+
 .
 
 .
