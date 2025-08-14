@@ -60,9 +60,25 @@ MaleficentCow8513 2024-03-15
 
 "The constitution’s checks and balances assumed that at least one of the branches would maintain its integrity given the other one or two became corrupt af. We’re seeing a breakdown in the constitution because it doesn’t have a response or any procedure to handle this level of collusion amongst the three branches, except ofc the 2nd amendment. What we have right now is effectually government by cartel rather than a constitutional democracy"
 
-* :::=== RoundSparrow_Commentary : Gun stroking gun worship Americans. That guns will fix the problems of not knowing Neil Postman's 1985 book "Amusing Ourselves To DeatH' about Fox News and Twitter. ===:::
+* :::=== RoundSparrow_Commentary : Gun stroking gun worship Americans. That guns will fix the problems of not knowing Neil Postman's 1985 book "Amusing Ourselves To Death' about Fox News and Twitter. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8neygn/
+
+MajorAd3363 2020-12-06
+
+"We're in full-blown fascism now.
+
+The only thing saving us is the inability of the current regime to execute effectively."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8ncpfg/
+
+General_Tso75 2017-09-25
+
+"2A folks were all bluster. It was just a bully tactic to get to this authoritarianism. They are fine with tyranny that favors them."
 
 
 
