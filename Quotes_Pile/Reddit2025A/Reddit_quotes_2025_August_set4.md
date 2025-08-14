@@ -361,6 +361,14 @@ https://old.reddit.com/r/Fauxmoi/comments/1mq403u/hope_walz_gov_walzs_daughter_k
 
 * :::=== RoundSparrow_Commentary : Fiction entertianment, Reddit memes, are far more popular than nonfiction science learning. Fiction outsells nonfiction. Rupert Murdoch learned this from The Simpsons and other fiction shows. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mq2zlh/theres_a_small_problem_with_trumps_export_deal/n8o2xvz/
+
+IrishWeebster 2024-06-02
+
+"Hasn't fuckin stopped him so far, don't see why it would now. Doing illegal shit and getting away with it could be the title of his presidential biography."
+
 .
 
 .
