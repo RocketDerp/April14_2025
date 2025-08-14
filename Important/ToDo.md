@@ -373,4 +373,13 @@ I think the USA social media society of Bluesky and Reddit need to develop a mor
 
 We are a reactionary society that is engaged in reacting to "breaking news" events of a person's behavior and not preventative and educational oriented. Malala from Pakistan has shown a consistent focus on educaiton and teaching from her father and her's efforts gong back decades.
 
+&nbsp;
+
+&nbsp;
+
+Pink Elephants drunk, inner theater     
+completely wrong religion fundamentalist of material word, 6000 years ago    
+Model of what the mind is    
+Perception gone wrong indicating corruption in perceptial system    
+https://www.youtube.com/watch?v=UzA3MYP1Uac
 
