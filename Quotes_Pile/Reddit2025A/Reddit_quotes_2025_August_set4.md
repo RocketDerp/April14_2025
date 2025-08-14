@@ -146,7 +146,15 @@ It was another plane that Epstein used to own. It was auctioned off and was purc
 
 &nbsp;
 
-.
+https://old.reddit.com/r/worldnews/comments/1mq3ya2/lula_says_trump_would_be_put_on_trial_in_brazil/n8o2uwb/
+
+landisthegnome 2012-01-10
+
+"American voters are dumb as shit unfortunately"
+
+* :::=== RoundSparrow_Commentary : In year 1985, Neil Postman published a book called "Amusing Ourselves To Death" that was a warning and self-awareness education about our current situation with MAGA, Kremlin, and Donald Trump. ===:::
+
+&nbsp;
 
 .
 
@@ -156,6 +164,14 @@ It was another plane that Epstein used to own. It was auctioned off and was purc
 
 .
 
+.
+
+
+.
+
+.
+
+.
 
 .
 
@@ -707,10 +723,3 @@ Advanced_Simian 2020-07-18
 
 &nbsp;
 
-https://old.reddit.com/r/worldnews/comments/1mq3ya2/lula_says_trump_would_be_put_on_trial_in_brazil/n8o2uwb/
-
-landisthegnome 2012-01-10
-
-"American voters are dumb as shit unfortunately"
-
-* :::=== RoundSparrow_Commentary : In year 1985, Neil Postman published a book called "Amusing Ourselves To Death" that was a warning and self-awareness education about our current situation with MAGA, Kremlin, and Donald Trump. ===:::
