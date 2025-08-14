@@ -389,6 +389,18 @@ thepottsy  2013-04-04
 
 Anyone who says trump isn’t trying to be a dictator, needs to get bent. This is what dictators do!!!"
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mqa9yq/gavin_newsoms_press_conference_was_stormed_by/n8pjvnl/
+
+blinded-by-the-moon 2025-06-01 (recent account)
+
+"Ate you kidding me. The Rubicon moment lies 9 years in the past when we elected lying, cheating failed businessman because half of the country believes that other people’ misery will make them feel better"
+
+* :::=== RoundSparrow_Commentary :  Everything is a joke, kidding, funny, amusement, entertainment to people addicted to Donald Trump status symbol games. Goodness is abandoned. ===:::
+
+&nbsp;
+
 
 .
 
