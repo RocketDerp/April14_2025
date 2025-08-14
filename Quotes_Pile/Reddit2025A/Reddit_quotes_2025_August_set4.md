@@ -1,3 +1,68 @@
+# Thursday August 14, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8ndw0c/
+
+Phagzor 2021-07-27
+
+"Don't you understand conservatism?
+
+Being good to Americans is *bad*, hurting Americans is *good*."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8nbyv6/
+
+thepottsy 2013-04-04 (April 4, 1968, Martin Luther King Jr. was assassinated)
+
+"Can you imagine the pearl clutching if Obama claimed anything remotely like that?"
+
+
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+
+
+
+
+
+
+
+.
+
+
+
+
+
+
+.
+
+
+
+
+
+
+.
+
 # Wednesday August 13, 2025
 
 &nbsp;
