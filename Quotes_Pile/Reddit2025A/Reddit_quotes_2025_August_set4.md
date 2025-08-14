@@ -379,6 +379,17 @@ MrMojoFomo 2023-07-14
 
 lol"
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mqa9yq/gavin_newsoms_press_conference_was_stormed_by/n8pev3y/
+
+thepottsy  2013-04-04
+
+"For fucks sake. This is NOT America, or at least not the America I’ve lived my entire life in.
+
+Anyone who says trump isn’t trying to be a dictator, needs to get bent. This is what dictators do!!!"
+
+
 .
 
 .
