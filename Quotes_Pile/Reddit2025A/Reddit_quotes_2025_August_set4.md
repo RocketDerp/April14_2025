@@ -182,6 +182,21 @@ HoldingForGenova **2025-07-20 (new account)**
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8nqx4c/
+
+iceflame1211 2018-01-10
+
+"Yes.
+
+He's saying that children of democrats, and even children that could grow up to be a Democrat deserve to be raped.
+
+Many Republicans low key believe Democrats are subhuman (similar to views they have on LGBTQ, disabled, non-whites, etc), and deserve any negative treatment they get. This belief is no longer fringe MAGA, it's moved to the mainstream now."
+
+* :::=== RoundSparrow_Commentary : 1988 Power of Myth book, page 335. BILL MOYERS: That’s where the paternalistic idea grew. JOSEPH CAMPBELL: Women are booty, they are goods. With the fall of a city, every woman in the city would be raped. BILL MOYERS: There’s this ethical contradiction mentioned in your book, quoting Exodus: “Thou shalt not kill, thou shalt not covet thy neighbor’s wife—except abroad. Then you should put all males to the sword, and the women you shall take as booty to yourself.” That’s right out of the Old Testament. JOSEPH CAMPBELL: Deuteronomy. Those are fierce passages. ===:::
+
+&nbsp;
 
 .
 
