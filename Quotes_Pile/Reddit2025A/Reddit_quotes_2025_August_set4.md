@@ -414,6 +414,11 @@ Not_Bears 2023-09-26
 * :::=== RoundSparrow_Commentary : And it isn't like there are no external events to connect the dots of Russia infuennce. Donald Trump goes to Moscow in November 2013, Russia announces [Conservative International](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) movement in December 2013, Ukraine invasions starts February 2014 and Ukraine has been nothing but bad-faith out of Russia, badness itself against Ukraine. The rise of Donald Trump to winning in November 2016 goes right along with the Ukraine war that Russia has persisted. We [have collected and validated Twitter messages going back to year 2014 that have been disclosed to the public world wide](https://www.bbc.com/news/world-us-canada-45294192). Measles, "meh". ===:::
 
 
+&nbsp;
+
+"If we are to have any chance at freedom in this country, the fucking time is now. Not next month. Now. Like, right the fuck now. Bring this fucking economy to a halt. It doesn’t take all of us to cause a lot of problems. Trump won’t answer to us, but if the owners of this country start losing significant money, they’ll tell little puppy Donnie to back down, or they’ll fund dislodging him from his throne. He’s not a king. Stop treating him like he is. And the people who penned project 2025? They need to be brought to justice. They are to never know a moment of peace or feeling of safety for the rest of their lives for their brazen treason. And every single GOP official, including your local ones, need the fear of god put into them. This. Is. Not. Okay."
+
+* :::=== RoundSparrow_Commentary :  We don't need to bring grocery stoires and essentials to a national strike. We need to address what Donald Trump is, a Reality TV star "The Apprentice", we need to address Fox News entertainment. We need to address addiction to entertainment in MAGA and everywere in the USA. Addiction to fiction. Believing in liars and ignoring science comprehension. [Face Facebook, TikTok, Reddit, Twitter, Truth Social, sports mnetality Bluesky FACE on - Top joking around and acting like mocking Donald Trump is a fun sport. None of this is ejoyable, it is sickening.](../../Grim_Blunt/Stop_All_Entertainment.md)
 .
 
 .
