@@ -418,7 +418,9 @@ Not_Bears 2023-09-26
 
 "If we are to have any chance at freedom in this country, the fucking time is now. Not next month. Now. Like, right the fuck now. Bring this fucking economy to a halt. It doesn’t take all of us to cause a lot of problems. Trump won’t answer to us, but if the owners of this country start losing significant money, they’ll tell little puppy Donnie to back down, or they’ll fund dislodging him from his throne. He’s not a king. Stop treating him like he is. And the people who penned project 2025? They need to be brought to justice. They are to never know a moment of peace or feeling of safety for the rest of their lives for their brazen treason. And every single GOP official, including your local ones, need the fear of god put into them. This. Is. Not. Okay."
 
-* :::=== RoundSparrow_Commentary :  We don't need to bring grocery stores and essentials to a national strike. We need to address what Donald Trump is, a Reality TV star "The Apprentice", we need to address Fox News entertainment. We need to address addiction to entertainment in MAGA and everywere in the USA. Addiction to fiction. Believing in liars and ignoring science comprehension. [Face Facebook, TikTok, Reddit, Twitter, Truth Social, sports mnetality Bluesky FACE on - Top joking around and acting like mocking Donald Trump is a fun sport. None of this is ejoyable, it is sickening.](../../Grim_Blunt/Stop_All_Entertainment.md)
+* :::=== RoundSparrow_Commentary :  We don't need to bring grocery stores and essentials to a national strike. We need to address what Donald Trump is, a Reality TV star "The Apprentice", we need to address Fox News entertainment. We need to address addiction to entertainment in MAGA and everywere in the USA. Addiction to fiction. Believing in liars and ignoring science comprehension. [Face Facebook, TikTok, Reddit, Twitter, Truth Social, sports mnetality Bluesky FACE on - Top joking around and acting like mocking Donald Trump is a fun sport. None of this is ejoyable, it is sickening.](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
+
+
 .
 
 .
