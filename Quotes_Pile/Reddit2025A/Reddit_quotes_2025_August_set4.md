@@ -284,6 +284,17 @@ epicredditdude1 2019-11-18
 
 "Trump treats American dems worse than he treats Vladimir Putin."
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mqa0nz/joe_rogan_should_never_live_down_the_massive/n8ph72a/
+
+chasing_blizzards 2022-01-31
+
+"I've found zero evidence of it, I'm 80 percent sure this is just made up for karma farming"
+
+* :::=== RoundSparrow_Commentary : Worthless Reddit karma points are a fantasy that Reddit users tell themselves as they are influenced by these messages on the front page of /r/All Reddit. The purpose of this message is egoism, people delcaring how dumb stupid idiot Joe Rogan and Donald Trump and MAGA are as Russia informatio warfare has conditioned them to do since March 2013. We could address Joe Rogan podcast media ecology and Fox News HDTV media ecology though Niel Postman's 184 page book "Amusing Ourselves To Death", but isntead what Reddit society consumes is meme-image formatted egomania inducing messages about how dumb-stupid Joe Rogan is. Wasting the free time, the spare time, that Reddit users have. Exaclty as Neil Postman's 1984 book says: "Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism." - which describes Reddit activity in year 2025 back in 1985 language, Reddit didn't even go online until yaer 2005... but Postman saw the problem and accurately described the outcomes before he died. Mocking back at Joe Rogan is not resisting Joe Rogan. Begging everyone to be serious and standing up for goodness itself, quoting Neil Postman, is resisting Joe Rogan podcast and Fox News HDTV. ===:::
+
+
 .
 
 .
