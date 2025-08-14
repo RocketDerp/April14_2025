@@ -705,3 +705,12 @@ Advanced_Simian 2020-07-18
 
 * :::=== RoundSparrow_Commentary : The issue is not if Putin has blackmail on one person, Donald Trump or even his family. Why do so many people SUPPORT his pro-Russia stance. Only explanation is [Surkov isn't joking about manipulating minds](https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793). As I try to correct people on social media: bribes and paying people off is not the deepest motivation. Fox News does not pay their audience to believe fiction. Saudi Arabia does not pay Quran believers to admire Mecca, it is in fact, the other way around. Fox News is paid for by the audience subscriptions (cable TV,etc.) and by advertisers selling products to Fox News audience. Addiction to fiction storytelling is a force that for many people runs far deeper than money motivation and financial incentives. Science fiction of Torah, Quran, Bible have people funding and pay for Mosque / Church / etc. Putin is not bribing millions upon millions of people in USA t be glued to every antic and golf course outing of Donald Trump as a media event. Media addiction to the Trump brand and fantasy lifestyle is a cult type behavior, like people's favorite music band in live concerts on a bigger scale. [It is a force of mythology storytelling, fiction storytelling](https://www.hollywoodreporter.com/movies/movie-news/20-years-star-wars-fans-have-camped-film-1263955/). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mq3ya2/lula_says_trump_would_be_put_on_trial_in_brazil/n8o2uwb/
+
+landisthegnome 2012-01-10
+
+"American voters are dumb as shit unfortunately"
+
+* :::=== RoundSparrow_Commentary : In year 1985, Neil Postman published a book called "Amusing Ourselves To Death" that was a warning and self-awareness education about our current situation with MAGA, Kremlin, and Donald Trump. ===:::
