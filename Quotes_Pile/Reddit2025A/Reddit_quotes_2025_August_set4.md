@@ -438,10 +438,33 @@ bytemage 2011-12-08
 
 "He is the master of doing "disastrously harmful" things. It's second nature to him. Like shitting in a diaper."
 
-* :::=== RoundSparrow_Commentary : MAGA values of Twitter-length reaction comment thinking. The most superficial and shallow concerns for USA society. Fetishment for Doanld Trump's performance of Tony Clifton White House. ===:::
+* :::=== RoundSparrow_Commentary : MAGA values of Twitter-length reaction comment thinking. The most superficial and shallow concerns for USA society. Fetishment for Donald Trump's performance of Tony Clifton White House audience interaction. ===:::
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mqd2q9/trumps_recent_executive_orders_on_homelessness/n8pziln/
+
+twirlingmypubes 2019-05-05
+
+"It's going to get worse. The economy is sifting people out left and right. Both the lower and middle class are at risk of sudden job loss or career collapse. Anyone can go from well-off to homeless overnight for anything. There are no reliable safety nets, and those weak ones we had are being cut by the administration."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqd2q9/trumps_recent_executive_orders_on_homelessness/n8q0bph/
+
+Reddit_Is_Gay_Yo 2025-02-16 (new this year)
+
+"If suffering is visible, it destabilizes the narrative. Power cannot allow that. So they transmute it into invisibility. The goal isn’t to 'make them go away, the goal is to erase the reminder that the system produces them in the first place. when you remove the witness, you remove the crime. black magic in real time."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mqauj5/yes_indeed_he_is/n8qco6k/
+
+ButterscotchDisco 2022-04-16
+
+"The US Federal Court filing system gets hacked by Russia and his response is "Are you surprised?" Still hosting (!) Putin (!) and that's his response?!"
+
+&nbsp;
 
 .
 
