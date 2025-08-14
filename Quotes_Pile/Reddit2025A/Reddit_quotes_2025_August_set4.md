@@ -349,8 +349,17 @@ MintMechanic 2025-06-30 (new account)
 
 "Nothing she said was wrong. The "warped-reality" thing truly is a problem for people on the extreme right and extreme left. Scarry out there."
 
-* :::=== RoundSparrow_Commentary : Twitter-length reaction comment, tweet-length bluesky-length thinking. "extreme left", "extreme right". The division relative to Fox News, MAGA, Donald Trump, Reddit, Truth Social, Twitter is **fiction vs. nonfiction**, science reality vs. fanatasy mythology actors and Hollywood and Reality TV "The Apprentice" star. "Scarry out there." but not here on Reddit comment section where people hide their real name, hide their real persons to plae fake content about the White House and Kremlin and let REAL PEOPLE Donald Trump, Elon Musk, JD Vance use their REAL names on the Internet. Because having a bunch of fake names and Russia Internet Research Agency since March 2013 is the direct mind-fucking to make people flock to fiction Donald Trump as a leader instead of learning and studying nonfiction. ===:::
+* :::=== RoundSparrow_Commentary : Twitter-length reaction comment, tweet-length bluesky-length thinking. "extreme left", "extreme right". The division relative to Fox News, MAGA, Donald Trump, Reddit, Truth Social, Twitter is **fiction vs. nonfiction**, science reality vs. fanatasy mythology actors and Hollywood and Reality TV "The Apprentice" star. "Scarry out there." but not here on Reddit comment section where people hide their real name, hide their real persons to consume fake content about the White House and Kremlin and let REAL PEOPLE Donald Trump, Elon Musk, JD Vance use their REAL names on the Internet. Because having a bunch of fake names and Russia Internet Research Agency since March 2013 is the direct mind-fucking to make people flock to fiction Donald Trump as a leader instead of learning and studying nonfiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mq403u/hope_walz_gov_walzs_daughter_kiss_my_as_fox_news/n8oa99h/
+
+2Taipans 2020-05-13
+
+"Fox news claiming to be not news, just entertainment, yet got most of the country buying their hate."
+
+* :::=== RoundSparrow_Commentary : Fiction entertianment, Reddit memes, are far more popular than nonfiction science learning. Fiction outsells nonfiction. Rupert Murdoch learned this from The Simpsons and other fiction shows. ===:::
 
 .
 
