@@ -420,6 +420,28 @@ Not_Bears 2023-09-26
 
 * :::=== RoundSparrow_Commentary :  We don't need to bring grocery stores and essentials to a national strike. We need to address what Donald Trump is, a Reality TV star "The Apprentice", we need to address Fox News entertainment. We need to address addiction to entertainment in MAGA and everywere in the USA. Addiction to fiction. Believing in liars and ignoring science comprehension. [Face Facebook, TikTok, Reddit, Twitter, Truth Social, sports mnetality Bluesky FACE on - Top joking around and acting like mocking Donald Trump is a fun sport. None of this is ejoyable, it is sickening.](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/Snorkblot/comments/1mq0ksv/the_game_is_rigged/n8nh5dj/
+
+Standard-March6506  2024-10-20
+
+"Who are these fucking parents telling their kids this is somehow their fault? None of my four children can afford to buy a house right now; I'd have to be living under a rock to even imagine they put themselves in this position. Fox "news" says shit like that, but parents?"
+
+* :::=== RoundSparrow_Commentary :  Parents have made Donald Trump methods a role model of success since year 2015. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqd2q9/trumps_recent_executive_orders_on_homelessness/n8pykwt/
+
+bytemage 2011-12-08
+
+"He is the master of doing "disastrously harmful" things. It's second nature to him. Like shitting in a diaper."
+
+* :::=== RoundSparrow_Commentary : MAGA values of Twitter-length reaction comment thinking. The most superficial and shallow concerns for USA society. Fetishment for Doanld Trump's performance of Tony Clifton White House. ===:::
+
+&nbsp;
+
 
 .
 
