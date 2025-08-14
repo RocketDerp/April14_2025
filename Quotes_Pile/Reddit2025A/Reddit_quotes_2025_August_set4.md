@@ -493,3 +493,13 @@ kewlbeanz83 2014-09-11
 
 * :::=== RoundSparrow_Commentary : For me, this is a huge mass mind / mob mentality issue in USA. People care more about "Epstein List" chanting than the anti-NATO anti-neighbor actions of MULTIPLE PEOPLE in the White House / MAGA towards Canada. It is horrific that anyone in USA would think there is any reason to threaten conquest of Canada by economic means or military means. This kind of thinking only makes sense if self-harm of USA is the intention. Some kind of wild climate change refuge plan could have been proposed as a 10-year project (USA people having some options to develop and move north), but even then, that is a far-fetched kind of proposal. And in no means would you open up such a topic by the kind of [aggressive *USA will make Canada into 51st state*](https://www.axios.com/2025/05/06/trumps-canada-aggression-timeline-carney-visit) proclimations. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mpgent/trump_to_offer_putin_minerals_deal_in_exchange/n8jjv6a/
+
+Advanced_Simian 2020-07-18
+
+"What kind of blackmail material would matter? With what we already know about Trump, what could possibly move the needle, particularly with his base? We’re seeing the Epstein stuff being covered up in plain sight, and that hasn’t caused an exodus."
+
+* :::=== RoundSparrow_Commentary : The issue is not if Putin ahs blackmail on one person, Aondld Trump or even his family. Why do so many people SUPPORT his pro-Russia stance. The only explaination is Surkov isn't joking about manipulating minds. As I try to correct people on social media: bribes and paying people off is not the deepes motivation. Fox News does not pay thier audience to believe fiction. Saudi Arabia does not pay Quran believers to admire Mecca, it is in fact, the other way around. Fox News ispaid for by the audience subscriptions (cable TV,etc.) and by advertisers selling products to Fox Newsa audience. Addiction ot fiction storytelling is a force that for many people runs far deeper than money motivation and finanicial incentives. Science fition of Torah, Quran, Bible have people funding and pay for Mosque / Church / etc. Putin is not bribing millions upon millions of people in USA t be glued to every antic and golf course outing of Donald Trump as a media event. Media addiction to the Trump brand and fantasy lifestyle is a cult type behavior, like people's favorite music band in live concerts on a bigger scale. [It is a force of mythology storytelling, fiction storytelling](https://www.hollywoodreporter.com/movies/movie-news/20-years-star-wars-fans-have-camped-film-1263955/). ===:::
+ 
