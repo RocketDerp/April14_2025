@@ -295,6 +295,19 @@ chasing_blizzards 2022-01-31
 * :::=== RoundSparrow_Commentary : Worthless Reddit karma points are a fantasy that Reddit users tell themselves as they are influenced by these messages on the front page of /r/All Reddit. The purpose of this message is egoism, people delcaring how dumb stupid idiot Joe Rogan and Donald Trump and MAGA are as Russia informatio warfare has conditioned them to do since March 2013. We could address Joe Rogan podcast media ecology and Fox News HDTV media ecology though Niel Postman's 184 page book "Amusing Ourselves To Death", but isntead what Reddit society consumes is meme-image formatted egomania inducing messages about how dumb-stupid Joe Rogan is. Wasting the free time, the spare time, that Reddit users have. Exaclty as Neil Postman's 1984 book says: "Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism." - which describes Reddit activity in year 2025 back in 1985 language, Reddit didn't even go online until yaer 2005... but Postman saw the problem and accurately described the outcomes before he died. Mocking back at Joe Rogan is not resisting Joe Rogan. Begging everyone to be serious and standing up for goodness itself, quoting Neil Postman, is resisting Joe Rogan podcast and Fox News HDTV. ===:::
 
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mqa0nz/joe_rogan_should_never_live_down_the_massive/n8pdqh2/
+
+DiarrheaRadio 2023-08-03
+
+"And the mods on the Rogan subreddit allowed propaganda to freely flow. They should be held accountable as well."
+
+* :::=== RoundSparrow_Commentary : Fictio outsells nonfiction. Conservative vs. Liberal is gridning gears topic. Fiction vs. nonfiction explains: Fox News, Joe Rogan, Donald Trump, Putin information warfare attractions. People flock to fiction. ChatGPT has been programmed on IRA and CA content, now LLM systems like GrokAI and ChatGPT can generate personalized ego-pleasing fiction. Many podcasters have adopted this fiction because they are all catching on to what Elon Musk caught on to purchasing Twitter years ago... fiction outsells nonfiction. Donald Trump was a pioneer in using fiction to lead the USA population. The Pied Piper provides fiction. [We Found The Piper, but we Lost the Rats](https://www.youtube.com/watch?v=e7olfvXs2R4) ===:::
+
+&nbsp;
+
+
 .
 
 .
