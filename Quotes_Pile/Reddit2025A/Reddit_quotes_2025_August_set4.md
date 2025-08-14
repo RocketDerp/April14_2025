@@ -134,6 +134,18 @@ TheConnASSeur 2019-07-03
 
 &nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1mpwsn1/cnn_issued_a_major_update_about_donald_trumps/n8nbdy2/
+
+-Kerosun- 2018-08-16
+
+"It was not the "Lolita Express." That plane was destroyed.
+
+It was another plane that Epstein used to own. It was auctioned off and was purchased by a plane chartering company. Trump's plane, while on the campaign trail, had to get grounded for a week or something. His campaign reached out to a private chartering company to rent a plane. That plane happened to be one of Epstein's planes that was auctioned off and purchased by the chartering company."
+
+* :::=== RoundSparrow_Commentary : absence of naming authors, citations, references on these facts. Social media August 2025 society is one in which sounds-good off-the-cuff (without citation) content attracts engagement. Just like Donald Trump attracts engagement with shoddy sources and sounds-good poetry. These conversations have been hashed and rehased in peer to peer cloud computing media systems all over USA and no Wiki sytle system has emerged to get everyone on *the same page* of knoown information / citations / references / education material. Instead, it is constant streaming engagement day after day, 24 hours a day, on media mcachines. ===:::
+
+&nbsp;
+
 .
 
 .
