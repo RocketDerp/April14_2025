@@ -236,6 +236,21 @@ FlaeskBalle 2024-02-25
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8nnicx/
+
+jsreyn 2012-03-28
+
+"This really gets to the heart of our problem as a country. 30+ years of talk radio, fox news, and social media hatemongering has made a part of the country view their own countrymen as sub-human enemies.
+
+Central American concentration camps dont matter, rape doesnt matter, killing democracy doesnt matter... because its just 'democrats'. They arent "Americans I disagree with" or even "Human beings that deserve basic decency" . They are enemies, who deserve every evil that can be inflicted upon them.
+
+Republicans have gotten so tribal and so hate filled that there is no bottom. There is no voice left that says "We are better than this. This behavior is beneath us". And now Foxs News Grandpa is in charge... the unrestricted hateful id of millions of frightened and angry people who have never set foot in America's cities are champing at the bit to wipe them out to save a version of America that exists only in their minds.
+
+Meanwhile, the billionaires who set this all up have to be rolling on the floor laughing that they found so willing an army to keep them safe from anything that might actually make regular American lives better.
+
+It would be comedy if it wasnt tragedy."
+
+&nbsp;
 
 
 
