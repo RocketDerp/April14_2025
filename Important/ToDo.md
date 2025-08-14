@@ -358,3 +358,19 @@ https://old.reddit.com/r/PoliticalHumor/comments/1mpwq8c/_/n8neqnx/
 
 The entire comic and topic.
 
+&nbsp;
+
+&nbsp;
+
+Remedial morality   
+Where do we teach morality? The Church was doing a bad job of teaching morality in USA society year 1935 so we largely abandoned church in the 1960's (Woodstock, rock music, The Beatles, etc)... but shcools do not teach morality. Malala in Swat Valley Pakistan describes how corrupt teaching of morality (like 1935 Church in USA) is bad and reforms moralty education. She actively describes what is right and what is wrong (despite being a Muslim, Malala support films about transgender, etc).   
+
+https://old.reddit.com/r/sports/comments/1mpz6w0/body_cam_footage_shows_olympic_sprinter_shacarri/
+
+"Sha’Carri Richardson put her hands on her boyfriend and was arrested on a fourth-degree domestic assault charge. She falsely accused her boyfriend of being the one who hit her but the airport security cameras showed otherwise. And then she told the cops verbatim “why am I being arrested and he’s the man in the situation?”. You can’t make this stuff up…"
+
+I think the USA social media society of Bluesky and Reddit need to develop a morality Wiki on parenting, marriage, dating, weddings, funerals, car accidents, medical secrecy, mental health resposnes, police responses, voting, deception, war, terrorism, ETC, ETC, ETC, ETC, ETC.  PREVENTION, PREVENTION, PREVENTION through learning, educatin, sharing mistakes. And when a public topic like this comes up (video footage of a person being arrested and public debate), be able to cite and link the Wiki system and show that the problem is known and education and teaching is available on the subject.
+
+We are a reactionary society that is engaged in reacting to "breaking news" events of a person's behavior and not preventative and educational oriented. Malala from Pakistan has shown a consistent focus on educaiton and teaching from her father and her's efforts gong back decades.
+
+
