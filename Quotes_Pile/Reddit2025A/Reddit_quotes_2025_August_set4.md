@@ -28,6 +28,33 @@ https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_
 
 * :::=== RoundSparrow_Commentary : And those years of Fox News messaging (Obama coming on to world stage, campaigh for POTUS 2007 onward), content, were put inside the minds of Fox News audience. Then in March 2013, Russia (working with Cambridge Analytica) mastered the Internet messaging techniques of filliping values in the human mind. Inverting and framing things as us. vs. them... USA vs. USA, not USA vs. Russia. ["At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation." - September 9, 2014 (more than a decade ago](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8nf1vn/
+
+Boring_Pace5158 2020-09-12
+
+"They accused Obama doing the stuff they're doing. The Obama Administration had Homeland Security look into neo-Nazi and White supremist groups, because they've carried out more attacks than Islamic militants in the US. Tucker Swanson McNear Carlson and Fox News were screaming that he was going after Republicans and anyone who disagreed with the Administration."
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 .
 
