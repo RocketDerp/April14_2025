@@ -383,3 +383,9 @@ Model of what the mind is
 Perception gone wrong indicating corruption in perceptial system    
 https://www.youtube.com/watch?v=UzA3MYP1Uac
 
+&nbsp;
+
+&nbsp;
+
+CDC RFK Jr / Anti-vax shooting of building    
+https://www.youtube.com/watch?v=NUruXOniURg
