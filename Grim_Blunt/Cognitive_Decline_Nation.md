@@ -230,3 +230,16 @@ Working together... [Trump, Cambridge Analytica and the Internet Research Agency
 
 Americans have not defended, no sense of civic duty, nobody is taking seriously that measles is still spreading in North America (Texas, Canada, etc) from mind-fucked people that Russia has attacked since year 2014 on Twitter and other media platforms: https://www.bbc.com/news/world-us-canada-45294192
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+### Mocking Trump is not resisting Trump
+
+***February 23 2016*** this is way before the November, 2016 election win.   
+Donald Trump and the Kremlin (working with Cambridge Analytica) has mastered implanting langauge into audience minds.   
+Febuary 23, 2016 "Donald Trump Has Transformed English"    
+https://www.businessinsider.com/donald-trump-has-transformed-english-2016-2
+
