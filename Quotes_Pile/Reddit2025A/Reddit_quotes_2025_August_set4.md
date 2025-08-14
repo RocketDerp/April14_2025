@@ -401,6 +401,16 @@ blinded-by-the-moon 2025-06-01 (recent account)
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mqa9yq/gavin_newsoms_press_conference_was_stormed_by/n8pnbf8/
+
+Not_Bears 2023-09-26
+
+"The Rubicon was when he clearly worked with the Russians during his election campaign in 2016 and everyone just kinda went "meh." "
+
+&nbsp;
+
 
 .
 
