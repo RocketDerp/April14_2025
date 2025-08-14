@@ -276,7 +276,13 @@ specqq 2018-09-02
 
 * :::=== RoundSparrow_Commentary : Exactly. Donald Trump and Putin's Kremlin are dragging down the entire human race, over 8 billion people, since their November 2012 agreeement to use Cambridge Analytica and Russian Internet Reserch agency to wage war against reality and sincerity. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8nkpuy/
+
+epicredditdude1 2019-11-18
+
+"Trump treats American dems worse than he treats Vladimir Putin."
 
 .
 
