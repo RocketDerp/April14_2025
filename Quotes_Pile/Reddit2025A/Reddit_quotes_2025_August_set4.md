@@ -206,6 +206,39 @@ HBKdfw 2021-08-21
 
 &nbsp;
 
+* :::=== RoundSparrow_Commentary :  Levant monomyth gentile / non-believer / inifidel mind patterns. Out-group hate, out-group dehumanization. ["Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа. Затем.. **положить этот образ обратно на всё психотипы и таким образом подобрать универсальный ключик к любому и каждому**."](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8o4385/
+
+BoonDragoon 2019-12-12
+
+"He's saying it doesn't matter that he raped kids, they were Democrats anyway."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8octk9/
+
+T1gerAc3 2019-10-29
+
+"The dems will be outlawed soon. This is just setting the stage for that moment"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8om8a4/
+
+FlaeskBalle 2024-02-25
+
+"Democrats = vermin, he's using language to de-humanize people."
+
+&nbsp;
+
+
+
+
 .
 
 .
