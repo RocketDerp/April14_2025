@@ -483,3 +483,13 @@ Hadrian23 2015-07-20
 They define empathy and caring as "Evil" and the "Other" must be crushed, not understood.    
 These people are total ass holes who revel in the pain the cause."
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mpgent/trump_to_offer_putin_minerals_deal_in_exchange/n8k13k9/
+
+kewlbeanz83 2014-09-11
+
+"Yeah, I'm pretty sure the annexation threats are the thing that myself and other Canadians are most pissed about. Fuckwits in the media live to leave out that part though. They are so complicit in all of this."
+
+* :::=== RoundSparrow_Commentary : For me, this is a huge mass mind / mob mentality issue in USA. People care more about "Epstein List" chanting than the anti-NATO anti-neighbor actions of MULTIPLE PEOPLE in the White House / MAGA towards Canada. It is horrific that anyone in USA would think there is any reason to threaten conquest of Canada by economic means or military means. This kind of thinking only makes sense if self-harm of USA is the intention. Some kind if wild climate change refune plan could have been promosed as a 10-year project (USA pepole having some options to develop and move north), but even then, that is a far-fetched kind of proposal. And in no means would you open up such a topic by the kind of [agressive *USA will make Canada into 51st state*](https://www.axios.com/2025/05/06/trumps-canada-aggression-timeline-carney-visit) proclimations. ===:::
+
