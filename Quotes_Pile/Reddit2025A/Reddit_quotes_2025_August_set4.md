@@ -36,9 +36,31 @@ Boring_Pace5158 2020-09-12
 
 "They accused Obama doing the stuff they're doing. The Obama Administration had Homeland Security look into neo-Nazi and White supremist groups, because they've carried out more attacks than Islamic militants in the US. Tucker Swanson McNear Carlson and Fox News were screaming that he was going after Republicans and anyone who disagreed with the Administration."
 
+&nbsp;
 
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8nhuf1/
 
+Kvetch__22 2016-03-09
 
+"You're missing a legal nuance here. The President does not have the unlimited authority to make the country better, like by delivering healthcare or cancelling student debt. He just has the unlimited authority to make the country safer, which means infnity raids by marines on Home Depot."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8nbvim/
+
+Used_Tea_2651 2025-04-15 (new this year)
+
+"This is a claim that the president’s power has no legal limits. In the U.S., the Constitution and courts are supposed to set those limits. Saying “no limitation” is basically tossing separation of powers and the rule of law out the window."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8ndbl5/
+
+MaleficentCow8513 2024-03-15
+
+"The constitution’s checks and balances assumed that at least one of the branches would maintain its integrity given the other one or two became corrupt af. We’re seeing a breakdown in the constitution because it doesn’t have a response or any procedure to handle this level of collusion amongst the three branches, except ofc the 2nd amendment. What we have right now is effectually government by cartel rather than a constitutional democracy"
+
+* :::=== RoundSparrow_Commentary : Gun stroking gun worship Americans. That guns will fix the problems of not knowing Neil Postman's 1985 book "Amusing Ourselves To DeatH' about Fox News and Twitter. ===:::
 
 
 
