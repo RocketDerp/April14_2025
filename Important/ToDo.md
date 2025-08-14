@@ -349,3 +349,12 @@ me: "Computer industry lore... I used to work for SAP at their USA HQ back in 19
 1980 vs 2025 computer size / body ideals 
 
 https://old.reddit.com/r/anime_irl/comments/1mpd41g/anime_irl/
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1mpwq8c/_/n8neqnx/
+
+The entire comic and topic.
+
