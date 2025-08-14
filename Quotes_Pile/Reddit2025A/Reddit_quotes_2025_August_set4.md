@@ -174,6 +174,14 @@ atrich 2009-10-09
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mq1ld1/trump_privately_dismissed_epstein_victims_as/n8nr6ta/
+
+HoldingForGenova **2025-07-20 (new account)**
+
+"The implication is that Democrats deserve whatever happens to them, because they're evil, the enemy, or both. It's a dehumanization tactic that's been used by the Republican Party for decades now. Said enough times, all Democrats stop being "humans" or "citizens" and start being "Democrats" - and hurting or killing them becomes noble, because you're hurting and killing an evil enemy of humanity."
+
+&nbsp;
+
 
 .
 
