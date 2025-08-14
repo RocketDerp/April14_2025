@@ -18,6 +18,15 @@ thepottsy 2013-04-04 (April 4, 1968, Martin Luther King Jr. was assassinated)
 
 "Can you imagine the pearl clutching if Obama claimed anything remotely like that?"
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mq0g2v/homan_president_trump_doesnt_have_a_limitation_on/n8nhnpu/
+
+-UltraAverageJoe- 2017-10-18
+
+"I’d bet you can find Fox News material from when Obama was president claiming he did or wanted to do many of the things Trump is doing now."
+
+* :::=== RoundSparrow_Commentary : And those years of Fox News messaging (Obama coming on to world stage, campaigh for POTUS 2007 onward), content, were put inside the minds of Fox News audience. Then in March 2013, Russia (working with Cambridge Analytica) mastered the Internet messaging techniques of filliping values in the human mind. Inverting and framing things as us. vs. them... USA vs. USA, not USA vs. Russia. ["At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation." - September 9, 2014 (more than a decade ago](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) ===:::
 
 
 .
