@@ -573,6 +573,35 @@ TheEmeraldRaven 2013-03-24
 
 So while I guess what California is doing for the time being , is better than nothing, eventually, this isn’t gonna work anymore."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqk6pu/was_trump_the_inevitable_endpoint_of_conservatism/n8rn4re/
+
+RemusShepherd 2014-03-15
+
+"The end point of conservatism is greed in all forms. They want life to revert back to how it was in their childhood. They want their race/religion/social class to be dominant and unchallenged. They want more money. They want, they want, they want.
+
+And yeah, Trump is the endpoint of all kinds of greed. Criminal behavior, racism, nationalism, and authoritarianism are all the politics of rampant greed.
+
+The human race needs to realize that because this urge is inside of them, our government systems need to work against it with extreme prejudice."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqk6pu/was_trump_the_inevitable_endpoint_of_conservatism/n8rfmtd/
+
+Eagle4317 2020-06-02
+
+"Here's a terrifying thought: I don't think Trump is the endpoint. I can see someone a lot more competent taking control of the MAGA movement and doing significantly more damage after Trump is gone."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqk6pu/was_trump_the_inevitable_endpoint_of_conservatism/n8rl1ev/
+
+TheLastLarvitar 2023-07-25
+
+"From an Atheist viewpoint, he fulfills literally all the check boxes the Book of Revelation listed, and I'm baffled Christians don't actively preach that he's the antichrist."
+
+&nbsp;
 
 .
 
