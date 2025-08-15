@@ -395,6 +395,26 @@ magwai9 2014-04-14
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mqzway/team_trump_is_actually_drawing_up_attack_plans/n8uohjy/
+
+"Everyone is too busy posting their personal equivalent of thoughts and prayers on social media."
+
+branchoflight 2016-03-07
+
+* :::=== RoundSparrow_Commentary : I do not witness this at all. What I see is media addicts getting to constantly react-comment to the antics and chaos of Donald Trump. People addicted so much to action content in their media consumption that they subconsiously desire more and more Donald Trump wild and crazy behaviors. This has been going on for 10 eyars. This is how Surkov governing works. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mqzway/team_trump_is_actually_drawing_up_attack_plans/n8uj5jq/
+
+jazznessa 2020-03-10
+
+"As a Mexican, wtf Americans, are we going to die just because you guys are too cowardly to stand up?"
+
+* :::=== RoundSparrow_Commentary : Americans are addicted to fiction, Reality TV shows like "The Apprentce" with Donald Trump. "Breakinb Bad" drug cartel in Mexico storytelling is what Americans are willing to die for, Donald Trump White House and Putin's Kremlin rule by creating fiction drama storytelling. That's what USA audiences can not resist. Entertainment politics. In 1985 NYU professor Neil Postman published a book "Amusing Ourselves To Death' that explains this audience of meme consumers behaviors and how it sinks the entire USA. ===:::
+
+&nbsp;
+
 .
 
 .
