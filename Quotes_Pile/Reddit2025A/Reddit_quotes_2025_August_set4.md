@@ -474,6 +474,15 @@ TieFighterHero 2023-04-09
 
 &nbsp;
 
+https://old.reddit.com/r/MurderedByWords/comments/1mqgbm8/the_illusion_of_numbers/n8qldaq/
+
+thegreatsquare  2013-07-16
+
+"Trump is high off his own supply of BS."
+
+* :::=== RoundSparrow_Commentary : Twitter-length simple thinking, Bluesky length. Donald Trump is high, just as his audeience on Reddit is, with Kremlin fiction. Since March 2013. Surkov won. Being reactionary, shallow, superficial, attracted to mockery and insulting is a symptom of this "high" and the Surovian student "supply". ===:::
+
+
 .
 
 .
