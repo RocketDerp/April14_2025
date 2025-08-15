@@ -329,6 +329,14 @@ The idea that Free Speech must be absolute is one of the most damaging and destr
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/n8uv6ib/
+
+Anustart2023-01 2022-12-17
+
+"You're better off letting the right destroy democracy and our way of life than compromising on your ideals or whatever culture war battles. At the end of the day you might end up in poverty, oppresed and possibly in prison or a camp but at least you can hold your head up high"
+
+&nbsp;
+
 .
 
 .
