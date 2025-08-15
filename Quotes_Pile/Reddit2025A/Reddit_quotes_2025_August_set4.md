@@ -301,6 +301,26 @@ Jrylryll 2018-04-18
 
 &nbsp;
 
+Ball_Chinian69 2024-01-26
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/n8uyp74/
+
+"Ok so making fun of fat people is too much but mocking someones body parts that they can't change is okay with you? Wtf is this logic?"
+
+&nbsp;
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
 .
 
 .
@@ -941,14 +961,6 @@ https://old.reddit.com/r/politics/comments/1mqk6pu/was_trump_the_inevitable_endp
 TheLastLarvitar 2023-07-25
 
 "From an Atheist viewpoint, he fulfills literally all the check boxes the Book of Revelation listed, and I'm baffled Christians don't actively preach that he's the antichrist."
-
-&nbsp;
-
-Ball_Chinian69 2024-01-26
-
-https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/n8uyp74/
-
-"Ok so making fun of fat people is too much but mocking someones body parts that they can't change is okay with you? Wtf is this logic?"
 
 &nbsp;
 
