@@ -309,6 +309,26 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/n8uyp74/
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/n8tr4dw/
+
+Strange-Scarcity 2020-02-04
+
+"It's a major problem that needs to be addressed.
+
+Free Speech doesn't mean make shit up and pass it off as real. It SHOULD NEVER protect misinformation and lies. The penalties for misleading the American populace, especially as it pertains to political information should be so steep that nobody would ever want to do so.
+
+The First Amendment was put into place to allow people to speak truth to power and openly talk about grievances they have with the Government, without fears of the Government destroying their lives. That was it.
+
+The early US had some SHARP laws about Chartered Corporations attempting to influence public opinion. It was an immediate corporate death sentence. It was absolutely forbidden. Almost immediately, those with money worked to eliminate that.
+
+The idea that Free Speech must be absolute is one of the most damaging and destructive ideas to our nation, than anything else."
+
+* :::=== RoundSparrow_Commentary : We The People, world wide, being able to idetify **fiction vs. nonfiction** is a massive criss. People in USA still think the 2,000 year old science fiction story The Bible and 1,400 year old Holy Quran are nonfiction! This crisis is boiling over, people are unable to distnguish that Church is a ficiton venue, Mosque is a fiction venue, Fox News HDTV is a fiction venue! It is perhaps the most important education topic of our time in August 2025! Media ecology teaching is not optional, all people age 12 to age 120 in USA need emergency lessons on how to distinguish fiction from nofiction under Kremlin information warfare siege and White House Trump 2025! ===:::
+
+&nbsp;
+
 .
 
 .
