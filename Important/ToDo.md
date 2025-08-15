@@ -424,3 +424,10 @@ commenting manipulation
 "BE WARNED...DUE to the SUBJECT of THIS Video YT is DELETING Comments ABOUT it! | Professor of Rock"     
 https://www.youtube.com/watch?v=IuNjHY6jXKM
 
+&nbsp;
+
+&nbsp;
+
+Fiction and opressing women characters.   
+Not just Hollywood film producers and "the male gaze", but the actual audience pressure to dehumanize women. Bigotry.   
+https://youtu.be/CrlF3icDim8?t=1034
