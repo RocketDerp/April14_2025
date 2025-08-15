@@ -563,6 +563,16 @@ Actual_FactuL_RaptuL 2025-01-06 (new this year)
 
 * :::=== RoundSparrow_Commentary : Trump is showing that the populatiion is broken in the way Neil Postman described in his 1985 book "Amusing Ourseves To Death". Lack of comprehension that media systems alone have wrecked thinking and behavior and none of this is addressing the media addicito problem. People didn't seirously take on Fox News and Kremlin information warfare. Alternate reality that abandons goodness isn't progress. Social media never shut down social media entertainment and became serious while all this was hapening. People noted that Fox News was wreckig minds and Facebook and such but were unwiling to delve into teacing self-awareness of the mechanics, addiction to entertainment and amusement park of social media. Neil Postman's 1985 book. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqc3ab/gov_gavin_newsom_calls_for_a_special_election_to/n8qrg63/
+
+TheEmeraldRaven 2013-03-24
+
+"I don’t know if anybody on Reddit ever looked it up, but I did a bunch of searching today, and realized, that if every single red state gerrymanders to give Republicans the absolute maximum congressional advantage, and every single blue state gerrymanders to give Democrats the absolute maximum congressional advantage, then the Republicans will control Congress in a landslide.
+
+So while I guess what California is doing for the time being , is better than nothing, eventually, this isn’t gonna work anymore."
+
 
 .
 
