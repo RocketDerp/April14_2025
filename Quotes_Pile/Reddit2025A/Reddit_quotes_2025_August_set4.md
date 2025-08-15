@@ -526,6 +526,19 @@ Of course I can't write this. Even MLK Jr's words aren't good enough to describe
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1mqgpmn/consequences_maga_couple_who_threatened_a_young/n8rou68/
+
+Lower-Ad3764 2024-04-14
+
+"No, he is a symptom not the cause. Yes they are more emboldened now but there's something serious, or more likely a series of things, that went wrong at some point in their life that got to them to this point. Poor parenting, childhood abuse, poverty, lead poisoning, poor education, mental illness, alcohol and drugs use -likely a mixed bag perpetuated by legislation that has oppressed any avenue out of it. Add in propaganda and social media and this has been in the works for decades.
+
+Edited to add, regardless of all of this, it is still their responsibility to get their shit together and act with decency and civility."
+
+
+&nbsp;
+
 
 .
 
