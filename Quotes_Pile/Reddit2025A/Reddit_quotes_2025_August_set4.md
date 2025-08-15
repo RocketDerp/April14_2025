@@ -415,6 +415,17 @@ jazznessa 2020-03-10
 
 &nbsp;
 
+https://old.reddit.com/r/ukraine/comments/1mqy4xm/alaskans_just_blindsided_trump_with_massive/n8v5aac/
+
+BadSignificant8458 2020-10-03
+
+"The media is complicit in keeping that buffoon in power. The press loves a train wreck and the mango moron keeps delivering hourly wreckage. News, real news, used to be non profit. Now, it’s all about the bucks and if the truth is sacrificed, so he it."
+
+* :::=== RoundSparrow_Commentary : social media addiction is foundation of Surkov governing / Trump White House. ===:::
+
+
+&nbsp;
+
 .
 
 .
