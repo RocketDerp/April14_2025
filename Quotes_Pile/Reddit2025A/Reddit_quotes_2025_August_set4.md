@@ -387,6 +387,14 @@ njman100 2019-12-26
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mqzway/team_trump_is_actually_drawing_up_attack_plans/n8vdj8d/
+
+magwai9 2014-04-14
+
+"Constantly repeating this just downplays the severity of what he's doing. He doesn't need to distract anyone, he's acting with impunity."
+
+&nbsp;
+
 .
 
 .
