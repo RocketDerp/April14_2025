@@ -181,6 +181,67 @@ The case came to light because a very famous Argentine rock musician, Gustavo Ce
 
 &nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1mqykfi/gavin_newsom_decimated_donald_trump_he_is_a/n8uh1c4/
+
+Noun_Noun_Numb3r **2025-07-09 (new account)**
+
+"They literally are, all the time. I read it here 7 days a week."
+
+&nbsp;
+
+Responsible-Wait1378 2021-01-13
+
+"You’re joking right? 😂 you trust the moron who lost his state 230 billion dollars to run the country? His state is in absolute shambles, it blows my mind on the stupidity & how you guys still haven’t learned your lessons yet from the last election 🤣 democrats aren’t winning anytime soon, unless you’re on this echo chamber of an app, the rest of America hates the democrats, until you guys come back to reality, most of America isn’t touching your insane nominees haha"
+
+* :::=== RoundSparrow_Commentary : Not the "haha" social media laugh track for meme audiences. In 1985, Neil Postman published a book titled "haha Ourselves To Death" about media ecology of Fox News, Reddit, Twitter, Bluesky audiences. Meme consumers. Also note the "joking" framing intro words. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mqykfi/gavin_newsom_decimated_donald_trump_he_is_a/n8ugh9c/
+
+CrapsterWasHere **2025-08-04 (NEW ACCOUNT, with mocking "crapster" name)**
+
+"He DECIMATED Trump and left him FUMING and SHITTING and PISSING himself! It's over, MAGAs 😏"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mqykfi/gavin_newsom_decimated_donald_trump_he_is_a/n8u1quz/
+
+Objective-Lab5179 2021-04-27
+
+"But he's making America great again!
+
+I don't know how.
+
+I don't have any specifics.
+
+I don't have any evidence.
+
+But Trump keeps telling me and I believe him and not anybody else.
+
+I also believe those guys on TV and those social media sites. They give me news the way I want to hear it."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mqykfi/gavin_newsom_decimated_donald_trump_he_is_a/n8u5bsh/
+
+InquiringMin-D 2022-11-24
+
+"The dems need to have more of him and a new slogan....'thank you for your attention to this matter' with a lmao....when you are dealing with a mentally ill person....go as low as the bar has been set. i have no clue why dems are accused of not having game.....they are competing with a lunatic and that is the standard"
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mr012l/white_house_posts_insane_video_of_over_20_armed/n8udvdk/
+
+Spare-Plum 2020-02-04
+
+"Oh hun we've passed conservatism 81 exits ago. We're in full blown fascist territory now"
+
+
 .
 
 .
