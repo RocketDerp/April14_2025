@@ -466,3 +466,8 @@ Hir0Brotagonist 2018-07-31
 
 It's entertaining and funny that Donald Trump dong Tony Clifton lets people say hot takes. Content entertainment of the content king Donald Trump! Spare time and free time to use social media to commemnt abou thow funny it is that Donald Trump is so terrible and aweful that "hot take" isn't even hot enough! The words not avaialble to amused We The People: alarmed, disturbed, we all need to stop entertainment and be serious about Donald Trump and Fox News and MAGA cults.
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/
+
+Bluesky content on front page of Reddit. hilarious hilarious hilarious funny and amusing and entertaining, just as described by Neil Postman in his 1985 book "hilarious Ourselves To Death". People adopting Surkov Kremlin media tactics to add even more bullshit to the war against reality. Sincere education and teaching of Neil Postman's books avoided at all cost while people adopt more and more photoshop and AI images in the War Against Real World / Realty itself that the Kremlin launched on the World Wide Web in March 2013. Russia won, Surkov won.
