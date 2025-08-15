@@ -148,6 +148,16 @@ this_my_sportsreddit 2021-02-02
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mqvsj5/obama_puts_gop_on_blast_over_redistricting_ploy_a/n8tmv80/
+
+SmoothBrain3333 2023-08-23
+
+"Look at how gerrymandered Illinois is and the northeast of the US. Is that a threat to democracy too?"
+
+* :::=== RoundSparrow_Commentary : Democracy does not work if you do not love one another. If you do not love your neighbor, democracy does not work. There is a unwritten implicaiton in The Constittuion that people wifully choose to lvoe one another, share, and treat each other with authentic goodness. Nazi Germany was a democracy where love was abandoned, Nazi Germany abnadoned goodness. Democracy will create Hell if the only measure and desire is to focus on popularity and numbers and act like compassion and love don't matter. If murder is trending on social media, killing encouraged, chasing the popularity wtih media systems will create Hell. A democracy that creates Hell is unacceptable. People are acting as if informaiton warfare from Cambrige Analytica and the Russian IRA doesn't matter - despite seeing evidence all aroudn then that *hate motivated politics* is consuming the USA since March 2013 when the IRA went online. **If you adopt hate as popularity, democracy will create Hell**. It is unwritten rule that needs to be educated: hate and Hell are not accpetable. Fiction govenring is not acceptable. Sincere honest loving compassionate government has to be a desire and function of democracy. [Love and compassion are not optional in society](https://www.youtube.com/watch?v=OIe7N3zH5eU). ===:::
+
+&nbsp;
+
 .
 
 .
