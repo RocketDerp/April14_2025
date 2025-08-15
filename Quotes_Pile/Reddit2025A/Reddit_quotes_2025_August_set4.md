@@ -253,6 +253,25 @@ Donald Trump can do everything he wants and as long as r/Conservative people see
 
 &nbsp;
 
+https://old.reddit.com/r/TikTokCringe/comments/1mr012l/white_house_posts_insane_video_of_over_20_armed/n8ue6sn/
+
+Rts_5ever 2012-08-11
+
+"Not all people with small dicks are like this. They make us look bad. I know we can’t really make it bigger without surgery that might not work. However, Cosplaying with real guns doesn’t make it bigger. Im proud of what I have. Let’s not stoop to this police state shit. I mean this country has always been a police state at least since the beginning of the 20th century. It’s getting WORSE. Arresting a guy for throwing a SANDWICH dressed up as wanna be GI Joes is disgraceful. I’m done. 😂😅😞😭"
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mr012l/white_house_posts_insane_video_of_over_20_armed/n8ugjqy/
+
+allisjow 2014-08-03
+
+"Wait I honestly thought this video was made to show how ridiculous this was. It took me a minute to realize the White House posted this."
+
+* :::=== RoundSparrow_Commentary : Surkov governing White House, Surkov media techniques of Kremlin. [Peter Pomerantsev "Nothing is True and Everything is Possible" - December 2014 book tour](https://www.youtube.com/watch?v=5Au332OG-M4) ===:::
+
+
+&nbsp;
+
 .
 
 .
