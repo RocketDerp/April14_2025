@@ -291,6 +291,16 @@ Hot_Bass_3883 2021-12-20
 
 &nbsp;
 
+https://old.reddit.com/r/TikTokCringe/comments/1mr012l/white_house_posts_insane_video_of_over_20_armed/n8ucv9c/
+
+Jrylryll 2018-04-18
+
+"That is HILARIOUS!!! Please watch the video filmed by a black guy who did the funniest narration of this guy slapping the cop with a sandwich and getting chased down by a half dozen cops. Apparently he not only got completely away he had enough time to call the cops, change clothes before the Gestapo got there. How do we find out how the cop (who got sandwich bitchslapped)his vest, is it ok?"
+
+* :::=== RoundSparrow_Commentary : Putin and Surkov found that creating HILARIOUS!!! content is the most powerful way ever divsed anywhere in the world to concentrate power and wealth. This is Russian Kremlin media techniques, published by the White House in August 2025. Antics governing, Tony Clifton acting HILARIOUS!!!! ===:::
+
+&nbsp;
+
 .
 
 .
