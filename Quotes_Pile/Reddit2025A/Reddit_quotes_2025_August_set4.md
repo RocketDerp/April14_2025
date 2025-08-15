@@ -10,6 +10,37 @@ Tensyrr 2021-11-27
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1mqqwrw/ai_experts_return_from_china_stunned_the_us_grid/n8tiajk/
+
+tompkinsedition 2013-07-26
+
+"We’ve also cut federal funding across multiple areas such as medical research, technology, renewable energies, etc.
+
+This on top of refusing partnerships with our allies will have a devastating effect on our country that won’t rear its head until it’s too late. We’ll continue to fall further back in an industries until not only are we not a superpower, but barely a relevant country at all.
+
+At least our insatiable consumerism will keep us relevant"
+
+&nbsp
+
+https://old.reddit.com/r/technology/comments/1mqqwrw/ai_experts_return_from_china_stunned_the_us_grid/n8tmwx8/
+
+TryDry9944 2023-11-11
+
+"Oh it wasn't for no reason.
+
+Our president is a Russian asset actively trying to sabotage America.
+
+No *good reason* does not mean *no* reason."
+
+&nbsp;
+
+https://old.reddit.com/r/funny/comments/1mqtzdg/if_theres_one_video_thats_almost_guaranteed_to/n8tfy5j/
+
+hi-imBen 2019-07-13
+
+"You don't see the difference between movies and TV shows, and this staged video? Nothing about this indicates it is fiction, and they are trying to present it as a genuine reaction caught on camera. When you watch a TV show, you already have the expectation that you are watching actors."
+
+&nbsp;
 
 .
 
