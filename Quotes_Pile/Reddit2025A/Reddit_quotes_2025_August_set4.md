@@ -106,7 +106,15 @@ amateurbreditor 2015-01-17
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mqvsj5/obama_puts_gop_on_blast_over_redistricting_ploy_a/n8tgmu2/
 
+Reviews-From-Me 2023-03-19
+
+"Our country is falling apart, and it's entirely because Trump is in power. Those who voted for him, and those who refused to back Harris in the last election, are the reason we may never have a legitimate election again."
+
+* :::=== RoundSparrow_Commentary : Donald Trump is a force of nonstop media engagement, content creation. Now generative artifical intelligence can produce this same kind of engaging shock content and fiction. We need to address We The People addiciton to fiction - Donald Trump White House is driven by fiction, MAGA is driven by fiction, Fox News is fiction, Newsmax is fiction. Sports style rectangle "in the box" reactionary predictable thinking. Real Life is not a rectangle sports field with seating around it. It's simulacra and we are self-exploting our own minds by framing everything the with fiction the way Kremmlin / Trump / MAGA / Fox News / Newsmax / etc does. "Our country is falling apart" - We The People's attraction to sincere nonfiction leadership and content has fallen apart. ===:::
+
+&nbsp;
 
 .
 
