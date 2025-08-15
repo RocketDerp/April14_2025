@@ -377,6 +377,16 @@ I’m not giving up—I will of course still vote and encourage others to do so.
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mqzway/team_trump_is_actually_drawing_up_attack_plans/n8un61b/
+
+njman100 2019-12-26
+
+"Anything Trump 💩does is a red herring to the underlying actions of this Fascist regime. The action is to kill Americans, keep them Sick and Starving. They steal from the 99%, more and more. Everyone talks about the Red States will feel the brunt of the cuts. Then What? A predator (GOP) will move on. The Democracy of the United States of America, died last November. Will it ever rise again?? Not before a rising of reasonable Citizens to change the tide of this Fascist regime. Time will tell. Let’s see if there are Heroes left in North America."
+
+&nbsp;
+
 .
 
 .
