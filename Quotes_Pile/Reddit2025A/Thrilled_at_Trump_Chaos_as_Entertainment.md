@@ -482,4 +482,4 @@ Daimakku1 2015-05-31
 
 "He’s trolling the shit out of Trump, I love it."
 
-People are adopting Kremlin information warfare and behaving like Russia in year 2011, people love it! Insincere trolling, ["Operaion Matthew 4:19" that started in November 2012 by billionaires working togeether, Trump and Putin](../../Operation_Matthew_4_19_on_monday_2024-03-31.md) - people love it! Americans eat this shit up and love it.
+People are adopting Kremlin information warfare and behaving like Russia in year 2011, people love it! Insincere trolling, ["Operaion Matthew 4:19" that started in November 2012 by billionaires working togeether, Trump and Putin](../../Operation_Matthew_4_19_on_monday_2024-03-31.md) - people love it! Americans eat this shit up and love it. "He’s trolling the shit out of Trump, I love it." == *He’s ***trolling the shit out of social media addiction society***, I love it.*
