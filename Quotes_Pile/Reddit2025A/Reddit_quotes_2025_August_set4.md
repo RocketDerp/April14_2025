@@ -18,7 +18,13 @@ jpmeyer12751 2021-01-25
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mr8qcq/a_new_zealand_mother_and_her_6yearold_son_made_a/n8wlbye/
 
+kehlarc 2011-05-02
+
+"Simple, it's terrorism. Trump wants to make the US so unappealing to anyone not born here that they will not consider ever coming here for any reason."
+
+&nbsp;
 
 .
 .
