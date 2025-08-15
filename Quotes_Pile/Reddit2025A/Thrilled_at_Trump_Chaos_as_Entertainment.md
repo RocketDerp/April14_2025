@@ -452,3 +452,17 @@ https://old.reddit.com/r/MurderedByWords/comments/1mp2yyl/i_mean_this_is_a_perfe
 
 "perfect", yha, Operation Matthew 4:19 from Kremlin nobody on Reddit can discuss, nobody can discuss the Internet Research Agency and the long-term mental corruption of doctors / psychologists and psychiatrists of Cambridge Analytica. "perfect trolling", eating the Surkovian onions and declaring the onions so sweet. Russia defeated the USA to be attracted to anti-intellectual Donald Trump behaviors and antics and is cheering on people who adopt Donald Trump techniques. Matthew 4:19 Jesus Freaks being cheered on for adopting trolling sort of mindset, that always more trolling fixes the problem, always more absurd, always more anti-reality surreal. Without anyone on Reddit and Bluesky calling out that [**this article in September 2014, more than a FULL DECADE AGO** describes it as Russian information warfare, anti-reality](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/), anti-truth, fiction vs. nonfiction. Fiction addicts think more bullshit fiction SpongeBob is going to make media addiction problems go away when it is the very cause since IRA ramped up starting in March 2013! The Kremlin mind-fuck has seeded a **race to the bottom** of human thinking in USA, an arms race of dumb and dumber. Carl Sagan warned of this in 1995, Neil Postman in 1985!
 
+&nbsp;
+
+# Friday August 15, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mqykfi/gavin_newsom_decimated_donald_trump_he_is_a/n8u6kdu/
+
+Hir0Brotagonist 2018-07-31
+
+"It's funny because nothing he's saying is a hot take. It's all objectively true. I think it's probably more accurate to claim that Trump is the worst president of all time though"
+
+It's entertaining and funny that Donald Trump dong Tony Clifton lets people say hot takes. Content entertainment of the content king Donald Trump! Spare time and free time to use social media to commemnt abou thow funny it is that Donald Trump is so terrible and aweful that "hot take" isn't even hot enough! The words not avaialble to amused We The People: alarmed, disturbed, we all need to stop entertainment and be serious about Donald Trump and Fox News and MAGA cults.
+
