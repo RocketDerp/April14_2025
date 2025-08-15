@@ -494,6 +494,29 @@ That really says a lot about this whole situation"
 
 * :::=== RoundSparrow_Commentary : Humor brain exploits are common. Neil Postman's 1985 book "Amusing Ourselves To Death" about detachment from nonfiction. ===:::
 
+&nbsp;
+
+"I’m seeing this a lot in any kind of right wing communities. Incels, maga, conservatives all seem to have one thing in common - they cannot see anything that happens to them as their fault. Literally nothing could be caused by them being pieces of shit or having no empathy for others.
+
+It’s democrats faults everything is bad, it’s women’s fault they won’t date you, it’s the evil liberals getting you fired from your job.
+
+Couldn’t be that you’re an evil, selfish pile of shit and people tend to be pushed away from that"
+
+.
+
+.
+
+***I would be better copying and pasting quotes from two dozen books than use my own brain damaged frustarted writing. But I can't do either. And I'm so sick of people falling into out-group hate patterns at the hands of Cambridge Analytica and Surkov Kremlin style informaiton warfare.***
+
+* :::=== RoundSparrow_Commentary : The Rupert Murdoch Fox News talking points: you are self-responsible and pick yourself up by your own bootstraps. A corrupt society causes climate change and you stress about your children's future... you are weak-minded. "It’s democrats faults everything is bad" - except it is actually Putin and Donald Trump's fault for being role models that truth, nonfiction, and sincerity are trashed in the USA in year 2025. Same goes for Palestine terrorism and Israel overkill lack of compassion, the clergy doesn't adopt Malala from Pakistan reformations from October 8, 2013 book she published. Marketing, advertising, manipulation is used to make understanding and compression based on emotional manipulation of everyday people. All this "logic" in this Reddit message is exactly the kid of shit that Donald Trump White House would imply liberals do by not being MAGA supporters, hard working obedient people.  It avoids a grater forest for trees perspective of humanity. That love and compassion and understanding needs to be expanded all across the world, it isn't a dog eat dog cut-throat competitive species that wrecks other species in lack of working together sincerely and being honest. Anti-empathy and anti-compassion values of competition. "caused by them being pieces of shit or having no empathy for others" exactly like this very Reddit message, which is not about offering education and teaching (such as informing history of Russian information warfare against USA, history of comparative mythology and how Levant religions are backwards in thinking goodness comes from outer-space aliens who beam down rescue messages), but out-group insulting and mocking. Which are MEGA supremacy values. "I’m seeing this a lot in any kind of right wing communities." in the Reddit message... I'm seeing a lot of the problem described in Amusing Ourselves To Death book from year 1985 authored by Neil Postman. People with faith in left-wing vs. right-wing who won't abandoned the simplistic thinking that is drilled into them by parents that all is left vs. right and view things as Carl Sagan does, fiction vs. non-fiction science. Instead of reading my brain-damaged writing on all these topics, I suggest reading Neil Postman and Carl Sagan and Malala from Pakistan and others and not just engaging in the out-group hate patterns of Russian information warfare that started in March 3013 on social media networks. "it’s the evil liberals getting you fired from your job" - so if you are mind-fucked by Rupert Murdoch Fox News and Russian information warfare... and you say incorrect things and someone calls the police and the police shoot you out... you can't blame the police for being gun-happy ... because it is your fault that billionaires at the Kremlin and billionaires of Rupert Murdoch are better at fucking over your brain ... a predatory nation that turns police officers against everyday people is always the fault of MAGA supporters. Maybe the best editor in the world could explain my point that has been made by others about the Middle Ages Church fucking over the population and how that attitude relates to this Reddit message claim that blaming A vs. B at the low level doesn't see the entire education system of the clergy has fucked over both A and B who don't recognize it until Martin Luther in Germany on Halloween over 500 years ago spills the inside beans on many of the corrupt education practices of the Clergy. So frustrating that we can't work together on this common problem - and better writers without brain damage can't address the out-group hate on Reddit messages like this that I witness every hour of every day.  ===::::
+
+.
+
+.
+
+I woke up in the middle of the night and I already know that everythng I have ever written in my life has failed and that nobody in all the public library has been able to confince humanity that the problems of over 8 billion people are common and to stop viewing and addressing this tree after tree and start looking at the common cause forest level. Malala being ignored by social media user, people who are articulate, good communicators are avoided. Same with Neil Postman's 1985, 1992 1995 books. They ar not perfect, but they aren't what USA society has become of hate upon MAGA and hate upon Donald Trump where nobdy wants to address the fundamental faith in hate itself making the future better, which it does not. That hate corrupts thining that people can't even see their avoidance of Neil Postman's books, Carl Sagan's books, Malala's global reformation of gender and religions. Here I already again minding my language and brain damage not communicating well enough.
+
+&nbsp;
 
 
 .
