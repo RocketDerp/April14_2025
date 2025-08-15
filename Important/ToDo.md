@@ -431,3 +431,8 @@ https://www.youtube.com/watch?v=IuNjHY6jXKM
 Fiction and opressing women characters.   
 Not just Hollywood film producers and "the male gaze", but the actual audience pressure to dehumanize women. Bigotry.   
 https://youtu.be/CrlF3icDim8?t=1034
+
+&nbsp;
+
+Reality isn't optional. Without realism there is nothing to be local about.   
+https://www.youtube.com/watch?v=tVr8OW-wX9I
