@@ -401,3 +401,11 @@ Is Trump's Chaos Tornado a Move From the Kremlin's ...
 Vanity Fair    
 Mar 28, 2017 — This was the futuristic non-linear warfare Surkov had slyly telegraphed in his dystopian story. It is a strategy, he has said       
 https://www.vanityfair.com/news/2017/03/is-trumps-chaos-a-move-from-the-kremlins-playbook
+
+&nbsp;
+
+&nbsp;
+
+Give up on the way reality works and give up on science as Carl Sagan wrote in 1995 book... adopt Donald Trump anti-reality simualcra from Russia... give up that the way things used to work were good and keep on adopting more and more ChatGPT / GrokAI / Kremlin anti-reality trajectory that Rick Roderick in 1993 talked about....     
+https://old.reddit.com/r/Fauxmoi/comments/1mqd9j7/gavin_newsom_on_trump_he_doesnt_believe_in_the/
+
