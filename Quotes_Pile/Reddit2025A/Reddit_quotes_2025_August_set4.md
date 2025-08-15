@@ -269,6 +269,15 @@ allisjow 2014-08-03
 
 * :::=== RoundSparrow_Commentary : Surkov governing White House, Surkov media techniques of Kremlin. [Peter Pomerantsev "Nothing is True and Everything is Possible" - December 2014 book tour](https://www.youtube.com/watch?v=5Au332OG-M4) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mr012l/white_house_posts_insane_video_of_over_20_armed/n8ugxl8/
+
+AnimeJuice999 2023-01-14
+
+"Literally can’t believe things are even real sometimes. Trump makes absolutely no sense whatsoever.."
+
+* :::=== RoundSparrow_Commentary : Surkov governing White House, Surkov media techniques of Kremlin, the War Against Reality. [Peter Pomerantsev "Nothing is True and Everything is Possible" - December 2014 book tour](https://www.youtube.com/watch?v=5Au332OG-M4) ===:::
 
 &nbsp;
 
