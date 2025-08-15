@@ -409,3 +409,9 @@ https://www.vanityfair.com/news/2017/03/is-trumps-chaos-a-move-from-the-kremlins
 Give up on the way reality works and give up on science as Carl Sagan wrote in 1995 book... adopt Donald Trump anti-reality simualcra from Russia... give up that the way things used to work were good and keep on adopting more and more ChatGPT / GrokAI / Kremlin anti-reality trajectory that Rick Roderick in 1993 talked about....     
 https://old.reddit.com/r/Fauxmoi/comments/1mqd9j7/gavin_newsom_on_trump_he_doesnt_believe_in_the/
 
+&nbsp;
+
+&nbsp;
+
+Male exercise bonding, drunk girl bathroom makeup bonding.   
+https://old.reddit.com/r/GuysBeingDudes/comments/1mqcz9u/now_thats_the_kind_a_support_we_need/
