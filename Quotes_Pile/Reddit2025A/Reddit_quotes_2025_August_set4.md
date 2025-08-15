@@ -539,6 +539,30 @@ Edited to add, regardless of all of this, it is still their responsibility to ge
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mqc3ab/gov_gavin_newsom_calls_for_a_special_election_to/n8q0ko8/
+
+Syncopia 2012-05-11
+
+"Scorched multi-verse. Never let Republicans win another election ever again. When all this is over, we need to completely dismantle and ban the Republican party forever. When factoring in climate change, they are the single greatest threat to all life on earth."
+
+* :::=== RoundSparrow_Commentary : Same sort of thing I am witnessing from MAGA towards liberals. Or Isreal towards Palestine. Or Russia towards Ukraine. People willing to punish without addressing or standing up for education. If the case can't be made for goodness, it's humanity as usual - war afer war all over planet Earth. We in the USA had education from all over the world to piss it away on social media reaction comments and avoiding learning Russian information warfare since March 2013. ===:::
+
+&nbsp;
+
+con247 2012-09-29
+
+"Yep. Mar a lago could have received a drone strike legally, as long as it was an official act."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqc3ab/gov_gavin_newsom_calls_for_a_special_election_to/n8ramli/
+
+Actual_FactuL_RaptuL 2025-01-06 (new this year)
+
+"Trump is showing you that the system is broken, and he’s taking advantage of it. Newsom seems to be the only politician on the other side recognizing this and responding in kind. Business as usual are over."
+
+* :::=== RoundSparrow_Commentary : Trump is showing that the populatiion is broken in the way Neil Postman described in his 1985 book "Amusing Ourseves To Death". Lack of comprehension that media systems alone have wrecked thinking and behavior and none of this is addressing the media addicito problem. People didn't seirously take on Fox News and Kremlin information warfare. Alternate reality that abandons goodness isn't progress. Social media never shut down social media entertainment and became serious while all this was hapening. People noted that Fox News was wreckig minds and Facebook and such but were unwiling to delve into teacing self-awareness of the mechanics, addiction to entertainment and amusement park of social media. Neil Postman's 1985 book. ===:::
+
 
 .
 
