@@ -281,6 +281,16 @@ AnimeJuice999 2023-01-14
 
 &nbsp;
 
+https://old.reddit.com/r/TikTokCringe/comments/1mr012l/white_house_posts_insane_video_of_over_20_armed/n8uddb8/
+
+Hot_Bass_3883 2021-12-20
+
+"America is a fucking joke"
+
+* :::=== RoundSparrow_Commentary : **Since March 2013**, the Internet Research Agency and other Kremlin information warfare has seeded addiction to fiction and antics politics and avoidance of nonfiction. This is called the ["War Against Reality"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Putin has found that the most poewrful way to concentrate power and wealth is to use jokes / humor / absurd funny / surreal absurd antics / Tony Clifton style audience engagement. Putin has been in power for 25 years. ===:::
+
+&nbsp;
+
 .
 
 .
