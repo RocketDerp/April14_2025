@@ -471,3 +471,15 @@ It's entertaining and funny that Donald Trump dong Tony Clifton lets people say 
 https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/
 
 Bluesky content on front page of Reddit. hilarious hilarious hilarious funny and amusing and entertaining, just as described by Neil Postman in his 1985 book "hilarious Ourselves To Death". People adopting Surkov Kremlin media tactics to add even more bullshit to the war against reality. Sincere education and teaching of Neil Postman's books avoided at all cost while people adopt more and more photoshop and AI images in the War Against Real World / Realty itself that the Kremlin launched on the World Wide Web in March 2013. Russia won, Surkov won.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/n8tgk5g/
+
+Daimakku1 2015-05-31
+
+"He’s trolling the shit out of Trump, I love it."
+
+People are adopting Kremlin information warfare and behaving like Russia in year 2011, people love it! Insincere trolling, ["Operaion Matthew 4:19" that started in November 2012 by billionaires working togeether, Trump and Putin](../../Operation_Matthew_4_19_on_monday_2024-03-31.md) - people love it! Americans eat this shit up and love it.
