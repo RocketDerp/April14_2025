@@ -170,3 +170,15 @@ Believing in fiction, telling their own self fiction. They have never been educa
 "Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
 ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America. 2019
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+August 14, 2025    
+https://old.reddit.com/r/politics/comments/1mqk6pu/was_trump_the_inevitable_endpoint_of_conservatism/
+
+"Was Trump the Inevitable Endpoint of Conservatism?"    
+Nobody discussing [Putin's December 2013 call for "Conservative International"](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/)    
+
