@@ -389,3 +389,15 @@ https://www.youtube.com/watch?v=UzA3MYP1Uac
 
 CDC RFK Jr / Anti-vax shooting of building    
 https://www.youtube.com/watch?v=NUruXOniURg
+
+
+&nbsp;
+
+&nbsp;
+
+I don't believe I've covered this from early 2017 when Trump was just in office for the first time.
+
+Is Trump's Chaos Tornado a Move From the Kremlin's ...     
+Vanity Fair    
+Mar 28, 2017 — This was the futuristic non-linear warfare Surkov had slyly telegraphed in his dystopian story. It is a strategy, he has said       
+https://www.vanityfair.com/news/2017/03/is-trumps-chaos-a-move-from-the-kremlins-playbook
