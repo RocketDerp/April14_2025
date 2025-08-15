@@ -42,12 +42,38 @@ hi-imBen 2019-07-13
 
 &nbsp;
 
+https://old.reddit.com/r/Gamingcirclejerk/comments/1mqv4ro/should_have_known_that_the_moldy_rat_was_behind_it/n8thwsv/
+
+Malusorum 2014-03-27
+
+"It's more than just jealousy. The expression of his specific Conservative ideology sees women as naturally inferior than men at anything deemed a masculine activity.
+
+FPS are a traditional masculine activity, and thus any women that's good at it must be cheating, somehow, because there's no way that he as a superior man could have gotten his cheeks clapped legitimately by a skilled women, "because women are naturally inferior to men"."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqum7e/why_republicans_are_terrified_of_nonexistent_crime/n8t95zq/
+
+VideoGameDevArtist 2016-08-05
+
+"Lack of education. Lack of balanced news media. Lack of world perspective. Lack of empathy.
+
+That'd be my top four reasons."
+
+&nbsp;
+
+
+.
+
+.
+
 .
 
 .
 
 .
 
+.
 
 .
 
