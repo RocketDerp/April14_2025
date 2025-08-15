@@ -1,3 +1,35 @@
+# Friday August 15, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/alaska/comments/1mqou2d/alaskans_just_blindsided_trump_with_massive/n8t8h71/
+
+Tensyrr 2021-11-27
+
+"Can we just fast forward through this horrible timeline to a once again stable USA. Like holy fuck. I'm 35 and terrified to have kids with the current state of the world, but I also don't feel like it's fair to me to go without because of things beyond my control. Every day we wake up, read 5 horrible news stories and are slowly being desensitized while sleepwalking into a dictatorship over DONALD FUCKING TRUMP. WAKE THE FUCK UP!!"
+
+&nbsp;
+
+
+.
+
+.
+
+.
+
+
+.
+
+.
+
+.
+
+.
+
+&nbsp;
+
+
+
 # Thursday August 14, 2025
 
 &nbsp;
