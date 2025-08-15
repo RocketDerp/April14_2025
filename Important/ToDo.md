@@ -442,3 +442,7 @@ https://www.youtube.com/watch?v=tVr8OW-wX9I
 Women who recognize that boob images sell and draw attention to their artwork.    
 https://old.reddit.com/r/memes/comments/1mr0nt0/its_not_a_criticism_just_an_observation/
 
+&nbsp;
+
+Left vs. Right regarding Islam and social media users who don't grasp the history of France and Islamic Algeria.    
+https://old.reddit.com/r/movies/comments/1mr9egt/barbie_screening_cancelled_in_paris_after_extreme/
