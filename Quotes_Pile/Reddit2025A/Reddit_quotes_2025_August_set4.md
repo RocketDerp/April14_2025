@@ -482,6 +482,19 @@ thegreatsquare  2013-07-16
 
 * :::=== RoundSparrow_Commentary : Twitter-length simple thinking, Bluesky length. Donald Trump is high, just as his audeience on Reddit is, with Kremlin fiction. Since March 2013. Surkov won. Being reactionary, shallow, superficial, attracted to mockery and insulting is a symptom of this "high" and the Surovian student "supply". ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mqixam/man_fleeing_home_depot_immigration_raid_is_hit/n8raywt/
+
+nefthep 2012-02-24
+
+"Trump supporters are laughing at this story
+
+That really says a lot about this whole situation"
+
+* :::=== RoundSparrow_Commentary : Humor brain exploits are common. Neil Postman's 1985 book "Amusing Ourselves To Death" about detachment from nonfiction. ===:::
+
+
 
 .
 
