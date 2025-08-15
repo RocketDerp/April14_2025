@@ -1,4 +1,4 @@
-## Friday Checkpoint A
+### Friday August 25 Checkpoint A
 
 &nbsp;
 
