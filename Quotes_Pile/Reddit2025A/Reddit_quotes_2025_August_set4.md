@@ -26,6 +26,16 @@ kehlarc 2011-05-02
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mr8qcq/a_new_zealand_mother_and_her_6yearold_son_made_a/n8wi40q/
+
+emuwar 2014-05-30
+
+"Canadian here. It’s like witnessing your neighbour who occasionally dabbled in drugs but managed to remain functional and friendly spiral completely out of control.
+
+Such a shame. Was hoping to visit New Mexico again one day 😔"
+
+&nbsp;
+
 .
 .
 
