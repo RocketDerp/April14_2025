@@ -423,6 +423,13 @@ BadSignificant8458 2020-10-03
 
 * :::=== RoundSparrow_Commentary : social media addiction is foundation of Surkov governing / Trump White House. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/ukraine/comments/1mqy4xm/alaskans_just_blindsided_trump_with_massive/n8vpxlk/
+
+catfink1664 2021-04-20
+
+"Yep, trump has caused at least 50 years worth of reputational damage to US international relations, maybe more. At least two generations of people won’t trust america as a true ally, ever again"
 
 &nbsp;
 
