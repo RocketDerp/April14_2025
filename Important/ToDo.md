@@ -436,3 +436,9 @@ https://youtu.be/CrlF3icDim8?t=1034
 
 Reality isn't optional. Without realism there is nothing to be local about.   
 https://www.youtube.com/watch?v=tVr8OW-wX9I
+
+&nbsp;
+
+Women who recognize that boob images sell and draw attention to their artwork.    
+https://old.reddit.com/r/memes/comments/1mr0nt0/its_not_a_criticism_just_an_observation/
+
