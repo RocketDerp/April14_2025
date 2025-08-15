@@ -62,6 +62,27 @@ That'd be my top four reasons."
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mqum7e/why_republicans_are_terrified_of_nonexistent_crime/n8tjglm/
+
+TeaAndAche 2018-12-21
+
+"You’re so right. I had so much family in the Midwest asking me about crime in Portland and Seattle when I was living in the PNW. It was no different than any other city.
+
+And they were all people who will never leave the Midwest for travel or otherwise, be it due to financial concerns, fear, or “why would I travel when everything I need is right here?”
+
+They assume all of these cities in blue states are on fire and crumbling because they lack curiosity and constantly absorb news media that lies to them and wants them to live in fear."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqum7e/why_republicans_are_terrified_of_nonexistent_crime/n8tcvof/
+
+PayTheTeller 2022-05-21
+
+"Fox news needs to be punished for what they did to this country. Just on the issue of covid, they encouraged an apathetic response to their viewers knowing fully their actions would get people killed. The estimated unnecessary deaths the apathetic response directly caused is estimated at close to 100 thousand Americans when we look at other countries death counts versus ours factoring for population, wealth, and hospital capacity. We had 20 percent of the deaths and only 4 percent of the global population. This is an extreme outlier that can ONLY be explained through the murderous and widespread propaganda that was unique in the US.
+
+This is 100 percent on fox news. Now we look at the mass psychosis responsible for our fall to fascism. Again, fox news."
+
+&nbsp;
 
 .
 
