@@ -466,6 +466,14 @@ ButterscotchDisco 2022-04-16
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mqauj5/yes_indeed_he_is/n8qp6up/
+
+TieFighterHero 2023-04-09
+
+"He's a weak old man who's super unhealthy and is (literally) losing his mind. He's a criminal, a pedophile and just an overall asshole. Tell me why this is someone ANYBODY wants to look up to?"
+
+&nbsp;
+
 .
 
 .
