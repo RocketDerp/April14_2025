@@ -1,3 +1,44 @@
+## Friday Checkpoint A
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mr4wip/trump_just_launched_a_new_assault_on_dcs_home/n8w513d/
+
+revolutionary81 2020-08-28
+
+"This is right. Trump is a symptom, not the core of the problem. Demographics, wealth inequality, and a huge wave of social and religious reaction are what is driving this. The infrastructure required to seize power in the way they are doing has been put in place over decades. The courts are the prime example of this phenomenon, but far from the only one. If Trump chokes a cheeseburger tomorrow, those structural factors remain. In fact, it could get worse because power will likely devolve to people with more discipline and ability. The scenes this week of police and military on the streets again are very ominous. Once a leader has full control of the security forces and can weild them in an extra-constitutional manner as he is doing, then there is little hope of removing them peacefully. The only thing that would change that is if the security forces stand down and they won't because they live this. They're a legal right wing militia and they live in constant hope of being let off the leash in this way. They won't hand back this latitude easily. What is happening internationally is even more concerning. The world is changing and not for the better."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mr4wip/trump_just_launched_a_new_assault_on_dcs_home/n8voqif/
+
+jpmeyer12751 2021-01-25
+
+"I'm afraid that we don't have a functioning democracy **today** and by 15 months in the future we'll be in "cancel the mid-terms" territory. SCOTUS is mostly rubber stamping Trump's agenda and Congress is trying to figure out who has the Epstein files. Democrats in Congress are holding hearings, making speeches and wringing hands, but that's all they can really do. It is becoming ever more clear that when the SCOTUS majority declared openly for Trump on July 1, 2024, we lost our democracy."
+
+&nbsp;
+
+
+
+.
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+
+
 # Friday August 15, 2025
 
 &nbsp;
