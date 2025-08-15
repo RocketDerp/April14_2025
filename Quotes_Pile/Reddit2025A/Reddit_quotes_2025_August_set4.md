@@ -86,6 +86,16 @@ This is 100 percent on fox news. Now we look at the mass psychosis responsible f
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mqvy1l/gavin_newsom_accuses_donald_trump_of_bending_his/n8titg0/
+
+19chris1996 **2025-07-02 (new account)**
+
+"Newsweek is drunk as always. Trump has been doing this the entire time."
+
+* :::=== RoundSparrow_Commentary : Twitter-length teet-thinking, bluesky-length thinking. Blame Newsweek for what specifically on this posting? Reddit is perfect and only able to criticize when "bad brand" of news comes up, not able to quote the article or cite any speciifc thing. It's a mind-fuck message to not read the article and label news sources to be avoided. "as always" in the comment. [How come this Newsweek article can't be cited from February 2019?](https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793) ===:::
+
+
+
 .
 
 .
