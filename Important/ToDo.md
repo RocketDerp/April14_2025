@@ -415,3 +415,12 @@ https://old.reddit.com/r/Fauxmoi/comments/1mqd9j7/gavin_newsom_on_trump_he_doesn
 
 Male exercise bonding, drunk girl bathroom makeup bonding.   
 https://old.reddit.com/r/GuysBeingDudes/comments/1mqcz9u/now_thats_the_kind_a_support_we_need/
+
+&nbsp;
+
+&nbsp;
+
+commenting manipulation    
+"BE WARNED...DUE to the SUBJECT of THIS Video YT is DELETING Comments ABOUT it! | Professor of Rock"     
+https://www.youtube.com/watch?v=IuNjHY6jXKM
+
