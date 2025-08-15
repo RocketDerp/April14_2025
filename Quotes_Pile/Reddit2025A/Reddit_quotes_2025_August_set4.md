@@ -82,6 +82,8 @@ PayTheTeller 2022-05-21
 
 This is 100 percent on fox news. Now we look at the mass psychosis responsible for our fall to fascism. Again, fox news."
 
+* :::=== RoundSparrow_Commentary : Why hasn't Reddit made [Jen Senko's March 2016 film a household name? You see family report Fox News](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad) problems again and again but people do not want to rally around "The Little Guy" who stands up against it. Fiction news and fiction addiction is core to USA problems. Peopole are not organizing around leaders on these extremely serious topics. Billionares have mastered the produciton values of large-scale popularity and desire people crossing paths on social media conversations, groups of people are not sustaining the most important topics. MAGA can sustain hate of homosexuals and transgender, but Reddit community and Bluesky community can't sustain Fox News topic with Jen Senko's film promotion or some other identifiable intellectual rally point. Ideally outside politicians. ===:::
+
 &nbsp;
 
 .
