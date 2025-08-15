@@ -241,6 +241,17 @@ Spare-Plum 2020-02-04
 
 "Oh hun we've passed conservatism 81 exits ago. We're in full blown fascist territory now"
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1mr012l/white_house_posts_insane_video_of_over_20_armed/n8umm89/
+
+Mucay 2025-01-24 (new this year)
+
+"Conservatism has always been just anti-liberal rather than its own thing
+
+Donald Trump can do everything he wants and as long as r/Conservative people see that the people on r/Politics are complaining then they are happy and smiling ear to ear"
+
+&nbsp;
 
 .
 
