@@ -337,6 +337,46 @@ Anustart2023-01 2022-12-17
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mqzway/team_trump_is_actually_drawing_up_attack_plans/n8uedb1/
+
+Piggywonkle 2016-08-25
+
+"What could possibly go wrong? It's not like we've given our allies any reason to abandon us. And it's not like we have any enemies who may decide to support Mexico and make the war extremely costly. And Texas really just isn't big enough. It could use a little more lebensraum."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mqzway/team_trump_is_actually_drawing_up_attack_plans/n8uvpav/
+
+ThatGuyFromTheM0vie 2019-01-24
+
+"Non-Americans need to stop saying “dumb enough”. That was only stage one, and it ended forever ago.
+
+As an American myself—“dumb” was a VERY polite excuse to hide behind.
+
+Because after while…is it really dumb? Or is this exactly what some of my evil countrymen wanted?
+
+It’s starting to just be the latter, without any doubt. America has been taken over by Nazis. It’s no longer about stupidity or apathy—they wanted this. They wanted a Christian theocracy, they wanted control, they wanted every “ism” under sun like racism—this was what they voted for *deliberately*.
+
+Voting honestly doesn’t matter, because the election was rigged and orchestrated from the start. And now Trump keeps putting more and more and more goons in key federal positions.
+
+Unless they fumble the bag extraordinarily, or someone in Trump’s orbit betrays him like Pence did during Jan 6th—the US is cooked.
+
+Because imagine if Pence DID NOT certify the election. Now Trump has ensured the next time something like that comes up…they will absolutely fall in line.
+
+They weren’t ready in 2016. I don’t even think in 2020. I attribute a TON of that failure to be ready on how much of a wildcard asshole dipshit Trump is—but his handlers have had over 10 years now to plan and be ready.
+
+And they were. The fix is in, and they have the presidency, the house, the senate, the Supreme Court, the FBI, the AG, the labor department….they have almost all of it, and they are only going to take more and more.
+
+We can vote Trump out—but it’s pointless. His handlers are probably planning for him to exit stage left here soon anyway. They did what they needed him to do—be a loudmouth moron to distract everyone—while they eroded institutions slowly and quietly over time.
+
+The checks and balances and guardrails are all but destroyed. How does voting fix that when the system you are voting for is almost gone?
+
+I’m not giving up—I will of course still vote and encourage others to do so. But the situation here is a lot more dire than the world thinks."
+
+&nbsp;
+
 .
 
 .
