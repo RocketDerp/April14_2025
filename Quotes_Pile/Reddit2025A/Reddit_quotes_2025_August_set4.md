@@ -36,6 +36,22 @@ Such a shame. Was hoping to visit New Mexico again one day 😔"
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mr8qcq/a_new_zealand_mother_and_her_6yearold_son_made_a/n8w9wm6/
+
+Quarterafter10 2017-02-22
+
+"I live here and 100% agree. The speed at which this country has regressed and devolved is terrifying."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mr9hl0/pastor_argues_that_women_gave_up_their_right_to/n8wbp4l/
+
+AshuraBaron 2022-03-17
+
+"This is just an ad for this dudes channel. He barely break 1k views on each video. He's basically a nobody whose profile is getting elevated. This seems very manufactured."
+
+&nbsp;
+
 .
 .
 
