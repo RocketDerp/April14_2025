@@ -158,6 +158,17 @@ SmoothBrain3333 2023-08-23
 
 &nbsp;
 
+https://old.reddit.com/r/Damnthatsinteresting/comments/1mqyn2t/argentina_is_investigating_a_shocking_murder_case/n8udore/
+
+AntonxShame 2015-05-30
+
+"This shit is 24/7, in every fucking channel, is a tragedy but its not that important, we got so much fuckin shit going on and all they talk is this"
+
+
+&nbsp;
+
+
+
 .
 
 .
