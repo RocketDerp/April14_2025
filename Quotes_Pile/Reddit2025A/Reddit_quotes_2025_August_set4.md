@@ -944,6 +944,14 @@ TheLastLarvitar 2023-07-25
 
 &nbsp;
 
+Ball_Chinian69 2024-01-26
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mqum9l/hilarious/n8uyp74/
+
+"Ok so making fun of fat people is too much but mocking someones body parts that they can't change is okay with you? Wtf is this logic?"
+
+&nbsp;
+
 .
 
 .
