@@ -446,3 +446,9 @@ https://old.reddit.com/r/memes/comments/1mr0nt0/its_not_a_criticism_just_an_obse
 
 Left vs. Right regarding Islam and social media users who don't grasp the history of France and Islamic Algeria.    
 https://old.reddit.com/r/movies/comments/1mr9egt/barbie_screening_cancelled_in_paris_after_extreme/
+
+&nbsp;
+
+AI upscaling on YouTube    
+https://www.youtube.com/watch?v=86nhP8tvbLY
+
