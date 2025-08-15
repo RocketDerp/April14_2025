@@ -116,6 +116,38 @@ Reviews-From-Me 2023-03-19
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mqvsj5/obama_puts_gop_on_blast_over_redistricting_ploy_a/n8tl54j/
+
+Reviews-From-Me 2023-03-19
+
+"It doesn't matter that the Democrats weren't perfect. We were facing the inhalation of our country and far too many people demanded Harris be perfect otherwise they would choose to end the United States. Now look at where we are. The fucking military is occupying US cities. People are dying in concentration camps.
+
+Anyone who attacked Harris or didn't vote for her is to blame for this disaster."
+
+* :::=== RoundSparrow_Commentary : And what about all the members of Congress who can impeach Donald Trump and represent The People? All this fixation on concentrating all attention and focus on one single person - POTUS Donald Trump. What about tall the voting for nonfiction and superficial content all over every social media platform / entertainment media platforms? The anti-comprehension problems, all the things Neil Postman describes in his critiism of SOCIETY WIDE behaviors in 1985 book "Amusing Ourselves To Death", and how people aren't standing up for learning and teaching of adults - which is what Fox News does. People think education schools for age 15 children is going to fix taht Fox News and sports games is wehere adult voters learn, the Newsmax and Reddit and Bluesky social media trash voting problems? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqvsj5/obama_puts_gop_on_blast_over_redistricting_ploy_a/n8tpwmg/
+
+Lontology 2017-03-08
+
+"Stop trying to blame me after I fucking voted for her. You seem unhinged trying to push the failure of the Democratic Party onto a reddit commenter. Lol"
+
+* :::=== RoundSparrow_Commentary : The United States of America mass mind / mass man is unhinged. Reddit is unhinging society. Fox News, Facebook, Newsmax, White House Press Conferences, etc, etc. Our language and our comprehension has been unhinged by Cambridge Analytica and the IRA since March 2013 and we are not organizing against stupidty - we are just calling other people stupid in out-group patterns. "Lol", in 1985 Neil Postman published a book titled "LOL Ourselves to Death" about Fox News and Reddit wrecking mindsets. The USA is unhinged from nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mqvsj5/obama_puts_gop_on_blast_over_redistricting_ploy_a/n8tus39/
+
+this_my_sportsreddit 2021-02-02
+
+"Ok so why isn’t the entire Democratic Party acting like it? Why is California seemingly the only state willing to fight back? Why was the Democratic Party so lazy and naive in understanding what they’re up against?"
+
+* :::=== RoundSparrow_Commentary : Where is California fighting back. Oh, this person doesn't mean the Democratic Paty, they mean only established leaders, not We The People. Why isn't Reddit making Jen Senko's March 2016 film front page if Fox News is such a problem? Why isn't Reddit shutting down entertainment instead of just promoting guilitines and murder with guns and weapons? Because people do not want to face up that Apple iPhone / Samsung Android / Apple iPad and addiction to reactionary MAGA media systems is core to the IRA and Cambridge Analytica information warfare. "the Democratic Party so lazy and naive in understanding" and MAGA is not naive? And again, are you fixated in 100 leaders or hundreds of millions of American population? What about the population of Twitter, TikTok, Fox News, Reddit, Facebook, social media? Detachment from reality isn't the same as being "naive", being addicted to mockery screen games on social machines insulting a few people and not recogizing that democracy is We The People brinrot in August 2025. "the entire Democratic Party" === 100 million people or you still mean only 100 or 250 representative people? Fixated on figureheads and not bottom-up intelligence and comprehension. Yes, i am repeating and repeating and repeat and repeat and repeat, because the problem is not just Donald Trump who can't resist Kremlin information warfare since March 2013, it is the entire population, 100% of USA, not just MAGA, not just Republicans, EVERYONE, even those too young to vote / nonvoters etc.  The problems Neil Postman describes in his 1985 book "Amusing Ourselves To Death" and the [Kremlin war against Reality are impacting EVERYONE](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and even peole in other NATO nations (and even Japan, outside NATO is reporting Russian war against reality). ===:::
+
+&nbsp;
+
 .
 
 .
