@@ -79,3 +79,14 @@ https://old.reddit.com/r/goodnews/comments/1mrvakv/mr_president_trump_you_stood_
 VendorBuyBankGuards 2012-07-06
 
 "It does man, I sighed too. Even Ronald Reagan had the balls to stand up to Russia, make a demand. Meanwhile we know that Trump is just there making concessions, all to the detriment of the US Citizens and democracy."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mrs4ir/demanding_an_award/n8zov7m/
+
+"This can't be real, there can't be a person so petty that they have every accomplishment of their predecessor in their head that they also must top."
+
+OutragedDom 2019-01-18
+
+* :::=== RoundSparrow_Commentary : Americans have lost the [War Against Reality since March 2013 and are constantly declaring WTF to Kremlin / Putin / Trump / White House antics and behavior](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) since year 2013. USA population and leadership (all of USA) does not understand, grasp, or know how to fight back in a War Against Reality. People think adding more snark and sarcasm to absurd and surreal is going to make it better, when it is more poison to the toxic ocean of meme junk. ===:::
+
