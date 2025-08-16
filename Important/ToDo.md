@@ -461,4 +461,5 @@ https://youtu.be/ZMg3C68NY5s?t=237
 
 Viral marketing expoiting Donald Trump style absurd surreal taste in audiences    
 "This is a literal advertisement playing over a video, how is that better??"    
+Lots of comment engagement over the advertisement, content creators using Trump-style annoyance enagement.    
 https://old.reddit.com/r/Unexpected/comments/1mrk7y0/doordashers_worst_nightmare/n8zevid/
