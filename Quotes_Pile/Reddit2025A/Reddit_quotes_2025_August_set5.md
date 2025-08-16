@@ -70,4 +70,12 @@ The90sMadeMeThisWay 2024-09-16
 
 "Donald Dementia Dump was under the impression he was meeting Cotton Hill, who only killed 50 men."
 
-* :::=== RoundSparrow_Commentary : Fiction and insulting outsells nonfction. [Eating the Surkovian onions](Surkovian_Onion_Eating.md) on a Putin visit to Alaska. Simplstic reactionary to the Tony Clifton behaviors of Putin and Trump onn the world media stages, eating the Onion of the Tony Clifton acts. Surkov won, Russia won. ===:::
+* :::=== RoundSparrow_Commentary : Fiction and insulting outsells nonfction. [Eating the Surkovian onions](Surkovian_Onion_Eating.md) on a Putin visit to Alaska. Simplstic reactionary to the Tony Clifton behaviors of Putin and Trump onn the world media stages, eating the Onion of the Tony Clifton acts. Surkov won, Russia won. Declaring from the audince to the media stage that "Tony Clifton is so dumb and bad and doesnt' realize he is terrible, Tony Clifton must have dementia" to the Trump/Putin duet performance. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mrvakv/mr_president_trump_you_stood_there_like_a_little/n90hn35/
+
+VendorBuyBankGuards 2012-07-06
+
+"It does man, I sighed too. Even Ronald Reagan had the balls to stand up to Russia, make a demand. Meanwhile we know that Trump is just there making concessions, all to the detriment of the US Citizens and democracy."
