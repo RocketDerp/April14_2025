@@ -751,4 +751,14 @@ LastOneSergeant 2016-11-03
 
 This is an unreal timeline."
 
-* :::=== RoundSparrow_Commentary : You get Twitter-length reaction comments like this every hour of every day, but nobody wants to actually be serious about [War Against Reality that started in March 2013 with the Internet Research Agency on the World Wide Web](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). "This is an unreal timeline" - bit social media users aren't asseritng reality and nonfiction, just making pot-shot passing comments about hte decline of USA mass mind and moving on with entertainment ficiton all over social media.  ===:::
+* :::=== RoundSparrow_Commentary : You get Twitter-length reaction comments like this every hour of every day, but nobody wants to actually be serious about [War Against Reality that started in March 2013 with the Internet Research Agency on the World Wide Web](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). "This is an unreal timeline" - bit social media users aren't asseritng reality and nonfiction, just making pot-shot passing comments about hte decline of USA mass mind and moving on with entertainment fiction content all over social media. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps_inner_circle_drop_fbomb/n92qlgq/
+
+Rare-Paramedic-6724 2021-03-23
+
+"He didn't "get fucked", he played himself cause he's either 100% compromised or the biggest fucking idiot this nation has ever created."
+
+* :::=== RoundSparrow_Commentary :  Fixated on ONE single person, Donald Trump. When Russia has mind-fucked the entire population. QAnon and MAGA are symptoms gong back years and years, and not just ONE PERSON who is an "biggest fucking idiot", but everyone acting in self-harm to USA and avoiding Adam Curtis, Christopher Wylie, Peter Pomerantsev nonfiction books. ===:::
