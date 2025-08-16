@@ -482,3 +482,42 @@ HospitalBreakfast 2021-09-07
 "This is why there will be no civil war. The police and military are all with Trump. There will be small and insignificant pockets of resistance. America is over. Anyone who thinks they will give up power and have legitimate elections is living on another planet. America as you knew it is dead."
 
 * :::=== RoundSparrow_Commentary : Russia has won hearts and minds since March 2013 using the Internet Research Agency and modern equivlents. Surkov won. The war is still ongoing. People have not faced up that Cambridge Anahytica and Kremlin informaton warfare has long-term self-harm impacts. Raging egomania and raging denial abounds in USA. Denial of scientific reality about measles and climate change. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1ms4n6y/newsom_is_on_fire/
+
+front page posting on Reddit. Fox News vs. Twitter.
+
+* :::=== RoundSparrow_Commentary : [Everything is Media Ecology...](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91a64c/
+
+bibi_da_god 2019-10-25
+
+"This shit is hilarious, and our country is beyond fucked"
+
+&nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91dcsb/
+
+AlternativeStill7037 2020-09-22
+
+"Yeah at least we get a few laughs as we spiral towards “shithole country” status…"
+
+&nbsp;
+
+theoctagon06 2025-03-03 (this year)
+
+"I wouldn't be surprised if ol Gavin 100% knows that Donald and Stephen use AI and now he's doing it just to make the burn a little deeper. It's kind of pathetic when it comes to this but when you're dealing with a dumb bully you have to stoop to his level sometimes, I guess."
+
+&nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n918vxv/
+
+sayyyywhat 2017-03-08
+
+"The lack of awareness would be hilarious if it wasn’t dooming all of us"
+
