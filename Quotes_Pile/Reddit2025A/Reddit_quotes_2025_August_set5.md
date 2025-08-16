@@ -20,4 +20,12 @@ Jolly-Radio-9838 2025-04-23 (new this year)
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1mrsyz1/says_all_you_need/n8zyyi9/
+
+smac232 2016-04-07
+
+"It's ironic because this MAGA is PRETENDING to be offended that someone threw something at ICE. This is all performative means to an end. They told us who they were 5 years ago, and everything else is grift."
+
+* :::=== RoundSparrow_Commentary : Fiction and PRETENDING far outsells nonfiction. Donald Trump PRETENDING he is Tony Clifton character far outsells authhentic and sincere leaders. I don't consider MAGA ironic as much as exploiting irony addiction, irony poisoning, poisoning nonfiction with audience (We The Peoople) spectacle addiction. ===:::
+
 
