@@ -210,3 +210,30 @@ Quietbutgrumpy 2019-09-17
 
 "Trump is very impressed with Putin. As he follows Putin around slobbering he forgets all the meaningless loss of lives and all the kidnapped children. Crazy times."
 
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mrwphf/one_of_the_most_disgraceful_moments_in_our_history/n90lyue/
+
+vitalsguy 2018-08-08
+
+"Joint Base Elmendorf Richardson and the White House advance team should have thought of this well in advance. Use some techs in civilian coveralls or something for this. Hell of a look."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mrwphf/one_of_the_most_disgraceful_moments_in_our_history/n90lc81/
+
+Euphoriam5 2014-01-27
+
+"This whole administration is disgraceful, but then again, the majority of Americans support it, so I hope all the allies wake up and abandon Trump."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mrwphf/one_of_the_most_disgraceful_moments_in_our_history/n913aop/
+
+Dawg_in_NWA 2017-10-04
+
+"This is why I hate the internet. Some shrub makes an image like this trying to make it show that these soldiers are bowing to a foreign leader when they are just working and securing a carpet it looks like. Its the same as that stupid image of students doing a tornado drill and the poster thinking they are praying for islam or whatever. Some people really need to get some help."
+
+* :::=== RoundSparrow_Commentary : [Everything is Media Ecology...](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+&nbsp;
