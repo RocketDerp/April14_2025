@@ -27,7 +27,7 @@ Consumption of content of the Edward Bernays style / design / students of Edward
 
 &nbsp;
 
-### hallucinations (beveling fiction) from consumption of Russian media
+### hallucinations (believing fiction) from consumption of Russian media
 
 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
