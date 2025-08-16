@@ -1,4 +1,4 @@
-https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n912fxq/
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n92oymq/
 
 &nbsp;
 
