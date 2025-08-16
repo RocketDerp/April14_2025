@@ -669,3 +669,23 @@ tempest_87 2013-04-01
 "He has accomplished some *truly staggering achievements*.
 
 All of them have been terrible awful deplorable things. But they are there."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ms0zdm/republican_chuck_grassley_makes_a_post/n91evx5/
+
+Violet_Paradox **2024-12-22 (new this year)**
+
+"This is why I don't think there's any chance of putting differences aside with this filth. They may have been human beings that listened to reason once, but they've been turned into something ontologically evil and inhuman."
+
+* :::=== RoundSparrow_Commentary : Reddit machine lovers, dehumanze people but adore content creation devices of Reddit / socail machines. Don't blame media ecology, hate thy enemy, hate thy neighbor values of MAGA. Opening words: "This is why I don't think" - and the *this* in the context is Twiter messages. Twitter is why dehumanzation is A-OK. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ms0zdm/republican_chuck_grassley_makes_a_post/n91duva/
+
+jackconrad 2018-07-30
+
+"Jesus fucking christ. I'm so glad I uninstalled twitter, its become even more of a cesspit."
+
+* :::=== RoundSparrow_Commentary : [Everything is Media Ecology...](../../Media_Ecology/Everything_is_ME.md) - and running way from Twitter, avoiding teaching Neil Postamn's 1985 book, doesn't address the Twitter-created crisis. We have to rescue people from the Internet Research Agency mind-fuck since March 2013. People don't even remember what it was like back in year 2012 before Russia mind-fucked hate into everyone. We have a massive rescue operation of teaching the history of media ecologuy, comparative media ecology, comparative mythology, lessons on fiction vs. nonfiction. ===:::
