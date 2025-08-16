@@ -625,3 +625,33 @@ aquagardener 2016-09-08
 "Sounds like Trump got more pointers from Putin. 
 
 Remember Trump supporters, wealth inequality in Russia is much worse than the US. The top 1% own 56% of all wealth in Russia vs 26% in the US. If you think you're going to benefit under a Trump-o-Russian regime, I've got a bridge to sell you."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ms1qk1/wv_national_guard_to_deploy_to_dc_for_federal/n91kj52/
+
+RoarOfTheWorlds 2024-08-25
+
+"This comment is so ignorant it's embarrassing.
+
+...inflation and grocery prices are at an all time high."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ms1qk1/wv_national_guard_to_deploy_to_dc_for_federal/n91n205/
+
+Burgerpocolypse 2021-03-22
+
+"To be fair, managing to destroy democracy and replace it with neoliberal authoritarianism, capitulating to dictators while simultaneously attacking allies, stealing money from the poor at a time when wealth inequality is at an all time high, committing heinous, unconstitutional acts of racism not seen since WWII, having a close friendship with the most prolific sex trafficker in history and still somehow managing be a sitting president is a hell of an accomplishment.
+
+Not a great one that he or anyone should ever be proud of, but still an accomplishment."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ms1qk1/wv_national_guard_to_deploy_to_dc_for_federal/n91x0d9/
+
+LLMprophet 2024-06-30
+
+"He's accomplished an insane amount of Project 2025.
+
+I wish people like you would stop spreading the calming bullshit that Trump is just accidentally bumbling his way through his term. He and his team are pulling off massive takeover and you're sleeping through it."
