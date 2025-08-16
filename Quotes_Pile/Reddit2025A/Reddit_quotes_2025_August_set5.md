@@ -98,4 +98,14 @@ Suspicious-Buyer8135 2021-04-04
 
 "They should create a single award for him. Like a participation award. Give it out once, only to him. Then the only person that wouldn’t be in on the joke is Trump himself."
 
-* :::=== RoundSparrow_Commentary : Every person's knee-jerk conditioned answer to Kremlin attacking truth and reality is to add more fiction to the fiction. We are drowning in fiction since March 2013 when Internet Research Agency ramped up. ===:::
+* :::=== RoundSparrow_Commentary : Every person's knee-jerk conditioned answer to [Kremlin attacking truth and reality since March 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) is to add more fiction to the fiction. We are drowning in fiction since March 2013 when Internet Research Agency ramped up. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n90p177/
+
+Shenanigans99 2012-06-20
+
+"WTF would Putin know about "honest elections"? This is just further proof Putin is working through Trump to turn the US into a miserable authoritarian mafia state like Russia."
+
+* :::=== RoundSparrow_Commentary : Twitter-think Tweet-length Bluesky-length reaction commenting, WTF, WTF, mind blow, back to the stream of Reddit memes and junk content. This reaction to Kremlin antics (Surkovian techniques) has been going on since March 2013, Internet users blow their minds / change mental context / back to amusement entertainment content. ===:::
