@@ -76,7 +76,15 @@ Barron4567 2022-12-31 (New Years Eve)
 
 * :::=== RoundSparrow_Commentary : Twitter-length tweet-thinking. Peope treat social media like it is South Park screen game "The Stick Of Truth" or something. The implication here with "stay classy commies" in August 2025 USA political discussion... is that Karl Marx in Germany originated the idea of "love your neighbor" and Bible verse "1 John 3:17" isn't from the Levant from 2,000 years ago in the $59.99 Donald Trump Bible. That Marx, a student of University of Berlin, in year 1848 somwhow invented the idea of compassion and love... and nobody in USA has [heard of Jesus](https://www.youtube.com/watch?v=13Yc-tYbJak) teaching about how to love your enemy. ===:::
 
-&Nbsp;
+&nbsp;
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1mrbj3u/i_heard_he_was_actually_68/n8wp7mx/
+
+fancy-kitten 2020-07-17
+
+"It's almost as if you can't look at photos of him standing next to other people to compare. It must be that every single one of them that is lying about their height, and Trump is the only one telling the truth. That's the only explanation."
+
+&nbsp;
 
 .
 
