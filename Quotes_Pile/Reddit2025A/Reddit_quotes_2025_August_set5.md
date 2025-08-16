@@ -270,3 +270,11 @@ When Golda Meir said "there's no such thing as a Palestinian", have Israelis tak
 
 * :::=== RoundSparrow_Commentary : Good to see long-form Reddit comments (not tiny Bluesky Twitter) that mention names. Missing is an article or author that provides even MORE detail and such on the topic. We need to be building Wikipedia style citations and cross-references of our interpretation of events and not just off-the-cuff one-off social media comment style / Donald Trump Truth Social style. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ms0kpp/to_divert_us_from_the_epstein_files_trump_is/n91abu2/
+
+MalevolentTapir 2017-11-28
+
+"He isn't doing this to divert us from anything. In some alternate universe where he is the same person but not a pedo and rapist, he would still be doing an authoritarian crackdown on imaginary crime. It's about punishing his "enemies", "liberals", anyone who tried to charge him for the many crimes he's committed etc."
+
