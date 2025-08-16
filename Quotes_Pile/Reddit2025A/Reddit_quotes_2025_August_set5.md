@@ -558,3 +558,11 @@ Indras-Web 2025-06-28 (recent account)
 
 I cannot believe we live in reality tv politics"
 
+&nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91blhd/
+
+Castod28183  2022-09-13
+
+"I find this extremely effective here on Reddit. The first time I made a troll rage quit a conversation was the best Reddit experience I ever had."
+
