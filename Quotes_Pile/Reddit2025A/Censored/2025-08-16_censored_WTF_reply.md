@@ -1,6 +1,6 @@
 ## Did seem to get published
 
-CORRECTION: this seemst to have released by Reddit servers / published now.
+CORRECTION: this seems to have released by Reddit servers / published now.
 
 &nbsp;
 
