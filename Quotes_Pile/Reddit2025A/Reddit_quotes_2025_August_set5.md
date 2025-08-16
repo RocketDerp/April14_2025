@@ -566,3 +566,39 @@ Castod28183  2022-09-13
 
 "I find this extremely effective here on Reddit. The first time I made a troll rage quit a conversation was the best Reddit experience I ever had."
 
+&nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91diko/
+
+flyinghairball 2023-02-02
+
+"A few years ago I would have called this absolutely unprofessional. However, few people have the power and noterioty to call Trump out in an impactful way. After trying to play nice, it's time to take off the gloves. Although not previously a Newsom fan, I'm now very supportive of Newsom stopping the bully. He's trying to do something when our other leaders have shown cowardice. Right now, we need the Newsoms, the Trey Parkers and Matt Stones, to push the buttons that have long let things slide. Enough is enough. Troll away!
+
+(I do wish others like Borat and Triumph would join them)"
+
+* :::=== RoundSparrow_Commentary : "A few years ago"... hyper normal in action. Everyone adores the Donald Trump style of social media messaging. Surkov won. Russia won. Nobody cares to understand WHY Donald Trump Truth Social / Twitter works so well, the side-effects, just that it works. The entire MAGA problem. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91e4y5/
+
+lwewo4827 2020-10-16
+
+"Some of the comments here remind me of people who were oblivious to Colbert when he was on Comedy Central. Over their heads.
+
+People that are saying "be above this" or "play fair". You do realize that we have an Administration that is suspending due process, ignoring the Constitution, violating the Posse Comitatus Act and destroying the economy by passing tariffs (which Congress are the ones who are supposed to do this)?
+
+And be above this is all you got?"
+
+&nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91xvub/
+
+blindinglystupid 2014-08-31 (note the mocking username)
+
+"I'm just bothered by the general dumbing down of our country, politics, political discourse etc. But at least it's funny and, unfortunately, necessary."
+
+* :::=== RoundSparrow_Commentary : Tony Clifton is so funny, eating the Surkovian onions. necessary for Russia since March 2013 when IRA went online, necessary to wreck the USA by Russia. ===:::
+
+&nbsp;
+
