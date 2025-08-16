@@ -732,3 +732,12 @@ https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps
 Logical_Frosting_277 2025-01-06 (new this year)
 
 "Trump granted Putin another delay with zero repercussions, got no concessions from Putin, and gave Putin valuable recognition, validation and legitimacy. Trump got nothing. Trump just gave Putin the permission of the US to keep killing Ukrainians. This is worse than having no meeting at all. Epic fail."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps_inner_circle_drop_fbomb/n92n3bo/
+
+l008com 2019-01-01
+
+"The real losers are the citizens of the country that put this incompetent criminal and felon in office, AGAIN."
+
