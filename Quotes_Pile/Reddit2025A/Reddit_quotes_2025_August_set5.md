@@ -741,3 +741,14 @@ l008com 2019-01-01
 
 "The real losers are the citizens of the country that put this incompetent criminal and felon in office, AGAIN."
 
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps_inner_circle_drop_fbomb/n92osx0/
+
+LastOneSergeant 2016-11-03
+
+"American Soldiers were detailed to roll out the red carpet.
+
+This is an unreal timeline."
+
+* :::=== RoundSparrow_Commentary : You get Twitter-length reaction comments like this every hour of every day, but nobody wants to actually be serious about [War Against Reality that started in March 2013 with the Internet Research Agency on the World Wide Web](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). "This is an unreal timeline" - bit social media users aren't asseritng reality and nonfiction, just making pot-shot passing comments about hte decline of USA mass mind and moving on with entertainment ficiton all over social media.  ===:::
