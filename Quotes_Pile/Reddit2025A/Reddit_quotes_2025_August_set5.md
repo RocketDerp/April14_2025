@@ -762,3 +762,13 @@ Rare-Paramedic-6724 2021-03-23
 "He didn't "get fucked", he played himself cause he's either 100% compromised or the biggest fucking idiot this nation has ever created."
 
 * :::=== RoundSparrow_Commentary :  Fixated on ONE single person, Donald Trump. When Russia has mind-fucked the entire population. QAnon and MAGA are symptoms gong back years and years, and not just ONE PERSON who is an "biggest fucking idiot", but everyone acting in self-harm to USA and avoiding Adam Curtis, Christopher Wylie, Peter Pomerantsev nonfiction books. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps_inner_circle_drop_fbomb/n930sbu/
+
+Ok-Abbreviations543 2021-03-26
+
+"Even more amazing, this takes them by surprise. Time and time again, he falls on his face, fails to deliver on a promise, or blows something up despite warnings. The rest of the time, he is engaged in some corrupt self-enrichment scheme. To expect this man, so feeble, ignorant, corrupt, and dishonest to deliver on anything is an act of delusional faith."
+
+* :::=== RoundSparrow_Commentary : It is an act of media addiciton, nation of addicts. Addicted to [Tony Clifton audience engagement act](https://www.youtube.com/watch?v=eyAWBJULFso). ===:::
