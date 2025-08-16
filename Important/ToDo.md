@@ -452,3 +452,7 @@ https://old.reddit.com/r/movies/comments/1mr9egt/barbie_screening_cancelled_in_p
 AI upscaling on YouTube    
 https://www.youtube.com/watch?v=86nhP8tvbLY
 
+&nbsp;
+
+Sports-crazed sports culture does to people, sports mentality     
+https://youtu.be/ZMg3C68NY5s?t=237
