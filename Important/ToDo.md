@@ -463,3 +463,37 @@ Viral marketing expoiting Donald Trump style absurd surreal taste in audiences
 "This is a literal advertisement playing over a video, how is that better??"    
 Lots of comment engagement over the advertisement, content creators using Trump-style annoyance enagement.    
 https://old.reddit.com/r/Unexpected/comments/1mrk7y0/doordashers_worst_nightmare/n8zevid/
+
+&nbsp;
+
+&nbsp;
+
+"Why oh why have we gotten to a point where a guy who sells ads and data has a vision for humanity. Where have the Da Vinci's gone?!"
+
+https://old.reddit.com/r/technology/comments/1mrnd0a/mark_zuckerbergs_vision_for_humanity_is_terrifying/n8z04t1/
+
+Selling Quran pages / ideas / memes, selling Bible verses to the audience was how people were being sold an afterlife holiday of Heaven and Judgement Day againsst those you hate an disagree with.  Revenge Judgement Day by Jesus (in Quran and Bible both) and punishment of Hell - very much a Dinsey Star Wars Experience you pay for and you fund the venue (Cinema / Theater for the Star Wars showing / Mecca / Mosque / Church). And what qualifications do these professional clergy have, to be loyal to the media cartel for that one media. As if they mix Navajo Pollen Path and say "all people are equal all over the world" they violate the Mosque and Church tradition of "only believers in our story go to Heaven" qualification of the clergy in-group. 
+
+"And once they graduate they’ll get a job at meta helping making ads better"
+
+https://old.reddit.com/r/technology/comments/1mrnd0a/mark_zuckerbergs_vision_for_humanity_is_terrifying/n8z1ohp/
+
+
+“The thing I hate the most about advertising is that it attracts all the bright, creative and ambitious young people, leaving us mainly with the slow and self-obsessed to become our artists.. Modern art is a disaster area. Never in the field of human history has so much been used by so many to say so little.”
+― Banksy 
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mrnd0a/mark_zuckerbergs_vision_for_humanity_is_terrifying/n8z8ix6/
+
+"I also wonder why he’s so incredibly bad at it.  He’s had all of my personal data since 2007 and I’m clearly a tee-total bookish nerd who likes philosophy, plants and arduinos and he’s spending billions to show me ads for Carlsberg beer, football and films featuring Jason Statham. "
+
+he s making money showing you those adverts, it is a scam against other corporations. And it influences you to mention those things on Reddit right now and in conversations in your lfe.   A sesnse of community is built even if in opposition. Donald Trump era is mastery of making people hate the advertised product (Donald Trump being the product from some aspects, but mubh more). Hate itself being the means of deepest attraction in fiction-driven total mockery engagement .     
+
+Haven't people figured out that many marriages and parents have driven their life base don hate. They are mroe concrned about their rules of enslaving their child and spouse... if the spouse cheats on them they will end the marriage and abuse the children with lesosns of how to hate someone you promised a lifetime commitment to? There is no concept of heaven or afterlife or metaphore of transition. And the cheating spouse enjoys the secrecy of keeping their sexual desires away from the marriage or in general being hostile inside the marriage towards sex. This sort of thing happens with choice marriage all over the world. Like corporate PR, people can go to extremes to cobe it up with lawyers as PR agents and sealed secret proceedings - but data leaks reveal it / famous people are spooted in public and the true story comes out regardless of the expensive lawyers and public relations teams ding cover-up in corporate secrecy style of the marriage behaviors. hell, DNA testing has reveals many supposedly perfect executions of deception in marriage were false. Religions are the same, if secret cameeras had covered more child abuse of children by clergy... but most of the time it is decades-later clusterfuck of accusatoons (Same with Jimmy Savile in UK, people covered it up for decades and all came ou tin huge numbers).  People PRIZA this disonesty. They write novels and books dislcosing these behaviors of friends and family they ahve witnessed, even their own self. This isn't honesty and truth in love, this is copycatting dishonest clergy promising afterlife, dishonest politicians like Donald Trump a role model of every area of life (not just governing), dishonest advertising and marketing promising services and products that are not true. The dishoensty that the human race not only "settles for" in marriages, but is attracted to in every aspect of lie from survival food (mcDona'ds "I am loving it" marketing) to corporate workpalce (much of the daytime living hours devoted to creating deception against humans, one corportion bombarding We The People, in the name of network of other corportions). Marketing with deception, Edward Bernays manipualtion, is the religion faith people live undder. And the secrets of the consumption of films / tv / books shows the true marriage secrecy of cheating / lies. 
+
+Is the sexual cheating even as much an issue as the clever lies abou tit? "Too mcuh love", "I fell in love with 3 people" is the nightmare. Can't have people falling in love too many times. But we can have too many people falling in love with Russian flag that die for invasion of Ukraine. Too many people fall in love with Quran sotrytelling and become Palestine terrorists on morning of October 7, 2023. You can flal in love to join a military killer with dedicated death machines.... but you can't fall in love with too many men or woemn in your marriage. We kill by the millions, but we can't even love by the half-dozen unless it is a Donald Trump audience who *lvoes to hate others*. Putin audience of obident hate values. 
+
+This is the shit that keeps me up at night on a Friday night going into Saturday. As the timestamp will reveal at 03:30 early morning. I'm not spell checking this shit, nobody cares. I keep looking for someone else to write these ideas and all I ifnd are dead men like Joseph Campbell, James Joyce, Neil Postman. As I think the heaven we are selling is a shit heaven, as Joseph Campbell say s- Hell itself inverted. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+
