@@ -521,3 +521,18 @@ sayyyywhat 2017-03-08
 
 "The lack of awareness would be hilarious if it wasn’t dooming all of us"
 
+&nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91nqjk/
+
+turd-crafter 2018-06-01
+
+"It does kinda seem that way. Like they don’t understand that he’s doing an impression of trumps tweets. Or maybe it Russians troll farms and they don’t get it."
+
+&nbsp;
+
+HammerlyDelusion 2024-06-17
+
+"I seriously wanna know how many of those people online are real and how many are bots."
+
+* :::=== RoundSparrow_Commentary : [Everything is Media Ecology...](../../Media_Ecology/Everything_is_ME.md) ===:::
