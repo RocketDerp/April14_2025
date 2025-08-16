@@ -331,3 +331,15 @@ https://old.reddit.com/r/politics/comments/1mryb2l/russia_sees_victory_in_summit
 dustinhut13 2019-05-10
 
 "Weakest president I’ve ever seen in my lifetime. Literally no other president ever would roll over for Putin like this. This is quite embarrassing for Republicans, guarantee they never mention it"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mryb2l/russia_sees_victory_in_summit_as_trump_adopts/n90w2hy/
+
+FrontEndCore **2025-08-06 (new account)**
+
+"Trump bowed to Putin and sold out Ukraine showing the world he stands with tyrants over freedom."
+
+* :::=== RoundSparrow_Commentary : Ukraine gave up nuclear weapons after the USSR fell with the promise Russia wouldn't fuck it over in the future. [The Budapest Memorandum on Security Assurances](https://en.wikipedia.org/wiki/Budapest_Memorandum) ===:::
+
+
