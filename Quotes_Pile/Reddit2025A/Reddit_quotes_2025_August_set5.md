@@ -780,3 +780,11 @@ https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps
 Goodrun31 2019-01-30
 
 "Arrived as a loser left as a loser. Can’t believe what an obvious sham this presidency is and that some people love it."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps_inner_circle_drop_fbomb/n92kcp2/
+
+1cem4n82 2018-12-31 (NYE)
+
+"We all know it. What could he offer that any other grown person could believe? He’s the best negotiator while somehow being the worst negotiator? Grown people are holding back any kind of a future because of words like liberal and woke. Fucking words take our future away. Can’t MAGA collectively choke on a chicken bone please?"
