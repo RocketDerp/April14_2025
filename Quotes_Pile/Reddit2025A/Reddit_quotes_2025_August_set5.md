@@ -650,6 +650,10 @@ Not a great one that he or anyone should ever be proud of, but still an accompli
 
 https://old.reddit.com/r/news/comments/1ms1qk1/wv_national_guard_to_deploy_to_dc_for_federal/n91x0d9/
 
+<img width="1226" height="562" alt="image" src="https://github.com/user-attachments/assets/ebf56ada-c131-4d62-8bf9-3c6f3870851c" />
+
+&nbsp;
+
 LLMprophet 2024-06-30
 
 "He's accomplished an insane amount of Project 2025.
