@@ -361,3 +361,27 @@ Top_Somewhere9160 2024-09-19
 Putin is now recognized by Trump as a legitimate world leader who should be treated and respected as such. The red carpet, jet flyover, other pomp & circumstance was such bullshit.
 
 What a weak display from Trump. Embarrassing and shameful. He has reached a new low, even for his pathetic standards."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mrx0x9/putin_still_demands_entire_donbas_trump_tells/n90lv9q/
+
+mildlyopinionatedpom 2016-05-19
+
+"this meeting should never have happened. It's been a win for Putin and of course Trump isn't following through with the sanctions he promised."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mrx0x9/putin_still_demands_entire_donbas_trump_tells/n90nnl6/
+
+<img width="1022" height="1370" alt="image" src="https://github.com/user-attachments/assets/8dde8e05-17a3-4ce4-b883-6f2181deb53b" />
+
+&nbsp;
+
+xeodragon111 2019-03-28
+
+"This meeting was a giant L for the US. There were no gains whatsoever and puts the US in a huge negative light."
+
+&nbsp;
+
+&nbsp;
