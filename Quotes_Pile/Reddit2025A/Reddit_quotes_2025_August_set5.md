@@ -169,3 +169,17 @@ One-Agent-872 2024-12-27 (less than a year)
 Go look at the conservative subreddit. They’re jerking themselves off over this. They’re literally gaping their assholes so that Putin can ram his tiny little Russian penis in and impregnate them with more Russian propaganda."
 
 * :::=== RoundSparrow_Commentary : This kind of messaging is exactly the aftermath of Cambridge Analytica and Internet Reserach Agency. [Perspective of Neil Postman's 1985 book "Amusing Ourselves To Death" is essential](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) for every person age 12 to age 120 in grasping the MAGA media messaging / Donald Trump hate attractions. "Go look at the conservative subreddit" basic Neil Postman / Marshall McLuhan media ecology. Platform vs. platform (Fox News vs. MSNBC), comparative mythology (ficton vs. fiction). Username and messaging "One-Agent" - I would label this an agent of banlity whose desire is to keep people glued to the Donald Trump mutli-platform mutlimedia Tony Clifton act. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n905w53/
+
+JMeers0170 2019-05-01
+
+"What are you talking about??
+
+tRump, a career criminal and aspiring global dictator invited another criminal and dictator for afternoon tea because tRump wants to learn “dictator 101” from putzky. That’s why tRump is also so infatuated with xi and kim. He wants to be in the dictator club real bad.
+
+The only time tRump expends effort or time into something is if he can gain something from it. The funny, or sad, thing is that tRump thinks himself clever enough to pull something over on vladdy. If tRump has a goal and someone/something is in his way, he has no problem either stepping over it….or ON it."
+
+* :::=== RoundSparrow_Commentary : No citations, no references, no authors noted. No mention of Surkov public relations techniques. No mention of Adam Curtis, Christopher Wylie, Peter Pomerantsev, etc. Just lots of name-calling and mocking about egoism of how much this user is smarter than Kremlin and White House... but can't cite Peter Pomerantsev. [Eating the Surkovian onions](Surkovian_Onion_Eating.md) in egomania. "The funny, or sad, thing is that tRump thinks himself clever enough to pull something over on vladdy" - the sad and sick thing is that this Reddit user believes they should do what Reddit HiveMind craves, off-the-cuff comments like this without linking or quoting author Peter Pomerantsev (publshed way back in September 2014). The IRA has been online since March 2013... this shitshow of avoiding serious discourse on information warfare techniques has been going on for over a decade. ===:::
