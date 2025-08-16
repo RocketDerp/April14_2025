@@ -109,3 +109,23 @@ Shenanigans99 2012-06-20
 "WTF would Putin know about "honest elections"? This is just further proof Putin is working through Trump to turn the US into a miserable authoritarian mafia state like Russia."
 
 * :::=== RoundSparrow_Commentary : Twitter-think Tweet-length Bluesky-length reaction commenting, WTF, WTF, mind blow, back to the stream of Reddit memes and junk content. This reaction to Kremlin antics (Surkovian techniques) has been going on since March 2013, Internet users blow their minds / change mental context / back to amusement entertainment content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n90h24q/
+
+wretch5150 2013-09-13
+
+"Those YouTube comments are something else. Trump is a mastermind in their eyes, having the bravery to lower his "western ego" and talk "like an adult" with Putin, when Zelensky "pouted like a spoiled child".
+
+Fuck all those commenters to hell. GD traitors! Putin invaded Ukraine and is attempting to steal land. When and where will it end if the rest of us just allow it?"
+
+* :::=== RoundSparrow_Commentary : [Everything is Media Ecology...](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n90jxos/
+
+juiced911 2017-10-11
+
+"Bots? 10 years ago maybe. Now there’s 50,000,000 or more Americans that talk exactly like this. Maybe as many as 100,000,000."
