@@ -245,3 +245,28 @@ Intelligent-Belt8939 **2025-08-01 (new account**, detailed story in posting)
 "It is very difficult because all the crossings are closed. Only those who have relatives in America or European countries can leave. They submit an evacuation request for them and get their relatives out of here only through the Red Cross."
 
 * :::=== RoundSparrow_Commentary :  And USA-centered Reddit society can't grasp that a Palestine-home passport - a terrorist nation and terrorism training camp - isn't welcome in most of the developed world. People are extremely mind-fucked by the warfare and clergy both. You have to have a detox style long-term plan and not just take people out of terrorist nations. I lived in Algeria in year 2010 and saw first hand [how a terrorist nation passport (war only ended in year 2002)](https://en.wikipedia.org/wiki/Algerian_Civil_War) does not get you nnto too many nations easily. ==:::
+
+&nbsp;
+
+https://old.reddit.com/r/Gymhelp/comments/1mroso8/i_spent_10_years_building_my_body_and_lost_it_all/n90jzhw/
+
+Yorrins 2024-02-08
+
+"None of this shit is real man, there hasnt been a genuine gofundme in like 10 years. Bros reddit account is 2 weeks old and is entirely focused around this fundraiser, wake up man."
+
+* :::=== RoundSparrow_Commentary : People are unable to tell relaity from fiction. It is the aftermath... the Internet is wrecked since March 2013. Think about the titles of these two books... Peter Pomerantsev: "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia" - 2014, "This Is Not Propaganda: Adventures in the War Against Reality" - 2019. Those two books from year 2014 and 2019 describe the disappearnace of faith in raelity and attraction to fiction crisis. People aren't asking for these Palestine people to get in group photos / proof of life / they are just discussing how it is unvalidated - but not working together to divise schemes of how MULTIPLE Internet users in Palestine could work together to provide a chain of evidence of identity (such as dozens of established social media users in Palestine photographing and sharing and vouching for people and the economic food situation).  The Internet societhy instead relies on reaction comments (Twitter-length / Bluesky-length short messages) that stream past the screen and don't actually help organize and sort out what is factual reality on the ground. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Gymhelp/comments/1mroso8/i_spent_10_years_building_my_body_and_lost_it_all/n9059xh/
+
+haribobosses 2016-06-28
+
+"I feel like the problem goes deeper. Palestinian statehood and self-determination have been denied for 70 years. Blaming Netanyahu absolves Israel—and everyday Israelis—of complicity in the ethnic cleansing, and denial of human rights that occurs there.
+
+It's like blaming Trump for America being a global bully. it's always been a global bully, Trump is just mask off. Israel's always been about ethnic cleasning, Bib is just the mask off version.
+
+When Golda Meir said "there's no such thing as a Palestinian", have Israelis taken down streets in her honor? Is her name treated with the same disdain as those who tried to erase other ethnicities. Israel is a country that has plazas and streets named after Mehachem Begin—still, in 2025—and monuments to Olei Hagardom, terrorists."
+
+* :::=== RoundSparrow_Commentary : Good to see long-form Reddit comments (not tiny Bluesky Twitter) that mention names. Missing is an article or author that provides even MORE detail and such on the topic. We need to be building Wikipedia style citations and cross-references of our interpretation of events and not just off-the-cuff one-off social media comment style / Donald Trump Truth Social style. ===:::
+
