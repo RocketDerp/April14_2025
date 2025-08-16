@@ -1,3 +1,9 @@
+## Did seem to get published
+
+CORRECTION: this seemst to have released by Reddit servers / published now.
+
+&nbsp;
+
 https://old.reddit.com/r/technology/comments/1mrnd0a/mark_zuckerbergs_vision_for_humanity_is_terrifying/n91ppvt/
 
 
