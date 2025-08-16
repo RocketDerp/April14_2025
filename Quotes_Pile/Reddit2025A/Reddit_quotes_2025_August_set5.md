@@ -545,7 +545,16 @@ https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91vw4g/
 
 GlowUpper 2019-01-17
 
-"Someone on *that* sub said Gavin wants to be Trump so bad. They're either displaying willful ignorance or they're dumber than we thought if they think Newsom's tweets are evidence that he wants to be like Trump.   RIP Satire and Irony. Time of death: 2025."
+"Someone on *that* sub said Gavin wants to be Trump so bad. They're either displaying willful ignorance or they're dumber than we thought if they think Newsom's tweets are evidence that he wants to be like Trump.  
+RIP Satire and Irony. Time of death: 2025."
 
 &nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n912fxq/
+
+Indras-Web 2025-06-28 (recent account)
+
+"I wonder if he has a Team of Psychologists helping him write this, to get to Donald dump in the most extreme way
+
+I cannot believe we live in reality tv politics"
 
