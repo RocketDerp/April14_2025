@@ -60,7 +60,17 @@ crosstherubicon 2012-07-01
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mrdsfv/donald_trump_leaves_vladimir_putin_summit_without/n8xho7h/
+
+Listening_Heads 2010-11-03
+
+"If you guys need a really great laugh this weekend go to the conservative sub. They’re literally saying that Trump dominated Putin. I don’t know exactly what they were watching, but they’re just creating fantasies for themselves at this point. I’ve never seen a bunch of rough neck, blue collar men Get wet over an 80-year-old New York self proclaimed pretty boy."
+
+&nbsp;
+
+
 .
+
 .
 
 .
