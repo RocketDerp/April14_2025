@@ -137,3 +137,13 @@ https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing
 n0rdique 2011-01-27
 
 "The simple fact that Trump invited a war criminal to the United States and had the red carpet literally rolled out for him to be treated as an equal is a massive, massive loss for Donald “art of the deal” Trump."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n90i897/
+
+Icy_Secret_2909 2020-12-15
+
+"Looked? He has been Putins bitch for quite some time. He cant go 5 minutes without kissing his ass, or talking shit about Biden/Obama/hillary."
+
+* :::=== RoundSparrow_Commentary : Yes. Donald Trump does **not just praise Putin** / Kremlin / North Korea / Israel - he insults and belittles and indicates that the enemy are American people (Biden / Obamama / Hillary Clinton / [Taylor Swift / Bruce Springsteen](https://www.forbes.com/sites/conormurray/2025/05/16/trump-revives-taylor-swift-feud-and-calls-bruce-springsteen-highly-overrated/) etc). ===:::
