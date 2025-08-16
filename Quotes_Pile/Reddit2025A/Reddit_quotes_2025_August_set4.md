@@ -68,6 +68,14 @@ Listening_Heads 2010-11-03
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mre1em/dhs_says_noem_is_temporarily_staying_in_military/n8xlbri/
+
+Barron4567 2022-12-31 (New Years Eve)
+
+"She was doxxed by a reporter. Stay classy commies."
+
+* :::=== RoundSparrow_Commentary : Twitter-length tweet-thinking. Peope treat social media like it is South Park screen game "The Stick Of Truth" or something. The implication here is that Karl Marx in Germany originated the idea of "love your neighbor" and Bible verse "1 John 3:17" isn't from the Levant from 2,000 years ago in the $59.99 Donald Trump Bible. That Marx,a student of University of Berlin, in year 1948 somwhow invented the idea of compassion and love... and nobody in USA has heard of Jesus teaching about how to love your enemy. ===:::
+
 
 .
 
