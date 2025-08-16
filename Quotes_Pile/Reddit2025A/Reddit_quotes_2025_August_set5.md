@@ -202,3 +202,11 @@ SecretPrinciple8708 2021-07-14
 
 * :::=== RoundSparrow_Commentary : Witnessing the information warfare first hand on Reddit, but LOL LOL LOL amused at it. Neil Postman's 1985 book "Amsuing Ourselves To Death" - this Twitter-length Bluesky-length reaction comment amused at the situation. Kremlin techniques since March 2013 exploit amusement / funny / LOL reactions. Absennt in the comment:  mention of Adam Curtis, Christopher Wylie, Peter Pomerantsev. People just mock and insult back (LOL) day after day since March 2013 and don't organize or rally around key authors like Peter Pomerantsev who explain modern information warfare against realiity. ===:::
  
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mrubz9/trump_left_embarrassed_after_fox_news_called_him/n906xj5/
+
+Quietbutgrumpy 2019-09-17
+
+"Trump is very impressed with Putin. As he follows Putin around slobbering he forgets all the meaningless loss of lives and all the kidnapped children. Crazy times."
+
