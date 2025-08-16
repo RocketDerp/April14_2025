@@ -399,3 +399,19 @@ https://old.reddit.com/r/worldnews/comments/1mrx0x9/putin_still_demands_entire_d
 NiPlusUltra 2011-09-23
 
 "It should be abundantly clear to anyone by now that Republicans idea of strength is an openly fascist dictator. So to them he is a strong leader, because he's fine with openly abducting people off the street and ignoring judges orders."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mrx0x9/putin_still_demands_entire_donbas_trump_tells/n91uowj/
+
+EDNivek 2014-10-04
+
+"
+> The greatest irony of it all? This is actually the "deep state" at work and all those geniuses who've been saying "question everything" and "buttery males" are totally on board. What a twist!
+
+That is the point behind Dale Gribble in King of the Hill. He sees conspiracies in everything, but cannot see the one right in front of his face."
+
+
+
