@@ -511,3 +511,11 @@ https://www.youtube.com/watch?v=PC94KQtNPWs
 <img width="724" height="338" alt="image" src="https://github.com/user-attachments/assets/eafbc352-6335-4f6f-8451-b4d956900989" />
 
 @5:28 copyright is Brain Damage is a Ted Talk by Nina Paley a decade ago 
+
+&nbsp;
+
+&nbsp;
+
+United Health Care (which I used to work with from Fort Wayne PHP, and have been to UHC HQ for said work)   
+Validation, truth, cancer, information over fucking telephone.    
+https://old.reddit.com/r/TikTokCringe/comments/1mrw2z2/infuriating_that_this_is_somehow_legal/
