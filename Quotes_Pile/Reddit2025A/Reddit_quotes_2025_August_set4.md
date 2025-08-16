@@ -52,6 +52,14 @@ AshuraBaron 2022-03-17
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mrdsfv/donald_trump_leaves_vladimir_putin_summit_without/n8xcc3m/
+
+crosstherubicon 2012-07-01
+
+"And with that, Trump has successfully diverted public perception and suddenly come out a winner because he didn’t give Alaska away."
+
+&nbsp;
+
 .
 .
 
