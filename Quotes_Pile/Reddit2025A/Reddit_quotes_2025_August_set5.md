@@ -157,3 +157,15 @@ ssc1800245763 2024-05-19
 "Look up the documents that other hotel guests found in the public printer. Luncheon in honor of Vladimir Putin is the first thing with a menu. Fuck these traitors they’re horrible trash people like their voters"
 
 * :::=== RoundSparrow_Commentary : [Pages 6 and 7 in the packet described how lunch at the summit would be served, and for whom. A menu included in the documents indicated that the luncheon was to be held "in honor of **his excellency Vladimir Putin**."](https://www.npr.org/2025/08/16/nx-s1-5504196/trump-putin-summit-documents-left-behind) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n90esg6/
+
+One-Agent-872 2024-12-27 (less than a year)
+
+"It’s okay because his base, like Donnie, is SLURPING UP ALL THAT RUSSIAN CUM.
+
+Go look at the conservative subreddit. They’re jerking themselves off over this. They’re literally gaping their assholes so that Putin can ram his tiny little Russian penis in and impregnate them with more Russian propaganda."
+
+* :::=== RoundSparrow_Commentary : This kind of messaging is exactly the aftermath of Cambridge Analytica and Internet Reserach Agency. [Perspective of Neil Postman's 1985 book "Amusing Ourselves To Death" is essential](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) for every person age 12 to age 120 in grasping the MAGA media messaging / Donald Trump hate attractions. "Go look at the conservative subreddit" basic Neil Postman / Marshall McLuhan media ecology. Platform vs. platform (Fox News vs. MSNBC), comparative mythology (ficton vs. fiction). Username and messaging "One-Agent" - I would label this an agent of banlity whose desire is to keep people glued to the Donald Trump mutli-platform mutlimedia Tony Clifton act. ===:::
