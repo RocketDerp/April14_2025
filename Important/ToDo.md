@@ -456,3 +456,9 @@ https://www.youtube.com/watch?v=86nhP8tvbLY
 
 Sports-crazed sports culture does to people, sports mentality     
 https://youtu.be/ZMg3C68NY5s?t=237
+
+&nbsp;
+
+Viral marketing expoiting Donald Trump style absurd surreal taste in audiences    
+"This is a literal advertisement playing over a video, how is that better??"    
+https://old.reddit.com/r/Unexpected/comments/1mrk7y0/doordashers_worst_nightmare/n8zevid/
