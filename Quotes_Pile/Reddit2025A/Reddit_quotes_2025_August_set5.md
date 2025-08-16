@@ -391,3 +391,11 @@ https://old.reddit.com/r/worldnews/comments/1mrx0x9/putin_still_demands_entire_d
 teedog88 2022-02-24
 
 "Hit that nail, buddy... the US has become the Monty Python version of a fascist state."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mrx0x9/putin_still_demands_entire_donbas_trump_tells/n91ju6a/
+
+NiPlusUltra 2011-09-23
+
+"It should be abundantly clear to anyone by now that Republicans idea of strength is an openly fascist dictator. So to them he is a strong leader, because he's fine with openly abducting people off the street and ignoring judges orders."
