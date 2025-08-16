@@ -342,4 +342,22 @@ FrontEndCore **2025-08-06 (new account)**
 
 * :::=== RoundSparrow_Commentary : Ukraine gave up nuclear weapons after the USSR fell with the promise Russia wouldn't fuck it over in the future. [The Budapest Memorandum on Security Assurances](https://en.wikipedia.org/wiki/Budapest_Memorandum) ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/politics/comments/1mryb2l/russia_sees_victory_in_summit_as_trump_adopts/n90wi69/
+
+CrimsonFeetofKali 2025-01-18 (new this year, I have organically encounter this account comments mutliple times, I did not follow from thier profile. I focus first on the message itself, second on context of reply nesting, only then do I look at the account name)
+
+"You go into a meeting wanted a ceasefire, a peace agreement, and end to the war in Ukraine.....and leave having Putin agree with you that mail-in voting is bad, not putting any sanctions or actions on Russia, and agreeing with the Putin plan for Ukraine, changing your mind from earlier in the week when you spoke with European leaders and Zelenskyy. Yeah, Putin got everything he wanted, and a photo op, and now invites you to Moscow for more! Art of the deal, my ass."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mryb2l/russia_sees_victory_in_summit_as_trump_adopts/n911nba/
+
+Top_Somewhere9160 2024-09-19
+
+"Putin, once again, played Trump like a fiddle. This meeting was filled with jovial laughs, handshakes and plenty of verbal felatio. Trump hasn’t looked this happy since he was with his best buddy Epstein.
+
+Putin is now recognized by Trump as a legitimate world leader who should be treated and respected as such. The red carpet, jet flyover, other pomp & circumstance was such bullshit.
+
+What a weak display from Trump. Embarrassing and shameful. He has reached a new low, even for his pathetic standards."
