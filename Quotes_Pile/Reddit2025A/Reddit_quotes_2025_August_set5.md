@@ -771,4 +771,12 @@ Ok-Abbreviations543 2021-03-26
 
 "Even more amazing, this takes them by surprise. Time and time again, he falls on his face, fails to deliver on a promise, or blows something up despite warnings. The rest of the time, he is engaged in some corrupt self-enrichment scheme. To expect this man, so feeble, ignorant, corrupt, and dishonest to deliver on anything is an act of delusional faith."
 
-* :::=== RoundSparrow_Commentary : It is an act of media addiciton, nation of addicts. Addicted to [Tony Clifton audience engagement act](https://www.youtube.com/watch?v=eyAWBJULFso). ===:::
+* :::=== RoundSparrow_Commentary : It is an act of media addiction, nation of addicts. Addicted to [Tony Clifton audience engagement act](https://www.youtube.com/watch?v=eyAWBJULFso). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps_inner_circle_drop_fbomb/n92k5dt/
+
+Goodrun31 2019-01-30
+
+"Arrived as a loser left as a loser. Can’t believe what an obvious sham this presidency is and that some people love it."
