@@ -51,3 +51,23 @@ CharlieBravo74 2020-01-11
 https://old.reddit.com/r/goodnews/comments/1mrvakv/mr_president_trump_you_stood_there_like_a_little/
 
 "Mr. President Trump, you stood there like a little white noodle, like a fanboy," - said Arnold Schwarzenegger about Trump's meeting with Putin.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mrvakv/mr_president_trump_you_stood_there_like_a_little/n90doxv/
+
+Totalanimefan 2015-06-11
+
+"Every immigrant in this country is more American than the President. Immigrants are what make our country great. They always have been and always will be. We are a country founded on immigrants."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mrvakv/mr_president_trump_you_stood_there_like_a_little/n909it4/
+
+The90sMadeMeThisWay 2024-09-16
+
+"Donald Dementia Dump was under the impression he was meeting Cotton Hill, who only killed 50 men."
+
+* :::=== RoundSparrow_Commentary : Fiction and insulting outsells nonfction. [Eating the Surkovian onions](Surkovian_Onion_Eating.md) on a Putin visit to Alaska. Simplstic reactionary to the Tony Clifton behaviors of Putin and Trump onn the world media stages, eating the Onion of the Tony Clifton acts. Surkov won, Russia won. ===:::
