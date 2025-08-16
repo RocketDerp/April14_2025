@@ -615,3 +615,13 @@ https://old.reddit.com/r/news/comments/1ms1qk1/wv_national_guard_to_deploy_to_dc
 InquisitivelyADHD 2023-05-10
 
 "Yep, amazing how we get to watch the death of American Democracy in real time! Same tricks others have used before and we still fall for them every time."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ms1qk1/wv_national_guard_to_deploy_to_dc_for_federal/n91m4r1/
+
+aquagardener 2016-09-08
+
+"Sounds like Trump got more pointers from Putin. 
+
+Remember Trump supporters, wealth inequality in Russia is much worse than the US. The top 1% own 56% of all wealth in Russia vs 26% in the US. If you think you're going to benefit under a Trump-o-Russian regime, I've got a bridge to sell you."
