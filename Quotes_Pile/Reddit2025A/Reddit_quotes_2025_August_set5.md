@@ -385,3 +385,9 @@ xeodragon111 2019-03-28
 &nbsp;
 
 &nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mrx0x9/putin_still_demands_entire_donbas_trump_tells/n91q9r5/
+
+teedog88 2022-02-24
+
+"Hit that nail, buddy... the US has become the Monty Python version of a fascist state."
