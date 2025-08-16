@@ -454,3 +454,21 @@ kerabatsos 2009-10-17
 
 "I've got five bucks here that says he couldn't name the three branches of government. But he has opinions shaped by Fox News and whatever his drunken hillybilly Dad spewed at him while he was beating him with a belt."
 
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ms1fqd/masked_agents_refuse_to_identify_themselves_claim/n91hruq/
+
+Heckbound_Heart 2023-01-20
+
+"Making those (political) statements, in this situation, by officials, is an act of war."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ms1fqd/masked_agents_refuse_to_identify_themselves_claim/n91h35g/
+
+SecretPrinciple8708 2021-07-14
+
+"Ask them to define “liberal, “left,” and “Democrat.” Throw in “progressive” for shits and giggles. Should be good for a laugh."
+
+* :::=== RoundSparrow_Commentary : This does not really deal with the USA Christian problems, Donald Trump $59.99 Bible fanatics. Ask them to study "1 John 3:17" and explain how it applies to Donald Trump and Elon Musk - and if Karl Marx from Germany invited the ideas expressed in Levant Bible 2,000 years ago of loving your enemy and sharing food and housing with the poor. Democracy wil not work if people believe *hate thy neighbor, hate thy enemy* - and we need to face up that democracy government requires love and compassion for your fellow man. It isn't opitional. Starving your fellow man so you can have $8 billion dollars more a year for your own self is a monster state. Like Russia run by Putin the past 25 years. The word the Bible uses in "1 John 3:17" for Rupert Murdoch, Elon Musk and Donald Trump? **"Liar"** is what The Bible tells you to call these people in an audit statement, judgement statement. Yes, The Bible does tell you to judge people, that's the purpose of "1 John 3:17".  ===:::
