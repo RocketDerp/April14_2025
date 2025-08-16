@@ -724,3 +724,11 @@ Interesting_Put_9031 **2025-03-07 (new this year)**
 "Fucking amazing that he could take Vladimir fucking him that hard and have the energy for Fox News to give him such an amazing blowjob."
 
 * :::=== RoundSparrow_Commentary : MAGA style shit-talk. Adopting Trump media behaviors. Sexual fetish of being in private jets and private islands with rich white men. "Amazing" thrilled at Trump Kremlin show. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps_inner_circle_drop_fbomb/n92j095/
+
+Logical_Frosting_277 2025-01-06 (new this year)
+
+"Trump granted Putin another delay with zero repercussions, got no concessions from Putin, and gave Putin valuable recognition, validation and legitimacy. Trump got nothing. Trump just gave Putin the permission of the US to keep killing Ukrainians. This is worse than having no meeting at all. Epic fail."
