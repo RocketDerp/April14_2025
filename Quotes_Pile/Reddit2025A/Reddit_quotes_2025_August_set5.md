@@ -473,3 +473,12 @@ SecretPrinciple8708 2021-07-14
 
 * :::=== RoundSparrow_Commentary : This does not really deal with the USA Christian problems, Donald Trump $59.99 Bible fanatics. Ask them to study "1 John 3:17" and explain how it applies to Donald Trump and Elon Musk - and if Karl Marx from Germany invited the ideas expressed in Levant Bible 2,000 years ago of loving your enemy and sharing food and housing with the poor. Democracy will not work if people believe *hate thy neighbor, hate thy enemy* - and we need to face up that democracy government requires love and compassion for your fellow man. It isn't optional. Starving your fellow man so you can have $8 billion dollars more a year for your own self is a monster state. Like Russia run by Putin the past 25 years. The word the Bible uses in "1 John 3:17" for Rupert Murdoch, Elon Musk and Donald Trump? **"Liar"** is what The Bible tells you to call these people in an audit statement, judgment statement. Yes, The Bible does tell you to judge people, that's the purpose of "1 John 3:17". The Bible is full of contradictory confusing poetry, and if We The People can't find "1 John 3:17" and apply it to Donald Trump... and all people can find is hate messages in The Bible - then we are doomed as a society. We can't even read a 2,000 year old storybook correctly! What hope do we have with the latest film, song lyrics, or video games when we can't even read The dusty old Bible correctly and [apply Matthew 6:5](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church) and "1 John 3:17" to Donald Trump? ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ms1fqd/masked_agents_refuse_to_identify_themselves_claim/n91g0g4/
+
+HospitalBreakfast 2021-09-07
+
+"This is why there will be no civil war. The police and military are all with Trump. There will be small and insignificant pockets of resistance. America is over. Anyone who thinks they will give up power and have legitimate elections is living on another planet. America as you knew it is dead."
+
+* :::=== RoundSparrow_Commentary : Russia has won hearts and minds since March 2013 using the Internet Research Agency and modern equivlents. Surkov won. The war is still ongoing. People have not faced up that Cambridge Anahytica and Kremlin informaton warfare has long-term self-harm impacts. Raging egomania and raging denial abounds in USA. Denial of scientific reality about measles and climate change. ===:::
