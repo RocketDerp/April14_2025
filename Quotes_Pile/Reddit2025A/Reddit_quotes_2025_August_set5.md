@@ -183,3 +183,13 @@ tRump, a career criminal and aspiring global dictator invited another criminal a
 The only time tRump expends effort or time into something is if he can gain something from it. The funny, or sad, thing is that tRump thinks himself clever enough to pull something over on vladdy. If tRump has a goal and someone/something is in his way, he has no problem either stepping over it….or ON it."
 
 * :::=== RoundSparrow_Commentary : No citations, no references, no authors noted. No mention of Surkov public relations techniques. No mention of Adam Curtis, Christopher Wylie, Peter Pomerantsev, etc. Just lots of name-calling and mocking about egoism of how much this user is smarter than Kremlin and White House... but can't cite Peter Pomerantsev. [Eating the Surkovian onions](Surkovian_Onion_Eating.md) in egomania. "The funny, or sad, thing is that tRump thinks himself clever enough to pull something over on vladdy" - the sad and sick thing is that this Reddit user believes they should do what Reddit HiveMind craves, off-the-cuff comments like this without linking or quoting author Peter Pomerantsev (publshed way back in September 2014). The IRA has been online since March 2013... this shitshow of avoiding serious discourse on information warfare techniques has been going on for over a decade. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n90ck28/
+
+CrimsonFeetofKali 2025-01-18 (new this year)
+
+"The US and Israel apply this logic to Gaza.....Hamas doesn't want peace because they won't release hostages and surrender. And yet it isn't applied to Putin and Ukraine. The logical inconsistencies with this regime are baffling."
+
+&nbsp;
