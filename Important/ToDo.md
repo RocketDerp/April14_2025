@@ -518,4 +518,5 @@ https://www.youtube.com/watch?v=PC94KQtNPWs
 
 United Health Care (which I used to work with from Fort Wayne PHP, and have been to UHC HQ for said work)   
 Validation, truth, cancer, information over fucking telephone.    
+Why isn't all this open source? Ther are over 8 billion human bodies, why is there a open source medial super wikipedia that has every bit of these kinds of conversations on the lines between comprehension of procedures, how many hours they take, tutorials for them in training / educaiton. We ALL HAVE HUMAN BODIES, why can't see the common knolwedge of open sourcing this information.    
 https://old.reddit.com/r/TikTokCringe/comments/1mrw2z2/infuriating_that_this_is_somehow_legal/
