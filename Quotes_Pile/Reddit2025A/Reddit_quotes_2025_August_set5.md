@@ -146,4 +146,14 @@ Icy_Secret_2909 2020-12-15
 
 "Looked? He has been Putins bitch for quite some time. He cant go 5 minutes without kissing his ass, or talking shit about Biden/Obama/hillary."
 
-* :::=== RoundSparrow_Commentary : Yes. Donald Trump does **not just praise Putin** / Kremlin / North Korea / Israel - he insults and belittles and indicates that the enemy are American people (Biden / Obamama / Hillary Clinton / [Taylor Swift / Bruce Springsteen](https://www.forbes.com/sites/conormurray/2025/05/16/trump-revives-taylor-swift-feud-and-calls-bruce-springsteen-highly-overrated/) etc). ===:::
+* :::=== RoundSparrow_Commentary : Yes. Donald Trump does **not just praise Putin** / Kremlin / North Korea / Israel - he insults and belittles and indicates that the enemy are American people (Biden / Obama / Hillary Clinton / [Taylor Swift / Bruce Springsteen](https://www.forbes.com/sites/conormurray/2025/05/16/trump-revives-taylor-swift-feud-and-calls-bruce-springsteen-highly-overrated/) etc). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n90b0li/
+
+ssc1800245763 2024-05-19
+
+"Look up the documents that other hotel guests found in the public printer. Luncheon in honor of Vladimir Putin is the first thing with a menu. Fuck these traitors they’re horrible trash people like their voters"
+
+* :::=== RoundSparrow_Commentary : [Pages 6 and 7 in the packet described how lunch at the summit would be served, and for whom. A menu included in the documents indicated that the luncheon was to be held "in honor of **his excellency Vladimir Putin**."](https://www.npr.org/2025/08/16/nx-s1-5504196/trump-putin-summit-documents-left-behind) ===:::
