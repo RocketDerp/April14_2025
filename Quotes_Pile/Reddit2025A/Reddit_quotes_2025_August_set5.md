@@ -689,3 +689,15 @@ jackconrad 2018-07-30
 "Jesus fucking christ. I'm so glad I uninstalled twitter, its become even more of a cesspit."
 
 * :::=== RoundSparrow_Commentary : [Everything is Media Ecology...](../../Media_Ecology/Everything_is_ME.md) - and running way from Twitter, avoiding teaching Neil Postamn's 1985 book, doesn't address the Twitter-created crisis. We have to rescue people from the Internet Research Agency mind-fuck since March 2013. People don't even remember what it was like back in year 2012 before Russia mind-fucked hate into everyone. We have a massive rescue operation of teaching the history of media ecologuy, comparative media ecology, comparative mythology, lessons on fiction vs. nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ms0zdm/republican_chuck_grassley_makes_a_post/n91mdlz/
+
+era--vulgaris 2017-05-01
+
+"Almost all the non-evil people and communities went to Bluesky immediately.
+
+Twitter is now almost completely sports reporting, scattered news agencies, edgelords and Nazis."
+
+* :::=== RoundSparrow_Commentary : Fox News, Newsmax, Rupert Murdoch media outlets, Truth Social, Kremlin media, White House Press Releases in year 2025. The problem is far more than Twitter vs. Bluesky. And why didn't [people notice UNTIL November 11, 2024 AFTER the elction - when it was far too late to migrate in mass to Bluesky](https://www.theguardian.com/technology/2024/nov/12/us-election-bluesky-users-flee-x-twitter-trump-musk). Elon Musk was doing shit ALL YEAR 2024, and people didn't flee untl AFTER the elction to Bluesky. ===:::
