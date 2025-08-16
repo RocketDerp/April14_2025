@@ -193,3 +193,12 @@ CrimsonFeetofKali 2025-01-18 (new this year)
 "The US and Israel apply this logic to Gaza.....Hamas doesn't want peace because they won't release hostages and surrender. And yet it isn't applied to Putin and Ukraine. The logical inconsistencies with this regime are baffling."
 
 &nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mrubz9/trump_left_embarrassed_after_fox_news_called_him/n906j75/
+
+SecretPrinciple8708 2021-07-14
+
+"LOL This account is minutes old. Someone’s supporters are panicked and trying to brigade."
+
+* :::=== RoundSparrow_Commentary : Witnessing the information warfare first hand on Reddit, but LOL LOL LOL amused at it. Neil Postman's 1985 book "Amsuing Ourselves To Death" - this Twitter-length Bluesky-length reaction comment amused at the situation. Kremlin techniques since March 2013 exploit amusement / funny / LOL reactions. Absennt in the comment:  mention of Adam Curtis, Christopher Wylie, Peter Pomerantsev. People just mock and insult back (LOL) day after day since March 2013 and don't organize or rally around key authors like Peter Pomerantsev who explain modern information warfare against realiity. ===:::
+ 
