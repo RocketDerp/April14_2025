@@ -531,8 +531,21 @@ turd-crafter 2018-06-01
 
 &nbsp;
 
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91uej8/
+
 HammerlyDelusion 2024-06-17
 
 "I seriously wanna know how many of those people online are real and how many are bots."
 
 * :::=== RoundSparrow_Commentary : [Everything is Media Ecology...](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/sandiego/comments/1mrz52h/newsoms_latest_tweet/n91vw4g/
+
+GlowUpper 2019-01-17
+
+"Someone on *that* sub said Gavin wants to be Trump so bad. They're either displaying willful ignorance or they're dumber than we thought if they think Newsom's tweets are evidence that he wants to be like Trump.   RIP Satire and Irony. Time of death: 2025."
+
+&nbsp;
+
