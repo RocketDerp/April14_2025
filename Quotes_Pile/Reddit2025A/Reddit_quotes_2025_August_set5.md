@@ -295,3 +295,11 @@ Xanderson 2012-01-07
 "No. He’d do this even without the Epstein files."
 
 * :::=== RoundSparrow_Commentary : Yes, exactly. Study Russia year 2011 and see that Putin does these same antics politics and Putin isn't worried about Epstein sex files. People NEED TO READ the GOD DAMN BOOK: Peter Pomerantsev: "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia" - 2014 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mrzjhu/are_tariffs_to_blame_for_nearly_40_spike_in/n91axem/
+
+Malaix 2016-02-07
+
+"Even if they aren't directly to blame they still offer up a great smokescreen for corporate price gouging. If all or some of your competitors are getting hit with those things and having their prices raised why wouldn't you also raise your prices? What are the consumers going to check your production lines and audit your costs to see if you are lying? No."
