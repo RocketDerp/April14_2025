@@ -158,6 +158,7 @@ ssc1800245763 2024-05-19
 
 * :::=== RoundSparrow_Commentary : [Pages 6 and 7 in the packet described how lunch at the summit would be served, and for whom. A menu included in the documents indicated that the luncheon was to be held "in honor of **his excellency Vladimir Putin**."](https://www.npr.org/2025/08/16/nx-s1-5504196/trump-putin-summit-documents-left-behind) ===:::
 
+
 &nbsp;
 
 https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n90esg6/
@@ -713,3 +714,13 @@ era--vulgaris 2017-05-01
 I remember when it first blew up, how the trolls and fascists were whining that they couldn't get engagement because almost everyone just blocked their asses. Lol."
 
 * :::=== RoundSparrow_Commentary : I know in August 2025 people won't want to hear what I am asserting here... but deportation of people you disagree with is foundation of MAGA. deporting and burning books. In 1937 Germany, they did not have Unicode messages and "block button", they had to burn magazines and books with flame on paper. Cult deprogramming is essential. We need to rescue domestic Russia too. These problem of addiciton to fiction and Kremlin informaiton warfare since March 2013 are DEEP. We haven't addressed Fox news cult and Twitter cult and hate-cults by just having some people flee. All systmes are bending towards hate. Love and compassion for strangers isn't optional, and nobody is teaching love lessons. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps_inner_circle_drop_fbomb/n92hq8p/
+
+Interesting_Put_9031 **2025-03-07 (new this year)**
+
+"Fucking amazing that he could take Vladimir fucking him that hard and have the energy for Fox News to give him such an amazing blowjob."
+
+* :::=== RoundSparrow_Commentary : MAGA style shit-talk. Adopting Trump media behaviors. Sexual fetish of being in private jets and private islands with rich white men. "Amazing" thrilled at Trump Kremlin show. ===:::
