@@ -500,3 +500,14 @@ Facebook owner isn't bad at selling you hate for beer and hate for football and 
 
 No, Facebook knows exactly how to sell you your nightmare as a tea-toadler. "I’m clearly a tee-total bookish nerd who likes philosophy, plants and arduinos" - you don't study the philosophy of being media ecology woke, Marshall McLuhan on advertising / Neil Postman on advertising, Joyce "Woke" Finnegan.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+https://www.youtube.com/watch?v=PC94KQtNPWs
+
+<img width="724" height="338" alt="image" src="https://github.com/user-attachments/assets/eafbc352-6335-4f6f-8451-b4d956900989" />
+
+@5:28 copyright is Brain Damage is a Ted Talk by Nina Paley a decade ago 
