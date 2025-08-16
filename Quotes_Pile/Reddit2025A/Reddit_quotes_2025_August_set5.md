@@ -607,3 +607,11 @@ https://old.reddit.com/r/news/comments/1ms1qk1/wv_national_guard_to_deploy_to_dc
 Tiduszk 2014-12-29
 
 "This is a classic dictator play. Bring soldiers in from the countryside who don't care about the cities. Soldiers from Maryland and Virginia are too likely to have personal connections to DC to be willing to shoot civilians there."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ms1qk1/wv_national_guard_to_deploy_to_dc_for_federal/n91kwrs/
+
+InquisitivelyADHD 2023-05-10
+
+"Yep, amazing how we get to watch the death of American Democracy in real time! Same tricks others have used before and we still fall for them every time."
