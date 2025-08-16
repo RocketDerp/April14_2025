@@ -48,3 +48,6 @@ CharlieBravo74 2020-01-11
 
 &nbsp;
 
+https://old.reddit.com/r/goodnews/comments/1mrvakv/mr_president_trump_you_stood_there_like_a_little/
+
+"Mr. President Trump, you stood there like a little white noodle, like a fanboy," - said Arnold Schwarzenegger about Trump's meeting with Putin.
