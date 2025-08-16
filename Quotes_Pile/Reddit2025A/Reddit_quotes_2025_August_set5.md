@@ -700,4 +700,16 @@ era--vulgaris 2017-05-01
 
 Twitter is now almost completely sports reporting, scattered news agencies, edgelords and Nazis."
 
-* :::=== RoundSparrow_Commentary : Fox News, Newsmax, Rupert Murdoch media outlets, Truth Social, Kremlin media, White House Press Releases in year 2025. The problem is far more than Twitter vs. Bluesky. And why didn't [people notice UNTIL November 11, 2024 AFTER the elction - when it was far too late to migrate in mass to Bluesky](https://www.theguardian.com/technology/2024/nov/12/us-election-bluesky-users-flee-x-twitter-trump-musk). Elon Musk was doing shit ALL YEAR 2024, and people didn't flee untl AFTER the elction to Bluesky. ===:::
+* :::=== RoundSparrow_Commentary : Fox News, Newsmax, Rupert Murdoch media outlets, Truth Social, Kremlin media, White House Press Releases in year 2025, Facebook. The problem is far more than Twitter vs. Bluesky. And why didn't [people notice UNTIL November 11, 2024 AFTER the election - when it was far too late to migrate in mass to Bluesky](https://www.theguardian.com/technology/2024/nov/12/us-election-bluesky-users-flee-x-twitter-trump-musk). Elon Musk was doing shit ALL YEAR 2024, and people didn't flee untl AFTER the elction to Bluesky. And Bluesky has fundamental problems, it only seems better relative to year 2024 Twitter, it is not like going back to year 2012 Twitter or year 2012 Reddit. The IRA changed EVERY PLATFORM of behavior since March 2013. Donald Trump a seocnd term, the problem is extremely serious that people can't talk and educate MAGA out of more Trump. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ms0zdm/republican_chuck_grassley_makes_a_post/n92yn26/
+
+era--vulgaris 2017-05-01
+
+"So much better. Just instablock the fascists and bigots, follow your own communities and creators.... basically what Twitter shouda/coulda been.
+
+I remember when it first blew up, how the trolls and fascists were whining that they couldn't get engagement because almost everyone just blocked their asses. Lol."
+
+* :::=== RoundSparrow_Commentary : I know in August 2025 people won't want to hear what I am asserting here... but deportation of people you disagree with is foundation of MAGA. deporting and burning books. In 1937 Germany, they did not have Unicode messages and "block button", they had to burn magazines and books with flame on paper. Cult deprogramming is essential. We need to rescue domestic Russia too. These problem of addiciton to fiction and Kremlin informaiton warfare since March 2013 are DEEP. We haven't addressed Fox news cult and Twitter cult and hate-cults by just having some people flee. All systmes are bending towards hate. Love and compassion for strangers isn't optional, and nobody is teaching love lessons. ===:::
