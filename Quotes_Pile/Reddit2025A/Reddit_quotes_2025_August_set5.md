@@ -129,3 +129,11 @@ https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing
 juiced911 2017-10-11
 
 "Bots? 10 years ago maybe. Now there’s 50,000,000 or more Americans that talk exactly like this. Maybe as many as 100,000,000."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mru27l/kremlin_leaks_footage_showing_trump_fawning_over/n9049u4/
+
+n0rdique 2011-01-27
+
+"The simple fact that Trump invited a war criminal to the United States and had the red carpet literally rolled out for him to be treated as an equal is a massive, massive loss for Donald “art of the deal” Trump."
