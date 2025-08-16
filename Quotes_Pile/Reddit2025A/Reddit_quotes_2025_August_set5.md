@@ -659,3 +659,13 @@ LLMprophet 2024-06-30
 "He's accomplished an insane amount of Project 2025.
 
 I wish people like you would stop spreading the calming bullshit that Trump is just accidentally bumbling his way through his term. He and his team are pulling off massive takeover and you're sleeping through it."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ms1qk1/wv_national_guard_to_deploy_to_dc_for_federal/n926bfk/
+
+tempest_87 2013-04-01
+
+"He has accomplished some *truly staggering achievements*.
+
+All of them have been terrible awful deplorable things. But they are there."
