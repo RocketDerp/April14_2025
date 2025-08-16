@@ -38,3 +38,13 @@ boxfetish 2013-04-20
 
 * :::=== RoundSparrow_Commentary : Even before Donald Trump was elected to POTUS in November 2016 - USA society had such faith in prison systems that it is a neading society of "tried and put away" values. ["Comparison of United States incarceration rate with other countries"](Comparison_of_United_States_incarceration_rate_with_other_countries). This twitter-length Bluesky-length Twitter-thinking message on Reddit August 16, 2025 wants to build massive prison concentration camps for the poorly educated audience of Fox News and social media, saying "I would love nothing more than to see the shittiest 1/3 of this country get tried and put away" - the emphsis on the word *love*, how much this person thinks that love means putting political opponents "away" for decades. Reddit is mind-fucking peopel with these simplsitic ideas. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mrsyz1/says_all_you_need/n8zvhtw/
+
+CharlieBravo74 2020-01-11
+
+"J6 deniers might be the worst people in the country. J6 was the most filmed crime in the history of the world. The documentation of their crimes is mountainous and conclusive and they’re still gaslighting us about what the day was and why it happened. They can do it because they know the President agrees with their version of reality but facts are facts. Video doesn’t lie."
+
+&nbsp;
+
