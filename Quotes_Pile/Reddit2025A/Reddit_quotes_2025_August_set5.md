@@ -303,3 +303,23 @@ https://old.reddit.com/r/politics/comments/1mrzjhu/are_tariffs_to_blame_for_near
 Malaix 2016-02-07
 
 "Even if they aren't directly to blame they still offer up a great smokescreen for corporate price gouging. If all or some of your competitors are getting hit with those things and having their prices raised why wouldn't you also raise your prices? What are the consumers going to check your production lines and audit your costs to see if you are lying? No."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mrzjhu/are_tariffs_to_blame_for_nearly_40_spike_in/n913f7o/
+
+oh-shazbot 2019-02-22
+
+"mark this one down on the endless list of 'not shocking or surprising for anyone with more than two brain cells'."
+
+* :::=== RoundSparrow_Commentary : The problem isn't the quantity of brain cells, it is that brain cells are attracted to Twiter-length messages like this, dismissive shallow, superficial, mockery, Trump style entertainment addiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mryedj/ron_desantis_enters_the_chat_governor_eyes_chance/n90tngz/
+
+femme_mystique 2024-01-06
+
+"When will history books say the second civil war start date was?"
+
+* :::=== RoundSparrow_Commentary : The Russian Internet Research Agency (IRA) ramped up in March 2013 onward. This isn't a civil war, it is a war against humanism. A war against comprehension. A war against reality. ===:::
