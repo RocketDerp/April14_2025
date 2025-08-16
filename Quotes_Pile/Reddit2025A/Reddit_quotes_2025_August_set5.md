@@ -28,4 +28,13 @@ smac232 2016-04-07
 
 * :::=== RoundSparrow_Commentary : Fiction and PRETENDING far outsells nonfiction. Donald Trump PRETENDING he is Tony Clifton character far outsells authhentic and sincere leaders. I don't consider MAGA ironic as much as exploiting irony addiction, irony poisoning, poisoning nonfiction with audience (We The Peoople) spectacle addiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mrsyz1/says_all_you_need/n906i4a/
+
+boxfetish 2013-04-20
+
+"In keeping with where you are headed, I would love nothing more than to see the shittiest 1/3 of this country get tried and put away for 20+ years under RICO laws/statutes."
+
+* :::=== RoundSparrow_Commentary : Even before Donald Trump was elected to POTUS in November 2016 - USA society had such faith in prison systems that it is a neading society of "tried and put away" values. ["Comparison of United States incarceration rate with other countries"](Comparison_of_United_States_incarceration_rate_with_other_countries). This twitter-length Bluesky-length Twitter-thinking message on Reddit August 16, 2025 wants to build massive prison concentration camps for the poorly educated audience of Fox News and social media, saying "I would love nothing more than to see the shittiest 1/3 of this country get tried and put away" - the emphsis on the word *love*, how much this person thinks that love means putting political opponents "away" for decades. Reddit is mind-fucking peopel with these simplsitic ideas. ===:::
 
