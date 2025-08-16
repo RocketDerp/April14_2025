@@ -436,3 +436,21 @@ kaisadilla_ 2022-06-28
 "They never cared about the children, that's why they kept calling everyone a pedo - which is something whose only effect is making people no longer care about hearing that accusation."
 
 * :::=== RoundSparrow_Commentary : Yes. Pizzagate / QAnon burned out these words to normalize them. That's how Kremlin information warfare works since March 2013. Further, this is why I constantly emphasize the timeline of Malala from Pakistan's rise to public with her book from October 8, 2013 - which is a month before Donald Trump's Moscow sex show in November 2013. If people actually care about the topic of protecting girls from predatory abuse by elders, then Malala covers that topic on a global scale and is ASKING people to join with her as a global reformation. EMPHASIS on DATE of publication: July 10, 2019. Way before Donald Trump second term and "Epstein List" chanting all over Bluesky and Reddit. ["The Epstein Scandal Is Giving QAnon Everything Pizzagate Couldn’t"](https://www.vice.com/en/article/the-epstein-scandal-is-giving-qanon-everything-pizzagate-couldnt/) - the HIGH road is to **name drop Malala from Pakistan, over and over** - you can do that ALONG WITH saying "Epstein List" - but people don't take the high road, no matter how easy it is to use social media. Making Malala famous makes the Taliban Pakistan behavior compared to MAGA marriage to children behavior a global topic, a World Wide Web coverage of the topic. Mix in Iran and Palestine and MAGA as all Levant *conservative values*. In year 1775, life expectancy was WAY LOWER and perhaps marriage at age 15 made sense. But in year 2025 life expectancy is 75 years and we have over 8 billion people crammed on Earth fighting over greed and resources. ===:::
+
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ms1fqd/masked_agents_refuse_to_identify_themselves_claim/n91gx6p/
+
+thewartornhippy 2018-09-06
+
+"You know Hitler and his goons loved to say that Jews and Communists were ruining the country. Nothing would please them more than to throw all registered Democrats into camps."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ms1fqd/masked_agents_refuse_to_identify_themselves_claim/n91j4ho/
+
+kerabatsos 2009-10-17
+
+"I've got five bucks here that says he couldn't name the three branches of government. But he has opinions shaped by Fox News and whatever his drunken hillybilly Dad spewed at him while he was beating him with a belt."
+
