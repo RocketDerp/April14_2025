@@ -90,3 +90,12 @@ OutragedDom 2019-01-18
 
 * :::=== RoundSparrow_Commentary : Americans have lost the [War Against Reality since March 2013 and are constantly declaring WTF to Kremlin / Putin / Trump / White House antics and behavior](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) since year 2013. USA population and leadership (all of USA) does not understand, grasp, or know how to fight back in a War Against Reality. People think adding more snark and sarcasm to absurd and surreal is going to make it better, when it is more poison to the toxic ocean of meme junk. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mrs4ir/demanding_an_award/n8zp1sb/
+
+Suspicious-Buyer8135 2021-04-04
+
+"They should create a single award for him. Like a participation award. Give it out once, only to him. Then the only person that wouldn’t be in on the joke is Trump himself."
+
+* :::=== RoundSparrow_Commentary : Every person's knee-jerk conditioned answer to Kremlin attacking truth and reality is to add more fiction to the fiction. We are drowning in fiction since March 2013 when Internet Research Agency ramped up. ===:::
