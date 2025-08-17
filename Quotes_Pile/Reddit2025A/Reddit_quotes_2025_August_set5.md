@@ -76,6 +76,14 @@ https://old.reddit.com/r/interestingasfuck/comments/1mstgem/spanish_actress_ana_
 
 &nbsp;
 
+https://old.reddit.com/r/interestingasfuck/comments/1mstgem/spanish_actress_ana_obreg%C3%B3n_used_her_dead_sons/n9751t7/
+
+bLzPutozof 2016-07-29
+
+"Exactly. What leaves me dumbfounded is that the internet is this reactionary to the point that people can't even bring themselves to read something more than once.
+
+That and how disgustingly low the attention span of the average person is nowadays, which leads to shit like this"
+
 
 
 .
