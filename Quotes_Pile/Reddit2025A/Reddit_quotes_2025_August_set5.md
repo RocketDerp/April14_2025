@@ -125,7 +125,16 @@ craterIII 2019-11-03
 
 "this timeline is crazy, you'd think this is from the onion but nooo"
 
-* :::=== RoundSparrow_Commentary : This is Surkov Russian society governing year 2011 applied to USA August 2025 and not a soul can cite Surkov or authors who describe him. [Eating the Surkov onions](Surkovian_Onion_Eating.md) the audience saying it looks like the Onion but thinking this isn't crafted / intentional form of govenring (Surkov governing). ===:::
+* :::=== RoundSparrow_Commentary : This is Surkov Russian society governing year 2011 applied to USA August 2025 and not a soul can cite Surkov or authors who describe him. [Eating the Surkov onions](Surkovian_Onion_Eating.md) the audience saying it looks like The Onion but thinking this isn't crafted / intentional form of govenring (Surkov governing). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1msob0g/peter/n95rzya/
+
+bury_lanaka 2024-06-03
+
+"Conservative reactionaries are offended by the idea of gender neutral bathrooms not realizing that every bathroom in someone’s private home is technically gender neutral."
+
 
 &nbsp;
 
