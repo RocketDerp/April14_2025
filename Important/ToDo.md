@@ -527,3 +527,12 @@ https://old.reddit.com/r/TikTokCringe/comments/1mrw2z2/infuriating_that_this_is_
 
 Getting along, the Left shutting up, result of media   
 https://www.youtube.com/watch?v=W0tUArnArtM
+
+&nbsp;
+
+We are inside a facists state.   
+Fascism 101: Trump’s Takeover of D.C. | The Coffee Klatch with Robert Reich    
+Trump taking side against American Intelligence    
+This is the social media conversation that should be sustained, everyone on same page.     
+Bill Moyers covered: March 2016.   https://billmoyers.com/story/trump-the-american-fascist/    
+https://www.youtube.com/watch?v=KpT7AGkHAQo
