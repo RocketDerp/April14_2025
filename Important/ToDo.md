@@ -554,3 +554,12 @@ Mind-fuck exploit example
 Delayed release of informaation (how this applies to Epstein List information strip tease topic)   
 Mythbusters and airplane on convey belt   
 https://www.youtube.com/watch?v=XrBzjqroSHY
+
+&nbsp;
+
+&nbsp;
+
+James Joyce and Prayer as performance Matthew 6:5    
+The Word ....    
+"Loud, hear us!" | Prayer as Immanent Performance in Finnegans Wake    
+https://www.youtube.com/watch?v=yA0gSNQnPoo
