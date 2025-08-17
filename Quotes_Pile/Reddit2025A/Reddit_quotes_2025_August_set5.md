@@ -374,7 +374,17 @@ LordChunggis 2019-08-07
 
 "I'm sure even Trump has to understand what Gav is doing. Proving once again, the only thing dumber than Trump is a Trump supporter."
 
-* :::=== RoundSparrow_Commentary : out-group polarity logic, the *out group is dumb*, and there is no civic duty to defend the nation against Russian information warfare since March 2013. [Eating the Surkovian Kremlin media-style onions, with toxic popularity of out-group mocking](Surkovian_Onion_Eating.md), sharing Twitter-length Bluesky-length reaction comments on Reddit. Every fucking day for over a fucking decade people have had free tiem / spare time (they use to mock and insult on social media) to learn from 2014 articles by Peter P! ===:::
+* :::=== RoundSparrow_Commentary : out-group polarity logic, the *out group is dumb*, and there is no civic duty to defend the nation against Russian information warfare since March 2013. Rural Americans are not educated as high, they are undefended against Surkov students / IRA. Instead of rescuing and saving the rural Americans, adopt the Russian information warfare tactics of total mockery nation. [Eating the Surkovian Kremlin media-style onions, with toxic popularity of out-group mocking](Surkovian_Onion_Eating.md), sharing Twitter-length Bluesky-length reaction comments on Reddit. Every fucking day for over a fucking decade people have had free tiem / spare time (they use to mock and insult on social media) to learn from 2014 articles by Peter P! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n96yejo/
+
+iggy14750 2013-05-11
+
+"I do want us to be careful about underestimating Trump and the rest of the regime. Trump is definitely an idiot, but he's got people who know how to manipulate people. Trump is merely the loudest of the capital class who wanted the glory of being king."
+
+&nbsp;
 
 .
 
