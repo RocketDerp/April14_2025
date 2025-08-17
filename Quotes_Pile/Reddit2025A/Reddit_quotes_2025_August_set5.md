@@ -171,6 +171,26 @@ Ajdee6 2019-10-14
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n963cvj/
+
+ofWildPlaces 2023-08-19
+
+"Anyone who doesn't see the rapidly escalating situation needs to be woken up right now.
+
+Our Federal Government is marshalling forces to enter and occupy American cities. DC is a "proving ground" for their ambitions. Because of its special status, there is little legal obstacle preventing these current deployments to the district.
+
+But trump has threatened similar action against numerous other cities, including Baltimore, New York, Seattle, San Francisco, Chicago and Portland. AMERICAN cities, in which we reside. This is not a response to a make-believe "crime emergency", this is a normalization of military deployed against the population. National Guard are not police. This is not about catching thieves or cleaning up graffiti,
+
+This will escalate until something very, very bad happens. I'm urging every Amercian to speak out now before we all are forced to pass through military checkpoints in our hometowns."
+
+* :::=== RoundSparrow_Commentary : Social media users all across the world can *turn down the noise* and repeat and keep repeating. [Stop sports enagement, stop non-essentials, stop video game engagement, stop trivial and superficial meme engagement. Be serious, lives are on the line. Turn down the meme low-effort noise, actively SHOW you are repurposing spare social media time from entertainment to serious sustained educatioon.](https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md) ===:::
+
+&nbsp;
+
+.
+
+.
+
 .
 
 .
