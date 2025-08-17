@@ -48,11 +48,21 @@ I wonder if we’re watching this method of eradicating hateful idiots from powe
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1msvj2d/maga_is_absolutely_losing_it_in_the_thread/n97dhe6/
 
-]wittylemur 2018-12-08
+wittylemur 2018-12-08
 
 "I feel like we've already been making fun of them for decades and trump was the result."
 
 * :::=== RoundSparrow_Commentary : Andrew Postman... February 2, 2017: ["My dad **predicted Trump in 1985** – it's not Orwell, he warned, it's Brave New World. The ascent of Donald Trump has proved Neil Postman’s argument in Amusing Ourselves to Death was right."](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1msvj2d/maga_is_absolutely_losing_it_in_the_thread/n97uqq4/
+
+sardita 2018-12-14
+
+"The thing about the Colbert Report though is MAGA didn’t realize Stephen Colbert was playing a caricaturized right wing version of himself. The majority of them STILL don’t."
+
+* :::=== RoundSparrow_Commentary : Reddit and Bluesky and USA audience STILL don't realize Trump is playng Surkov screen play, mixed improv and scripted Tony Clifton act. Putin and Trump are working together, Trump doesn't grasp HOW IT WORKS at the Neil Postman level, he just know that IT DOES WORK. ===:::
 
 &nbsp;
 
