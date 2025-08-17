@@ -346,6 +346,20 @@ Lets see the original tweet, I'm tired of all of these generated screenshots wit
 
 * :::=== RoundSparrow_Commentary : ["no one was **sure what was real or fake**. As one journalist put it: "It is a strategy of power that keeps **any opposition** constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year." - 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1msrphv/president_puppet_at_it_again/n976jzg/
+
+Naive_Personality367 **2025-02-13 (this year, note the username** meaning)
+
+"I believe, parrot them and hold them over maga people's heads at every opportunity. They dont care what's true so why should I, when it comes to taking the piss out of them."
+
+ :::=== RoundSparrow_Commentary : Gleeful media addicts feeding their addiction to fiction. Craving more and more Russian information warfare in their mind since March 2013. This is how Surkov won. The war against nonfiction has been lost to the Kremlin. Reality itself abandoned by USA social machine society. People can claim they are being sarcastic and just having fun with spare time and free time on the Internet, but [factual evidence shows they have zero self-awareness going back to year 2014](https://www.bbc.com/news/world-us-canada-45294192) and are justifying their addiciton to fiction / Surkovin governing, compuslive. ===:::
+
+&nbsp;
+
+
+
 .
 
 .
