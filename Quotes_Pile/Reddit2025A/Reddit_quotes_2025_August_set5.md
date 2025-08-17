@@ -233,6 +233,24 @@ xxam925 2012-08-23
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n96fzhs/
+
+AdjNounNumbers 2020-10-23
+
+"Very possible. Once those comments start getting viewed as a popular way to rack up upvotes, regular folks start repeating them and it takes on a life of its own. Such is the way of social media where an interested party with the means and resources can push whatever they want to the top. Regardless, the "release the files" talking point seems to be nearing the end of its course. It'll be interesting to see what the next one is. Frankly, my coping mechanism happens to be obsessively studying human behavior and, as horrifying as this all is, it is absolutely fascinating to me to be able to see this happen in real time"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n961vh2/
+
+DarthBluntSaber 2017-03-02
+
+"Republicans hate hard-working Americans and love rapists and pedophiles. Every day, both elected Republicans and republican voters prove this to be true."
+
+* :::=== RoundSparrow_Commentary : Fiction addiction, avoidance of nonfiction is a better framing of global conservative crisis. [Putin loudly in public called on all the conservatives of the world to unie un December 2013](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/). ===:::
+
+&nbsp;
+
 .
 
 .
