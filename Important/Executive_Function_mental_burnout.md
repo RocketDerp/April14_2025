@@ -44,3 +44,22 @@ hallucinations, believing fiction as reality. Russian information warfare outcom
 "Elon Musk's ambition: Repopulating the planet and 'destroying the woke virus'"
 
 https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# MAGA / Donald Trump cult, treatment
+
+&nbsp;
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lwlu5uth3c2r     
+https://autistics.life/@RoundSparrow/115044045209011729   
+
+MAGA and Donald Trump is extreme egomania values. And mental health professionals all across the world have not been preparing for the cult deprogramming and treatment.
+
+It's possible someone could use the Internet and rapidly prepare a treatment plan for #MAGA cult to anti-reality. It is essential to study Russian information warfare that originated back in year 2013 and was documented and written about in year 2014 
+
+https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
