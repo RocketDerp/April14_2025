@@ -432,10 +432,34 @@ Bulky-Internal8579 2020-12-26
 
 "I can't get enough of this trolling - it's making my days better, THANK YOU GCN FOR BEING PERFECT AND ALPHA! lol, awesome sauce. All the fake gold shit in the White House is turning red and brown from the thrown ketchup and diapers."
 
-* :::=== RoundSparrow_Commentary : On the *world stage*, all 8 billion people on Earth, this is what the USA society describes itself as. [Neil Postman in 1985 book...](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) ===:::
+* :::=== RoundSparrow_Commentary : On the *world stage*, all 8 billion people on Earth, this is what the USA society describes itself as. [Neil Postman in 1985 book...](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) how Fox News audience "can't get enough of this trolling" of Fox News addiction. ===:::
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n970pjc/
+
+herroyalsadness 2024-05-10
+
+"I keep thinking I’ll get sick of it but every single post is funny!"
+
+* :::=== RoundSparrow_Commentary : How Surkov has kept Putin in power for 25 years with these media technique. Infinite Jest mechanics. Fiction fiction fiction, the Middle Ages Church in Europe was using fiction Bible storytelling. We The People (all inclusive, not just MAGA voters) can't get enough of South Park fiction, Twitter fiction, White House fiction, Kremlin fiction. Runaway fiction addiction. As Carl Sagan said in 1995 book, *"especially a kind of celebration of ignorance"*. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n970s0t/
+
+Decent_Warrior93 2021-04-05
+
+"Well if that is the case, that’s gonna be even more bad news for us. If Putin is blackmailing Trump with Epstein tapes, no doubt Trump would give up any and all info to keep those from getting released. More classified info disappearing soon, I’m sure. I want off this god forsaken ride."
+
+* :::=== RoundSparrow_Commentary : ["no one was **sure what was real or fake**. As one journalist put it: "It is a strategy of power that keeps **any opposition** constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year." - 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
+
+
+&nbsp;
+
+
+
+&nbsp;
 .
 
 .
