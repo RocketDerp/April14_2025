@@ -145,6 +145,32 @@ FourWordComment 2016-07-25
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n96oezh/
+
+smitteh 2011-11-28
+
+"Dumb impressionable gung-ho patriot kids that can't critically think or question if what it is they're doing is actually right or wrong because their brains still haven't completely fully formed, and even if they did, they don't have the real world life experience to understand cause and effect/consequences long term....military is fucked up and it's extra super duper fucked up to sic them on their own countrymen. Sucks, but it does work for the dictators in control of them :/"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n969jx7/
+
+A_Refill_of_Mr_Pibb 2020-09-26
+
+"That’s why I’m not confident our service members will refuse to do something the Trump regime dictates. People in uniform don’t do what is moral. They do what is lawful. The military breaks people’s independent thought and re-molds them into soldiers who make that distinction. So you’ll have morally reprehensible but technically lawful things being done. All the while, since they have a system for it, filing complaints that go nowhere. They will not be on our side when SHTF."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n961ps5/
+
+Ajdee6 2019-10-14
+
+"Soldiers throughout history have only followed the orders of their leader, true sheep."
+
+* :::=== RoundSparrow_Commentary : Military boot camp techniques in EVERY GEOGRAPHY of the world work. Study Japan 1942 military training, turn rice farmers into murders and killers. Study Germany 1942. The methods of removing compassion and "love thy enemy" in organized training centers has been known for thousands of years. Military social bonding tehcniques work on any human brain in any geography. Doesn't matter if a person is Hindu, Buddhist, Christian, Mulsim - militery school and military teaching tecniques are proven and work. The messages and tactics of education for terrorism can work on any human brain in any geography. ===:::
+
+&nbsp;
+
 .
 
 .
