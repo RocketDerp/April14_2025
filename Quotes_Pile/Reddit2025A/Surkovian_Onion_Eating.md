@@ -27,6 +27,56 @@ Thinking that this is ONLY the United States of America and Donald Trumpism and 
 
 .
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+.
+
+.
+
+### Rendering Resistance *Absurd* with "The Onion" antics   
+
+&nbsp;
+
+"The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd. One moment Surkov would  ..." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014**
+
+&nbsp;
+
+&nbsp;
+
+### December 5, 2014
+
+Book tour (Peter Pomerantsev) start in early December 2014: https://www.youtube.com/watch?v=5Au332OG-M4
+
+&nbsp;
+
+&nbsp;
+
+### Euphoric and excited to mock and insult Donald Trump
+
+Trump Onion Fans
+
+Trump "only fans", people who are attracted to the surreal absurd [Tony Clifton act of Donald Trump Reality TV super-star status-symbol performance](https://www.youtube.com/watch?v=eyAWBJULFso). Onion eaters who think they are smart and being sarcastic about Donald **Trump's terrible mass media performance** of Tony Clifton audience interaction with media systems...  because Trump / Putin duet is dumb stupid idiot. Onion breath.
+
+Eating the Surkov governing [The Onion](https://en.wikipedia.org/wiki/The_Onion) messaging methods without any self-awareness of Surkovian information warfare, how Russia defeated the USA since year 2013.
+
+.
+
+.
+
+&nbsp;
+
+.
+
+.
+
+.
+
+&nbsp;
+
 #### NOTE A
 
 yes this needs editing and rework.
