@@ -10,6 +10,10 @@ Thank you. [Love to all](Quotes_Pile/Specific/MLKjr_revolution_of_values.md).
 
 * "Survival is the second law of life. The first is that we are all one."
 *  - *A Joseph Campbell Companion: Reflections on the Art of Living*, page 37
+ 
+&nbsp;
+
+"Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among the most important "subjects" to be studied in the interests of survival." - Neil Postman on media ecology
 
 &nbsp;
 
