@@ -120,6 +120,14 @@ Roll-Roll-Roll 2022-01-12
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1msu9on/historic_embarrassment/n978152/
+
+Fit_Kingjames52 2022-05-19
+
+"I believe this guy should be impeached immediately. He is compromised. He’s just wasted 50 years of hard earned democracy and made a laughingstock of the United States on the world stage. Sad time in the United States of America."
+
+&nbsp;
+
 .
 
 .
