@@ -457,7 +457,13 @@ Decent_Warrior93 2021-04-05
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n96zq0z/
 
+-starlet  2020-10-10
+
+"I am LIVING for his tweets."
+
+* :::=== RoundSparrow_Commentary : This is how media addicts to Kremlin informatio warfare, Surkov techniques, behave for over a decade. Finding Joe Biden "sleep Joe", boring... and constantly engaged at those who mimic and behavve like Tony Clifton act. It is like Middle Ages of Europe wehre people LIVED FOR Bible pages every Sunday from the Clergy, fiction media distribuiton network to the society. "I am LIVING for his tweets" is exactly how MAGA cult of Twitter was created in year 2013 onward. QAnon media cult, people who say ""I am LIVING for his Q Drops". ===:::
 
 &nbsp;
 .
