@@ -347,3 +347,12 @@ The microphone and technique is the message.
 
 https://www.youtube.com/watch?v=cirBprnMyA4
 
+&nbsp;
+
+### Hollywood people trafficing 
+
+Anything to be famous, to be on camera. Seeking Fame.   
+Fame the musical  / Film.   
+
+https://old.reddit.com/r/okbuddycinephile/comments/1msuqjp/good_old_days/
+
