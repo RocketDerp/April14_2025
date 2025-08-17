@@ -396,6 +396,36 @@ Large swathes of them are either so dumb they can't see what he's doing or they'
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n9743dp/
+
+iSheepTouch 2012-06-14
+
+"Newsom is all talk and always has been all talk. It works in this context because that's all he has to do to troll Trump and his voters, but ultimately he would be an awful president. If you were someone who thought Obama was all talk and didn't deliver on his promises then Newsom would really piss you off. We need someone who delivers on what they say and has values that align with actual left wing voters, like a Bernie but 30 years younger."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n975lwq/
+
+whomad1215 2011-07-28
+
+<img width="1336" height="1470" alt="image" src="https://github.com/user-attachments/assets/1de1787d-b465-4148-8102-384482cede57" />
+
+&nbsp;
+
+"If Trump has shown us anything, it doesn't matter what you actually do, it matters what you say
+
+Outside of Newsom, and to a much lesser extent Pritzker, Walz, and a couple others, I don't see any democrats doing anything noticeable. Shit some of the most prominent democrats are just being pissy about Mamdani and their own party instead of doing something about republicans
+
+Newsom has obviously done something right, seeing as he's the governor of CA"
+
+* :::=== RoundSparrow_Commentary : "If Trump has shown us anything, it doesn't matter what you actually do, it matters what you say" on Reddit comment August 17, 2025 - the statement of EVERYTHING GOING ON that people *don't grasp*. [Year 2014 book says "Everything is PR", "Everything is Media Ecology"](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+&nbsp;
+
+&nbsp;
+
 .
 
 .
