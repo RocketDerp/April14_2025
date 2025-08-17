@@ -84,7 +84,17 @@ bLzPutozof 2016-07-29
 
 That and how disgustingly low the attention span of the average person is nowadays, which leads to shit like this"
 
+&nbsp;
 
+https://old.reddit.com/r/interestingasfuck/comments/1mstgem/spanish_actress_ana_obreg%C3%B3n_used_her_dead_sons/n977cbx/
+
+BradenTT 2020-07-18
+
+"It’s not even the wording. It makes perfect sense. People just stop reading after seeing something shocking, and just never got to the rest of the sentence. They basically go “Spanish actress Ana Obregón used her dead son’s frozen sperm and a donor egg to have his daughter— WHAT THE FUCK” and never get to the “via a surrogate” part."
+
+* :::=== RoundSparrow_Commentary : If I were describing the outcomes of Kremlin and Cambridge Analytica information warfare since March 2013, it is progression of reactionary high-speed misunderstandings like this Reddit comment is describing. A constant addiction to more fiction and no desire for comprehension or understanding. The Tower of Babel of humanity graoning and creeking under all the generative fiction of the Internet Research Agency since March 2013 onward. Donald Trump fiction bullshit everywhere all the time. And Trump Bullshit is wildcards, dynamic, every person walks away with a different disco ball mirror ego reflection of meaning to his Tweet poetry. ===:::
+
+&nbsp;
 
 .
 
