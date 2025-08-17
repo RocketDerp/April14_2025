@@ -426,6 +426,16 @@ Newsom has obviously done something right, seeing as he's the governor of CA"
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n96ts6s/
+
+Bulky-Internal8579 2020-12-26
+
+"I can't get enough of this trolling - it's making my days better, THANK YOU GCN FOR BEING PERFECT AND ALPHA! lol, awesome sauce. All the fake gold shit in the White House is turning red and brown from the thrown ketchup and diapers."
+
+* :::=== RoundSparrow_Commentary : On the *world stage*, all 8 billion people on Earth, this is what the USA society describes itself as. [Neil Postman in 1985 book...](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) ===:::
+
+&nbsp;
+
 .
 
 .
