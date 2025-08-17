@@ -263,6 +263,16 @@ It shows the power and corruption to the human mind and heart that decades of in
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n961yfh/
+
+Andy_Fish_Gill 2020-11-12
+
+"The military occupation of America’s Capitol vividly illustrate the fascism of Trump, MAGA and Project 2025."
+
+* :::=== RoundSparrow_Commentary : “But the one great shocking occasion, when tens or hundreds or thousands will join with you, never comes. That’s the difficulty. If the last and worst act of the whole regime had come immediately after the first and smallest, thousands, yes, millions would have been sufficiently shocked—if, let us say, the gassing of the Jews in ’43 had come immediately after the ‘German Firm’ stickers on the windows of non-Jewish shops in ’33. But of course this isn’t the way it happens. In between come all the hundreds of little steps, some of them imperceptible, each of them preparing you not to be shocked by the next. Step C is not so much worse than Step B, and, if you did not make a stand at Step B, why should you at Step C? And so on to Step D." ― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45. Published year 1955. ===:::
+
+&nbsp;
+
 .
 
 .
