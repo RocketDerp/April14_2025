@@ -247,7 +247,19 @@ DarthBluntSaber 2017-03-02
 
 "Republicans hate hard-working Americans and love rapists and pedophiles. Every day, both elected Republicans and republican voters prove this to be true."
 
-* :::=== RoundSparrow_Commentary : Fiction addiction, avoidance of nonfiction is a better framing of global conservative crisis. [Putin loudly in public called on all the conservatives of the world to unie un December 2013](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/). ===:::
+* :::=== RoundSparrow_Commentary : Fiction addiction, avoidance of nonfiction is a better framing of global conservative crisis. [Putin loudly in public called on all the **conservatives of the world to unite** in December 2013](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/). This was shortly after Donald Trump's sex show in Moscow, November 2013. And right before the February 2014 Ukraine hot war violence.  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n96vcb4/
+
+Vuronov 2015-07-06
+
+"The fact that there are "normal" people we know and interact with everyday, coworkers friends family, that see this and think it is "fine" is boggles the mind and hurts the soul.
+
+It shows the power and corruption to the human mind and heart that decades of intense and targeted propaganda can achieve by preying on our worst impulses."
+
+* :::=== RoundSparrow_Commentary : Entertainment "Reality TV The Apprentice Donald Trump" as usual. Social media users all across the world can *turn down the noise* and repeat and keep repeating. [Stop sports enagement, stop non-essentials, stop video game engagement, stop trivial and superficial meme engagement. Be serious, lives are on the line. Turn down the meme low-effort noise, actively SHOW you are repurposing spare social media time from entertainment to serious sustained educatioon.](https://github.com/RocketDerp/April14_2025/blob/main/Grim_Blunt/Stop_All_Entertainment.md) ===:::
 
 &nbsp;
 
