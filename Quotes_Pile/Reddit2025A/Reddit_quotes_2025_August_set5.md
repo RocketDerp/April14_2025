@@ -324,6 +324,16 @@ Zestyclose_Minimum63 2023-07-09
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1msrphv/president_puppet_at_it_again/n96vmt6/
+
+James-Dicker 2023-12-27
+
+"I knew it. Who would say something like the top tweet? This thread is full of people who are very smart, so smart that extremely simple and easily disprovable propaganda definitely doesn't work on them"
+
+* :::=== RoundSparrow_Commentary : Toxic society, toxic culture, toxic nation. People using media systems to game, manipulate, mind-fuck, trick each other. Donald Trump role model, Putin role model, Elon Musk role model, Rupert Murdoch role model of media usage. Social media has had since March 2016 to stand up and assert Jen Senko's film, but people grey-rock her like Malala is grey-rocked for being "too good". ===:::
+
 .
 
 .
