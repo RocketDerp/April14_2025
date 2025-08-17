@@ -99,9 +99,41 @@ CankerLord  2019-09-25
 "I like that it's actually the same sort of petty bullshit that Trump engages in."
 
 * :::=== RoundSparrow_Commentary : Reddit media addicts to trash garbage media desire and crave more trash thinking and meme systems. This compulsive addiction to Kremlin Surkov governing methods is not only on Reddit, it is on Bluesky and Twitter and TikTok and YouTube comment sections, etc, etc, etc. Clickbait trash White House content and South Park are unified exploitation of Surkov information war outcomes. This is feasting upon the information warfare mind-fucked population. Science reason thinking and intelligence is repulsed by the meme-thinking chucklehead society. Exactly as Neil Postman described in his 1985 book "Amusing Ourselves To Death" about electric media ecology. Sexual orgy of John 1:1 mind-fucking media consumers. John 1:1 - God is memes and only memes, God is language and only language. A mind virus (Elon Musk Term) that is Trumpism.
-Petty bullshit dragging down everyone, this is a media ecology crisis, and comprehensive understand of Neil Postman's 1985 book (and 1992 book, and September 1995 book, and Carl Sagan's 1995 book) puts this into perspective. This is what Carl Sagan called "celebration of ignorance" in 1995. Carl Sagan even went out of his way to emphasize the Twitter-length thinking, 10 second media content, of this Reddit reply message in 1995. [Rick Roderick, Duke University, in 1993 emphasized "are just reduced to banality, just the common rubble of little one line joke, you follow me?"](https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/) - emphasize on LITTLE ONE-LINE, Twitter-length comments like this Reddit one and Carl Sagan *10-seconds in length*. It is a mindset of jamming out comprehension with amusement / humor / joke mindsets, and Surkov Kremlin information warfare induces these mindsets not only in Donald Trump, but the entire USA population. Everything becomes scripted and improvised Reality TV antics. Tony Clifton act. Not just Trump behaving like Tony Clifton, but everyone (peer pressure built bottom-up by Kremlin since March 2013 with IRA) adopting in copycat / thinking they are out-sarcasm the Surkov technique. It drags everyone down. ===:::
+Petty bullshit dragging down everyone, this is a media ecology crisis, and comprehensive understand of Neil Postman's 1985 book (and 1992 book, and September 1995 book, and Carl Sagan's 1995 book) puts this into perspective. This is what Carl Sagan called "celebration of ignorance" in 1995. Carl Sagan even went out of his way to emphasize the Twitter-length thinking, 10 second media content, of this Reddit reply message in 1995. [Rick Roderick, Duke University, in 1993 emphasized "are just reduced to banality, just the common rubble of little one line joke, you follow me?"](https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/) - emphasize on LITTLE ONE-LINE, Twitter-length comments like this Reddit one and Carl Sagan *10-seconds in length*. It is a mindset of jamming out comprehension with amusement / humor / joke mindsets, and Surkov Kremlin information warfare induces these mindsets not only in Donald Trump, but the entire USA population. Everything becomes scripted and improvised Reality TV antics. Tony Clifton act. Not just Trump behaving like Tony Clifton, but everyone (peer pressure built bottom-up by Kremlin since March 2013 with IRA) adopting in copycat / thinking they are out-sarcasm the Surkov technique. It drags everyone down in a *race to the bottom* of the human subconsious mindsets. ===:::
 
 &nbsp;
+
+"Humpty Dumpty has a weak index finger."
+
+CliplessWingtips 2014-12-15
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n9486h5/
+
+* :::=== RoundSparrow_Commentary : ToDo: Finnegans Wake media eoclogy year 1924 onward right there. Humpty Dumpty in Finnegans Wake. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n94cttc/
+
+craterIII 2019-11-03
+
+<img width="1538" height="342" alt="image" src="https://github.com/user-attachments/assets/52860048-e1d5-4869-be4a-e94d4c975ae6" />
+
+&nbsp;
+
+"this timeline is crazy, you'd think this is from the onion but nooo"
+
+* :::=== RoundSparrow_Commentary : This is Surkov Russian society governing year 2011 applied to USA August 2025 and not a soul can cite Surkov or authors who describe him. [Eating the Surkov onions](Surkovian_Onion_Eating.md) the audience saying it looks like the Onion but thinking this isn't crafted / intentional form of govenring (Surkov governing). ===:::
+
+&nbsp;
+
+.
+
+.
+
+.
 
 .
 
