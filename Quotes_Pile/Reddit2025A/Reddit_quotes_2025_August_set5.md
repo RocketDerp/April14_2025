@@ -104,6 +104,13 @@ olafubbly 2020-04-20
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1msvj2d/maga_is_absolutely_losing_it_in_the_thread/n97c7ap/
+
+Goodlake 2014-01-03
+
+"Probably he has correctly discerned that we’re not a serious electorate any longer, there are no points awarded for maturity/professionalism, and all that matters is pwning your opponents."
+
+&nbsp;
 
 .
 
