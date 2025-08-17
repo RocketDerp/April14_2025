@@ -22,6 +22,14 @@ Javyz 2017-07-01
 
 &nbsp;
 
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n95hn42/
+
+CocoabrothaSBB 2020-02-15
+
+"The attention is real and ironically right wing media talking heads are going on about how immature he sounds without acknowledging that he is simply mocking and mimicking their king."
+
+* :::=== RoundSparrow_Commentary : In other words, the answer to Fox News is not for every other media outlet to adopt Fox News fiction content. Except that is what happens because fiction outsells nonfiction. Antics politics and entertainment society has taken over the audience, this has been going on since March 2013 when the IRA went online. Playing into a Russian information warfare meme system is a terrible idea. ChatGPT / GrokAI and other large language models (LLM) have been trained on Kremlin information warfare and are [regurgitating the same Cambridge Analytica and Russian mind-fucking 5,000 patterns](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) in new variations. Trying to **trick and manipulate the meme addled audience back into reality** is likely leading the USA further into disaster. ===:::
+
 .
 
 .
