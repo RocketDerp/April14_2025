@@ -536,6 +536,8 @@ Trump taking side against American Intelligence
 This is the social media conversation that should be sustained, everyone on same page.     
 Bill Moyers covered: March 2016.   https://billmoyers.com/story/trump-the-american-fascist/    
 https://www.youtube.com/watch?v=KpT7AGkHAQo    
+Shorter 8 minute video that focuses on the punchline     
+https://www.youtube.com/watch?v=1rqzQubVOfI     
 Only 1.29 million subscribers at this stage of 10 years into Trumpism. Horrific what is popular.    
 
 &nbsp;
