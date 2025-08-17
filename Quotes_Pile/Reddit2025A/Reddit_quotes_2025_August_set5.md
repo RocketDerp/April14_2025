@@ -59,13 +59,29 @@ Sadcasm69 2020-08-11
 
 "Finally someone has the balls to play trumps stupid game. If only all the dems have the same balls."
 
-* :::=== RoundSparrow_Commentary : Reddit active measures, mind-fucking the audience of Reddit. Twitter-length Tweet-thinking that the answer to *stupid* is be *more stupid*, dumb and dumber. Addicts to stupid fiction content of Reddit want even more content to feed their addiction to memes and trash. “Science is more than a body of knowledge; it is a way of thinking. I have a foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, [the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie **Dumb and Dumber**. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+* :::=== RoundSparrow_Commentary : Reddit active measures, mind-fucking the audience of Reddit. Twitter-length Tweet-thinking that the answer to *stupid* is be *more stupid*, dumb and dumber. Addicts to stupid fiction content of Reddit social machines want even more content to feed their addiction to memes and trash. “Science is more than a body of knowledge; it is a way of thinking. I have a foreboding (1995) of an America in my children’s or grandchildren’s time — when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, [the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie **Dumb and Dumber**. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n95prq1/
+
+Embarrassed_Lab_5595 2022-11-21
+
+"Yes, Trump is envious of Gavin. Trump is envious of anyone who shows competency in any field. Because competency is something Trump has failed to personally demonstrate his entire life. This is one of the reasons he surrounds himself with ass- kissers and incompetent people."
+
+* :::=== RoundSparrow_Commentary : It is really sad and sickening to see such extreme pschcological denial among Americans about Donald Trump. He is amazingly accomplished at filling every media network of every size and type with his brand family name and entertaining people to such extremes that they give up power and wealth. Donald Trump commands all Reddit users into hate and mocking and nobody resists with intellect and science thinking. People are deeply in love with Donald Trump content, it gives their life purpose to mock and hate. Donald Trump has wrecked lives, wrecked future, to serve Putin and Surkov media addictions, antics politics. USA is not about Donald Trump, one person, and [We The People have sold out the entire nation 100% of the nation - to media addiction](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). And Donald Trump is the Trickle Down Content dealer, the provider, of the memes people love more than life itself. A nation is not about what ONE MAN wants, it is about waht 300 million people choose EVERY HOUR of EVERY DAY - their addiction to Donald Trump playing Tony Clifton act. ===:::
+
 
 &nbsp;
 
 .
 
 .
+
+.
+
+.
+
 
 .
 
