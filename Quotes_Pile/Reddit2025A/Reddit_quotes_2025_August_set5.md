@@ -22,7 +22,18 @@ elonbrave 2014-12-03
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n978ahd/
+
+Rinzy2000 2021-06-12
+
+"It’s been fun watching right the wing media dummies melt down over this. They’re like “he sounds insane!” Um…yeah. That’s the point. After all this is (hopefully) over, I think we need to examine MAGA brains to see how they are able to compartmentalize information in a way that is entirely contradictory, yet their brains don’t completely explode from cognitive dissonance. It’s wild."
+
+* :::=== RoundSparrow_Commentary :  Shitshow has been going on for over a decade. Russia won the information war using Surkov techniques. “When a population becomes distracted by trivia, when cultural life is redefined as a **perpetual round of entertainments, when serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 -- ... [the gullibility Americans have to Surkov absurd antics politics](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) is still wide open to all hostile enemy nations exploiting it. ===:::
+
 &nbsp;
+
+&nbsp;
+
 
 .
 
