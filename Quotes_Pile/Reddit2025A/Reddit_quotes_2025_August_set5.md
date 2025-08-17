@@ -170,6 +170,22 @@ You guys can downvote all you want I don't care. For all I know these claims of 
 
 &nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1mt2dzm/disturbing_video_shows_lawmaker_stuffing_ballots/n98wz22/
+
+theletterdubbleyou **2025-06-03 (recent account)**
+
+"That was actually part of the con itself. That wasn't ironic, it was purposely put forward in a calculated way so that when the Trump regime then actually went ahead and *did* rig the 2024 election results (via Musk and likely Thiel too) it would be political suicide for ANYONE on the left to question the integrity of the election itself.
+
+Doesn't anyone else see this..?
+
+They cried wolf so much that it became so unpalatable for Democrats to do the same, lest they are seen as pure hypocrites. It was a very very smart tactic, and I can only fucking hope that the truth comes out soon. To what extent this truth may affect American democratic institutions, I just don't know, because nobody can really know yet. But it probably will not be good for the country nonetheless.
+
+The con was baked in from the VERRRRRY beginning, guys."
+
+&nbsp;
+
+* :::=== RoundSparrow_Commentary : Factual evidence says Russia did this (claimed stolen elections even before voting days). But people on Reddit don't link factual evidence about Russia. https://www.nbcnews.com/tech/social-media/russian-twitter-trolls-stoked-voter-fraud-fear-election-n820771 ===:::
+
 .
 
 .
