@@ -21,3 +21,15 @@ it is BECAUSE Donald Trump was so obviously bad, badness itself being sleeked ou
 “In an ever-changing, incomprehensible world the masses had reached the point where they would, at the same time, believe everything and nothing, think that everything was possible and that nothing was true. ... Mass propaganda discovered that its audience was ready at all times to believe the worst, no matter how absurd, and did not particularly object to being deceived because it held every statement to be a lie anyhow. The totalitarian mass leaders based their propaganda on the correct psychological assumption that, under such conditions, one could make people believe the most fantastic statements one day, and trust that if the next day they were given irrefutable proof of their falsehood, they would take refuge in cynicism; instead of deserting the leaders who had lied to them, they would protest that they had known all along that the statement was a lie and would admire the leaders for their superior tactical cleverness.”
 ― Hannah Arendt, The Origins of Totalitarianism. Published **year 1951**
 
+&nbsp;
+
+&nbsp;
+
+# August 16, 2025
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lwkppxn7ts2f    
+https://autistics.life/@RoundSparrow/115041475227865077    
+
+June 16, 2015 campaign rally speech at Trump Tower in New York City
+
+I hope that now, August 16, 2025 - we are reaching a point that the saturation of Donald Trump bullshit is smelling so bad that ALL people are waking up that for over 10 years rural people have trusted NYC City Slicker.
