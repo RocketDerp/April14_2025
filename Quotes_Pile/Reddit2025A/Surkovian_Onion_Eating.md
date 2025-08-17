@@ -33,8 +33,19 @@ Thinking that this is ONLY the United States of America and Donald Trumpism and 
 
 &nbsp;
 
-======================================================   
 ------------------------------------------------------
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n94cttc/
+
+<img width="1518" height="290" alt="image" src="https://github.com/user-attachments/assets/8ab92d4e-bacf-4986-9a23-befcc0c9b6d5" />
+
+&nbsp;
+
+"this timeline is crazy, you'd think this is from the onion but nooo" - Sunday August 17, 2025 
+
+&nbsp;
 
 .
 
