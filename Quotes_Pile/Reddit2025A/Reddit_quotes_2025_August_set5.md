@@ -1,3 +1,58 @@
+# Sunday August 17, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n94osqh/
+
+thooth-hurty 2023-10-24
+
+"A genuine question from Non - US citizen -
+
+I keep seeing this guy's tweet on Reddit, but is he getting any attention offline or in real life?
+
+Or this is just a Reddit hype because people are desperate?"
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n94vvch/
+
+Javyz 2017-07-01
+
+"Because America is fucked and has been for ages"
+
+&nbsp;
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+
+
+
 # Saturday August 16, 2025
 
 &nbsp;
