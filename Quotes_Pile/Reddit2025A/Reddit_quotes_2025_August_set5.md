@@ -46,6 +46,16 @@ I wonder if we’re watching this method of eradicating hateful idiots from powe
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1msvj2d/maga_is_absolutely_losing_it_in_the_thread/n97dhe6/
+
+]wittylemur 2018-12-08
+
+"I feel like we've already been making fun of them for decades and trump was the result."
+
+* :::=== RoundSparrow_Commentary : Andrew Postman... February 2, 2017: ["My dad **predicted Trump in 1985** – it's not Orwell, he warned, it's Brave New World. The ascent of Donald Trump has proved Neil Postman’s argument in Amusing Ourselves to Death was right."](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) ===:::
+
+&nbsp;
+
 .
 
 .
