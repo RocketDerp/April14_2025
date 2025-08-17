@@ -219,7 +219,17 @@ TSllama 2023-08-25
 
 "Yeah, I think it's a coping mechanism - I think a lot of Americans failed to see this shit coming, and are having a very hard time dealing with reality, so instead of addressing things that are actually happening and dealing with reality, they are deflecting to something "easier" that gives them some kind of misguided hope - "is somehow somewhere these files are magically released, maybe Trump will lose tons of support and the Democrats will be able to win in 2028". I think that's what's going through their heads, and it's sadly very much impossible, but also a very bad coping mechanism... and it's not remotely helping anyone with anything."
 
-* :::=== RoundSparrow_Commentary : It's far worse than authentic coping mechanism. It is active measures, QAnon and Pizzagate, Russia promotes QAnon. Wake the fuck up that all unreality is a threat and the absence of scientific focus and mindsets is a crisis for ANY NATION, not just the 0.34 billion in the USA, but the 8 billion in the entire world. Fiction addiction is a global crisis, the IRA ramped up in March 2013 and attacked MULTIPLE nations - not just "Epstein List" Trump USA.  ["The ‘ghost reporters’ writing pro-Russian propaganda in West Africa. Al Jazeera finds that an influence campaign using nonexistent writers is spreading anti-France sentiment across West and Central Africa."](https://www.aljazeera.com/features/2025/3/20/the-ghost-reporters-writing-pro-russian-propaganda-in-west-africa) ===:::
+* :::=== RoundSparrow_Commentary : It's far worse than authentic coping mechanism. It is active measures, QAnon and Pizzagate, [Russia actively promotes QAnon](https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html). Wake the fuck up that all unreality (ficton addiction) is a threat and the absence of scientific focus and mindsets is a crisis for ANY NATION, not just the 0.34 billion in the USA, but the 8 billion in the entire world. Fiction addiction is a global crisis, the IRA ramped up in March 2013 and attacked MULTIPLE nations - not just "Epstein List" Trump USA.  ["The ‘ghost reporters’ writing pro-Russian propaganda in West Africa. Al Jazeera finds that an influence campaign using nonexistent writers is spreading anti-France sentiment across West and Central Africa."](https://www.aljazeera.com/features/2025/3/20/the-ghost-reporters-writing-pro-russian-propaganda-in-west-africa) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n96bw22/
+
+xxam925 2012-08-23
+
+"To take this a bit further I think the fad of posting that rubbish at the top of every post everywhere was promulgated by some interns at a think tank somewhere. It just seems so obvious to me."
+
+* :::=== RoundSparrow_Commentary :  "In a world where even the most authoritarian regimes struggle to impose censorship, one has to surround audiences with so much cynicism about anybody’s motives, persuade them that behind every seemingly benign motivation is a nefarious, if **impossible-to-prove, plot**, that they lose faith in the possibility of an alternative, a tactic a renowned Russian media analyst called **Vasily Gatov calls ‘white jamming’**." ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, **year 2019** ===:::
 
 &nbsp;
 
