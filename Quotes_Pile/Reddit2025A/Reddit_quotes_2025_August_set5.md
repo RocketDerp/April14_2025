@@ -788,3 +788,13 @@ https://old.reddit.com/r/NoShitSherlock/comments/1ms6l2n/trump_got_fucked_trumps
 1cem4n82 2018-12-31 (NYE)
 
 "We all know it. What could he offer that any other grown person could believe? He’s the best negotiator while somehow being the worst negotiator? Grown people are holding back any kind of a future because of words like liberal and woke. Fucking words take our future away. Can’t MAGA collectively choke on a chicken bone please?"
+
+&nbsp;
+
+https://old.reddit.com/r/WomenInNews/comments/1ms1dce/multiple_men_have_impersonated_ice_agents_to/n91i87p/
+
+Gameboywarrior 2011-10-20
+
+"Everyone saw this coming. Republicans support the chaos and brutality because this is what they wanted to happen. Even the most moderate conservatives want the rest of us to be terrorized and abused"
+
+&nbsp;
