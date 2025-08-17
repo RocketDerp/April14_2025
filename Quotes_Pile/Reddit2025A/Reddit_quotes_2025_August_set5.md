@@ -128,6 +128,24 @@ Fit_Kingjames52 2022-05-19
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1msu9on/historic_embarrassment/n97b9ns/
+
+Mitka69 2022-07-28
+
+"Embarassment already happened in 2016 - our president is Russian asset. The rest just follows from this."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1msu9on/historic_embarrassment/n98hgdp/
+
+phantom_metallic 2024-03-18
+
+"Weird that every single time putin is criticized, random accounts will pop up ITT to deflect towards Israel and u.s. democrats.
+
+Right on queue."
+
+&nbsp;
+
 .
 
 .
