@@ -34,6 +34,17 @@ Rinzy2000 2021-06-12
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1msvj2d/maga_is_absolutely_losing_it_in_the_thread/n97clm9/
+
+fizzzzzpop 2017-04-14
+
+"So I remember hearing on a docu or podcast a long time ago was one of the ways they combated the popularity of the KKK was to mock them on radio shows and pretty soon the KKK became the butt of the jokes across the country and members slunk away into the shadows from embarrassment.
+
+I wonder if we’re watching this method of eradicating hateful idiots from power with laughter in real time. It’s giving me a glimmer of hope"
+
+* :::=== RoundSparrow_Commentary :  In this story, change KKK to USA, and Russia launching a *turn USA into a world laughing stock* information war in March 2013 working with Cambridge Analytica. That's reality, that people in USA don't even REALIZE they have lost an information war to Russia and Putin, because they can't stop with the mocking and insulting long enough to sober up and stay focused on the morphing identity of the Internet Research Agency. Now ChatGPT / GrokAI / LLM systems have all be TRAINED on the 5,000 information warfare payload patterns since year 2022! We are LIVING as the joke on the world stage for over a decade and don't even have the self-awareness of media ecology to grasp it. Surkov won! ===:::
+
+&nbsp;
 
 .
 
