@@ -273,6 +273,44 @@ Andy_Fish_Gill 2020-11-12
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1msrphv/president_puppet_at_it_again/n96gm7i/
+
+Fear_of_the_boof **2025-07-04 (new account, Independence day)**
+
+"Republicans are unwell, they are a danger to themselves and others."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1msrphv/president_puppet_at_it_again/n96iy4b/
+
+TaffyHex **2025-07-18 (new account)**
+
+<img width="886" height="1134" alt="image" src="https://github.com/user-attachments/assets/12de71c4-cc36-4cf2-827f-e12dcb23af4d" />
+
+&nbsp;
+
+"Couldn’t agree more it’s like watching someone set their own house on fire and call it a victory. It really does feel like they’ve chosen chaos over community"
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1msrphv/president_puppet_at_it_again/n96lrok/
+
+Blushmancer **2025-07-18 (new account, created on exact same day as TaffyHex reply context)**
+
+"Perfectly said self-destruction disguised as pride, it’s wild how they’ll celebrate chaos as if it’s some kind of achievement."
+
+&nbsp;
+
+&nbsp;
+
+.
+
+.
+
+.
+
 .
 
 .
