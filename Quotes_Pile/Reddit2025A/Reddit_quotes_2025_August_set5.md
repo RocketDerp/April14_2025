@@ -69,11 +69,26 @@ Embarrassed_Lab_5595 2022-11-21
 
 "Yes, Trump is envious of Gavin. Trump is envious of anyone who shows competency in any field. Because competency is something Trump has failed to personally demonstrate his entire life. This is one of the reasons he surrounds himself with ass- kissers and incompetent people."
 
-* :::=== RoundSparrow_Commentary : It is really sad and sickening to see such extreme psychological denial among Americans about Donald Trump. He is amazingly accomplished at filling every media network of every size and type with his brand family name and entertaining people to such extremes that they give up power and wealth. Donald Trump commands all Reddit users into hate and mocking and nobody resists with intellect and science thinking. People are deeply in love with Donald Trump content, it gives their life purpose to mock and hate. Donald Trump has wrecked lives, wrecked future, to serve Putin and Surkov media addictions, antics politics. USA is not about Donald Trump, one person, and [We The People have sold out the entire nation 100% of the nation - to media addiction](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). And Donald Trump is the Trickle Down Content dealer, the provider, of the memes people love more than life itself. A nation is not about what ONE MAN wants, it is about what 300 million people choose EVERY HOUR of EVERY DAY - their addiction to Donald Trump playing Tony Clifton act. Thinking this is about one man alone, **Donald Trump's personal envy** and his *personal dementia* completely avoids the elephants in the room: Fox News, Elon Musk Twitter, Newsmax, /r/Conservative subreddit, the trash all over Reddit front page of junk memes, Rupert Murdoch's entire empire of fiction. ===:::
+* :::=== RoundSparrow_Commentary : It is really sad and sickening to see such extreme psychological denial among Americans about Donald Trump. He is amazingly accomplished at filling every media network of every size and type with his brand family name and entertaining people to such extremes that they give up power and wealth. Donald Trump commands all Reddit users into hate and mocking and nobody resists with intellect and science thinking. People are deeply in love with Donald Trump content, it gives their life purpose to mock and hate. Donald Trump has wrecked lives, wrecked future, to serve Putin and Surkov media addictions, antics politics. USA is not about Donald Trump, one person, and [We The People have sold out the entire nation 100% of the nation - to media addiction](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). And Donald Trump is the Trickle Down Content dealer, the provider, of the memes people love more than life itself. A nation is not about what ONE MAN wants, it is about what 300 million people choose EVERY HOUR of EVERY DAY - their addiction to Donald Trump playing Tony Clifton act. Thinking this is about one man alone, **Donald Trump's personal envy** and his *personal dementia* completely avoids the elephants in the room: Fox News, Elon Musk Twitter, Newsmax, /r/Conservative subreddit, the trash all over Reddit front page of junk memes, Rupert Murdoch's entire empire of fiction, hundreds of millions of [Americans who admire and desire Putin's 25 years of power and Russian media systems](https://youtu.be/5Au332OG-M4?t=420). ===:::
 
 &nbsp;
 
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n94jv2m/
 
+fffan9391 2011-07-09
+
+"Look at that smirk on Putin. He knows a joke when he sees one."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n94x8qu/
+
+Fun_Possibility_4566  2023-10-24
+
+" "sad" is my absolute favorite part"
+
+* :::=== RoundSparrow_Commentary : Meme addicts cheer on the bamboozle. People in USA society absolutly adore bieng mind-fucked by the Kremlin and White House using Surkov techniques. People can not get ENOUGH of mocking and insulting the bullshit that comes out of of Donald Trump. It's been TEN FULL YEARS of people mimicing and adopting Donald Trump's style / manners / thinking. People adopt the and flock to his shit, it is irresistable to meme consumers. The meme addicts of America have polluted and trashed the USA Mass Mind / Mass Man thinking sytems by copycat behavior of Donald Trump. It is sickening and sad that you can never escape the addiction people have to the Tony Clifton performance. Donald Trump knows the more unusual and odd he behaves in interaction with the press systems / media systems of society. [The medium is the massage, March 1967, is essential understanidng](https://www.themediumisthemassage.com/) to all this power and wealth concentration that the Kremlin has done with Putin for 25 years and why Donald Trump exploits the audience (paired with IRA bottom-up audience mind-fucking). ::: :: :::
+“One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ===:::
 
 &nbsp;
 
