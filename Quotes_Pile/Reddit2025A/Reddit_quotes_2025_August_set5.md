@@ -368,6 +368,14 @@ ImpressiveSimple8617 2021-03-08
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n96yeri/
+
+LordChunggis 2019-08-07
+
+"I'm sure even Trump has to understand what Gav is doing. Proving once again, the only thing dumber than Trump is a Trump supporter."
+
+* :::=== RoundSparrow_Commentary : out-group polarity logic, the *out group is dumb*, and there is no civic duty to defend the nation against Russian information warfare since March 2013. [Eating the Surkovian Kremlin media-style onions, with toxic popularity of out-group mocking](Surkovian_Onion_Eating.md), sharing Twitter-length Bluesky-length reaction comments on Reddit. Every fucking day for over a fucking decade people have had free tiem / spare time (they use to mock and insult on social media) to learn from 2014 articles by Peter P! ===:::
+
 .
 
 .
