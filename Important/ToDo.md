@@ -542,6 +542,15 @@ Only 1.29 million subscribers at this stage of 10 years into Trumpism. Horrific 
 
 &nbsp;
 
-babel
+babel tower sex come-on line   
 
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1ms9dlx/elegantly_put/
+
+&nbsp;
+
+&nbsp;
+
+Mind-fuck exploit example    
+Delayed release of informaation (how this applies to Epstein List information strip tease topic)   
+Mythbusters and airplane on convey belt   
+https://www.youtube.com/watch?v=XrBzjqroSHY
