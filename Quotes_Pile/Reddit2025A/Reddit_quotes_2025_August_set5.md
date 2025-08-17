@@ -301,6 +301,25 @@ Blushmancer **2025-07-18 (new account, created on exact same day as TaffyHex rep
 
 "Perfectly said self-destruction disguised as pride, it’s wild how they’ll celebrate chaos as if it’s some kind of achievement."
 
+* :::=== RoundSparrow_Commentary : “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, page 85. **year 2019** ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1msrphv/president_puppet_at_it_again/n96itnc/
+
+Zestyclose_Minimum63 2023-07-09
+
+<img width="1124" height="818" alt="image" src="https://github.com/user-attachments/assets/1f69620f-8fb1-4029-98e7-5fae70729b31" />
+
+&nbsp;
+
+"The whole RED CARPET thing was just ridiculous. Putin is NOT our friend or an ally. As for the statement he made in 2017, it's whatever way the wind blows for him. And, what did this meeting on US soil accomplish - not a damn thing for us but the Russians were all happy. Riding in the "Beast" was another stupid move - all the while Putin is smiling big for the Russian cameras. Trump is a laughing stock and this whole thing has backfired. Oh, and thank you for your attention to this matter! What kind of idiot adds that line to the end of his post! So dumb."
+
+* :::=== RoundSparrow_Commentary : People calling it stupid, dumb. Eating the Surkovian onions with zero self-awareness of how Surkovian media techniques work and have kept Russia in power for 25 years. Donald Trump is compulsively behavirng as an addict to fiction memes. Donald Trump can not distinguish Reality TV from scientific (Carl Sagan) reality. "Trump is a laughing stock and this whole thing has backfired" - acting as if Tony Clifton performance is terrible and bad, [zero self-awareness of Surkov techniques of media audience](Surkovian_Onion_Eating.md) interaction. ===:::
+
 &nbsp;
 
 &nbsp;
