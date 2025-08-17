@@ -354,11 +354,19 @@ Naive_Personality367 **2025-02-13 (this year, note the username** meaning)
 
 "I believe, parrot them and hold them over maga people's heads at every opportunity. They dont care what's true so why should I, when it comes to taking the piss out of them."
 
- :::=== RoundSparrow_Commentary : Gleeful media addicts feeding their addiction to fiction. Craving more and more Russian information warfare in their mind since March 2013. This is how Surkov won. The war against nonfiction has been lost to the Kremlin. Reality itself abandoned by USA social machine society. People can claim they are being sarcastic and just having fun with spare time and free time on the Internet, but [factual evidence shows they have zero self-awareness going back to year 2014](https://www.bbc.com/news/world-us-canada-45294192) and are justifying their addiciton to fiction / Surkovin governing, compuslive. ===:::
+* :::=== RoundSparrow_Commentary : Gleeful media addicts feeding their addiction to fiction. Craving more and more Russian information warfare in their mind since March 2013. This is how Surkov won. The war against nonfiction has been lost to the Kremlin. Reality itself abandoned by USA social machine society. People can claim they are being sarcastic and just having fun with spare time and free time on the Internet, but [factual evidence shows they have zero self-awareness going back to year 2014](https://www.bbc.com/news/world-us-canada-45294192) and are justifying their addiciton to fiction / Surkovin governing, compuslive. ===:::
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n96tolk/
 
+ImpressiveSimple8617 2021-03-08
+
+"My favorite part is theyre taking these tweets as him legit talking like this. Missing the whole point completely. And its funny they call everyone else snowflakes and are so easily triggered."
+
+* :::=== RoundSparrow_Commentary : USA people find their favorite part is how Russia / Putin / Surkov / **Kremlin won an information war, meme mind wrecking of USA, since March 2013** that they [can not describe November 2012 origins](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/). “One characteristic of those who live in a Technopoly is that they are largely unaware of both the origins and the effects of their technologies.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992 ... ... "And its funny they call everyone else snowflakes and are so easily triggered" is Eating the Surkov onions, falling for the Tony Clifton Donald Trump act with Putin. Real lives, real future of the USA is stake, and this Twitter-length tweet-think Bluesky-length messaging is what wrecked the USA, just as Carl Sagan said in 1995 book about length of media *gotcha* bullshit. Living in a world were everything is video sceeen game of fiction and [booby-trapped information](../../Important/Booby_Trapped_Reality.md) is a *very shitty* world. In the Middle East, for thousands of years, they murder and kill over favorite science fiction story (Quran science fiction vs. Bible science fiction vs. Torah science fiction, retcons all). ===:::
+
+&nbsp;
 
 .
 
