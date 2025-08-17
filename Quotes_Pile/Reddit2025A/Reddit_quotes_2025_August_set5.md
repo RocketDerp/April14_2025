@@ -798,3 +798,10 @@ Gameboywarrior 2011-10-20
 "Everyone saw this coming. Republicans support the chaos and brutality because this is what they wanted to happen. Even the most moderate conservatives want the rest of us to be terrorized and abused"
 
 &nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1ms8y7p/gallup_just_said_drinking_in_the_us_is_down_to_54/n938rth/
+
+12345CodeToMyLuggage 2013-06-12
+
+"I sometimes wonder if it’s because of social media too. When I was younger, the upperclassmen went to parties and drank and it was cool and mysterious. Then when I did, I had a blast, but someone, maybe even me, always did something embarrassing. They made for hilarious stories but god I’d hate for those moments to be encased on social media forever. The young kids seem to cringe all the time at us older people and I wonder if part of that is seeing being the curtain of what buffoons we really are."
+
