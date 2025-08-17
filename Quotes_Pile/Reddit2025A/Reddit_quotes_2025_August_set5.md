@@ -96,6 +96,15 @@ BradenTT 2020-07-18
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1msvj2d/maga_is_absolutely_losing_it_in_the_thread/n97agnh/
+
+olafubbly 2020-04-20
+
+"History teachers are gonna have a ball teaching kids about this plot line in 2025, a genuinely funny thing happening"
+
+&nbsp;
+
+
 .
 
 .
