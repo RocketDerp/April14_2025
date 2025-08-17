@@ -187,6 +187,32 @@ This will escalate until something very, very bad happens. I'm urging every Amer
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n9632fz/
+
+TSllama 2023-08-25
+
+"It's really crazy how many people think that the fascist takeover is a distraction from the Epstein files, when the Epstein files were literally the distraction from the fascist takeover.
+
+He brought up and used the Epstein files in order to distract people to get into office. Then he got in and threw them out because he doesn't need the distraction anymore. Now he can carry out his original plan - the fascist takeover of the US."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mspnza/white_house_says_national_guard_members_deployed/n9661ur/
+
+AdjNounNumbers 2020-10-23
+
+<img width="1392" height="1504" alt="image" src="https://github.com/user-attachments/assets/0b87cb9d-7586-4f73-a658-8fe9c049d427" />
+
+&nbsp;
+
+"You're spot on with this and it is incredibly frustrating to see the same "that's nice, release the files" responses repeatedly being thrown out for every horrible thing the admin says or does. It's really beginning to feel like the withholding of the files is the distraction. Yes, they should be released, but there's no way we could trust whatever this admin releases anyway. So unless someone somewhere leaks original copies I think it's fair to just assume the worst: that everyone with any kind of power is in them. Every billionaire, every high ranking politician, every complicit Republican and Democrat that's currently letting him steamroll our Constitution for the fashy oligarchy. The whole "that's nice, release the files" thing is starting to feel like it was intentional to distract us from the big issues."
+
+&nbsp;
+
+&nbsp;
+
 .
 
 .
