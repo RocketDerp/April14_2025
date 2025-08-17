@@ -135,6 +135,13 @@ bury_lanaka 2024-06-03
 
 "Conservative reactionaries are offended by the idea of gender neutral bathrooms not realizing that every bathroom in someone’s private home is technically gender neutral."
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n94cttc/
+
+FourWordComment 2016-07-25
+
+"Well you’ve got to remember that the president said it’s dangerous there. No evidence, but he said so. So armed army guys intimidating citizens is perfectly fine."
 
 &nbsp;
 
