@@ -386,6 +386,16 @@ iggy14750 2013-05-11
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n97bu70/
+
+Bryan-Chan-Sama-Kun 2018-11-19
+
+"That's the most depressing part imo. 
+
+Large swathes of them are either so dumb they can't see what he's doing or they're so tuned out of the reality of who they voted for that they didn't know Trump's been making this type of post non-stop."
+
+&nbsp;
+
 .
 
 .
