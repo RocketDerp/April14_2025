@@ -12,6 +12,16 @@ At the same time, it is incredibly sad this is where American politics is. I’m
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sassy_today_more_trump_trolling/n96yjpz/
+
+elonbrave 2014-12-03
+
+"I wonder what would happen if Newsome challenged Trump to a fistfight."
+
+* :::=== RoundSparrow_Commentary : No words can describe the compusive cravings people have about Donald Trump. They just can't remove him from office and stop the shitshow, they are so engaged with Trump behaving like Tony Clifton. Fantasy politics of constant entertainment. ===:::
+
+&nbsp;
+
 &nbsp;
 
 .
