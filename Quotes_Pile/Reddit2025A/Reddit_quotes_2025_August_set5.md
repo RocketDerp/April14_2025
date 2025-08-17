@@ -30,6 +30,29 @@ CocoabrothaSBB 2020-02-15
 
 * :::=== RoundSparrow_Commentary : In other words, the answer to Fox News is not for every other media outlet to adopt Fox News fiction content. Except that is what happens because fiction outsells nonfiction. Antics politics and entertainment society has taken over the audience, this has been going on since March 2013 when the IRA went online. Playing into a Russian information warfare meme system is a terrible idea. ChatGPT / GrokAI and other large language models (LLM) have been trained on Kremlin information warfare and are [regurgitating the same Cambridge Analytica and Russian mind-fucking 5,000 patterns](https://www.facebook.com/konstantin.rykov/posts/10210643558675446) in new variations. Trying to **trick and manipulate the meme addled audience back into reality** is likely leading the USA further into disaster. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n949zu6/
+
+Due-Demand5568 **2025-07-03 (new account)**
+
+"Honestly, politicians throwing shade like this is way more entertaining than their usual canned statements."
+
+* :::=== RoundSparrow_Commentary : The very crisis of Donald Trump MAGA Fox News addiction. “If politics is like show business, then the idea is not to pursue excellence, clarity or honesty but to appear as if you are, which is another matter altogether.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1msf78w/the_governor_keeping_it_real/n94arvi/
+
+spidermans_mom 2021-11-01
+
+"I love that he is holding up a mirror to MAGA to show them how asinine their Dear Leader is. They unironically are criticizing Newsom for imitating the shit Dear Leader writes. They are determined not to get the joke."
+
+* :::=== RoundSparrow_Commentary : Americans are in extreme denial of how long they have been living under social media Donald Trump values, how long Fox News entertainment HDTV values have influenced all other news networks. The denial that fiction outsells nonfiction. People are looking into amusement funhouse mirrors, not in any way moving towards scientific sincere reality. Neil Postman 1985 book "Amusing Ourselves To Death" is the mirror that shows the problem a decade before Fox News wnet online October 7, 1996 and before MAGA Trumpism took off. 1985 was when Ronald Regan entertainment POTUS was second term. ===:::
+
+
+&nbsp;
+
 .
 
 .
