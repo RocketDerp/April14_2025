@@ -537,3 +537,9 @@ This is the social media conversation that should be sustained, everyone on same
 Bill Moyers covered: March 2016.   https://billmoyers.com/story/trump-the-american-fascist/    
 https://www.youtube.com/watch?v=KpT7AGkHAQo    
 Only 1.29 million subscribers at this stage of 10 years into Trumpism. Horrific what is popular.    
+
+&nbsp;
+
+babel
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ms9dlx/elegantly_put/
