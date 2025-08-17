@@ -148,10 +148,6 @@ Right on queue."
 
 https://old.reddit.com/r/NoFilterNews/comments/1mt2dzm/disturbing_video_shows_lawmaker_stuffing_ballots/n998wf9/
 
-&nbsp;
-
-https://old.reddit.com/r/NoFilterNews/comments/1mt2dzm/disturbing_video_shows_lawmaker_stuffing_ballots/n998wf9/
-
 Grantsdale 2014-09-29
 
 "You sound just like him.
@@ -161,6 +157,8 @@ There wasn’t fraud. Just morons."
 * :::=== RoundSparrow_Commentary : It is as if the pandemic wasn't evidence enough to people of the anti-science. I knew real believers of Donald Trump who died in the pandemic. People who believe RFK Jr's anti-science nonsense. I spent decades of my adult life traveling the real world to compare how people related to ficiton and Internet information decorations, part of how I predicted the Arab Spring in North Africa back in December 2009. The USA behavior changed when the IRA went online in 2013. People still will not face up to their own family members and workplace fiends who watch Fox News and how they parrot fiction content off Fox News as if it is fiction content from Church / Bible! Why oh why can social media not face up that Jen Senko's March 2016 film got barely any repeat and repeating on social media? A boomer stood up against Fox News, The Little Guy stood up to the Fox News problem and nobody on social media gave a shit. Show me the evidence of social media users rallying in a sustained way for truth and nonfiction in the face of Fox News / MAGA / Donald Trump. Malala came and spoke in a Church for the first time in her life when Trump took office, but people can't flock to goodness itsel and sustained reform. Bernie Sanders in 2015 / 2016 was one of the FEW examples of social media users standing up sustained for goodness. And today in 2025, people ignore Bernie Sanders unless he is in the news - you do not see people asserting what Sanders has said in year 2025 about goodness itself needing to be central to facing up to Trump. People keep patting themselves on the back for takimg the "high road". [I see no evidence of people facing the real problem with Donald Tump: fiction, Fox News, Twitter, right-wing media fiction content. Why the fuck did social media users ignore Jen Senko's film and not give her free repeating on social media as publicity on the topic?](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad) ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mt2dzm/disturbing_video_shows_lawmaker_stuffing_ballots/n996x6d/
 
 humanino 2013-03-07
 
