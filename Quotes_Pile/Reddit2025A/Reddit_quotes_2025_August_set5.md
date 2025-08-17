@@ -805,3 +805,12 @@ https://old.reddit.com/r/AskReddit/comments/1ms8y7p/gallup_just_said_drinking_in
 
 "I sometimes wonder if it’s because of social media too. When I was younger, the upperclassmen went to parties and drank and it was cool and mysterious. Then when I did, I had a blast, but someone, maybe even me, always did something embarrassing. They made for hilarious stories but god I’d hate for those moments to be encased on social media forever. The young kids seem to cringe all the time at us older people and I wonder if part of that is seeing being the curtain of what buffoons we really are."
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1ms7fp8/israeli_ambassador_urges_the_eu_to_stop_obsessing/n93bfpw/
+
+unassumingdink 2015-10-26
+
+"In America at least, a huge chunk of liberals are either on board with the genocide, or downplaying the hell out of it because it makes Democrats look bad for supporting it. They actually care more about making politicians seem blameless than they do about a genocide. And are more pissed off at the people who didn't vote for them anyway than they are at the genocidal politicians."
+
+* :::=== RoundSparrow_Commentary : In 1969 Woodstock music festival period, a peace symbol meant world peace. It didn't mean only ending the Woodstock NYC Vietnam USA war, it meant reforming ALL religions and ending ALL wars. MLK Jr wasn't only about ending slavery and bause of black skin color in 1950's and 1960's, MLK Jr was about ALL people on the Earth. That's the difference I see with modern social media users, they are all about team sports and not team humanity Pale Blue Dot EVERYONE. ===:::
