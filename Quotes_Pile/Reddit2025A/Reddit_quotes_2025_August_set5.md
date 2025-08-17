@@ -112,6 +112,24 @@ Goodlake 2014-01-03
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1msygix/oc_fox_divides_families_fox_protects_pedophiles/n989h28/
+
+Roll-Roll-Roll 2022-01-12
+
+"Yeah. It needs to be done, but ultimately Trump is replaceable and the political machine behind him will continue after he's gone. I just want to see more attention drawn to the fact that we're in dire need of reform. It doesn't get enough attention."
+
+&nbsp;
+
+.
+
+.
+
+.
+
+.
+
+.
+
 .
 
 .
