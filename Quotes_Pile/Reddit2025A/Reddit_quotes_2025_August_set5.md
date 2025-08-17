@@ -66,6 +66,18 @@ sardita 2018-12-14
 
 &nbsp;
 
+https://old.reddit.com/r/interestingasfuck/comments/1mstgem/spanish_actress_ana_obreg%C3%B3n_used_her_dead_sons/n9756bi/
+
+\_missfoster\_ 2018-05-19
+
+"More like bold of them to assume *anyone* can read nowadays. Let alone understand what the words actually mean, with the context and all."
+
+* :::=== RoundSparrow_Commentary :  "The way to be liberated from the constraining effects of any medium is to develop a perspective on it — how it works and what it does. **Being illiterate in the processes of any medium (language) leaves one at the mercy of those who control it. The new media — these new languages — then are among the most important "subjects" to be studied in the interests of survival**. But they must be studied in a new way if they are to be understood, they must be studied as mediators of perception." - Neil Postman ===:::
+
+&nbsp;
+
+
+
 .
 
 .
