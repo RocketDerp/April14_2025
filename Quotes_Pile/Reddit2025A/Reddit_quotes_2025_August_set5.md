@@ -1,4 +1,4 @@
-# Monday August 18 Checkpoint A
+### Monday August 18 Checkpoint A
 
 &nbsp;
 
@@ -30,6 +30,14 @@ https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9
 CozyCoin 2024-03-04
 
 "So we're body shaming now? Being some kind of handsome white Chad is good?"
+
+&nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9dw4ww/
+
+J-ne 2021-11-05
+
+"I'm confused by the downvote. Last I checked, raping children and giving a sweetheart deal to a known child trafficker is worse than dating a 19-year-old?"
 
 &nbsp;
 
