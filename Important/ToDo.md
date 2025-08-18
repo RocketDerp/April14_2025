@@ -627,3 +627,8 @@ https://www.youtube.com/watch?v=zL_C0dUxQE4
 Men autism excuse for sex   
 Together Alone year 2007 book comment    
 https://www.youtube.com/watch?v=cEPpSRtjZyw
+
+&nbsp;
+
+Real validation of The ELIZA effect. Real fiction addiction.    
+https://www.youtube.com/post/Ugkx1v2EAlSe4aTsBiDhIHaRse3erNx4H1db
