@@ -83,6 +83,23 @@ grad1939 2016-11-06
 
 * :::=== RoundSparrow_Commentary :  Elon Musk Twitter GrokAI "woke mind virus" of billionaires. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html - alas, Reddit users can't stick to the same topic every 4 hours and repeat for 18 months. ===:::
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mtxcgb/president_zelensky_standing_out_amongst_the_gold/n9ev8ia/
+
+QueLub 2014-02-18
+
+"Won’t let me post pics here so I encourage you to google “Trump Leningrad 1987” and look at the images lol. He’s making the White House literally replicate Russia."
+
+<img width="249" height="202" alt="image" src="https://github.com/user-attachments/assets/3b6e0554-bbbc-4f1b-bcad-a70d8cc548d2" />
+
+&nbsp;
+
+* :::=== RoundSparrow_Commentary :  Kremlin **Surkov "mind virus"** (Elon Musk richest person on Earth language terminology: https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html 2024) ===:::
+
+
 .
 
 .
