@@ -370,6 +370,14 @@ RadasNoir 2019-03-03
 
 &nbsp;
 
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9axspm/
+
+looptarded 2021-11-11
+
+"As an Aussie dude who sees way too much US politics, Gavin is fucking hilarious and should be commended for his trolling. I see some of the left don’t like him, but you guys have to unify to beat this orange ass clown. This is what it’s going to take"
+
+* :::=== RoundSparrow_Commentary : The Reddit popular answer to clowing for 10 years is *always more clowning*. The Reddit fiction addiction answer to no-identity social media (Reddit accounts without real people) is *always more no-identity social media*. The Reddit media cult answer to fiction White House and fiction Fox News is *always more fiction!* Surkov won since March 2013. People are completely avoidant of nonfiction ([Neil Postman, "The End of Education" Steptember 1995 / Eternal September Year 1](https://www.goodreads.com/work/quotes/508006-the-end-of-education-redefining-the-value-of-school)). ===:::
+
 &nbsp;
 
 &nbsp;
