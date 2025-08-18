@@ -660,7 +660,25 @@ papasan_mamasan 2017-05-31
 
 "I really hate AI but this is really fucking funny"
 
-* :::=== RoundSparrow_Commentary : Media addicts will sell out their values for "fucking funny". Once they find something amusing (Neil Postman 1985 "Amusing Ourselves To Death"), something *fucking funny* as this Reddit comment says - they will throw out EVERYTHING for their fiction content / generative AI / Donald Trump performing as Tony Clifton. ===:::
+* :::=== RoundSparrow_Commentary : Media addicts will sell out their values for "fucking funny". Once they find something amusing (Neil Postman 1985 "Amusing Ourselves To Death"), something *fucking funny* as this Reddit comment says - they will throw out EVERYTHING GOODNESS (previous morality) for their fiction content / generative AI / Donald Trump performing as Tony Clifton. Surkov won since March 2013 exploiting this human brain loophole technicality... Postman explains. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mtqw87/the_trump_trolling_hasnt_stopped_im_down_for_it/n9dj8om/
+
+jiantjon 2015-03-03
+
+"Supposedly they’re both 6’3”. Even with dipshit’s tall hat he’s shorter than Newsom."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mtqw87/the_trump_trolling_hasnt_stopped_im_down_for_it/n9dngt3/
+
+Ok-Abbreviations543 2021-03-26
+
+"The problem for Drooling Donnie is that he thought he was at a girl scout camp about to have a pillow fight and then was going to chat with Ronald Reagan."
+
+* :::=== RoundSparrow_Commentary : Reddit one-liner Twitter-length demonstrates [eating the Surkovian onions](Surkovian_Onion_Eating.md) ... the audience commenting that Trump looks like a terrible performance (Tony Clifton) but thinking this isn't crafted / intentional form of govenring (Surkov governing). Donald Trump is a master to gullible audiences. USA bamboozled, as Carl Sagan warned in 1995 book. ===:::
 
 &nbsp;
 
