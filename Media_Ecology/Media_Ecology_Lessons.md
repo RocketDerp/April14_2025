@@ -356,3 +356,10 @@ Fame the musical  / Film.
 
 https://old.reddit.com/r/okbuddycinephile/comments/1msuqjp/good_old_days/
 
+&nbsp;
+
+### Copy Protection, Copyright in the storytelling and acting 
+
+Egypt American-creted art (Journalism, Research Research Research, Great Seal nile river USA 1776)    
+Video title: "Dagger of Amon Ra Copy Protection Failures"     
+https://www.youtube.com/watch?v=1Xv2kTn-Wac
