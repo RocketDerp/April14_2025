@@ -206,6 +206,20 @@ Zodiac-reaper 2023-03-15
 
 * :::=== RoundSparrow_Commentary : [Putin's information war since March 2013 has wrecked the USA society so terribly that people in USA can't even grasp how much things have changed in thinking and anti-reality.](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mtdxfy/zelensky_responds_to_trump_comments_russia_must/n9c3shf/
+
+PJ7 2012-09-06
+
+"Sure, but Americans still handed them the reins.
+
+All Americans will be wearing this. They should've done more to stop it."
+
+* :::=== RoundSparrow_Commentary : Americans, USA population, not just voters - but everyone - has adopted insulting, mocking, hate of Donald Trump. For 10 years, endless total mockery and insulting on social machines. That's [the outcomes of the Internet Research Agency](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) with Cambridge Analytica payloads. ===:::
+
+
+&nbsp;
 
 &nbsp;
 
