@@ -1159,6 +1159,17 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1mst7g0/gavin_newsom_is_sas
 * :::=== RoundSparrow_Commentary : This is how media addicts to Kremlin informatio warfare, Surkov techniques, behave for over a decade. Finding Joe Biden "sleep Joe", boring... and constantly engaged at those who mimic and behavve like Tony Clifton act. It is like Middle Ages of Europe wehre people LIVED FOR Bible pages every Sunday from the Clergy, fiction media distribuiton network to the society. "I am LIVING for his tweets" is exactly how MAGA cult of Twitter was created in year 2013 onward. QAnon media cult, people who say "I am LIVING for his Q Drops". ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9az9ya/
+
+ut-fan-i-cant-read **2025-07-12 (new account)**
+
+"It's truly incredible, I thought they would just go for the "stop mocking the president" angle but these stupid narcissistic fuckwads are seriously attempting to pretend that this isn't exactly how Trump has spoken for the last decade"
+
+* :::=== RoundSparrow_Commentary : Donald Trump's Tony Clifton act can't be easily duplicated. Donald Trump had casinos to learn the popularity of people being tricked and gamed. Andy Kaufman / SNL in New York City. Edward Bernays and Fred Trump techniques. Donald Trump is a master of Reality TV / Reality fiction entertainment. ===:::
+
+&nbsp;
+
 .
 
 .
