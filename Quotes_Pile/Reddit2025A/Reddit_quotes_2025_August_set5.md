@@ -41,6 +41,30 @@ J-ne 2021-11-05
 
 &nbsp;
 
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9dqi31/
+
+Front-Contribution91 2021-05-20
+
+"The richer and better looking you are is who reddit votes for."
+
+&nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9drm5d/
+
+IndraBlue 2020-09-18
+
+"Imagine wanting Gavin newsome as president loool California is a hell hole for anyone making under 250k a year"
+
+&nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9doajr/
+
+Lazerhawk_x 2021-02-24
+
+"...and he sold his soul for power. Vance has proven time and again that he will abandon morals, abandon his position and bully foreign leaders in exchange for the chance to boot lick and pander."
+
+&nbsp;
+
 .
 
 .
