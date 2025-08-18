@@ -563,3 +563,8 @@ James Joyce and Prayer as performance Matthew 6:5
 The Word ....    
 "Loud, hear us!" | Prayer as Immanent Performance in Finnegans Wake    
 https://www.youtube.com/watch?v=yA0gSNQnPoo
+
+&nbsp;
+
+Slavery in USA history, information egomania, klling people for having information.   
+https://old.reddit.com/r/todayilearned/comments/1mt6nan/til_in_1857_a_book_analyzed_census_data_to/
