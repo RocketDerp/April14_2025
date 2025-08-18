@@ -72,6 +72,17 @@ Weird-Economist-3088
 "Can the Jesus freaks please explain vanity?"
 
 * :::=== RoundSparrow_Commentary : Can meme freaks, chuckleheads, on Reddit and Bluesky who LOL at anything serious explain... 1) Donald Trump $59.99 Bible and verse Matthew 6:5 and clergy silence? 2) Elon Musk in White House D.O.G.E. Q1 2025 and Bible verse "1 John 3:17" pairing? 3) Donald Trump and verse "1 John 3:17" and clergy avoidance? ... Why can't Reddit front-page post "1 John 3:17" calling out clergy and Trumpism? Matthew 6:5 and Bible posing? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mtxcgb/president_zelensky_standing_out_amongst_the_gold/n9ewiyi/
+
+grad1939 2016-11-06
+
+"They'll just say it's okay because it's trump. Afterall. He was chosen by god to destroy the "evil woke mind virus." "
+
+* :::=== RoundSparrow_Commentary :  Elon Musk Twitter GrokAI "woke mind virus" of billionaires. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html - alas, Reddit users can't stick to the same topic every 4 hours and repeat for 18 months. ===:::
+
 .
 
 .
