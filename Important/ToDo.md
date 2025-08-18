@@ -589,3 +589,10 @@ https://old.reddit.com/r/NonPoliticalTwitter/comments/1mtldpp/that_means_a_divor
 
 Autistimatic content, 30 minutes, weave into Wake Indra Opera.    
 https://www.youtube.com/watch?v=O7OHPD5jeHc
+
+&nbsp;
+
+Mythology of schizophrenia   
+Logic and mindsets.    
+metaphorical as literally.   
+https://www.youtube.com/watch?v=Vj3FkUVqneQ
