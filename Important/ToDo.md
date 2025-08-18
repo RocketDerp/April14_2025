@@ -568,3 +568,9 @@ https://www.youtube.com/watch?v=yA0gSNQnPoo
 
 Slavery in USA history, information egomania, klling people for having information.   
 https://old.reddit.com/r/todayilearned/comments/1mt6nan/til_in_1857_a_book_analyzed_census_data_to/
+
+&nbsp;
+
+Intelligent thinking people voting vs. land-owning people.  The media ecology crisis of not teaching NYC Manhattan Professor Neil Postman's 1985 book "Amusing Ourselves To Death" to rural Americans / rural USA population - and letting predatory billionares like Rupert Murdoch (immigrant from down under) feed Fox News content to rural population since October 7, 1996.    
+https://old.reddit.com/r/MurderedByWords/comments/1mtj32r/republicans_never_understand_land_doesnt_vote/
+
