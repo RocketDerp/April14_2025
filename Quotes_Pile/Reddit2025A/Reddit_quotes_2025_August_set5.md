@@ -109,6 +109,16 @@ Maroon-98  2021-04-12
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1mtxcgb/president_zelensky_standing_out_amongst_the_gold/n9evj3t/
+
+"How is it possible that every time we see this room it looks even more gaudy and shitty than it did before.
+
+(This is rhetorical, I know it’s because there’s a petulant rapist manchild who thinks making everything gold is some sign of power and wealth. And not that it shows you have no class, no taste, and are just a small penis sycophant trying to compensate.)"
+
+* :::=== RoundSparrow_Commentary : Reddit media addict can't stop discussing penis of Donald Trump (Epstein List private jet sex acts) over and over, unable to realize as a media consumer that reaction-cmmenting of how terrible Donald Trump is (as Tony Clifton media act) has eaten the Kremlin Surkov media technique image Onions. OR - this is Active Measures Reddit message payload, and it is impossible to tell reality. ["the **key thing was, that Surkov** then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year. In typical fashion, as the war began, Surkov published a short story" - NYE 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) --- "How is it possible that every time we see" reddit comment August 18, 2025 - HOW is Surkovian technique year 2011 possible in Trump White House year 2025? How is it possible BBC Adam Curtis NYE 2014 story can't make front-page Reddit every 3 days or 18 months (or until Trump MAGA fixed)? ===:::
+
+&nbsp;
+
 
 .
 
