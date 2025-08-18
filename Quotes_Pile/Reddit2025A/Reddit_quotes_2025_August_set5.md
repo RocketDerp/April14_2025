@@ -728,6 +728,16 @@ This is the exact playbook from the 1930s, except this time you can get it immed
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mttyct/trump_jokes_about_canceling_elections_in_wartime/n9ehk1l/
+
+atombara 2013-05-09
+
+"It's also in schools and hospitals here in the midwest now. The waiting room at my optician is locked either on ONN or a constant loop of country music slop played over AI footage of rolling hills and tractors to calm and soothe the corn people.
+
+We are **fucked**. None of this ends in a functional society."
+
+&nbsp;
+
 .
 
 .
