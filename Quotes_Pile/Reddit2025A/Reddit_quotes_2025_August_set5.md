@@ -318,6 +318,38 @@ pentachronic 2021-09-28
 
 &nbsp;
 
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9b2qyw/
+
+What_a_fat_one 2025-01-29 (new this year)
+
+"Conservatism is based on the assumption that you're better than other people. The disrespect is intentional. When it's returned they're baffled and enraged, because how could the monkey possibly point and laugh back at me??
+
+And statistically they're actually significantly less intelligent than non-conservatives."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9blp2b/
+
+Pvt_Mozart 2019-03-29
+
+"I grew up in an ultra conservative family and saw firsthand how good people could have the worst, most selfish parts of them encouraged to the point that it becomes them. Hell I watched Bill O'Reilly and Rush Limbaugh turn my Dad into the worst version of himself in real time.
+
+I used to think pre-Trump that maybe *I* was seeing the world wrong. I was like 16 surrounded by Conservatives in the South. Could they be right and I was somehow mislead?
+
+Then Trump came and they went full mask off, and I realized that being a "Conservative Christian" gave them permission to lean into the worst parts of themselves. To lean into those selfish instincts with a sense of moral superiority. It gives them permission to be selfish assholes, because they have "god on their side." So thank Trump I guess. I don't struggle with wondering that anymore."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9am6fy/
+
+Moppermonster 2019-10-25
+
+"It still amazes me how many ardent Trump supporters were unaware that Trump posts in this style."
+
+* :::=== RoundSparrow_Commentary : It is a lesson of history that people do not want to face: “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... **No one knew what was happening to him, least of all of the Germans**, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945 ===:::
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
