@@ -282,6 +282,17 @@ cometgold 2016-12-08
 
 &nbsp;
 
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9ajs2p/
+
+Southwestern 2013-07-29
+
+"I've been begging Dems to clown on this guy for a decade. If you treat a monkey seriously, the world becomes the circus."
+
+* :::=== RoundSparrow_Commentary : Addicts to fiction crave more fiction. Addicts to memes and junk media want more clowning. Surkov won the information war since March 2013. USA population is drunk on Surkovian governing, nobody is sobering up, they are begging for more fiction. Nonfiction and science thinking abandoned (as Carl Sagan predicted/warned in 1995 book). ===:::
+
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
