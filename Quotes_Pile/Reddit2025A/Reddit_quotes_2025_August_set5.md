@@ -224,6 +224,20 @@ haux44 2020-07-09
 
 * :::=== RoundSparrow_Commentary : It is a national crisis that we don't teach about "God" in schools (and to adults for remedial information warfare lessons). Did we learn nothing of the threats of September 11, 2001 about "God" being a motivation for terrorism? We lost to the Taliban in Afghanistan. And we learned nothing? We should be teaching Comparative Mythology and helping people understand Thor and Allah and Kali and the Navajo Pollen Path of Native Americans. The murder, klling, conflicts, misunderstandings of "God" symbolism systems. These are all artistic fiction languages. [Russia is using "God" in information warfare, active measures](https://www.euronews.com/2025/07/07/unorthodox-intelligence-operations-how-russia-is-using-its-churches-abroad)! ===:
 
+&nbsp;
+
+https://old.reddit.com/r/ThatsInsane/comments/1mt37s1/truck_driver_commits_attempted_vehicular/n99nw17/
+
+"The kid goes by Kc Ghost Rider online and he has a video where he says they wouldn't let him make a police report because there was no contact..... but then he has a follow up video where he says he got a call from a detective because so many people called and emailed the department after seeing the video online."
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1mt4qum/i_told_a_man_today_he_would_be_hotter_with_duct/
+
+"I had emergency brain surgery on Tuesday and ended up with my head completely shaved so I’m bald now. I had really gorgeous curly hair before the surgery and it’ll be at least a couple years before it is back the way I want it. It’s hot where I am and hats/wigs just aren’t my thing so I was just out and about with my baldness in all its glory. I don’t feel very attractive or secure in my appearance anymore but it is what it is. I was in a store today and a man literally reached out and stopped me and said “you would be a lot hotter if you wore a wig, it’s what my wife did when she had cancer.” I immediately told him he would be way hotter with duct tape over his fat mouth. He made some comment about me being a bitch because he was just trying to be helpful as I walked away. I already have to go back to teaching middle school tomorrow where the kids will be absolutely ruthless, why oh why are people like this?"
+
+* :::=== RoundSparrow_Commentary : What kind of society makes Donald Trump a role model? We don't teach how people behave / "human nature" and just expect people to not be egomaniacs in public (social media, in person like this woman reports). The clergy sure isn't teaching these situations. ===:::
+
 .
 
 .
