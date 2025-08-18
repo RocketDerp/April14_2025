@@ -218,6 +218,19 @@ All Americans will be wearing this. They should've done more to stop it."
 
 * :::=== RoundSparrow_Commentary : Americans, USA population, not just voters - but everyone - has adopted insulting, mocking, hate of Donald Trump. For 10 years, endless total mockery and insulting on social machines. That's [the outcomes of the Internet Research Agency](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) with Cambridge Analytica payloads. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mtdxfy/zelensky_responds_to_trump_comments_russia_must/n9beezc/
+
+VainEldritch 2012-07-06
+
+"Trump can fuck off.
+
+The man is a monosynaptic drivel monger of the worst kind. An ignorant buffoon puffed up like a threatened orange toad.
+
+The end of his term cannot come soon enough, so we can consign the idiot to oblivion, marking his cretinous reign as a shameful chapter in democracy, and a warning to future generations."
+
+* :::=== RoundSparrow_Commentary : Americans, USA population, not just voters - but everyone - has adopted insulting, mocking, hate of Donald Trump. For 10 years, endless total mockery and insulting on social machines. It is media addiction that people use their spare time, free time, on social machines to hate and insult and mock the Tony Clifton act of Trump. ===:::
 
 &nbsp;
 
