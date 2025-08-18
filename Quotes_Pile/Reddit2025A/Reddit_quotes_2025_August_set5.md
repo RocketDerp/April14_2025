@@ -462,6 +462,14 @@ Very suspicious."
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1mtlq9l/trump_vow_to_get_rid_of_mailin_ballots_for_2026/n9chbvy/
+
+NoArm3125 2025-04-08 (new this year)
+
+"No one’s ever gonna forget this but this is becoming a convenient distraction for him. He’s doing fuck shit, daily, in real time. We aren’t getting the Epstein files. Let’s go back to focusing our main attention on the shit he’s currently doing to us DAILY instead of this like, roll call shit we’re doing with the Epstein files"
+
+&nbsp;
+
 .
 
 .
