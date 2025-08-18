@@ -690,6 +690,34 @@ whoneedskollege 2017-03-17
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mttyct/trump_jokes_about_canceling_elections_in_wartime/n9e38xx/
+
+Tasty-Eggplant4879 2023-05-31
+
+"A "joke" is always where he starts"
+
+* :::=== RoundSparrow_Commentary : Manhattan NYC Neil Postman 1985 book "Amusing Ourselves To Death" explains Trump. As [his son Andrew Postman declared in February 2017](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mttyct/trump_jokes_about_canceling_elections_in_wartime/n9e6kez/
+
+RecentDecision2329 **2025-08-04 (new account)**
+
+"Fuck these media companies. I saw it on tv. It wasn’t a joke"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mttyct/trump_jokes_about_canceling_elections_in_wartime/n9e7lbr/
+
+Dearic75 2021-12-11
+
+"This is news max. They’re where people go when they decide that Fox News has become too woke and liberal for them.
+
+In this case I would say the mischaracterization is intentional. They will be cheering him on 100% when he goes to do it."
+
+&nbsp;
+
 .
 
 .
