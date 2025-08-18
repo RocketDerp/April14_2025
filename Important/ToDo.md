@@ -602,3 +602,8 @@ https://www.youtube.com/watch?v=Vj3FkUVqneQ
 Right-wing on declaring others as crazy, locking up / camps for people who disagree.     
 "Republicans Plan to Make You Crazy & Throw You in an Asylum"    
 https://www.youtube.com/watch?v=cNVFlrC3pLQ
+
+&nbsp;
+
+How hostile Reddit societies have become against saving video game / preservation.   
+https://youtu.be/Rp_2aBdtfrY?t=71 
