@@ -222,7 +222,7 @@ haux44 2020-07-09
 
 "No. These people think that they are doing God’s work. It’s just not the God they’re thinking of."
 
-* :::=== RoundSparrow_Commentary : It is a national crisis that we don't teach about "God" in schools. Did we learn nothing of the threats of Septembr 11, 2001 about "God" being a motivation for terrorism? We lost to the Taliban on Afghanistan. We we learned nothing? We should be teaching Comparative Myuthology and helping people understand Thor and Allah and Kali and the Navajo Pollen Path of Native Americans. These are all artistic fiction languages. [Russia is using "God" in information warfare, active measures](https://www.euronews.com/2025/07/07/unorthodox-intelligence-operations-how-russia-is-using-its-churches-abroad)! ===:
+* :::=== RoundSparrow_Commentary : It is a national crisis that we don't teach about "God" in schools (and to adults for remedial information warfare lessons). Did we learn nothing of the threats of September 11, 2001 about "God" being a motivation for terrorism? We lost to the Taliban in Afghanistan. And we learned nothing? We should be teaching Comparative Mythology and helping people understand Thor and Allah and Kali and the Navajo Pollen Path of Native Americans. The murder, klling, conflicts, misunderstandings of "God" symbolism systems. These are all artistic fiction languages. [Russia is using "God" in information warfare, active measures](https://www.euronews.com/2025/07/07/unorthodox-intelligence-operations-how-russia-is-using-its-churches-abroad)! ===:
 
 .
 
