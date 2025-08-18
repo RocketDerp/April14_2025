@@ -129,6 +129,16 @@ hoops_n_politics 2016-07-10 (note the username about politics media sports)
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1mtxcgb/president_zelensky_standing_out_amongst_the_gold/n9f4po1/
+
+G-Unit11111 2021-04-23
+
+"Holy crap, he turned the White House into the lobby of a cheap third rate insurance company that scams old retired people out of their money. WTF."
+
+* :::=== RoundSparrow_Commentary :  WTF, What the Fuck, WTF, Surkov govening, WTF, Russia year 2011, WTF. "Holy crap, he turned the White House into the ..." content of fiction addiction of Realty TV "The Apprentice" at the hands of Putin Kremlin since March 2013. Media addict Reddit users who say one-line Twitter-length reaction comments go WTF WTF and tune in every time. BULUNT ENOUGH? Neil Postman in 1985 was correct. Teaching Neil Postman's 184 book to every person age 12 to age 120 is a step towards recovery from meme addiction. ===:::
+
+&nbsp;
+
 .
 
 .
