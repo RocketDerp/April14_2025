@@ -6,7 +6,7 @@ https://old.reddit.com/r/pics/comments/1mtxcgb/president_zelensky_standing_out_a
 
 > Someone once said that the image Donald Trump has cultivated of himself (and what he seeks to convey to the world) is a poor man’s idea of what a rich man looks like.
 
-Someone once said in August 2025 to your account with "baseball sports mentality and politics" username that your message reeks of Surkov student active measures of denial of Surkov Russian behaviors, Donald Trump behaving as Tony Clifton all the time an bamboozle of the Reddit audience.
+Someone once said in August 2025 to your account with "baseball sports mentality and politics" username that your message reeks of Surkov student active measures of denial of Surkov Russian behaviors, Donald Trump behaving as Tony Clifton all the time as bamboozle of the Reddit audience.
 
 &nbsp;
 
