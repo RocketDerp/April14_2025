@@ -531,6 +531,16 @@ Dickhertzer 2014-10-31 (Halloween)
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mtkre4/russia_is_pumping_out_disinformation_that_looks/
+
+"Russia Is Pumping Out Disinformation That Looks Like Legitimate News Reports | Despite Donald Trump's whining about "fake news," his administration has rolled back efforts to combat it, allowing fakes to flourish"
+
+&nbsp;
+
+&nbsp;
+
 .
 
 .
