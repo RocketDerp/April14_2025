@@ -14,6 +14,47 @@ Trump is the Biff who graduated from casinos with an admiration and aspiration f
 
 &nbsp;
 
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bn77s/
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bn77s/
+
+One_Bend7423 **2025-08-09 (new account)**
+
+"Why do you think the US even gets a say in it? Putin seems perfectly capable of playing Trump like a fiddle, he doesn't need to offer up anything.
+
+This entire thing is so disgusting, yet inevitable. It's almost incredible to watch, if it weren't so tragic. Makes me wonder who the next monster in line is going to be after the orange warcriminal stops breathing"
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bqqil/
+
+judochop1 2013-03-28
+
+"Worse, is that Putin aims to tie America up in economic agreements. That way, when he invades Europe, America will stay out of it.
+
+Putin is hoping to get American business into Russia as well, to make it more difficult for Ukraine and allies to strike him without getting America on our backs about it.
+
+He's a clever guy, not always successful, but can run rings round certain individuals.
+
+We should have done more, earlier and at lower cost (as always)"
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bxirr/
+
+broguequery 2021-10-11
+
+"You naive little thing.
+
+Yes, of course he will. It doesn't matter if they are a "super power" (they aren't), but if Europe and the US refuse to fight, he can basically do whatever he wants.
+
+Europe and the US gave up without putting a single boot on the ground."
+
+* :::=== RoundSparrow_Commentary : [Putin's information war since March 2013 has wrecked the USA society so terribly that peole in USA can't even grasp or **relate to scentific reality anymore**](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Americans are so caught up in *the mocking and insulting* of Donald Trump, so engaged in media addiction (calling every Tony Clifton act as dumb / stupid / idiot), we don't see the anti-science RFK Jr and failure to prepare for future pandemic and other future-wrecking such as claiming Canada should be ruled by Trump as 51st state. USA insulting and mocking Canada in year 2025, what a shitshow. ===:::
+
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
