@@ -628,10 +628,23 @@ AipomNormalMonkey 2024-04-14
 
 the types of jobs that tend to pay more attract the same sociopaths who would join a frat"
 
-* :::=== RoundSparrow_Commentary : many feats have rituals of power domination, like military indoctination. Howard Bloom NYC talks a *lot* in several of his books about "pecking order". ===:::
+* :::=== RoundSparrow_Commentary : many frats have rituals of power domination, like military indoctination. Howard Bloom NYC talks a *lot* in several of his books about "pecking order". It is the same human brain, the key is to look for techniques in the Levant Mosque (newest of the Big Popular Levant media empires [retcons of snake garden story: The symbol of a serpent or snake played important roles in the religious traditions and cultural life of ancient Greece, Egypt, Mesopotamia, and Canaan](https://en.wikipedia.org/wiki/Serpents_in_the_Bible)) that cross over with Military / Corporate / University / Cults / Scientology (modern L Ron Hubbard science fiction) / Rupert Murdoch methods / Modern Psychology (Carl Jung on that: "Why is psychology the youngest of the empirical sciences? Why have we not long since discovered the unconscious and raised up its treasure-house of eternal images? Simply because we had a religious formula for everything psychic") / Modern Advertising (Edward Bernays) ===:::
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mtqw87/the_trump_trolling_hasnt_stopped_im_down_for_it/n9dr77q/
+
+TXMom2Two 2016-07-06
+
+"I wish reporters would refer to the nicknames Trump has given people when asking questions that involve those people.
+
+Reporter: Mr President, will you be taking Little Marco with you to meet Putin?
+
+Reporter: Mr President, Lyin’ Ted said that prices were down. Since you think he’s a liar, should we believe him?"
+
+* :::=== RoundSparrow_Commentary : Media addicts want more Tony Clifton act. People can not get enough of mocking and insutling and hate Donald Trump. This shit has been going on for over a DECADE, 10 FUCKING YEARS, because people can't resist what Neil Postman described in his 1985 book "Amsuing Ourselves To Death" with entertainment POTUS (Ronald Reagan 2nd term in 1985). ===:::
+
+&nbsp;
 
 .
 
