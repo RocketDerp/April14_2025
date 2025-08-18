@@ -398,6 +398,16 @@ Turgid_Donkey 2025-06-06 (new account)
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1mtlq9l/trump_vow_to_get_rid_of_mailin_ballots_for_2026/n9d055x/
+
+OneSlaadTwoSlaad 2019-11-05
+
+"He asked Vlad what he could do to be a better dick-tater, and this was Vlad's answer. Thats what they talked about in the limo. (And of course Trump jacked Putin off a bit)"
+
+* :::=== RoundSparrow_Commentary : Americans in year 2025 have developed extreme fantasy feitshment in their mind about Donald Trump. Epstein private jet sex / Putin private limo car sexual acts. All this fiction monomyth fantasy like HCE in Finnegans Wake. Kremlin IRA / Surkov studends have mind-fucked Americans into monomyth fiction addictions. ["and the implication is that HCE did something sexual, like masturbating while spying on them or violating them in some other way."](https://thesuspendedsentence.com/the-story-in-finnegans-wake/) - like an audience dogs chasing their own subconsous sex fantasy tail / tales. People in USA keep cheering on the fiction bullshit, unable to remove Donald Trump from office, because they are so addicted to the mocking and insulting and hate Donald Trump style. Surkov won since March 2013. ===:::
+
+&nbsp;
+
 .
 
 .
