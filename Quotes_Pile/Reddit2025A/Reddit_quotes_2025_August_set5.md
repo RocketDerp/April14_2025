@@ -561,7 +561,7 @@ Zealousideal-Fun-415  2020-09-24
 
 If you wear this they will just assume you're a fellow Trump supporter and you're saying the Libs are the antichrist."
 
-* :::=== RoundSparrow_Commentary : This comment might give you an idea of why I am not being subtle. Enter Shikari territory is where we are in, LOUD and CLEAR meaning. Since the Russian IRA ramped up in March 2013, the War Against Reality.... [Nuance aint nothing but a nuisance... You're either good or you are evil... You play a prick and there's no sequel...  And that's the will of the people"](https://www.youtube.com/watch?v=hJOiQo2ulyw) ===:::
+* :::=== RoundSparrow_Commentary : This comment might give you an idea of why I am not being subtle. Enter Shikari territory is where we are in, LOUD and CLEAR meaning. Since the Russian IRA ramped up in March 2013, the War Against Reality.... ["Nuance aint nothing but a nuisance... You're either good or you are evil... You play a prick and there's no sequel...  And that's the will of the people"](https://www.youtube.com/watch?v=hJOiQo2ulyw) ===:::
 
 &nbsp;
 
@@ -575,6 +575,16 @@ Deuteronomy 10:18.
 There is a significant amount of these that i found from a simple google search. Each and every one of these is about immagration and how to treat foreigners in one way or another.
 
 I simply googled "christian bible verses on immigration" Feel free to share them with heavily "christian" individuals."
+
+&nbsp;
+
+https://old.reddit.com/r/50501/comments/1mtq1hr/i_know_what_im_ordering_today/n9dse33/
+
+tuna_samich_ 2023-03-09
+
+"Americans are pretty dumb in general. I feel like non MAGA people will think you're MAGA and talking about them"
+
+* :::=== RoundSparrow_Commentary : Maybe don't try to convey complicated ideas on words printed on a hat, or in one-line Twitter-length Bluesky-length thinking messages. The Red Hat is the Message, THe Medium is the Message. If we stop making society a competititon of tricking and hating upon each other, and point out that the Consittution doesn't say "love one another, love thy enemy, love thy neighbor" - we might face up to the reality that compassion and love are not optional in a democracy. Everyone trying to manipulate and hate each other for greed is not going to work. Donald Trump role model is horrific. ===:::
 
 &nbsp;
 
