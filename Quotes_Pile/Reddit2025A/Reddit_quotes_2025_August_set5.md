@@ -2,10 +2,46 @@
 
 &nbsp;
 
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9dusj6/
+
+scotsworth 2013-04-17
+
+<img width="1434" height="1444" alt="image" src="https://github.com/user-attachments/assets/75f573c3-0de3-4655-972a-642b34a1b62c" />
+
+&nbsp;
+
+
+"Interestingly, it's how some people who consider themselves to be enlightened progressives will claim to be all about empathy, caring about the disenfranchised, and being morally correct....
+
+But then they'll mock someone over their appearance, particularly doing something very anti-progressive like fat shaming. They'll make class-based jokes about them fucking couches on their front porches which really seems like a direct dig at poor white people (who are the people who have couches on front porches). Then they justify it because "well JD Vance is a bully, so it's okay"
+
+It's pretty great hypocrisy really.
+
+You're all about empathy and kindness but then when the chips are down and you don't like someone... well let's make fun of their appearance to discredit them. \*\*
+
+\*\*note: only works with straight white males."
 
 &nbsp;
 
 &nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9eerc2/
+
+CozyCoin 2024-03-04
+
+"So we're body shaming now? Being some kind of handsome white Chad is good?"
+
+&nbsp;
+
+.
+
+.
+
+.
+
+.
+
+.
 
 .
 
