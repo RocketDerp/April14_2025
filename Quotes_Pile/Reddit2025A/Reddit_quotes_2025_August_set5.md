@@ -408,6 +408,24 @@ OneSlaadTwoSlaad 2019-11-05
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1mtlq9l/trump_vow_to_get_rid_of_mailin_ballots_for_2026/n9cu04v/
+
+49thDipper 2022-01-21
+
+"I predicted it in 2015 and doubled down in 2016.
+
+Several people have since asked me “How did you know?”
+
+Guy is, and always has been, a New York City con man. And if you aren’t in on the con . . .
+
+I knew we were fucked when he didn’t get impeached and removed from office. I knew we were fucked when Mitch McConnell thought he could control this guy. I knew we were fucked when we elected a man who isn’t qualified.
+
+(to wipe the sweat from a good man’s balls)"
+
+* :::=== RoundSparrow_Commentary : The IRA started mind-fucking the entire population via social machines in March 2013... by year 2015 it was all becoming more predictable. I telephoned the Pentagon in 2015 to report psycological warfare. ===:::
+
+&nbsp;
+
 .
 
 .
