@@ -76,6 +76,52 @@ And wants a peace prize for it, along with all other grifts."
 
 &nbsp;
 
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bigli/
+
+Comrade_Bread 2019-10-24
+
+"I wish time travel was real. Can you imagine bringing the republicans from the past into the present? Imagine showing this shit to Reagan, he'd enter a cocaine fueled rampage and start pulling limbs off"
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bl00n/
+
+Copper_Coil 2013-01-30
+
+"Reagan, the paid actor, used to destroy America. He was the beta test Trump."
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9biy8j/
+
+No_Air8719 2024-01-22
+
+"This is a brazen psyops exercise by Russia on the back of the disastrous summit, hope TACO Trump gets to see it"
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bo1jf/
+
+Celestial_Hart 2023-03-28
+
+"It's not brazen, he got the go ahead from the president of the usa. Every US citizen is now putins bitch, not just trump. The whole country got sold out. And until someone actually drags that fascist government to the gallows the entire nation will continue to be a threat to the rest of the world."
+
+* :::=== RoundSparrow_Commentary : "drags that fascist government to the gallows" does not fix a war against reality. The pro-measles, anti-science, addiction to fiction, Fox News HDTV, Facebook / Reddit / Bluesky media ecology ignorance doesn't get solved with murder. Addiction to insult and mocking Donald Trump is super big cult level. That continues even when cult leaders are dead, Scientology media still works on people even with death of L Ron Hubbard. Even with death of Jesus, people are still driven by the fiction storytelling in The Bible to wreck Earth and believe in Heven magic after death. If peole in USA don't actually "love one another" while alive here on Earth, and hate and mocking and insulting Donald Trump is the core faith and desire, the outcomes of hate will rule. Regardless of which people are leading the nation. Woodstock 1969 teaching and sharing of Love / Peace / Compassion values, the hippies,, sustained the USA from wrecking the world even worse - but all that 1960's education has been abandoned for faith in machine lust hate and insulting and mocking Donald Trump. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bt2x6/
+
+lukaskywalker 2012-01-13
+
+"What a bizarre timeline we are in. Disgusting."
+
+&nbsp;
+
+
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
