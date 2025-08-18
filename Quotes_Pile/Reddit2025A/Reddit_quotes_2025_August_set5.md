@@ -678,7 +678,15 @@ Ok-Abbreviations543 2021-03-26
 
 "The problem for Drooling Donnie is that he thought he was at a girl scout camp about to have a pillow fight and then was going to chat with Ronald Reagan."
 
-* :::=== RoundSparrow_Commentary : Reddit one-liner Twitter-length demonstrates [eating the Surkovian onions](Surkovian_Onion_Eating.md) ... the audience commenting that Trump looks like a terrible performance (Tony Clifton) but thinking this isn't crafted / intentional form of govenring (Surkov governing). Donald Trump is a master to gullible audiences. USA bamboozled, as Carl Sagan warned in 1995 book. ===:::
+* :::=== RoundSparrow_Commentary : Reddit one-liner Twitter-length demonstrates [eating the Surkovian onions](Surkovian_Onion_Eating.md) ... the audience commenting that Trump looks like a terrible performance (Tony Clifton) but thinking this isn't crafted / intentional form of govenring (Surkov governing). Donald Trump is a master to gullible audiences. USA bamboozled, as Carl Sagan warned in 1995 book. "The greatest trick the devil ever pulled was convincing the world he didn't exist" - Reddit / Bluesky falls EVERY TIME in [not being able to cite 25 years of Surkov success in Russia](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). Shit been going on FOR OVER TEN FUCKING YEARS! Surkov won since March 2013. And it isn't just the fixation, age 79 Donald Trump, it is MULTIPLE players doing the Kremlin White House antics politics. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mtqw87/the_trump_trolling_hasnt_stopped_im_down_for_it/n9dmnsl/
+
+whoneedskollege 2017-03-17
+
+"OP - you have done God's work here. Every bit as significant as the bible."
 
 &nbsp;
 
