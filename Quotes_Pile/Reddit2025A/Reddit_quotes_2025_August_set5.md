@@ -350,6 +350,16 @@ Moppermonster 2019-10-25
 
 &nbsp;
 
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9b95cx/
+
+Patara 2014-01-07
+
+"Trump never says what he actually means apparently its incredible its infinite cognitive dissonance."
+
+* :::=== RoundSparrow_Commentary : August 2025 USA, we are living David Foster Wallace's *Infinite Jest*, infinite humor **absurd surreal Surkov governing techniques**. Infinite brain exploits of the population by doing Tony Clifton act with improv audience interaction. ===:::
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
