@@ -234,6 +234,16 @@ The end of his term cannot come soon enough, so we can consign the idiot to obli
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mtdxfy/zelensky_responds_to_trump_comments_russia_must/n9bg0t4/
+
+Mazon_Del 2013-01-29
+
+"If the russia wants the war to end, it can at any time return to the pre-2014 borders and Zelenskyy would agree to a halt in a heartbeat. Ukraine isn't the problem here."
+
+* :::=== RoundSparrow_Commentary : the mind-fucking mental manipulation war started in March 2013, then came the hot war in February 2014. Donald Trump was in Moscow in November 2013, before the Ukraine invasion, and in [December 2013 Putin announced to the whole world to join with Russia](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/). ===:::
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
