@@ -718,6 +718,16 @@ In this case I would say the mischaracterization is intentional. They will be ch
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mttyct/trump_jokes_about_canceling_elections_in_wartime/n9ea0jc/
+
+of_course_you_are 2023-04-27
+
+"The unfortunate part is that News Max and Oann are propaganda machines using hatred to further the authoritarian message.
+
+This is the exact playbook from the 1930s, except this time you can get it immediately, and you can now get AI generated video to back up that hatred lie"
+
+&nbsp;
+
 .
 
 .
