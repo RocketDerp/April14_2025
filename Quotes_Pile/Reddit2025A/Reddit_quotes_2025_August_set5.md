@@ -99,6 +99,16 @@ QueLub 2014-02-18
 
 * :::=== RoundSparrow_Commentary :  Kremlin **Surkov "mind virus"** (Elon Musk richest person on Earth language terminology: https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html 2024) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mtxcgb/president_zelensky_standing_out_amongst_the_gold/n9ev7js/
+
+Maroon-98  2021-04-12
+
+"Trumps style looks very Russian."
+
+&nbsp;
+
 
 .
 
