@@ -618,7 +618,19 @@ https://old.reddit.com/r/todayilearned/comments/1mtnrly/til_that_college_graduat
 
 * :::=== RoundSparrow_Commentary : Statements like this "I wish the general public just knew the lengths that they go for their clubs" really make you recognize that people don't grasp September 11, 2001 attacks on NYC and *the lengths* Mosque club will go through for science fiction media of the Quran and Mecca theme park. And the audience of Radio Mullah *fan club* that Malala describes in her October 8, 2013 book..... and *sports teams fan clubs* all over the world! Donald Trump fiction fan club is massive, Fox News (Global Rupert Murdoch fan club) is massive and dedicated to their fiction storytelling! The *fan club* of the Kremlin for 25 years to fiction content...  Reddit comment says: "private Facebook fraternity groups" and can't recognize the same of other media venues (not just Facebook)... Church / Mosque / Synagogue / Temple media clubs... and the wars of one fiction fan club vs. another fiction fan club ([The Cruisades of The Pope](https://en.wikipedia.org/wiki/Crusades)) - we *really* need to teach media ecology and comparative mythology history. Donald Trump and Putin are running circles around USA society / social media consumers. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/todayilearned/comments/1mtnrly/til_that_college_graduates_who_joined/n9dsx34/
+
+AipomNormalMonkey 2024-04-14
+
+"A huge missing factor here:
+
+the types of jobs that tend to pay more attract the same sociopaths who would join a frat"
+
+* :::=== RoundSparrow_Commentary : many feats have rituals of power domination, like military indoctination. Howard Bloom NYC talks a *lot* in several of his books about "pecking order". ===:::
+
+&nbsp;
 
 
 .
