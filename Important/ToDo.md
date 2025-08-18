@@ -584,3 +584,8 @@ https://old.reddit.com/r/BeAmazed/comments/1mtpp9r/the_winning_sand_sculpture_of
 Choice marriage honesty     
 Islamic temporary marriages for sex    
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1mtldpp/that_means_a_divorce_would_be_a_subscription/
+
+&nbsp;
+
+Autistimatic content, 30 minutes, weave into Wake Indra Opera.    
+https://www.youtube.com/watch?v=O7OHPD5jeHc
