@@ -244,6 +244,22 @@ Mazon_Del 2013-01-29
 
 &nbsp;
 
+https://old.reddit.com/r/interestingasfuck/comments/1mtj1gw/purin_travels_with_a_poop_suitcase_on_foreign/n9bxq18/
+
+Zealousideal_Lie_383 2020-10-29
+
+"Not completely unheard of.
+
+[This documentary](https://en.m.wikipedia.org/wiki/The_U.S._vs._John_Lennon) mentions how Nixon had FBI agents illegally screen the poop of John Lennon to gather evidence against him. Apparently they tapped into the plumbing of his apartment."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mtjq5r/he_didnt_just_stop_he_sold_out/n9caqdw/
+
+justchill_ok 2025-02-28 (new this year)
+
+"It's all just words to most Democrats too which is why when they were in power they did nothing to limit or prevent a future power grab by the executive branch and the other things we are seeing Trump do today."
+
 &nbsp;
 
 &nbsp;
