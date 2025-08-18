@@ -262,6 +262,30 @@ justchill_ok 2025-02-28 (new this year)
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1mtjq5r/he_didnt_just_stop_he_sold_out/n9c4s56/
+
+Golferdude456 2018-07-23
+
+"He and Lindsay Graham both. Wonder what dirt Trump/the heritage foundation/ the Russians have on them for doing such a quick 180"
+
+* :::=== RoundSparrow_Commentary : Fox News audience doesn't need to be bribed or blackmailed. Mecca audience of Mohammad's science fiction Quran story doesn't need to be bribed or blackmailed. Cults of fiction are a threat to humanity, Fox News is fiction, Donald Trump is a fiction content creator. Addiction to fiction is the outcome of the Russian information warfare since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mtjq5r/he_didnt_just_stop_he_sold_out/n9c7h1g/
+
+cometgold 2016-12-08
+
+"Soulless doesn’t begin to describe that sellout. Be careful, with a name like Marco Rubio ICE could mistake you for an immigrant."
+
+* :::=== RoundSparrow_Commentary : Calling a person a soulless person is the worst sin in the Bible. Mark 3:29 verse metaphors. (I am not a "believer" that the Bible is a perfect book, I support the entire public library of all books from all around the world. I am giving a cultural reference of "soul" meaning). Also deport-happy withing political enemies to be deported by ICE, MAGA values. ===:::
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
