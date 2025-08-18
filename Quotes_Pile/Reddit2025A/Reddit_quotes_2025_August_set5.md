@@ -376,9 +376,25 @@ looptarded 2021-11-11
 
 "As an Aussie dude who sees way too much US politics, Gavin is fucking hilarious and should be commended for his trolling. I see some of the left don’t like him, but you guys have to unify to beat this orange ass clown. This is what it’s going to take"
 
-* :::=== RoundSparrow_Commentary : The Reddit popular answer to clowing for 10 years is *always more clowning*. The Reddit fiction addiction answer to no-identity social media (Reddit accounts without real people) is *always more no-identity social media*. The Reddit media cult answer to fiction White House and fiction Fox News is *always more fiction!* Surkov won since March 2013. People are completely avoidant of nonfiction ([Neil Postman, "The End of Education" Steptember 1995 / Eternal September Year 1](https://www.goodreads.com/work/quotes/508006-the-end-of-education-redefining-the-value-of-school)). ===:::
+* :::=== RoundSparrow_Commentary : The Reddit popular answer to clowing for 10 years is *always more clowning*. The Reddit fiction addiction answer to no-identity social media (Reddit accounts without real people) is *always more no-identity social media* like Bluesky in November 2024. The Reddit meme media cult answer to **fiction White House** and fiction Fox News is *always more fiction memes!* Surkov won since March 2013. We The People are completely avoidant of serious nonfiction ([Neil Postman, "The End of Education" September 1995 / Eternal September Year 1](https://www.goodreads.com/work/quotes/508006-the-end-of-education-redefining-the-value-of-school)). ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/law/comments/1mtlq9l/trump_vow_to_get_rid_of_mailin_ballots_for_2026/n9clev6/
+
+Ok-Wedding-4654 2021-02-17
+
+"They’re also the only way military personnel or people living overseas can vote. Mail in ballots are not just for the disabled, elderly, or busy people.
+
+So yea, fuck the troops again"
+
+&nbsp;
+
+.
+
+.
+
+.
 
 &nbsp;
 
