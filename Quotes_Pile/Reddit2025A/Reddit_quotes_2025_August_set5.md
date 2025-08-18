@@ -448,7 +448,17 @@ flipplup 2016-08-10
 
 "Not even tinfoil territory to me, the propaganda machine WORKED. People are convinced the way to stop an autocratic takeover is by saying “Epstein Files”. THERE ARE MULTIPLE STATES’ GUARDS PATROLLING THE CAPITAL- saying that this amounts to nothing and is a distraction is a COPOUT because doing that is EASY. The reality is that we are in a fucked up situation and the only way out is by taking action, amassing in DC, talking to your community, civil disobedience etc. but none of that is easy, it will all take effort and sacrifice. But that’s where we are."
 
-* :::=== RoundSparrow_Commentary : "none of that is easy, it will all take effort and sacrifice." - the ONE sacrifice that Reddit users with spare time (free time) to make comments like this, the people commenting and reacting to every news story - won't make is GIVING UP ENTERTAINMENT. To STOP reacting to Donald Trump and start addressing MAGA media cult directly with cult deprogramming on Reddit addressed to MAGA. Every 6 hours, every day, for year. [BE SERIOUS ON SOCIAL MEDIA, STOP MOCKING and STOP ENTERTAIMENT!](../../Grim_Blunt/Stop_All_Entertainment.md) - **"none of that is easy, it will all take effort and sacrifice"** ===:::
+* :::=== RoundSparrow_Commentary : "none of that is easy, it will all take effort and sacrifice." - the ONE sacrifice that Reddit users with spare time (free time) to make comments like this, the people commenting and reacting to every news story - won't make is GIVING UP ENTERTAINMENT. To STOP reacting to Donald Trump and start addressing MAGA media cult directly with cult deprogramming on Reddit addressed to MAGA. Every 6 hours, every day, for years sustained. [BE SERIOUS ON SOCIAL MEDIA, STOP MOCKING and STOP ENTERTAIMENT!](../../Grim_Blunt/Stop_All_Entertainment.md) - **"none of that is easy, it will all take effort and sacrifice"** ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mtlq9l/trump_vow_to_get_rid_of_mailin_ballots_for_2026/n9crqwy/
+
+JTO_reddit 2020-07-12
+
+"Ding ding ding. Every Trump post for the last 2-3 weeks has had top comments going "RELEASE THE FILES! RELEASE THE FILES!" drowning out any other constructive comments like these.
+
+Very suspicious."
 
 &nbsp;
 
