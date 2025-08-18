@@ -146,7 +146,25 @@ Crispy_McWankel 2018-01-30
 
 "Imagine going back to the cold war era and saying "you will be allies with these guys in a few decades" lmfao. America is broken."
 
-* :::=== RoundSparrow_Commentary : [Putin's information war since March 2013 has wrecked the USA society so terribly that peole in USA can't even grasp how much things have changed in thinking and anti-reality.](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
+* :::=== RoundSparrow_Commentary : [Putin's information war since March 2013 has wrecked the USA society so terribly that people in USA can't even grasp how much things have changed in thinking and anti-reality.](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
+
+&nbsp;
+
+VarkYuPayMe 2018-02-08
+
+"My non American self cannot understand. How do right wing nuts spend forever talking about Epstein and his associations but somehow remove Trump from the equation when they were best friends for a decade. In what world is Trump who is known to be close to him not suspect number 1? Somehow Bill Clinton gets all the flack for being in photos with Epstein while Trump is equally in all these pics. Make it make sense please"
+
+* :::=== RoundSparrow_Commentary : It makes sense [because Russia and Cambridge Analytica worked together to manipualte the executive function of the human mind, creating 5,000 patterns to wreck thinking](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) and have people in USA self-harm the future in endless pursuit of fantasy fiction. [QAnon and Pizzagate and Epstein - read this from July 10, 2019 and put into perspective how LONG](https://www.vice.com/en/article/the-epstein-scandal-is-giving-qanon-everything-pizzagate-couldnt/) peoople using social media have been soaking in these fiction storytelling / war against reality. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mtdxfy/zelensky_responds_to_trump_comments_russia_must/n9b24s8/
+
+AppropriateScience71 2022-06-01
+
+"Well, Trump has already blamed Zelenskyy for starting the war several times, so they already think Zelenskyy doesn’t want peace.
+
+Epstein didn’t kill himself and Agent Krasnov might be onto something…"
 
 &nbsp;
 
