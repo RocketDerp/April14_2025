@@ -119,6 +119,15 @@ https://old.reddit.com/r/pics/comments/1mtxcgb/president_zelensky_standing_out_a
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1mtxcgb/president_zelensky_standing_out_amongst_the_gold/n9f3jn3/
+
+hoops_n_politics 2016-07-10 (note the username about politics media sports)
+
+"Someone once said that the image Donald Trump has cultivated of himself (and what he seeks to convey to the world) is a poor man’s idea of what a rich man looks like."
+
+* :::=== RoundSparrow_Commentary :  for TEN FUCKING years: Tony Clifton is such a bad idiot at screenplay writing / costume design / audience improv acting. Reality TV "The Apprentice" actor can't possibly be playing Tony Clifton and I'm in the audience of Reddit doing Twitter-length short-message reaction comments about how lame Tony Clifton is, I can't be eating Surkovian onions. 25 years of Putin weaponizing absurd surreal mind exploits can't possibly be documented in year 2014. ===:::
+
+&nbsp;
 
 .
 
