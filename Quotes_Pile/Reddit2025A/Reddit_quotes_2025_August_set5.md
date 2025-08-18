@@ -65,6 +65,35 @@ Lazerhawk_x 2021-02-24
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1mtxcgb/president_zelensky_standing_out_amongst_the_gold/n9eufzr/
+
+Weird-Economist-3088
+
+"Can the Jesus freaks please explain vanity?"
+
+* :::=== RoundSparrow_Commentary : Can meme freaks, chuckleheads, on Reddit and Bluesky who LOL at anything serious explain... 1) Donald Trump $59.99 Bible and verse Matthew 6:5 and clergy silence? 2) Elon Musk in White House D.O.G.E. Q1 2025 and Bible verse "1 John 3:17" pairing? 3) Donald Trump and verse "1 John 3:17" and clergy avoidance? ... Why can't Reddit front-page post "1 John 3:17" calling out clergy and Trumpism? Matthew 6:5 and Bible posing? ===:::
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
 .
 
 .
