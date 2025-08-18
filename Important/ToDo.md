@@ -574,3 +574,7 @@ https://old.reddit.com/r/todayilearned/comments/1mt6nan/til_in_1857_a_book_analy
 Intelligent thinking people voting vs. land-owning people.  The media ecology crisis of not teaching NYC Manhattan Professor Neil Postman's 1985 book "Amusing Ourselves To Death" to rural Americans / rural USA population - and letting predatory billionares like Rupert Murdoch (immigrant from down under) feed Fox News content to rural population since October 7, 1996.    
 https://old.reddit.com/r/MurderedByWords/comments/1mtj32r/republicans_never_understand_land_doesnt_vote/
 
+&nbsp;
+
+Media ecology on this tied to music video for "We Built This City"?    
+https://old.reddit.com/r/BeAmazed/comments/1mtpp9r/the_winning_sand_sculpture_of_2019s_texas_sand/
