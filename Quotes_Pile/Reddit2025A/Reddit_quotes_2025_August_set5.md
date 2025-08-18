@@ -541,6 +541,22 @@ https://old.reddit.com/r/technology/comments/1mtkre4/russia_is_pumping_out_disin
 
 &nbsp;
 
+https://old.reddit.com/r/MurderedByWords/comments/1mtm4z3/hate_truly_rots_peoples_souls/
+
+"Hate truly rots people's souls"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/50501/comments/1mtq1hr/i_know_what_im_ordering_today/n9dalgy/
+
+Zealousideal-Fun-415  2020-09-24
+
+"Yeah. I'm not religious either, but trump is 100% the antichrist. He's a more convincing argument for the Christian faith than anything I've heard at church."
+
+&nbsp;
+
 .
 
 .
