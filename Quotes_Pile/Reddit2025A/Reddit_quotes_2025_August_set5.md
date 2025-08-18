@@ -118,7 +118,35 @@ lukaskywalker 2012-01-13
 
 &nbsp;
 
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bs9gj/
 
+CookenBaked 2012-08-01
+
+"I thought July 1st 2024 was the day my heart broke.
+
+I now know what shame is. America . My Country. The land that i Love.
+
+Tears."
+
+* :::=== RoundSparrow_Commentary : Trump granted extreme power... ["On July 1, 2024, the Court ruled in a 6–3 decision that presidents have absolute immunity for acts committed as president"](https://en.wikipedia.org/wiki/Trump_v._United_States) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bt5jg/
+
+lukaskywalker 2012-01-13
+
+"I can’t wait for Hollywood to start producing movies where Russia is the good guy 😂"
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9but9s/
+
+Crispy_McWankel 2018-01-30
+
+"Imagine going back to the cold war era and saying "you will be allies with these guys in a few decades" lmfao. America is broken."
+
+* :::=== RoundSparrow_Commentary : [Putin's information war since March 2013 has wrecked the USA society so terribly that peole in USA can't even grasp how much things have changed in thinking and anti-reality.](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
 
 &nbsp;
 
