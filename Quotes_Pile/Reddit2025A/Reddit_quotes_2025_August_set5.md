@@ -654,6 +654,16 @@ Barbarella_ella  2013-11-16
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mtqw87/the_trump_trolling_hasnt_stopped_im_down_for_it/n9dmf4z/
+
+papasan_mamasan 2017-05-31
+
+"I really hate AI but this is really fucking funny"
+
+* :::=== RoundSparrow_Commentary : Media addicts will sell out their values for "fucking funny". Once they find something amusing (Neil Postman 1985 "Amusing Ourselves To Death"), something *fucking funny* as this Reddit comment says - they will throw out EVERYTHING for their fiction content / generative AI / Donald Trump performing as Tony Clifton. ===:::
+
+&nbsp;
+
 .
 
 .
