@@ -194,6 +194,27 @@ itspoptart 2018-04-29
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mt09vi/brother_cooks_hard/n99iwbt/
+
+Life-Finding5331 2024-09-10
+
+"Look into how psychologists got involved in the advertisement business,  then understand that they have come several decades from that, and are inclined in politics. 
+
+Chronic right wing media viewing has,  quite literally as far as it's possible for biological entities, programming these sad, stupid, saps down to a very precise science. 
+
+Really.  Read up on it. 
+
+Fox news can elicit very *very* specific feelings from their audience virtually at will."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mt4c4d/las_vegas_growing_mosquito_problem_is_a_ticking/n996e6d/
+
+ajsayshello- 2013-06-25
+
+"The entire article is about this question lol you should check it out."
+
+&nbsp;
 
 .
 
