@@ -468,6 +468,25 @@ NoArm3125 2025-04-08 (new this year)
 
 "No one’s ever gonna forget this but this is becoming a convenient distraction for him. He’s doing fuck shit, daily, in real time. We aren’t getting the Epstein files. Let’s go back to focusing our main attention on the shit he’s currently doing to us DAILY instead of this like, roll call shit we’re doing with the Epstein files"
 
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mtlq9l/trump_vow_to_get_rid_of_mailin_ballots_for_2026/n9cl7fi/
+
+Apoctwist 2017-11-28
+
+"I think the Epstein files are the real distraction. He's literally shaking the very core of what our democracy is built on and every time he does all we see is someone talking about the Epstein files. Yes. That is important, but what will that matter if he's surrounded himself with his own state police, owns the house and senate, and the supreme court. He's taken steps to own the media. Not to mention the cult who will follow him no matter what he does.
+
+There are larger issues at stake here. I think people think that there will be this groundswell of people denouncing Trump if the files were released. When he controls all the political apparatus we put in place to curtail the presidents power, the Epstein files won't matter, because it would be too late to do anything about it."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mtlq9l/trump_vow_to_get_rid_of_mailin_ballots_for_2026/n9cjh90/
+
+AltTooWell13 2024-07-27
+
+"I like how the media uses the word “blasted” more than porn, “slammed” more than WWE."
+
 &nbsp;
 
 .
