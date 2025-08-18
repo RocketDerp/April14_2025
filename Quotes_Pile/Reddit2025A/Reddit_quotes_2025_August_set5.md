@@ -168,6 +168,26 @@ Epstein didn’t kill himself and Agent Krasnov might be onto something…"
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mtdxfy/zelensky_responds_to_trump_comments_russia_must/n9bzq0c/
+
+Numerous-Season6604 **2025-07-31 (new account)**
+
+"It’s a cult, they believe it’s for their best interest that this continue. They’re able to have absolutely zero empathy for the dead or the dead children’s families bc they think they are somehow a threat to their livelihood. Like if Trump were to say suck Poots dick, they’d all fall to their knees and worship like daddy said bc he’s their new God and he can’t be wrong about anything. Not even when he forcefully and violently penetrates helpless innocent little kids. ITS A FKN CULT and if we don’t stop this shit soon we are soooo fucked 😭 I’ve been trying to get pregnant but who in their right mind would bring a child into this world of suffering!?"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mtdxfy/zelensky_responds_to_trump_comments_russia_must/n9bss3m/
+
+Dommccabe 2017-07-12
+
+"Coming from a rapist you can kinda understand the victim blaming that comes from Trump..
+
+Cant believe America put him up for the highest most respected job in the country.  A convicted fraudster and child rapist....
+
+From Obama to this... for shame."
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
