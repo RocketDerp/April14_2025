@@ -188,6 +188,27 @@ From Obama to this... for shame."
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mtdxfy/zelensky_responds_to_trump_comments_russia_must/n9b30ib/
+
+snakesnake9 2012-09-23
+
+"Trump is basically saying the equivalent of a person getting sexually assaulted can end the assault immediately by... consenting to it.
+
+Given Trump's past, I'm afraid that might be exactly how he sees the world."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mtdxfy/zelensky_responds_to_trump_comments_russia_must/n9b33mk/
+
+Zodiac-reaper 2023-03-15
+
+"I’m back to shaking my head and wondering how America became a cowardly snivelling Russian bitch"
+
+* :::=== RoundSparrow_Commentary : [Putin's information war since March 2013 has wrecked the USA society so terribly that people in USA can't even grasp how much things have changed in thinking and anti-reality.](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
+
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
