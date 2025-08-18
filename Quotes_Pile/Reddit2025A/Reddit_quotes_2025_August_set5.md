@@ -426,6 +426,22 @@ I knew we were fucked when he didn’t get impeached and removed from office. I 
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1mtlq9l/trump_vow_to_get_rid_of_mailin_ballots_for_2026/n9cqmxy/
+
+MagicTheAlakazam 2013-10-20
+
+"Trump filled it with unqualified loyalists this time who would never have power under anyone else or their own merit and the Senate didn't raise a finger to stop him."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mtlq9l/trump_vow_to_get_rid_of_mailin_ballots_for_2026/n9cj5c7/
+
+TheRealBenDamon 2024-02-16
+
+"He doesn’t want just one thing. We don’t have to frame every single thing as a coverup for Epstein files. He is a fucking traitor who tried to steal at least one election, we know this, he did it very out in the open. He wants to have complete control over elections so they can be decided by him."
+
+&nbsp;
+
 .
 
 .
