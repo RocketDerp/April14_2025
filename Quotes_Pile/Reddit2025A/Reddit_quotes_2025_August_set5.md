@@ -646,6 +646,14 @@ Reporter: Mr President, Lyin’ Ted said that prices were down. Since you think 
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mtqw87/the_trump_trolling_hasnt_stopped_im_down_for_it/n9dsvl5/
+
+Barbarella_ella  2013-11-16
+
+"This would be glorious and keep us in step with Idiocracy's scripting approach - tragically fitting given the current regime."
+
+&nbsp;
+
 .
 
 .
