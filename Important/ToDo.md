@@ -607,3 +607,9 @@ https://www.youtube.com/watch?v=cNVFlrC3pLQ
 
 How hostile Reddit societies have become against saving video game / preservation.   
 https://youtu.be/Rp_2aBdtfrY?t=71 
+
+&nbsp;
+
+Israel / Framing of question    
+"Shithead", "Dweeb", "Piece of Shit" opening in first minutes   
+https://www.youtube.com/watch?v=DNo8sj-vgOg
