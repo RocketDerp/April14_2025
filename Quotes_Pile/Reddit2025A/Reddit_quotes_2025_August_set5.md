@@ -1023,6 +1023,34 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1mt4qum/i_told_a_man_today_he_
 
 * :::=== RoundSparrow_Commentary : What kind of society makes Donald Trump a role model? We don't teach how people behave / "human nature" and just expect people to not be egomaniacs in public (social media, in person like this woman reports). The clergy sure isn't teaching these situations. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9eqapa/
+
+scapesober 2025-06-19 (new account)
+
+"It's for reddit, and like clockwork it has insane upvote to comment interaction"
+
+&nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9eelxr/
+
+Gentry_Draws 2021-12-16
+
+"Technically you’re correct - The dream world consists of - People caring more about what you do & what you accomplish in life.
+
+But we live in reality - where it’s all about looks & perception."
+
+&nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9dojqc/
+
+No_Arachnid_9699 2025-01-01 (New Years this year)
+
+"I honestly think that is how most people vote . Like we are watching a reality television show and we have the privilege to pick the actors. 🤦🏼‍♂️"
+
+&nbsp;
+
 .
 
 .
