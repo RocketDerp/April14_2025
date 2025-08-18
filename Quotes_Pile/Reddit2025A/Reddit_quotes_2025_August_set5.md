@@ -290,6 +290,31 @@ Southwestern 2013-07-29
 
 * :::=== RoundSparrow_Commentary : Addicts to fiction crave more fiction. Addicts to memes and junk media want more clowning. Surkov won the information war since March 2013. USA population is drunk on Surkovian governing, nobody is sobering up, they are begging for more fiction. Nonfiction and science thinking abandoned (as Carl Sagan predicted/warned in 1995 book). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9aq5zy/
+
+grundee 2008-05-28
+
+"I think it's going to be very effective.
+
+You can't break through the cognitive dissonance on the right, but you can trigger the feelings of discomfort it brings.
+
+Every time you emulate Trump, get criticized, and then show that Trump did it too, you trigger the painful mental gymnastics to defend or criticize the behavior depending on the source, and this leaves a memory.
+
+Right now these people get warm fuzzy feelings seeing Trump "own the libs" with his style, but by emulating that style and associating it with pain, you can take that feeling away.
+
+It might not change minds, but it will shut them up."
+
+* :::=== RoundSparrow_Commentary : Addicts to Donald Trump playing Tony Clifton act want more content. Addicts to fiction storytelling want more fiction. Population has been adopting Donald Trump behavior and role model for over a decade. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9aoi0d/
+
+pentachronic 2021-09-28
+
+"The internet was a huge miscalculation"
 
 &nbsp;
 
