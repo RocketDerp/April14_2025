@@ -182,9 +182,18 @@ They cried wolf so much that it became so unpalatable for Democrats to do the sa
 
 The con was baked in from the VERRRRRY beginning, guys."
 
+* :::=== RoundSparrow_Commentary : Factual evidence says Russia did this (claimed stolen elections even before voting days). But people on Reddit don't link factual evidence about Russia. https://www.nbcnews.com/tech/social-media/russian-twitter-trolls-stoked-voter-fraud-fear-election-n820771 ===:::
+
 &nbsp;
 
-* :::=== RoundSparrow_Commentary : Factual evidence says Russia did this (claimed stolen elections even before voting days). But people on Reddit don't link factual evidence about Russia. https://www.nbcnews.com/tech/social-media/russian-twitter-trolls-stoked-voter-fraud-fear-election-n820771 ===:::
+https://old.reddit.com/r/NoFilterNews/comments/1mt2dzm/disturbing_video_shows_lawmaker_stuffing_ballots/n99g1kp/
+
+itspoptart 2018-04-29
+
+"Right.. from what I understand this wasn't even for the presidential, or any federal, election. Just for a seat on his local council. A democrat nonetheless. This is what's wrong with people. They get rage baited by an incredibly misleading title and then don't even read the article. 99% of people here don't even know what they're upset about but they're still fighting about it. We're doomed."
+
+&nbsp;
+
 
 .
 
