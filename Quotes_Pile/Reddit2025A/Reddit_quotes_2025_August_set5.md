@@ -1,3 +1,26 @@
+# Monday August 18 Checkpoint A
+
+&nbsp;
+
+
+&nbsp;
+
+&nbsp;
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
 # Monday August 18, 2025
 
 &nbsp;
@@ -738,6 +761,34 @@ We are **fucked**. None of this ends in a functional society."
 
 &nbsp;
 
+
+&nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9eqapa/
+
+scapesober 2025-06-19 (new account)
+
+"It's for reddit, and like clockwork it has insane upvote to comment interaction"
+
+&nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9eelxr/
+
+Gentry_Draws 2021-12-16
+
+"Technically you’re correct - The dream world consists of - People caring more about what you do & what you accomplish in life.
+
+But we live in reality - where it’s all about looks & perception."
+
+&nbsp;
+
+https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9dojqc/
+
+No_Arachnid_9699 2025-01-01 (New Years this year)
+
+"I honestly think that is how most people vote . Like we are watching a reality television show and we have the privilege to pick the actors. 🤦🏼‍♂️"
+
+&nbsp;
 .
 
 .
@@ -1022,32 +1073,6 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1mt4qum/i_told_a_man_today_he_
 "I had emergency brain surgery on Tuesday and ended up with my head completely shaved so I’m bald now. I had really gorgeous curly hair before the surgery and it’ll be at least a couple years before it is back the way I want it. It’s hot where I am and hats/wigs just aren’t my thing so I was just out and about with my baldness in all its glory. I don’t feel very attractive or secure in my appearance anymore but it is what it is. I was in a store today and a man literally reached out and stopped me and said “you would be a lot hotter if you wore a wig, it’s what my wife did when she had cancer.” I immediately told him he would be way hotter with duct tape over his fat mouth. He made some comment about me being a bitch because he was just trying to be helpful as I walked away. I already have to go back to teaching middle school tomorrow where the kids will be absolutely ruthless, why oh why are people like this?"
 
 * :::=== RoundSparrow_Commentary : What kind of society makes Donald Trump a role model? We don't teach how people behave / "human nature" and just expect people to not be egomaniacs in public (social media, in person like this woman reports). The clergy sure isn't teaching these situations. ===:::
-
-&nbsp;
-
-https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9eqapa/
-
-scapesober 2025-06-19 (new account)
-
-"It's for reddit, and like clockwork it has insane upvote to comment interaction"
-
-&nbsp;
-
-https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9eelxr/
-
-Gentry_Draws 2021-12-16
-
-"Technically you’re correct - The dream world consists of - People caring more about what you do & what you accomplish in life.
-
-But we live in reality - where it’s all about looks & perception."
-
-&nbsp;
-
-https://old.reddit.com/r/RareHistoricalPhotos/comments/1mtrcqx/2028_is_coming/n9dojqc/
-
-No_Arachnid_9699 2025-01-01 (New Years this year)
-
-"I honestly think that is how most people vote . Like we are watching a reality television show and we have the privilege to pick the actors. 🤦🏼‍♂️"
 
 &nbsp;
 
