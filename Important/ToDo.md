@@ -613,3 +613,17 @@ https://youtu.be/Rp_2aBdtfrY?t=71
 Israel / Framing of question    
 "Shithead", "Dweeb", "Piece of Shit" opening in first minutes   
 https://www.youtube.com/watch?v=DNo8sj-vgOg
+
+&nbsp;
+
+Microsoft Research    
+Alone Together: Why We Expect More from Technology and Less from Each Other    
+
+https://www.youtube.com/watch?v=zL_C0dUxQE4  
+
+
+&nbsp;
+
+Men autism excuse for sex   
+Together Alone year 2007 book comment    
+https://www.youtube.com/watch?v=cEPpSRtjZyw
