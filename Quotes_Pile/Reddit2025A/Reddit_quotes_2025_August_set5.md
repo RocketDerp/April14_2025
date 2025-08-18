@@ -360,6 +360,16 @@ Patara 2014-01-07
 
 &nbsp;
 
+https://old.reddit.com/r/AdviceAnimals/comments/1mtbgis/good_guy_gavin/n9b8dpn/
+
+RadasNoir 2019-03-03
+
+"Never gonna happen. Most are entirely incapable of self-awareness, and those few who might posses it will NEVER admit they were wrong. The pandemic proved that both types would rather die."
+
+* :::=== RoundSparrow_Commentary : Very popular talking point on Reddit in August 2025 tht YOU CAN NEVER EVER teach people self-awareness. Don't teach Neil Postman's 1985 book "Amusing Ourselves To Death" or teach Marshall McLuhan's body of work from University of Toronto. Adding "rather die", is leading the Reddit audience into ideas like: that only murder and killing like Nazi Germany will "solve" these problems. Reddit mind-fucking messages. Twitter-length, Bluesky-length Tweet-thinking binary bi-poloar [logic "us and them"](https://www.youtube.com/watch?app=desktop&v=HoLhKJuGhK0). **"Never gonna happen. Most are entirely incapable"** on Reddit. Anti-Malala attitudes abound on Reddit in 2025, *just murder all the brainwashed Muslims in Swat Valley Pakistan, don't rescue them with science education and liberation of women's minds!* ... kind of dehumanizing messages on Reddit. ===:::
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
