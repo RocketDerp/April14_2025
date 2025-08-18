@@ -390,6 +390,14 @@ So yea, fuck the troops again"
 
 &nbsp;
 
+Turgid_Donkey 2025-06-06 (new account)
+
+"It's the same way outlets like Fox News spent years lambasting vaccines while almost every one of their staff were vaccinated."
+
+* :::=== RoundSparrow_Commentary : This Fox News story from year August 26, 2018 https://www.foxnews.com/tech/russian-trolls-bots-spreading-discord-over-vaccine-safety-scientists-say was not repeated in year 2020 / 2021, etc. It DID get repeated February 17, 2019 https://www.foxnews.com/tech/russian-trolls-blamed-for-spreading-anti-vaccination-propaganda ... but was not repeated and repeated when the COVID-19 virus escaped Wuhan, China via airports. ===:::
+
+&nbsp;
+
 .
 
 .
