@@ -503,7 +503,31 @@ Ok_Cap_8253 2020-10-16
 
 "People don't seem to realize that killing Muslims in frivolous wars is basically a bipartisan sport in the USA!!"
 
-* :::=== RoundSparrow_Commentary : I've lived in 4 Islamic nations (Algeria, Jordan, Malaysia, Indonesia) to study this behavior first hand. Jordan is full of Palestine people. The twitter-think reaction-commenting twitter-length bullshit explains a lot of the problems. Malala from Swat Valley Pakistan has been screaming reform since 2012 and 2013 and nobody on social media is using their spare time and free time to repeat ane RetWeet Malala's books and interviews. People on social media have all the ability to take "the high road" and promote Malala's focus on education and teaching (her father was a teacher). But people rather do one-line Reddit react comments than stop the mockery and be serious and assert Malala's name and ideas from her 2013 book. ===:::
+* :::=== RoundSparrow_Commentary : I've lived in 4 Islamic nations (Algeria, Jordan, Malaysia, Indonesia) to study this behavior first hand. Jordan is full of Palestine people. The twitter-think reaction-commenting twitter-length bullshit explains a lot of the problems. Malala from Swat Valley Pakistan has been screaming reform since January 2009 and became a household name in 2012 and 2013 and nobody on social media is using their spare time and free time to sustain her message - repeat ane RetWeet Malala's books and interviews. People on social media have all the ability to take "the high road" and promote Malala's focus on education and teaching (her father was a teacher). But people rather do one-line Reddit react comments than stop the mockery and be serious and assert Malala's name and ideas from her 2013 book. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mtldii/holy_shit_indeed_trump_admin_protecting_pedophiles/n9cyocg/
+
+Interesting-Pin1433 2024-11-23
+
+"MAGA hates democrats more than pedophiles, so as long as their pedophiles (trump, etc) are anti-democrat, they don't care."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mtldii/holy_shit_indeed_trump_admin_protecting_pedophiles/n9cpb77/
+
+Actaeon_II 2022-01-16
+
+"So basically just another day, releasing criminals and protecting pedophiles is what these people do before breakfast, meanwhile 20 goons bust into a man’s house because he threw a sandwich."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mtldii/holy_shit_indeed_trump_admin_protecting_pedophiles/n9cnj9k/
+
+Dickhertzer 2014-10-31 (Halloween)
+
+"Republicans are also pushing to lower the age limits. Not surprisingly they are also supporting legislation for religious beliefs and practices. Any person standing behind these people supports children being abused, raped and victimized."
 
 &nbsp;
 
