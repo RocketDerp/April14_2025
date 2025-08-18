@@ -489,6 +489,24 @@ AltTooWell13 2024-07-27
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mtldii/holy_shit_indeed_trump_admin_protecting_pedophiles/n9cf5ie/
+
+Resident_Eye4296 2023-11-04
+
+"Not surprising at all really, Trump is a zionist cuck, and a pedophile, and zionist Isreal gives any zionist pedo a safe haven to hide from justice....it's almost like they busted him, to let him go and let Maga know they won't ever do anything about pedophiles...I mean how is maxwell doing since Trump has been trying to deflect from his involvement with epstein"
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mtldii/holy_shit_indeed_trump_admin_protecting_pedophiles/n9ckuk2/
+
+Ok_Cap_8253 2020-10-16
+
+"People don't seem to realize that killing Muslims in frivolous wars is basically a bipartisan sport in the USA!!"
+
+* :::=== RoundSparrow_Commentary : I've lived in 4 Islamic nations (Algeria, Jordan, Malaysia, Indonesia) to study this behavior first hand. Jordan is full of Palestine people. The twitter-think reaction-commenting twitter-length bullshit explains a lot of the problems. Malala from Swat Valley Pakistan has been screaming reform since 2012 and 2013 and nobody on social media is using their spare time and free time to repeat ane RetWeet Malala's books and interviews. People on social media have all the ability to take "the high road" and promote Malala's focus on education and teaching (her father was a teacher). But people rather do one-line Reddit react comments than stop the mockery and be serious and assert Malala's name and ideas from her 2013 book. ===:::
+
+&nbsp;
+
 .
 
 .
