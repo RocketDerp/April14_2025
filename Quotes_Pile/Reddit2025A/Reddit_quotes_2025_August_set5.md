@@ -589,6 +589,38 @@ tuna_samich_ 2023-03-09
 &nbsp;
 
 
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1mtnrly/til_that_college_graduates_who_joined/n9cul56/
+
+KronguGreenSlime 2019-02-15
+
+"The networking effect of frats that people are discussing here are the same reason why so many presidents and early U.S. politicians were Freemasons.
+
+Edit: none of this means that having prior wealth/connections doesn’t play an even larger role"
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1mtnrly/til_that_college_graduates_who_joined/n9cyl1g/
+
+"This thread is full of bitter people who assume all fraternities are full of rich white kids who haze each other and then get each other jobs at their dads’ companies.
+
+Actual happenings on fraternities: various officers in charge of specific tasks and a supporting committee. One guy to stay on top of recruitment. An academic chair organizing study hours and working with the chapter’s academic advisor on any member who is slipping below the GPA threshold. Service chairs who are responsible for one to two big service/charity events per year. And yes, a social chair and risk manager who plan events, secure permits, and provide insurance info to off-campus sites.
+
+Being an active member of a fraternity is a part-time volunteer job. Yes, you are making connections. But you are also developing and refining skills that successful people have."
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1mtnrly/til_that_college_graduates_who_joined/n9cy82k/
+
+"Anyone in Greek life could’ve told you this. The amount of private Facebook fraternity groups that I’m apart of that are just job postings and recommendations is ridiculous. It’s all a huge networking club. I’m happy to be able to benefit from it of course, and I feel a little lucky cause I managed to do it while black, but I wish the general public just knew the lengths that they go for their clubs."
+
+* :::=== RoundSparrow_Commentary : Statements like this "I wish the general public just knew the lengths that they go for their clubs" really make you recognize that people don't grasp September 11, 2001 attacks on NYC and *the lengths* Mosque club will go through for science fiction media of the Quran and Mecca theme park. And the audience of Radio Mullah *fan club* that Malala describes in her October 8, 2013 book..... and *sports teams fan clubs* all over the world! Donald Trump fiction fan club is massive, Fox News (Global Rupert Murdoch fan club) is massive and dedicated to their fiction storytelling! The *fan club* of the Kremlin for 25 years to fiction content... ===:::
+
+
+
+
 .
 
 .
