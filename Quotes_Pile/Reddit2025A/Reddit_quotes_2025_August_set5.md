@@ -1,3 +1,52 @@
+# Monday August 18, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9buz78/
+
+Feylin 2011-06-28
+
+"Biff won more than the movie's wildest dreams. We live in a timeline so extreme it would've been laughed out of a movie theater for being unrealistic.
+
+Our Biff is the president of the US, is friendly with nations like Russia, is enacting the same trade policy that contributed to the great recession, is destroying all US relationships, including with Canada of all countries, and is actively destroying rule of law sending the country to a path akin to Nazi Germany.
+
+Trump is the Biff who graduated from casinos with an admiration and aspiration for Adolf Hitler."
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+&nbsp;
+
+
 # August 17, 2025 Checkpoint A
 
 &nbsp;
