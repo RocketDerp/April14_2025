@@ -596,3 +596,9 @@ Mythology of schizophrenia
 Logic and mindsets.    
 metaphorical as literally.   
 https://www.youtube.com/watch?v=Vj3FkUVqneQ
+
+&nbsp;
+
+Right-wing on declaring others as crazy, locking up / camps for people who disagree.     
+"Republicans Plan to Make You Crazy & Throw You in an Asylum"    
+https://www.youtube.com/watch?v=cNVFlrC3pLQ
