@@ -52,6 +52,31 @@ Europe and the US gave up without putting a single boot on the ground."
 
 * :::=== RoundSparrow_Commentary : [Putin's information war since March 2013 has wrecked the USA society so terribly that peole in USA can't even grasp or **relate to scentific reality anymore**](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Americans are so caught up in *the mocking and insulting* of Donald Trump, so engaged in media addiction (calling every Tony Clifton act as dumb / stupid / idiot), we don't see the anti-science RFK Jr and failure to prepare for future pandemic and other future-wrecking such as claiming Canada should be ruled by Trump as 51st state. USA insulting and mocking Canada in year 2025, what a shitshow. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9buk1t/
+
+CommanderCody5501 2023-07-23
+
+"I don’t know who’s more delusional the media or the average Redditor."
+
+* :::=== RoundSparrow_Commentary : Simplistic Twitter-length thinking. "The media" includes Quran Mosque, Church Bible, Syngagouge Torah, Fox News HDTV, Reddit itself is media, Facebook, Bluesky - this person thinks that humanity of over 8 billion people isn't "delusional" when it comes to media ecology. That the problem is ONLY on Reddit in front of their face. Donald Trump has been the focus of EVERY DAY ALL DAY of USA life for over 10 years now, like God / Jesus, people can't get enough of Donald Trump mocking and insulting. Look at the way people decorate their houses and cars / pickup trucks / clothing with Doanld Trump status symbols and icons... that has been going on since year 2015. It isn't just "the media" and "Redditor" users. Study Swat Valley Pakistan and Radio Mullah from Malala's book. Study domestic Russia media systems and how people behave towards reality itself under Surkov and Putin for the past 25 years. Humanity has a crisis with addiction to fiction, globally. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1mtgp9l/russian_apc_assaulting_with_russian_and_american/n9bl5ku/
+
+Hikuro-93 **2025-07-17 (new account)**
+
+"Yup. They feel emboldened. Trump winning was their hope.
+
+Never let anyone say Trump didn't have any impact in that war. He absolutely did, but helped the invasor while sabotaging the invaded.
+
+And wants a peace prize for it, along with all other grifts."
+
+&nbsp;
+
+&nbsp;
 
 &nbsp;
 
