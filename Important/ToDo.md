@@ -578,3 +578,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1mtj32r/republicans_never_unde
 
 Media ecology on this tied to music video for "We Built This City"?    
 https://old.reddit.com/r/BeAmazed/comments/1mtpp9r/the_winning_sand_sculpture_of_2019s_texas_sand/
+
+&nbsp;
+
+Choice marriage honesty     
+Islamic temporary marriages for sex    
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1mtldpp/that_means_a_divorce_would_be_a_subscription/
