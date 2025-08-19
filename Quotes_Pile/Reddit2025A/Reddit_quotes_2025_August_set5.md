@@ -139,6 +139,14 @@ G-Unit11111 2021-04-23
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mtyoaa/trump_interrupts_talks_with_european_leaders_to/n9f8fem/
+
+crackdup 2017-02-18
+
+"It almost feels intentional. Likely instructed by Putin in the Alaska meeting to explicitly happen this way to show his influence over our country's leadership"
+
+&nbsp;
+
 .
 
 .
