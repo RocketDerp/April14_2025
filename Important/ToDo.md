@@ -686,3 +686,8 @@ Did you discuss the toxic ocean withi the mother? I've discussed it witht he Red
 Pizzacake on anger and fiction !!!!    
 Cambridge Analytica on plot anger    
 https://old.reddit.com/r/comics/comments/1mum1ts/imagination/
+
+&nbsp;
+
+Rick Beato UMC copyright battle    
+https://www.youtube.com/watch?v=zBq_krhKbW4
