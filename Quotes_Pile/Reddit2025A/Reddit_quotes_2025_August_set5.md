@@ -394,6 +394,32 @@ https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9j1tdk/
+
+boot2skull 2012-03-06
+
+"There’s few better ways to influence the world than to teach them and their future leaders. I don’t mean feed them propaganda, I mean unbiased ( or less biased) teaching, and simply setting the example of what education and society could be."
+
+* :::=== RoundSparrow_Commentary : Which is why every social media user with free time / spare time commenting should name drop Malala from Swat Valley Pakistan at every opportunity. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9j30kh/
+
+Sobeman 2010-10-05
+
+"GOP wants to be the smartest in the country. They have to defend, deport, and attack everything to get the country to that point. They want dumb, white "Christians" and nothing else"
+
+&nbsp;
+
+.
+
+.
+
+.
+
+.
+
 
 .
 
