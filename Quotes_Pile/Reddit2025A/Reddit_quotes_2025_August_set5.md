@@ -173,6 +173,14 @@ Heymanhitthis 2015-01-10
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mu1gcg/thats_kidnapping/n9g6czv/
+
+lasanhanaoimporta **2025-08-12 (new account)**
+
+"It stopped being speculative 6 months ago. Now it's just funny how the average american is either too cowardly or too apathetic to actually do something"
+
+&nbsp;
+
 .
 
 .
