@@ -496,6 +496,41 @@ rollin340 2013-08-05
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mug3vp/gavin_newsom_surges_in_2028_presidential_primary/n9jf9l5/
+
+JoeyJoeJoeSenior 2019-08-16
+
+"Democrats just need an attractive charismatic middle aged white man for a guaranteed win.  It's that easy.  Our electorate is that dumb. We need to forget about logic and rationality for a few years and just get some wins to save democracy."
+
+* :::=== RoundSparrow_Commentary : Give up on defending against Russin information war that started in March 2013 before the February 2014 Ukraine war. Just give up and keep letting the long-term mind-fuck outcomes play out as we have done so for over a decade. Keep finding out what Russia and China are doing to minds and embrace the Internet no-identity infiltraiton just as meme addicts have since year 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mug3vp/gavin_newsom_surges_in_2028_presidential_primary/n9jubzw/
+
+\_MurphysLawyer\_  2021-09-25
+
+"We've been aiming for 'good enough' but have only gotten 'not an overt fascist' instead. Our bar really is low nowadays."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mug3vp/gavin_newsom_surges_in_2028_presidential_primary/n9iyixl/
+
+AGuyWhoBrokeBad 2020-04-02
+
+<img width="1138" height="1576" alt="image" src="https://github.com/user-attachments/assets/c0d4f49f-4e9f-46f5-9b16-ee9577e456e4" />
+
+&nbsp;
+
+"Americans like dicks. Trump won by being a dick. Every disabled journalist he mocked, every woman he said looks like a dog, every mean nickname, it all helped his popularity. Newsom is being a dick back at Trump and people love it. Trump didn’t win on ideas, he won on vibes. We won’t beat him with better policy, we beat him by killing his aura, his mojo, his image."
+
+&nbsp;
+
+&nbsp;
+
+
 .
 
 .
