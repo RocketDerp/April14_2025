@@ -677,3 +677,12 @@ If you swim in an ocean of toxic people with toxic morality, you think to praise
 
 Did you discuss the toxic ocean withi the mother? I've discussed it witht he Reddit community, and egomania responses of avoiding the GROUP mob mentality hate always come. Who do you see discussing the AFTERMATH / SIDE EFFECTS of Cambridge Analytica? Instead, toxic marriages and toxic parents get singled out - and everyone is expected to do fine in a TOXIC society of ocean of hate as faith. The hate Donald Trump hate MAGA hate humanism society of August 2025 is itself causing symptoms in everyday people.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+Pizzacake on anger and fiction !!!!    
+Cambridge Analytica on plot anger    
+https://old.reddit.com/r/comics/comments/1mum1ts/imagination/
