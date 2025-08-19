@@ -135,7 +135,7 @@ G-Unit11111 2021-04-23
 
 "Holy crap, he turned the White House into the lobby of a cheap third rate insurance company that scams old retired people out of their money. WTF."
 
-* :::=== RoundSparrow_Commentary :  WTF, What the Fuck, WTF, Surkov govening, WTF, Russia year 2011, WTF. "Holy crap, he turned the White House into the ..." content of fiction addiction of Realty TV "The Apprentice" at the hands of Putin Kremlin since March 2013. Media addict Reddit users who say one-line Twitter-length reaction comments go WTF WTF and tune in every time. BULUNT ENOUGH? Neil Postman in 1985 was correct. Teaching Neil Postman's 184 book to every person age 12 to age 120 is a step towards recovery from meme addiction. ===:::
+* :::=== RoundSparrow_Commentary :  WTF, What the Fuck, WTF, Surkov govening, WTF, Russia year 2011, WTF. "Holy crap, he turned the White House into the ..." content of fiction addiction of Realty TV "The Apprentice" at the hands of Putin Kremlin since March 2013. Media addict Reddit users who say one-line Twitter-length reaction comments go WTF WTF and tune in every time. BLUNT ENOUGH? Neil Postman in 1985 was correct. Teaching Neil Postman's 184 page book to every person age 12 to age 120 is a step towards recovery from meme addiction. ===:::
 
 &nbsp;
 
@@ -144,6 +144,16 @@ https://old.reddit.com/r/worldnews/comments/1mtyoaa/trump_interrupts_talks_with_
 crackdup 2017-02-18
 
 "It almost feels intentional. Likely instructed by Putin in the Alaska meeting to explicitly happen this way to show his influence over our country's leadership"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mtyoaa/trump_interrupts_talks_with_european_leaders_to/n9for3w/
+
+Tarotdragoon 2019-07-24
+
+"I don't even think it's blackmail at this point, I think trump just slobbers on dictators because he wants to be one before he dies."
+
+* :::=== RoundSparrow_Commentary : It isn't just one single person. the blackmail theory doesn't explain the cult who all agrees on the same Kremlin ideas. Information warfare is impacting the whole nation, not just a single person Donald Trump. Putin has support in domestic Russia, he deosn't use blackmail on everyone, people are addicted to the fiction storytelling. Donald Trump is an addict to TV shows and fiction. His thinking is anti-science, he demonstrates this regularly. ===:::
 
 &nbsp;
 
