@@ -296,9 +296,15 @@ GzrGldGeo 2019-08-23
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9ja905/
 
 chaos_nebula 2015-01-11
+
+<img width="1122" height="774" alt="image" src="https://github.com/user-attachments/assets/6f9f7b57-0246-46b1-8007-4677afbaa926" />
+
+&nbsp;
 
 "MAGA doesn't care about what Trump the person did, they care about Trump the myth. GOP politicians can't say anything because they themselves are probably compromised in some way.
 
@@ -308,6 +314,15 @@ Personally I think the most successful blackmail Putin has against Trump is cont
 
 &nbsp;
 
+&npbs;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9jdrqd/
+
+That_Damn_Raccoon 2023-02-17
+
+"This whole "Putin has dirt on Trump thing" has got to be the stupidest narrative currently in American politics. It's not that he has dirt on Trump, it's that Trumpism and Putinism are ideological sisters. They align politically, they're natural allies, Putin doesn't need kompromat."
+
+&nbsp;
 .
 
 .
