@@ -458,6 +458,14 @@ You're confusing intelligence with being morally good. Just because you're smart
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9iupvj/
+
+icebergslim3000 2014-05-20
+
+"At this point why would anyone come to this country for anything other than to fleece the American people. Leaving is the new American Dream not coming."
+
+* :::=== RoundSparrow_Commentary : Neil Postman was correct about asserting Brave New World in his 1985 book "Amusing Ourselves To Death" about the influence of Twitter and Fox News. ["The Savage Lands amusement park", "It looks a lot like Middle America, because it is."](https://www.refinery29.com/en-us/2020/07/9911658/peacock-brave-new-world-soma-savage-lands-changes) ===:::
+
 
 .
 
