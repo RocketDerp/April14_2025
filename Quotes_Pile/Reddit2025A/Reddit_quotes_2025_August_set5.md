@@ -466,6 +466,18 @@ icebergslim3000 2014-05-20
 
 * :::=== RoundSparrow_Commentary : Neil Postman was correct about asserting Brave New World in his 1985 book "Amusing Ourselves To Death" about the influence of Twitter and Fox News. ["The Savage Lands amusement park", "It looks a lot like Middle America, because it is."](https://www.refinery29.com/en-us/2020/07/9911658/peacock-brave-new-world-soma-savage-lands-changes) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9jc4vr/
+
+LaSerenita 2020-07-13
+
+"Another short sighted aspect of getting rid of foreign students: they pay considerably more to attend our schools and subsidize our students' tuitions and school programs. This move actually hurts our own citizens."
+
+* :::=== RoundSparrow_Commentary : And they give us free marketing back to their homeland, they learn USA music and films during formative bonding years. ===:::
+
+&nbsp;
+
 
 .
 
