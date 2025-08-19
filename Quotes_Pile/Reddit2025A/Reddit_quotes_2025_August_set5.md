@@ -252,6 +252,17 @@ Perelka_L 2016-03-01
 
 &nbsp;
 
+https://old.reddit.com/r/europe/comments/1mud5cv/french_streamer_dies_in_his_sleep_after_being/n9ifg5f/
+
+TnYamaneko 2014-04-27
+
+"Do not, under any circumstances. It will make you lose faith in humanity, I saw only the first one, and it's enough.
+
+He considered those guys his friends. You can see that he's clearly physically abused and in distress, but he tries to have a laugh at it and does not do anything in retaliation. Because to him those were his friends.
+
+There's a special place in hell for those guys."
+
+* :::=== RoundSparrow_Commentary : This is what Cambridge Analytica doctors of psychology have exploited since March 2013 ramping up of IRA. This is the part of the human mind that drives Putin's Russia and MAGA USA / Donald Trump hate religon behaviors. Hate as religion, hate as faith, peer pressure. People can see this in small groups or families (domestic abuse), but do not see it at the national levels of USA and Russia since March 2013. Neil Postman learning and educaiton about media is not OPTIONAL. ===:::
 
 .
 
