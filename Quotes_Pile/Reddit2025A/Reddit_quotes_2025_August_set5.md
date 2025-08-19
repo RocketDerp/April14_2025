@@ -157,6 +157,14 @@ Tarotdragoon 2019-07-24
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mtyoaa/trump_interrupts_talks_with_european_leaders_to/n9f8w5z/
+
+thebarkbarkwoof 2016-12-22
+
+"He does all his crimes in the open. I don't get how people don't see it."
+
+&nbsp;
+
 .
 
 .
