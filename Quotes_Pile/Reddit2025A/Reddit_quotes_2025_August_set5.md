@@ -260,6 +260,14 @@ edudley909 2016-09-21
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j7q0i/
+
+FaithlessnessKey1726 2023-07-03
+
+"Putin doesn’t have anything on Trump beyond successful autocracy that Trump envies. He’s incapable of respecting and admiring anyone else, and Trump wants nothing more than Putin’s respect and admiration. He’d do anything for it because he wants to be him. Trump is very stupid and thinks Putin is the pinnacle of power and strength."
+
+&nbsp;
+
 .
 
 .
