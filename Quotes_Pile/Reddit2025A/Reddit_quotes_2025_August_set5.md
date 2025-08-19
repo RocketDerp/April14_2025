@@ -34,6 +34,17 @@ Edit: Yeah yeah, I know history. Just, horrified, again."
 
 * :::=== RoundSparrow_Commentary : It is the kind of world lead by Musk, Putin, Trump, Murdoch billionares. Pay-per-view war against Ukraine, pay-per-view MAGA mass dehumanizaiton content. Because people find mocking and hate Donald Trump as hillarious amusing entertaining funny because Trump behaves absurd and surreal. Trump plays Tony Clifton and people pay to view it with media devices. Hate as faith is Donald Trump. Hate as religion is Donald Trump. People can not resist the hate messages and total mockery, Tony Clifton performance Trump does. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9hqr2r/
+
+Chance_Cheetah_7678 2023-12-22
+
+"More like his handlers. You can tell a true trump rant by how weird/strange it is. Guessing he's finding it harder to even sorta-coherently text anymore. So someone got designated to post nonsense on his behalf."
+
+* :::=== RoundSparrow_Commentary : He just met with Putin this week, how anyone can think with all the Russian mind-fuck. Donald Trump does an amazing job given the garbage junk memes he consumes from the Kremlin that cause extreme brain damage / executive function mental damage. Donald Trump is an addict to the Kremlin meme systems. Trump is like the *Neo* of the Kremlin Matrix of monomth fiction patterns. ===:::
+
+
 .
 
 .
