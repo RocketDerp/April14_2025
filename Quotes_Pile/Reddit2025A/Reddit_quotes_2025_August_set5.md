@@ -22,6 +22,18 @@ Was this in France? I can imagine there would be some repercussions for those in
 
 &nbsp;
 
+https://old.reddit.com/r/europe/comments/1mud5cv/french_streamer_dies_in_his_sleep_after_being/n9ibxx7/
+
+ThoughtsonYaoi 2021-09-21
+
+"And they made money off this because people were watching.
+
+What the hell kind of world is this, where torture is broadcast and people pay to participate
+
+Edit: Yeah yeah, I know history. Just, horrified, again."
+
+* :::=== RoundSparrow_Commentary : It is the kind of world lead by Musk, Putin, Trump, Murdoch billionares. Pay-per-view war against Ukraine, pay-per-view MAGA mass dehumanizaiton content. Because people find mocking and hate Donald Trump as hillarious amusing entertaining funny because Trump behaves absurd and surreal. Trump plays Tony Clifton and people pay to view it with media devices. Hate as faith is Donald Trump. Hate as religion is Donald Trump. People can not resist the hate messages and total mockery, Tony Clifton performance Trump does. ===:::
+
 .
 
 .
