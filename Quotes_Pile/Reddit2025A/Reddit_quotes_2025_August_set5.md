@@ -280,6 +280,12 @@ Trump isn't bowing to Putin under duress. He's doing it out of honest admiration
 
 &nbsp;
 
+Environmental-Arm365 2022-02-08
+
+"JFC! There’s no amount of whataboutisms or talking points conservatives can deploy to diminish this obvious fealty Trump is showing towards Putin. This would be ringing alarm bells as a national security emergency in any other administration if a sitting President acted with this level of advocacy and subservience to Americas biggest geopolitical adversary."
+
+&nbsp;
+
 .
 
 .
