@@ -206,6 +206,15 @@ Adventurous-Meat8067 2020-11-14
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j4dvb/
+
+bryan49 2015-10-22
+
+"I'm not sure Putin even needs kompromat, I think Trump just idolizes him for being a brutal dictator and one of the wealthiest people in the world"
+
+* :::=== RoundSparrow_Commentary : As I keep emphasizing: the "old world order" is the Science Fiction addicts of the Quran storytelling who pass down their favorite science fiction storybook to their children and admire the lavish wealth of the Suadi Arabian royalty and Mecca media theme park. Donald Trump White House is the new Twitter World media Theme Park with Elon Musk, owner of Twitter media empire. Donald Trump admires and is addicted to the Surkov media and Kremlin theme park techniques that have kept Putin in power for 25 years. ===:::
+
+&nbsp;
 
 .
 
