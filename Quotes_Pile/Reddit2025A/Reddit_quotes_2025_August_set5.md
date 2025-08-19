@@ -144,7 +144,15 @@ throwawayhellfire 2014-11-21
 
 I can't believe it took these bozos 10 years to realize you gotta bully this dude"
 
-* :::=== RoundSparrow_Commentary : Putin has been bullying all USA people for over TWELVE year, 12 years, using [the IRA](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) and people competely accept that Truth Social / Reddit behavior / Twitter behavior / Bluesky behavior is now accepted in every part of life, Donald Trump role model of social machines EVERY AREA of life, offline and online. Surkov won. A "new yorker" who can't recall New Yorker Neil Postman. ===::
+* :::=== RoundSparrow_Commentary : Putin has been bullying all USA people for over TWELVE year, 12 years, using [the IRA](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) and people competely accept that Truth Social / Reddit behavior / Twitter behavior / Bluesky behavior is now accepted in every part of life, Donald Trump role model of social machines EVERY AREA of life, offline and online. Surkov won. A "new yorker" who can't recall New Yorker Neil Postman. A New Yorker who acts like AOC isn't from New York. People in media addiction to Tony Clifton (New Yorker) act can't see beyond the recency bias fixation, forest for thr trees of MUTLIPLE NATO NATIONS, not just one person Donald Trump, but the entire March 2013 onward IRA warfare. ===::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9iarj0/
+
+joat2 2019-02-26
+
+"Even if trump stops the all caps, he still is going to talk like it and say stupid ridiculous shit. So Newsom and or his team needs to keep it up, just keep mimicking the style. If trump drops most of the caps, then drop them, but keep the same style of talking to keep showing how insane it is."
 
 &nbsp;
   
