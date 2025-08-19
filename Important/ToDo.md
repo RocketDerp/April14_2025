@@ -652,4 +652,15 @@ When in Rome, do as the Romans do. When in Swat Valley Pakistan, do what the Tal
 “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... **No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven** to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945
 
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+Vibe coding marketing,get rich quick like the billionares are who fund AI.    
+Billionares package anything as entertainment. People pay to sit in seats at stadiums and drink beer while men with armies of medical doctors run around a rectangle with a ball. Or people sit on couch at home consuming billionare-provied processed foods while advertising said foods - and sponsors - and watch people go around trinalge baseball or rectangle sportsball fields. What do you think hacker video games are? Fiction sells, ,nonfiction isn't popular. Vibe coding is a fiction video game, ChatGPT / Grok AI - they provide fiction interation, ELIZA effect.
+
+https://old.reddit.com/r/ProgrammerHumor/comments/1mudy12/theystartingtogetit/
+
 
