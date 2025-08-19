@@ -282,3 +282,12 @@ Epicardiectomist 2025-06-19 (recent account)
 
 "The worst part is that there isn't an afterlife. If he doesn't face justice here on Earth, he gets away with it forever."
 
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1musutb/the_burger_king_mom_who_went_viral_for_working/n9lfgzv/
+
+carpetbugeater 2022-01-15
+
+"Covid taught me that we won't be working together during an emergency. It'll be every man for himself. That's why the rich are building their bunkers and compounds."
+
+* :::=== RoundSparrow_Commentary : The elections have also taught us: every rural man for the New York City Slickers billionaires. ===:::
