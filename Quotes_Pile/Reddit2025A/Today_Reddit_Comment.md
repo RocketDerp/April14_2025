@@ -245,3 +245,14 @@ Successful_Ad4018 2021-03-06
 why is it always the left who is expected to be the bigger person when the one in the white house is the biggest bully of them all? he constantly takes credit for things he didn’t do and deflects blame for things he did wrong onto biden or obama."
 
 * :::=== RoundSparrow_Commentary : The whole *left vs. right* binary logic thinking is a mental trap. Look at Fox News, Donald Trump, Elon Musk Twitter, Taliban and other groups in terms of **fiction vs. nonfiction**, science vs. fiction storytelling (The Bible science fiction, Quran science fiction, Torah science fiction). Addiction to fiction explains Donald Trump popularity. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1murrkx/president_epstein_tells_fox_news_he_hopes_peace/n9l65gx/
+
+Pure_Frosting_981 2025-05-24 (new this year)
+
+"Hell is not some place in some other realm. Hell is what we do to each other. This motherfucker is a goddamn pestilence that seems to never go away. I like festering, infected genital warts multitudes more than I like Trump."
+
+&nbsp;
+
