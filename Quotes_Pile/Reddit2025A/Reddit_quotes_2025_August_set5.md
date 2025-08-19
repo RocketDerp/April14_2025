@@ -384,6 +384,16 @@ Zolo49 2014-01-24
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9jb1ni/
+
+408wij 2013-08-14
+
+"It goes way beyond this. For example, USAID was killed. How does that undermine science? Well, one of the things USAID did was buy vaccines for diseases prevalent "over there" to contain them before the came "over here" or led to geopolitical instability (think: al Quada-like groups). Money for those vaccines flowed back to basic research. Now, the big university immunology programs are dead because the money has been cut off. Years of longitudinal data have been lost. Research is set back a minimum of 20 years."
+
+* :::=== RoundSparrow_Commentary : Biological terrorism is a real threat. Terrorists have already laerned how airports are an extremely inexpensive and potent way to spread disease. Target tourists. American people will fleefully spread the disease in egomania as we saw during the COVID-19 pandemic. Russia has been manipulating hearts and minds using the Internet Research Agency since year 2014 to self-harm with diseases: https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+&nbsp;
+
 
 .
 
