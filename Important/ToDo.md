@@ -632,3 +632,15 @@ https://www.youtube.com/watch?v=cEPpSRtjZyw
 
 Real validation of The ELIZA effect. Real fiction addiction.    
 https://www.youtube.com/post/Ugkx1v2EAlSe4aTsBiDhIHaRse3erNx4H1db
+
+&nbsp;
+
+&nbsp;
+
+Choice marriage honest. Sex sells, marketing, fashion, cosmetics, perfume, style changes, trend changes. Sposue got bored and wanted sex from others. Parenting and sex are two different things. Freedom, liberty to be silent, freedom to not communicate, freedom to dump people, liberty to raise children to worship Donald Trump as role model.   
+"Exactly as the title says. We’d been together for four years. I was with her at the lowest of her lows and when she knew I needed her most she cheated on me. This was after we just had a newborn son who turned 5 months old last week.
+
+I’m at a loss for words and honestly don’t know what to do. Def getting a gym membership lmao but yeah. Four years and a family down the drain because she couldn’t communicate with me and make me aware that she was losing interest.
+
+It just hurts bc it feels like I was trying so hard to provide a happy home and was so excited to raise our son together only for this to happen. We’re currently dealing with so much and this was the cherry on top."
+https://old.reddit.com/r/Wellthatsucks/comments/1muez58/my_girlfriend_of_four_years_cheated_on_me_after/
