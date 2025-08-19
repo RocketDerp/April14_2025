@@ -412,6 +412,14 @@ Sobeman 2010-10-05
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9j8l1b/
+
+El_Tormentito 2011-07-06
+
+"We are the stupidest country, I swear. We have tossed so much soft power and influence into the shitter that we'll never recover. All because the dumb fuck at the top doesn't understand any of it. He literally doesn't get it."
+
+* :::=== RoundSparrow_Commentary : Which is why we should be *rescuing Donald Trump and MAGA* and facing up that Fox News fiction is mind poison, Internet memes are poison, that Neil Postamn's body of work is essential for EVERY PERSON age 12 to age 120 to recognize what has gone so horribly wrong embracing Putin's information warfare since March 2013. Donald Trump's extreme popularity (hate magnet, mockry magnatism) is a symptom of having Amused Ourselves to Death on social machine Kremlin mind-fuck. ===:::
+
 .
 
 .
