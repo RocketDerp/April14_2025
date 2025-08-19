@@ -478,6 +478,13 @@ LaSerenita 2020-07-13
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9jajql/
+
+strangerbuttrue 2011-08-29
+
+"Messing with these young people’s lives. Their entire future trajectory is changed. It’s like we are trying to create a new generation of worldwide terrorists who hate America for good reason."
+
+&nbsp;
 
 .
 
