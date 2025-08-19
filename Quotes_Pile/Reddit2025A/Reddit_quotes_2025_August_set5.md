@@ -438,6 +438,27 @@ yourlittlebirdie 2017-04-22
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9iy7bq/
+
+No_Environments 2024-12-20 (new this year)
+
+"The US's success largely has been due to the US drawing in talent from the world, and within 6 months MAGA has destroyed a century of US leading the way in drawing in the world's talent."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9ix86g/
+
+hasdunk 2017-04-26
+
+"oh no, you can be smart and a republican. These policy makers were all university graduates. Yes, they might've gotten in due to legacy admissions, but they still need to be literate enough to graduate.
+
+You're confusing intelligence with being morally good. Just because you're smart, doesn't automatically make you a good person. And these people are definitely smart, they're just too self-centred and don't care about the well-being of their own country."
+
+* :::=== RoundSparrow_Commentary : Adopting Surkov governing techniques of Russia year 2011 has been a huge success. Fiction outsells nonfiction. Surkov won since March 2013. ===:::
+
+&nbsp;
+
+
 .
 
 .
