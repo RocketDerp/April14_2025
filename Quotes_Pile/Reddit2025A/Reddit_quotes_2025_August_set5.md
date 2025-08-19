@@ -376,6 +376,14 @@ John-Mandeville 2015-09-20
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9j4749/
+
+Zolo49 2014-01-24
+
+"I can easily envision a near-future where amazing technological breakthroughs in medicine, robotics, and other areas are being made elsewhere in the world, and not only are they not made available here in the US. We aren't even aware of them because the news has been walled off from us. God, I hate this timeline."
+
+&nbsp;
+
 
 .
 
