@@ -538,6 +538,26 @@ Risky-Trizkit 2019-07-11
 
 * :::=== RoundSparrow_Commentary : Americans fundamentally do not grasp Surkov Kremlin infromation warfare. The more people copycat Trump's success, as people do all over social media for 10 years, the more **Putin is humiliating the ENTIRE USA** (not just Republicans, not just MAGA, not just conservatives). There has to be a MASSIVE wake up to woke Finnegans Wake level turnaround, every social media user admitting media addiction (Neil Postman was correct in year 1985 messaging). Blame the IRA, don't make this about Trump, make this about media ecology and everyone (age 12 to age 120) needing to learn Neil Postman's 1985 book of 184 pages. ANOTHER ISSUE: is Trump dies or is otherwise incpacitated, the USA population will not be seen as changing their mind, still anti-intellectual and arroange. Anyting short of a MASSIVE SUSTINED PEACEFUL UPRISING is not going to wash off the shitshow of addiction to Donald Trump antics (Social Media HALTING entertainment and teaching Neil Postman visibly IN PUBLIC as an admission of media addiction). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mug3vp/gavin_newsom_surges_in_2028_presidential_primary/n9j4ukz/
+
+Meph616 2012-10-21
+
+"How sad that he's one of the best prospect simply because he did some shitposting on Twitter.
+
+Dems are so pathetic, man. No wonder we are where we are."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mug3vp/gavin_newsom_surges_in_2028_presidential_primary/n9kbsq6/
+
+BallerBettas 2020-01-25
+
+"It doesn’t matter which dem you put in front of the American people. The Democrats aren’t the predominant fault in the system. It’s the people. We’re too fucking stupid. You have to change them first. It’s not going to happen."
+
+* :::=== RoundSparrow_Commentary : The Russian information warfare since March 2013 has been against the ENITRE POPULATION and people are in such deep denial of how much the problem is Twitter-thinking and reactions in EVERYONE, WE THE PEOPLE, not politicians, but the entire audience. who flocks to hate Trump. Trump is a hate magnet, Trump is a mockery magnet. Faith in hate, religion of hate, has taken over the population. Anti-intellectual *hate harder* worship values. This SHIT has been going on for over a DECADE. Donald Trump was already removed from office, Joe Biden had 4 years, the moralityrot of society is everyone who thinks *hate harder* against Americans and not learn about Russian information warfare... **Americans HATW Amricans right now**, the future is WRECKED... the HATE of everyday people needs to be directly addreseed! ===:::
+
 .
 
 .
