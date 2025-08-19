@@ -109,6 +109,33 @@ Ewoksintheoutfield 2013-01-10
 
 * :::=== RoundSparrow_Commentary : Time and time again you see these Twitter-length Tweet-think reaction comments on social media for OVER TEN YEARS. And you know what you do not see on social media comments? People saying: *let's all go to the public library and check out a book on* ***cult deprogramming*** *and start posting quotes and teachings from these books on our social media comments and postings!* Let's RESCUE the USA from the Kremlin information warfare! Let's address the Cambridge Analytica *aftermath* of fucked-up thinking patterns and cult behaviors. Instead, you just see people delcare it is a cult and not have any civic duty of resucing Americans from a lost Russian infomation war.
 Reddit comment August 2025: "It’s a cult. These people are literally delusional." - The Altantic article, [September 9, 2014: "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. ***It reinvents reality, creating mass hallucinations** that then translate into political action.](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9hq4z2/
+
+hlgram_cmptnt_adult 2025-01-09 (new this year)
+
+"Is it... is it possible that seeing a mirror image of his rhetorical style caused DJT to catch the slightest glimmer of how much he sounds like - and is - a bumbling oaf? Nah, not holding my breath on that one."
+
+* :::=== RoundSparrow_Commentary : Say he is doing a Tony Clifton act, show videos of Tony Clifton performances. Say he is using Surkov governing techniques of Russia. Keep repeating "Tony Clifton" name until everyone in August 2025 knows what Tony Clifton acting looks like. People think Donald Trump is bieng *original*? He is duplicating Fox News in walking and talking, he is doing a Tony Clifton act from NYC (Trump home town). [Andrew Geoffrey Kaufman... born January 17, 1949... New York City, USA](https://en.wikipedia.org/wiki/Andy_Kaufman). Right in Trump's media consumption circles. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9imlax/
+
+imtheproof 2010-04-06
+
+"I think this article is just flat-out incorrect. I check on Trump's Truth Social page frequently, and have done so for years, and there's been no real shift recently. Same old craziness.
+
+He uses all caps relatively rarely and in bursts. They'll be back.
+
+Like come on:
+
+https://truthsocial.com/@realDonaldTrump/posts/115049485680941254 "
+
+&nbsp;
+
   
 .
 
