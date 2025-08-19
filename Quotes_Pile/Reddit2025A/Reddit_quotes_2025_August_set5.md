@@ -530,6 +530,13 @@ AGuyWhoBrokeBad 2020-04-02
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mug3vp/gavin_newsom_surges_in_2028_presidential_primary/n9jjaoh/
+
+Risky-Trizkit 2019-07-11
+
+"Humiliation is the best tactic by far - how we lost to Trump who can be humiliated so easily is beyond me"
+
+* :::=== RoundSparrow_Commentary : Americans fundamentally do not grasp Surkov Kremlin infromation warfare. The more people copycat Trump's success, as people do all over social media for 10 years, the more **Putin is humiliating the ENTIRE USA** (not just Republicans, not just MAGA, not just conservatives). There has to be a MASSIVE wake up to woke Finnegans Wake level turnaround, every social media user admitting media addiction (Neil Postman was correct in year 1985 messaging). Blame the IRA, don't make this about Trump, make this about media ecology and everyone (age 12 to age 120) needing to learn Neil Postman's 1985 book of 184 pages. ANOTHER ISSUE: is Trump dies or is otherwise incpacitated, the USA population will not be seen as changing their mind, still anti-intellectual and arroange. Anyting short of a MASSIVE SUSTINED PEACEFUL UPRISING is not going to wash off the shitshow of addiction to Donald Trump antics (Social Media HALTING entertainment and teaching Neil Postman visibly IN PUBLIC as an admission of media addiction). ===:::
 
 .
 
