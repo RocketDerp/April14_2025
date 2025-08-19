@@ -181,6 +181,28 @@ lasanhanaoimporta **2025-08-12 (new account)**
 
 &nbsp;
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mu6l4b/after_supporting_cutting_medicaid_shrinking/n9gqtkl/
+
+AltoNat2 2021-03-25 (Jesus inception day)
+
+"There seems to have been a lot more Republicans complaining about their own party now that it's harder to blame Democrats since they aren't in power and the GOP is doing exactly what they said they'd do. Were Democrats ever this whiny when Biden was President?"
+
+* :::=== RoundSparrow_Commentary : The topic context is life nd death, health care, "ever this whiny" is top comment upvoted on Reddit. Dehumanizing people for wanting medical care as "ever this whiny" - while Reddit society thinks gun shooting of United Health Car CEO in Manhattan in December 2024 is "not whining". People on social media debasing communications, using communications. Donald Trump hate values have come to dominate and saturate society so much since June 2015 that people can not even see the thinking being expressed. As C. G. Jung said in 1945: “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... **No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven** to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945 - people have allowed themselves to make hate their core faith and religion in USA for a decade. Sports mentality that *the other team* doesn't actually need medical care and that the billonaires haven't promoted mass media dehumanizaiton / social media dehumanization mind-fuck. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mu6l4b/after_supporting_cutting_medicaid_shrinking/n9i2lg1/
+
+Politicsboringagain 2020-09-04 (note the topical username)      
+user profile message: "You hate Democrats, more than you like progress. Yes, I'm talking to you checking my profile."
+
+"And the morons in that state will vote for her or someone like her again.
+
+All they will have to do is say woke, Mexicans are taking your jobs, Blacks are taking your women, women think they deserve rights (all while she does), etc, etc. "
+
+* :::=== RoundSparrow_Commentary : Social media society describign keywords "woke", "Mexicans", "blacks", "women" that Cambridge Analytica and Internet Research Agency have attacked into mindsets since March 2013 with zero concern to confront the media ecology programmmigg. Just a Twitter-length reaction comment, no rally cry to defend NATO against Russian information warfare that has turned USA minds into slavish reaction to keywords. USA has lost an information war, hearts and minds, to Putin without even realizing it. The reddit message calls people "morons" without promoting Jen Senko's March 2016 film about brainwashing by Fox News and other right-wing media. There is no desire to rebuild and rescue Americans, just insulting and punching down on those who lost their minds to Putin since year 2013. ===:::
+
+
 .
 
 .
