@@ -44,6 +44,17 @@ Chance_Cheetah_7678 2023-12-22
 
 * :::=== RoundSparrow_Commentary : He just met with Putin this week, how anyone can think with all the Russian mind-fuck. Donald Trump does an amazing job given the garbage junk memes he consumes from the Kremlin that cause extreme brain damage / executive function mental damage. Donald Trump is an addict to the Kremlin meme systems. Trump is like the *Neo* of the Kremlin Matrix of monomth fiction patterns. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9ishz1/
+
+jeffriestubesteak 2019-12-18
+
+"If any other sitting president tweeted "Bela" out of nowhere, we'd have a collective bipartisan shit, followed by the deployment of an entire regiment of mental health experts, both to the White House and as talking heads on on every news outlet on the planet.
+
+Trump types multi-paragraph word salads on the daily, and we're all just like "eh, he's said weirder things." "
+
+* :::=== RoundSparrow_Commentary : Social media users like Donald Trump can be measured and analyzied in who they are willing to quote. Media ecology. Which professional edited articles and texts do they post on social media to back up their claims. People are so obssed and worship Donald Trump's *original creative mythology content* that they don't even recognize that Trump should be quoting books from his lifetime. He is 79 years old, he hasn't read a book in 1985 he can quote? Stop criticizing Trump for his original langauge and words... focus on his influences. Tony Clifton character he plays. Donald Trump quotes and live-blogs Fox News. “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
 
 .
 
