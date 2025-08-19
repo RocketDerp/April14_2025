@@ -1,3 +1,77 @@
+# Tuesday August 19, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1mud5cv/french_streamer_dies_in_his_sleep_after_being/n9iests/
+
+ElectricSpeculum 2021-01-24
+
+"Kick is the platform with no rules for streamers other platforms ban. When Sneako and Johnny Somali are on that platform, you just know it's full of degenerate scum."
+
+* :::=== RoundSparrow_Commentary :  It isn't just *rules*, there is an absence of moraltiy education and teaching of morals. People are attracted to Donald Trump, people flock to Donald Trump as a role model on the Internet since year 2013. Donald Trump at age 79 is like the Taliban elders Malala describes in her October 8, 2013 book about Swat Valley Pakistan. Nobody is teaching people good from bad and people are being programmed by billionares (Elon Musk anti-empathy) Donald Trump with massive media power to educate and teach morlity - to behave like Donald Trump, role model! Billionares are setting the social media society standard on Truth Social and Twitter and Fox News (Rupert Murdoch billionaire). The religion people aren't even teaching compassion and love at all, it's all obey and worship Donald Trump preaching / obey and worship Putin preaching. There is a massive education problem of people not following authentic morality reforms of Malala's book! ===:::
+
+&nbsp;
+
+.
+
+.
+
+.
+
+.
+
+.
+
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+&nbsp;
+
+
 ### Monday August 18 Checkpoint A
 
 &nbsp;
@@ -264,51 +338,9 @@ There's a special place in hell for those guys."
 
 * :::=== RoundSparrow_Commentary : This is what Cambridge Analytica doctors of psychology have exploited since March 2013 ramping up of IRA. This is the part of the human mind that drives Putin's Russia and MAGA USA / Donald Trump hate religon behaviors. Hate as religion, hate as faith, peer pressure. People can see this in small groups or families (domestic abuse), but do not see it at the national levels of USA and Russia since March 2013. Neil Postman learning and educaiton about media is not OPTIONAL. ===:::
 
-.
+&nbsp;
 
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
+&nbsp;
 
 # Monday August 18, 2025
 
