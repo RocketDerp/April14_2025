@@ -344,6 +344,39 @@ Reputable_Sorcerer 2020-08-14
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9jjs6y/
+
+Dry_Championship222 2021-01-28
+
+"Its not about dirt Trump and Putin agree philosophically they want to carve up the world's riches for themselves."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9jz1qg/
+
+RaymondBeaumont 2021-07-14
+
+"why is Trump allowing the war?"
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9jz3d3/
+
+CosmoKram3r 2013-12-11
+
+"Your entire online existence is telling others to "cope". If that ain't some embarrassing, coping behavior, I don't know what it is."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9iupyh/
+
+John-Mandeville 2015-09-20
+
+"Brain drain to the U.S. has historically been a major source of America's advantage in science and technology, and the prestige of its elite universities, drawing future leaders from around the world, is a foundation of its soft power. We are deliberately throwing that away."
+
+&nbsp;
+
+
 .
 
 .
