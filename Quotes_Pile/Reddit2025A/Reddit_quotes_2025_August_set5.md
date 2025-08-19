@@ -230,6 +230,18 @@ Austin_Peep_9396 2021-08-08
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1mu85io/mit_report_95_of_generative_ai_pilots_at/n9i14pr/
+
+Brokenandburnt 2022-12-08
+
+"Considering the active war on the CFPB from this administration, I sadly suspect that you are correct in your assessment. 
+
+I also suspect that this administration and all the various groups behind it will also discover that an economy where the only regulations are coming from a senile old man, won't be the paradise they think it'll be."
+
+* :::=== RoundSparrow_Commentary : Like the paradise of social media Reddit that influences so many other social media platforms where secrative moderators hide messages in secret and ban people in secret and no-identity Russians and people from all over the world take these unpaid positions to promote Donald Trump since year 2013 when the Kremlin active measures were launched... that paradise of constant war gainst nonfiction and war against compassion. Letting Russia mind-fuck USA into thinking that *Donald Trump hate and mocking addiction* is a good thing. Addiction to hate, addiction to mocking, the magnet that Donald Trump has become for media junkies. All [schemed up in November 2012 with doctors of psychology as the largest Internet trolling](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) in all media platform world history. Trolling for media addiction to Donald trump self-harm of the USA future, mocking faith, anti-compassion faith, anti-empathy faith, hate as religion. ===:::
+
+&nbsp;
+
 
 .
 
