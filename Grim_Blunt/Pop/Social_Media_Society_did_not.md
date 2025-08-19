@@ -46,3 +46,18 @@ Living in a hate-motivated reactionary society. media machines of every size and
 It has been an ocean of mockery and hate. Mocking MLK Jr's lessons on hate. "Great again" ahs been a complete abandonment, to before 1954 when MLK Jr said all hate is bad. To the 1930's and 1940's industrail machine rise thinking that lead to Japan having aircraft carriers attacking Pearl Harbor with machines to underwater boats, to rocket machines bombing London.
 
 
+&nbsp;
+
+&nbsp;
+
+### Mueller coming  
+
+The Reddit society adopted chanting like MAAGA, such as The Wire TV show fiction phrase taken to "Mueller coming" to give payback on Trump. Reacting to every rumor of Trump impeachment over Russia issues. 
+
+Soccial media did not stand up and shut down entertainment and CALL for. There are people who telephpone politicians, representatives, but not a dispaly that We The People were harmed by Russia and Trumpism and wanted the removal - not on the scale of other social media events like major football games or the release of a major new video game - or outage of a social media platform.
+
+Donald Trumpdraws haters into reaction, exploits hate mindsets. People seem to drain away any idea of bottom-up progress. The society in total realy needs a morality preacher, a MLK Jr. Donald Trump is a force of hate and dehumanization. Worship the rich and wealthy, worship power attraction of Donald Trump. A MLK jr or Malala (Pakistan) force.  Jen Senko March 2016, before November 2016, film was not that rise - and it should have been. Jen Senko, the baby boomer who stood up to Fox News, did not get the attention that the topic needed. Just like social media didn't stand for sustained Entertainment "The Apprentice" crticisim.
+
+1. Carl Sagan on Dumb and Dumber
+2. Neil Postman, entertaining ourselves to death politics of Ronald Regan and I vidily remember my high school classs in the 2nd term of Ronald Reagan in 1985. The celebrity charm and worship. Rick Roderick in 1993 saw this with his Duke University students looking back a few short year after... how it was such a Hyper Real social experience.
+
