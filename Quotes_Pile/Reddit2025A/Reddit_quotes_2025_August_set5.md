@@ -87,8 +87,29 @@ frotz1 2019-03-09
 
 "Honestly, mimicking Dementia Donald right back at him is a highly effective way to demonstrate how weird and childish he is behaving. There's very little he can do to respond without acknowledging his own words, so it will be even more effective in person. As dumb as our time line really is lately, maybe this dumb thing is what it takes to shut down Dementia Donald's roll."
 
-* :::=== RoundSparrow_Commentary : Fixated on ONE SINGLE PERSON. "Dementia" 79 year old. This has been gong on for OVER TEN FULL YEARS of non-stop mocking and insulting Donald Trump's performance of Tony Clifton from the social machine audience. " As dumb as our time line really is lately" - Reddit, August 19, 2025. So you want to add more and more dumb to the Russian information warfare since March 2013 and do nothing on social media to actually call out that this Tony Clifton behavior is Russian Kremlin Surkov methods. Psycologial denial that Surkov won the information war, INCLUSIVE of this Reddit user. "mimicking Dementia Donald" is EXACTLY what USA We The People have been DOING FOR OVER A DECADE NON-STOP EVREY HOUR OF EVERY DAY!!!! People can not see the FOREST for the trees! ===:::
+* :::=== RoundSparrow_Commentary : Fixated on ONE SINGLE PERSON. "Dementia" 79 year old. This has been gong on for OVER TEN FULL YEARS of non-stop mocking and insulting Donald Trump's performance of Tony Clifton from the social machine audience. " As dumb as our time line really is lately" - Reddit, August 19, 2025. So you want to add more and more dumb to the Russian information warfare since March 2013 and do nothing on social media to actually call out that this Tony Clifton behavior is Russian Kremlin Surkov methods. Psycologial denial that Surkov won the information war, INCLUSIVE of this Reddit user. "mimicking Dementia Donald" is EXACTLY what USA We The People have been DOING FOR OVER A DECADE NON-STOP EVREY HOUR OF EVERY DAY, THE ENTIRE NATION A TOTAL MOCKERY!!!! People can not see the media ecology FOREST for the trees! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9ir4n0/
+
+ok-survy 2022-11-21
+
+"It even goes beyond the communications. Imagine if any other respectable world leader tried to coin a catchphrase and started selling hats and merchandise to his citizens. His most fervent supporters all opening gift shops all around in his honor. They wear it like a sports team.
+
+How would it look to us if a European nation, for example, had some loud mouth do the same and sold armbands or something..."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9iqt5t/
+
+Ewoksintheoutfield 2013-01-10
+
+"It’s a cult. These people are literally delusional."
+
+* :::=== RoundSparrow_Commentary : Time and time again you see these Twitter-length Tweet-think reaction comments on social media for OVER TEN YEARS. And you know what you do not see on social media comments? People saying: *let's all go to the public library and check out a book on* ***cult deprogramming*** *and start posting quotes and teachings from these books on our social media comments and postings!* Let's RESCUE the USA from the Kremlin information warfare! Let's address the Cambridge Analytica *aftermath* of fucked-up thinking patterns and cult behaviors. Instead, you just see people delcare it is a cult and not have any civic duty of resucing Americans from a lost Russian infomation war.
+Reddit comment August 2025: "It’s a cult. These people are literally delusional." - The Altantic article, [September 9, 2014: "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. ***It reinvents reality, creating mass hallucinations** that then translate into political action.](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/)  ===:::
+  
 .
 
 .
