@@ -70,3 +70,13 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3lwqrevc7e22k
 https://autistics.life/@RoundSparrow/115055100291433027 
 
 Donald Trump has made dehumanization and hate "fun" for Americans on a national scale. Trump brought people together in hate motivations, relationships built upon faith in hate. since June 2015. For 10 years and 2 months, hate worship USA.  
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+Year 1792   
+Giving up sugar / entertainment   
+https://old.reddit.com/r/todayilearned/comments/1mucxyd/til_that_in_1792_400000_british_people_gave_up/
