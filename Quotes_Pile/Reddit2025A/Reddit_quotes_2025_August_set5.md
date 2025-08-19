@@ -242,6 +242,16 @@ Designer-Welder3939 2020-08-25
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j9wnz/
+
+yaboyACbreezy 2019-05-18
+
+"So, we're crapping on Zelenskyy and everyone else, but Putin gets respect? The fuck backwards ass timeline are we living in?
+
+Wasn't McCarthy a republican??"
+
+&nbsp;
+
 .
 
 .
