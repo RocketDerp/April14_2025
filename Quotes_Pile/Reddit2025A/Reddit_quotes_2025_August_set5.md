@@ -268,6 +268,18 @@ FaithlessnessKey1726 2023-07-03
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j9b3y/
+
+DisMFer 2022-11-03
+
+"It's not blackmail. Trump is too stupid to blackmail. He'd almost certainly blurt out what he's being blackmailed for in an interview or something and render the blackmail useless.
+
+The truth is even sadder. Trump admires Putin. Trump is a cheap bully and always has been. Like most bullies, he sees being violent and threatening as signs of strength and power. To him Putin really is the strongest leader in the world because people are scared of him and his actions. Putin hurts people for his own gain, basically as a daily action. Trump sees that as something to emulate.
+
+Trump isn't bowing to Putin under duress. He's doing it out of honest admiration for his idol."
+
+&nbsp;
+
 .
 
 .
