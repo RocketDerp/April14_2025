@@ -499,3 +499,14 @@ zzen321 2014-09-02
 "It's freaking awesome that Trump is hurting his supporters, the poor and uneducated, the most. I'll grin and bear it. And grin some more."
 
 Donald Trump's *supporters* are billionares and *Trump supporters* in Russia who use the most powerful media machines ever created by humanity, the USA is a leader in world media and social media, to mind-fuck everyday people. And this Reddit user thinks it is *awesome* that the Donald Trump billoionares club is being predatory towards We The People. [Cheering on that Russia's Kremlin used unethical mind-fuck with Cambridge Analtica in a November 2012 agreement](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1muqof2/trump_79_forgets_the_name_of_the_pacific_ocean/n9l4gzh/
+
+JacquoRock 2016-01-06
+
+"Oh my God. That was legit hysterical. He actually ad libbed, "yeah...uh...a great big beautiful ocean." Not to restate the obvious, but of course everyone is aware that such a flub by President Biden would not be ignored by all the mental giants at Fox News (as was the case here)."
+
+Media addicts of America, the social media society USA, can never get enough mocking and insulting Donald Trump on media. Instead of REMOVING Donald Trump from the spotlight, people are entirely addicted to having him there to insult and mock. IT NEVER FUCKING ENDS, OVER A DECADE OF THIS SHIT! Donald Trump content creator is irresitable to USA population. Terrible horrific taste in attraction to media garbage.
+
