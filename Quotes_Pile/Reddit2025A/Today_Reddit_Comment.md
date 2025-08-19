@@ -60,4 +60,17 @@ denkihajimezero 2022-06-27
 
 "I now better understand how maga feels when they see Trump's tweets"
 
+* :::=== RoundSparrow_Commentary : stimulated by Twitter content. That's how you feel, stimulated. That's what Donald Trump provides every hour of every day for over a decade, constant electric media stimulation. Fiction addiction is fed. Anticipation to the next "Q Drop", the next reaction to the Tony Clifton performance act that Donald Trump has mastered working with Putin / Surkov media systems out of Russia. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mum929/newsom_doing_his_trump_impression/n9kjeqv/
+
+No_Deer4983 2022-04-23
+
+"I always hated all capital messages, now they make me laugh. Hell yeah Newsom!!"
+
+* :::=== RoundSparrow_Commentary : Media addiction is the key to populatoin. Putin and Surkov figured this out TWENTY-FIVE YEARS AGO, and Now California has *recognized* it. **"психотипы и таким образом подобрать универсальный ключик к любому и каждому" - we are only TWENTY-FIVE YEARS behind the Russian mind-fuck**. And we have an ace in hiding, Neil Postman's 1985 book, but we won't embrace it. ===:::
+
+
 &nbsp;
