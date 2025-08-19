@@ -483,3 +483,19 @@ Daimakku1 2015-05-31
 "He’s trolling the shit out of Trump, I love it."
 
 People are adopting Kremlin information warfare and behaving like Russia in year 2011, people love it! Insincere trolling, ["Operaion Matthew 4:19" that started in November 2012 by billionaires working togeether, Trump and Putin](../../Operation_Matthew_4_19_on_monday_2024-03-31.md) - people love it! Americans eat this shit up and love it. "He’s trolling the shit out of Trump, I love it." == *He’s ***trolling the shit out of social media addiction society***, I love it.*
+
+&nbsp;
+
+&nbsp;
+
+# Tuesday, August 19, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mum7bw/the_days_of_freeloading_are_done/n9jrcez/
+
+zzen321 2014-09-02
+
+"It's freaking awesome that Trump is hurting his supporters, the poor and uneducated, the most. I'll grin and bear it. And grin some more."
+
+Donald Trump's *supporters* are billionares and *Trump supporters* in Russia who use the most powerful media machines ever created by humanity, the USA is a leader in world media and social media, to mind-fuck everyday people. And this Reddit user thinks it is *awesome* that the Donald Trump billoionares club is being predatory towards We The People. [Cheering on that Russia's Kremlin used unethical mind-fuck with Cambridge Analtica in a November 2012 agreement](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
