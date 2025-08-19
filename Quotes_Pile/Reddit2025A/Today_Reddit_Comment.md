@@ -256,3 +256,29 @@ Pure_Frosting_981 2025-05-24 (new this year)
 
 &nbsp;
 
+https://old.reddit.com/r/NoShitSherlock/comments/1murrkx/president_epstein_tells_fox_news_he_hopes_peace/n9l0isl/
+
+___YesNoOther 2023-11-23
+
+"I swear, this man has the worst case of main character syndrome of anyone. It would not surprise me at all if he believed that the world was literally made for him, and will disappear when he dies, so he might as well take it all with him and blow it up."
+
+* :::=== RoundSparrow_Commentary : Donald Trump is worshiped by millions of people as a god. The audience empowers him. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1murrkx/president_epstein_tells_fox_news_he_hopes_peace/n9l1txz/
+
+N_Who 2011-07-26
+
+"I have this weird theory: He is *literally* hearing this information, possibly for the first time, from the people around him.
+
+This is glossed over a lot, but the Christo-fascists behind Project 2025 are still at the heart of everything going on with this administration. They are pulling Trump's strings every step of the way, and there is no way that's happening without him getting a healthy dose of self-serving, manipulative faux-Christian rhetoric."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1murrkx/president_epstein_tells_fox_news_he_hopes_peace/n9l15vq/
+
+Epicardiectomist 2025-06-19 (recent account)
+
+"The worst part is that there isn't an afterlife. If he doesn't face justice here on Earth, he gets away with it forever."
+
