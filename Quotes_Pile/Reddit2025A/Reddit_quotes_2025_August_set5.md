@@ -54,7 +54,18 @@ jeffriestubesteak 2019-12-18
 
 Trump types multi-paragraph word salads on the daily, and we're all just like "eh, he's said weirder things." "
 
-* :::=== RoundSparrow_Commentary : Social media users like Donald Trump can be measured and analyzied in who they are willing to quote. Media ecology. Which professional edited articles and texts do they post on social media to back up their claims. People are so obssed and worship Donald Trump's *original creative mythology content* that they don't even recognize that Trump should be quoting books from his lifetime. He is 79 years old, he hasn't read a book in 1985 he can quote? Stop criticizing Trump for his original langauge and words... focus on his influences. Tony Clifton character he plays. Donald Trump quotes and live-blogs Fox News. “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+* :::=== RoundSparrow_Commentary : Social media users like Donald Trump can be measured and analyzied in who they are willing to quote. Media ecology. Which professional edited articles and texts do they post on social media to back up their claims. People are so obssed and worship Donald Trump's *original creative mythology content* that they don't even recognize that Trump should be quoting books from his lifetime. He is 79 years old, he hasn't read a book in 1985 he can quote? Stop criticizing Trump for his original langauge and words... focus on his influences. Tony Clifton character he plays. ["I’ve Studied the Trump-Fox Feedback Loop for Months. It’s Crazier Than You Think." - January 2018](https://www.politico.com/magazine/story/2018/01/05/trump-media-feedback-loop-216248/) Donald Trump quotes and live-blogs Fox News.
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9iaei8/
+
+crazunggoy47 2015-04-28
+
+"Can you imagine his stumpy little hotdog fingers, streaking orange spray tan and sweat all over his iPhone screen as he pokes his latest midnight tirade on the shitter?"
+
+* :::=== RoundSparrow_Commentary : This is the fantasy social media consumers dream and imagine. Feitshment of Donald Trump shit content, Tony Clifton performance addicts in audience. People have been media flocking to Trump shit for over a DECADE, IT NEVER FUCKING STOPS, GETS MORE SATURAING EACH AND EVERY DAY FOR OVER TEN FUCKING YEARS! A society driven and run by media addiction to the worst trash content. ===:::
 
 .
 
