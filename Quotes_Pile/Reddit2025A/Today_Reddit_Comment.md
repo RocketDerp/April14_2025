@@ -148,4 +148,22 @@ WolfzandRavenz 2022-02-27
 
 I get a kick out of when they get down voted and start whining about the liberal brigade. It never occurs to them that they could just have an unpopular opinion 😂."
 
-* :::=== RoundSparrow_Commentary : This is why I track goodness messages across the whole world. Good ideas for humanity are good ideas. You see people discussing Palestine and Israel content CONSTANTLY on Reddit and Bluesky in year 2024 and year 2025. But what you DO NOT see is people saying: *we need another MLK jr*, it is the absence of goodness. People all KNOW OF Martin Luther King Jr, but you don't witness peopel saying: Bernie Sanders is right to keep bringing up MLK Jr. Why aren't we doing it? Why aren't we giving attention to someone preaching and teaching from MLK Jr's recorded materials, books and such? Malala was on the world stage, global attention, for **education and teaching**, her father is a teacher. And she came to attention in year 2012 and year 2013, right when Donald Trump popularity is formulating. But people are incredibly avoidant of goodness itself. " It never occurs to them that they could just have an unpopular opinion" - yha, like Neil Postman on media addiciton is *unpopular*, and like Malala from Pakistan on education is *unpopular*, and Carl Sagan's 1995 book is *unpopular*. You know what is popular? Americans hate Americans in August 2025. Constantly dunking, insulting, name-caling, hating up USA people. **Toxic Popularity** of hate magnet Donald Trump. Joe Rogan is popular. ===:::
+* :::=== RoundSparrow_Commentary : This is why I track goodness messages across the whole world. Good ideas for humanity are good ideas. You see people discussing Palestine and Israel content CONSTANTLY on Reddit and Bluesky in year 2024 and year 2025. But what you DO NOT see is people saying: *we need another MLK jr*, it is the absence of goodness. People all KNOW OF Martin Luther King Jr, but you don't witness peopel saying: Bernie Sanders is right to keep bringing up MLK Jr. Why aren't we doing it? Why aren't we giving attention to someone preaching and teaching from MLK Jr's recorded materials, books and such? Malala was on the world stage, global attention, for **education and teaching**, her father is a teacher. And she came to attention in year 2012 and year 2013, right when Donald Trump popularity is formulating. But people are incredibly avoidant of goodness itself. " It never occurs to them that they could just have an unpopular opinion" - yha, like Neil Postman on media addiciton is *unpopular*, and like Malala from Pakistan on education is *unpopular*, and Carl Sagan's 1995 book is *unpopular*. You know what is popular? Americans hate Americans in August 2025. Constantly dunking, insulting, name-caling, hating up USA people. **Toxic Popularity** of hate magnet Donald Trump. Joe Rogan is popular. Fox News is popular. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mula4y/trumps_approval_rating_hits_rock_bottomnow_worse/n9jth8l/
+
+winter_chinook8369 2025-03-24 (new this year)
+
+"It's so crazy 🤪 that your 2 term President talks like a random, stupid, drunk guy at the end of a bar. Is this the best you got America? I’m so embarrassed for you. I know that the average historical lifespan of most great civilizations is 250 years. The Divided States of America is now 249 years? Hey, you’re right on schedule to implode. You’ve had a great run, but nothing lasts forever. Re-electing a pedo, shit for brains, convicted felon, as your President, was bound to happen, sooner or later. Elbows up non MAGA USA! 🇺🇸 🇨🇦"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mula4y/trumps_approval_rating_hits_rock_bottomnow_worse/n9kcr1j/
+
+Shirlenator 2011-11-30
+
+"I will never understand why he is the guy. There are hundreds of other Republicans that are not dementia riddled rambling sadistic idiots, but for whatever reason, their entire party is ride or die cult status and full on worship him. Why not literally anyone else in the party that supports all of the same shitty ass policies?"
+
+&nbsp;
