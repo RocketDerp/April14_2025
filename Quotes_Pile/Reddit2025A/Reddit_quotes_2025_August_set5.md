@@ -280,9 +280,31 @@ Trump isn't bowing to Putin under duress. He's doing it out of honest admiration
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9jauwh/
+
 Environmental-Arm365 2022-02-08
 
 "JFC! There’s no amount of whataboutisms or talking points conservatives can deploy to diminish this obvious fealty Trump is showing towards Putin. This would be ringing alarm bells as a national security emergency in any other administration if a sitting President acted with this level of advocacy and subservience to Americas biggest geopolitical adversary."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j3n81/
+
+GzrGldGeo 2019-08-23
+
+"Putin owns Trump. The Americans weren't the smartest people in the room in Alaska. The Americans are usually the smartest people in the room. The USA is in a failed state moving towards total failure."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9ja905/
+
+chaos_nebula 2015-01-11
+
+"MAGA doesn't care about what Trump the person did, they care about Trump the myth. GOP politicians can't say anything because they themselves are probably compromised in some way.
+
+Personally I think the most successful blackmail Putin has against Trump is controlling if Trump can build "Trump Tower - Moscow." Not even anything nefarious, just... an ego check."
+
+* :::=== RoundSparrow_Commentary : January 1939... "There is no question but that Hitler belongs in the category of the **truly mystic** medicine man. As somebody commented about him at the last Nürnberg party congress, since the time of Mohammed nothing like it has been seen in this world. **His body does not suggest strength**. The outstanding characteristic of his physiognomy is its dreamy look. I was especially struck by that when I saw pictures taken of him in the Czechoslovakian crisis; there was in his eyes the look of a seer. This markedly mystic characteristic of Hitler's is what **makes him do things which seem to us illogical, inexplicable, and unreasonable**. ... So you see, Hitler is a medicine man, a spiritual vessel, a demi-deity or, even better, a myth." - interview with H. R. Knickerbocker, first published in Hearst's International Cosmopolitan (January 1939), in which Dr. Carl Jung was asked to diagnose Adolf Hitler ===:::
 
 &nbsp;
 
