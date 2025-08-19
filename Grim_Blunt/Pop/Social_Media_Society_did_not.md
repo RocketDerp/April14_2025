@@ -61,3 +61,11 @@ Donald Trumpdraws haters into reaction, exploits hate mindsets. People seem to d
 1. Carl Sagan on Dumb and Dumber
 2. Neil Postman, entertaining ourselves to death politics of Ronald Regan and I vidily remember my high school classs in the 2nd term of Ronald Reagan in 1985. The celebrity charm and worship. Rick Roderick in 1993 saw this with his Duke University students looking back a few short year after... how it was such a Hyper Real social experience.
 
+&nbsp;
+
+### Hate Motivated Relationships
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lwqrevc7e22k    
+https://autistics.life/@RoundSparrow/115055100291433027 
+
+Donald Trump has made dehumanization and hate "fun" for Americans on a national scale. Trump brought people together in hate motivations, relationships built upon faith in hate. since June 2015. For 10 years and 2 months, hate worship USA.  
