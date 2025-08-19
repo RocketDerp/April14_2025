@@ -136,6 +136,17 @@ https://truthsocial.com/@realDonaldTrump/posts/115049485680941254 "
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9ij1k8/
+
+throwawayhellfire 2014-11-21
+
+"Democrats need to hire my ass. I'm a New Yorker that people commonly mistake for being maga because of my job/how I dress/how I talk.
+
+I can't believe it took these bozos 10 years to realize you gotta bully this dude"
+
+* :::=== RoundSparrow_Commentary : Putin has been bullying all USA people for over TWELVE year, 12 years, using [the IRA](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) and people competely accept that Truth Social / Reddit behavior / Twitter behavior / Bluesky behavior is now accepted in every part of life, Donald Trump role model of social machines EVERY AREA of life, offline and online. Surkov won. A "new yorker" who can't recall New Yorker Neil Postman. ===::
+
+&nbsp;
   
 .
 
