@@ -82,5 +82,58 @@ mrbigglessworth 2012-08-05
 
 edit, having to censor myself because I cant call maga stupid names now? WTF"
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1muqof2/trump_79_forgets_the_name_of_the_pacific_ocean/n9kx53t/
+
+Pipe_Memes 2019-05-31
+
+"No need to worry! Trump isn’t really running anything. Steven Miller and other ghouls are running the show while Diddlin’ Dementia Donny reminisces about his glory days of pedophilia."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1muqof2/trump_79_forgets_the_name_of_the_pacific_ocean/n9l6v7w/
+
+DistractedPhoenix 2025-04-21 (new this year)
+
+"You say that, but the things he says in public have profound effects on the economy and world stability"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1muqof2/trump_79_forgets_the_name_of_the_pacific_ocean/n9kykd0/
+
+gdj11 2012-10-14
+
+"His people don’t care. He’s doing everything they want and they can put all the bad PR on him. They’ll weekend-at-Bernie’s him as long as they can."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1muqof2/trump_79_forgets_the_name_of_the_pacific_ocean/n9kzkk4/
+
+P1xelHunter78 2020-10-06
+
+"That’s been the triumph of the ignorant. We went from a culture that generally accepted progress to one that is suspicious and angry at anyone who seems more intelligent. It’s not by accident."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1muqof2/trump_79_forgets_the_name_of_the_pacific_ocean/n9ksvs6/
+
+mikerichh 2015-10-19
+
+"Everything is the opposite to what they claim to believe in. They claim to be small government then cheer on attempts to ban gay marriage or hang the 10 commandments up or require an “anti woke” test for Oklahoma teachers"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1muqof2/trump_79_forgets_the_name_of_the_pacific_ocean/n9l2ska/
+
+"On the whole, his speeches were sinfully long, badly structured and very repetitious. Some of them are positively painful to read but nevertheless, when he delivered them they had an extraordinary effect upon his audiences." -A Psychological Analysis of Adolf Hitler, 1943
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1muqof2/trump_79_forgets_the_name_of_the_pacific_ocean/n9kwmns/
+
+bbqsox 2014-11-14
+
+"It's mind blowing. They'll talk about Biden being unable to finish a sentence. Biden is an old man with a stutter. Trump has always been a babbling idiot. How can ANYONE listen to him talk and think he's some sort of genius? He's a moron and that's before his dementia started to get really bad."
+
+* :::=== RoundSparrow_Commentary : Yes, mind-blown nation, mind blowing. Exactly what Adam Curtis is emphasizing in year 2014: https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
