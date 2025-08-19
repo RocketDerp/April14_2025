@@ -155,7 +155,26 @@ joat2 2019-02-26
 "Even if trump stops the all caps, he still is going to talk like it and say stupid ridiculous shit. So Newsom and or his team needs to keep it up, just keep mimicking the style. If trump drops most of the caps, then drop them, but keep the same style of talking to keep showing how insane it is."
 
 &nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j8ehq/
+
+OwnLadder2341 2024-01-15
+
+"I don’t know what this sub thinks the Epstein file can do.
+
+The Epstein files could contain literal footage of Trump raping a 12 year old girl and I honestly don’t think it would sink his career at this point."
+
+&nbps;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j27if/
+
+Stup1dMan3000 2023-08-09
+
+"Question: is Melina the Russian assets and has decades of dirt on Dementia Donny?"
+
+* :::=== RoundSparrow_Commentary : I don't think there is a problem with being best friends with Putin and Russia, *if your agenda is to rescue Russia / Putin from mental atttiudes of hate and dehumanizaiton against Ukraine and other people with goodness.* My whole concern with the the Internet Research Agency and Kremlin is *the hate itself, the dehumanization*. I'm open to good ideas, goodness, from anywhere in the world. I point to Swat Valley Pakstian (which is FAR FAR FAR away from Mecca / Saudi Arabia, which I think is terrible teachers) for goodness, Malala's October 8, 2013 book. ===:::
   
+&nbsp;
 .
 
 .
