@@ -216,6 +216,26 @@ bryan49 2015-10-22
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j5rr8/
+
+LovesBigFatMen 2024-07-19
+
+"This is like the scene in the movie Rosemary's Baby, when Guy tells Rosemary that she can't switch doctors because it "wouldn't be fair to Sapirstein", i.e. he shows greater allegiance and deference to evildoers than to his own wife."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j6wqb/
+
+Cipher_null0 2023-01-14
+
+"This man continues to just appease Putin. Like dudes a literal dictator everything America was against. Meanwhile trump is cuddling up to Putin"
+
+* :::=== RoundSparrow_Commentary : Just as **meme addicts in USA do everything they can to keep the content coming from Trump** and Putin. People can not wait for the next antics to insult, Tony Clifton stage performance, to mockery and hate Donald Trump magnet. Surkov won the meme war since March 2013, hearts and minds lost to fiction. People want to *so badly* crave to credit Donald Trump for all these techniques, when I credit Surkov. Donald Trump would not take on Tony Clifton act so bodly without seeing the success of how Russia ran things in November 2013 visit to Moscow eneratiment show hosting. ===:::
+
+&nbsp;
+
+&nbsp;
+
 .
 
 .
