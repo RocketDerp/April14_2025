@@ -584,6 +584,13 @@ o_MrBombastic_o 2013-02-26
 
 * :::=== RoundSparrow_Commentary : Which is why in this commentary I keep hammering again and again and agian on Malala's October 8, 2013 book release and the lack of social media society quoting and repeating and repeating Malala's quotes and videos. All of what people are saying about MAGA / Trump / Education in USA seen through Malala's book about the Taliban in Swat Valley Pakistan is INCREDIBLY revealing. People are AVOIDING gems of quotes to assert: **“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai**, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Further, you are asserting GOODNESS ITSELF and not just REACTING to Donald Trump MAGA locally. :::===
 
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mum7bw/the_days_of_freeloading_are_done/n9jy98n/
+
+Danominator 2011-10-31 (Halloween)
+
+"It does seem like they genuinely have absolutely no idea what's going on most of the time. I have a hard time trying to put myself in their head space."
 
 &nbsp;
 
