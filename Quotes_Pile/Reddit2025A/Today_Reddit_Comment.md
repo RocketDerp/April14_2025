@@ -137,3 +137,15 @@ bbqsox 2014-11-14
 "It's mind blowing. They'll talk about Biden being unable to finish a sentence. Biden is an old man with a stutter. Trump has always been a babbling idiot. How can ANYONE listen to him talk and think he's some sort of genius? He's a moron and that's before his dementia started to get really bad."
 
 * :::=== RoundSparrow_Commentary : Yes, mind-blown nation, mind blowing. Exactly what Adam Curtis is emphasizing in year 2014: https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mula4y/trumps_approval_rating_hits_rock_bottomnow_worse/n9k0zsf/
+
+WolfzandRavenz 2022-02-27
+
+"I do the same.
+
+I get a kick out of when they get down voted and start whining about the liberal brigade. It never occurs to them that they could just have an unpopular opinion 😂."
+
+* :::=== RoundSparrow_Commentary : This is why I track goodness messages across the whole world. Good ideas for humanity are good ideas. You see people discussing Palestine and Israel content CONSTANTLY on Reddit and Bluesky in year 2024 and year 2025. But what you DO NOT see is people saying: *we need another MLK jr*, it is the absence of goodness. People all KNOW OF Martin Luther King Jr, but you don't witness peopel saying: Bernie Sanders is right to keep bringing up MLK Jr. Why aren't we doing it? Why aren't we giving attention to someone preaching and teaching from MLK Jr's recorded materials, books and such? Malala was on the world stage, global attention, for **education and teaching**, her father is a teacher. And she came to attention in year 2012 and year 2013, right when Donald Trump popularity is formulating. But people are incredibly avoidant of goodness itself. " It never occurs to them that they could just have an unpopular opinion" - yha, like Neil Postman on media addiciton is *unpopular*, and like Malala from Pakistan on education is *unpopular*, and Carl Sagan's 1995 book is *unpopular*. You know what is popular? Americans hate Americans in August 2025. Constantly dunking, insulting, name-caling, hating up USA people. **Toxic Popularity** of hate magnet Donald Trump. Joe Rogan is popular. ===:::
