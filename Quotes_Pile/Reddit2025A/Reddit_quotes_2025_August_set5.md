@@ -486,6 +486,16 @@ strangerbuttrue 2011-08-29
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9jbr72/
+
+rollin340 2013-08-05
+
+"These guys have the same thinking as Pol Pot huh; intellectuals are a threat. Though theirs has a heavy dose of xenophobia mixed in, but less murder-y. Slave camps are okay though."
+
+* :::=== RoundSparrow_Commentary : Cambodia's Killing Fields are critical learning to grasp the energetic motivations going on in United States of America year 2025. Self-harm. ===:::
+
+&nbsp;
+
 .
 
 .
