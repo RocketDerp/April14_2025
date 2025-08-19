@@ -314,7 +314,7 @@ Personally I think the most successful blackmail Putin has against Trump is cont
 
 &nbsp;
 
-&nbbs;
+&nbsp;
 
 https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9jdrqd/
 
@@ -331,6 +331,16 @@ mormonbatman_ 2023-09-07
 "There's an amazing joke in Arrested development where 2 characters who are so ego-centric and insecure and lonely have sex with each other because they can't distinguish friendship and loneliness and horniness. They do it while wearing masks of each other's faces.
 
 Putin might have compromat on Trump, but it's far more likely that Trump does what he does because he thinks they are friends."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9jjkln/
+
+Reputable_Sorcerer 2020-08-14
+
+"I don’t think there’s any secret Putin knows that could affect Trump at all. Millions of people *across the world* idolize him. Half of MAGA has said they don’t care he was on Epstein’s island. Nothing matters at this point. It’s all money."
+
+* :::=== RoundSparrow_Commentary : Trump tells you, when you are a **super star**, they let you grab them (everyday people) by the pussy. It isn't money, it's fame. It's the Tony Clifton performance with improv audience interaction. It is meme content for meme addictions. Just like Fox News can fuck-over their audience because they have *the content* fiction storytelling that audiences fawn and worship. ===:::
 
 &nbsp;
 
