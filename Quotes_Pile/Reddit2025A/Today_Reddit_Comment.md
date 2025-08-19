@@ -52,5 +52,12 @@ fungusamongus8 2021-01-10
 
 * :::=== RoundSparrow_Commentary : I wonder if Russia Internet Research Agency started creating messages in various styles and enslaved the minds of the USA population to a *style and tone* of media addiction since March 2013, and people in USA all think it is HILARIOUS and AMUSING. Neil Postman's 1985 book about media systems / media ecology / electric media ["Amusing Ourselves To Death" is not OPTIONAL learning in the Twitter age](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/)! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mum929/newsom_doing_his_trump_impression/n9kdciw/
+
+denkihajimezero 2022-06-27
+
+"I now better understand how maga feels when they see Trump's tweets"
 
 &nbsp;
