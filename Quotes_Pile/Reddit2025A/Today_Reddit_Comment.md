@@ -215,3 +215,33 @@ suppadelicious 2015-05-27
 "They’ve done plenty! They attacked trans people, homeless people, women, people of color. They’ve worked to strip voting rights away from people and they’re building concentration camps!"
 
 * :::=== RoundSparrow_Commentary : Yes. Donald Trump has accomplished a lot of self-harm to the nation's future. People who say Donald Trump does nothing but play golf really are not awake to the situation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1muqprk/chris_pratt_with_another_dumb_take/n9kvzfo/
+
+iamthedayman21 2019-08-27
+
+"He’s literally describing how Republicans actively choose to harm themselves to “own the libs.” Chris, this hypothetical scenario is already playing out on your side."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1muqprk/chris_pratt_with_another_dumb_take/n9l0u66/
+
+CrasVox 2012-10-23
+
+"This would be some pretty cleaver parody/commentary if he wasnt being totally serious."
+
+* :::=== RoundSparrow_Commentary : That's how Russian information warfare works, we have been living under it since March 2013. As long as people find it attractive as parody / satire / absurd comedy / surreal humor / amusing jokes - they embrace the Kremlin media techniques. People can not get enough of this shit. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1muqprk/chris_pratt_with_another_dumb_take/n9l2quy/
+
+Successful_Ad4018 2021-03-06
+
+"there’s about a million things wrong with this but for me it’s the hypocrisy cause trump is constantly talking down on people like obama and biden, throwing around horrible insults and accusations yet he’s silent then??
+
+why is it always the left who is expected to be the bigger person when the one in the white house is the biggest bully of them all? he constantly takes credit for things he didn’t do and deflects blame for things he did wrong onto biden or obama."
+
+* :::=== RoundSparrow_Commentary : The whole *left vs. right* binary logic thinking is a mental trap. Look at Fox News, Donald Trump, Elon Musk Twitter, Taliban and other groups in terms of **fiction vs. nonfiction**, science vs. fiction storytelling (The Bible science fiction, Quran science fiction, Torah science fiction). Addiction to fiction explains Donald Trump popularity. ===:::
