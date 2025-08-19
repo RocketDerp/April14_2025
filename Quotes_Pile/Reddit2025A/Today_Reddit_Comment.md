@@ -198,3 +198,20 @@ unsaltedbutter 2014-04-02
 
 &nbsp;
 
+https://old.reddit.com/r/popculturechat/comments/1muqprk/chris_pratt_with_another_dumb_take/n9kyzu1/
+
+myersjw 2013-12-20
+
+"Because they’ve isolated themselves so heavily that they honestly believe the only issue anyone has with him is his crassness on social media when in reality most people aren’t even aware of his mindless posts anymore. These people purposely avoid staying abreast of all the awful and detrimental things he does so they can stay supportive and when something does reach them they just chalk it up to being fake. Their choice of media gave them everything Biden did under a slanted microscope but is focused entirely on culture wars and distractions under Trump.
+
+It’s why some of them seem so baffled when one of DTs insane policies of the week leaks through their safety net and they have to grapple with something he’s done that they don’t like. This is a carefully constructed house of cards that requires complete lobotomization to keep up with and devotion to media avenues that keep up the charade"
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1muqprk/chris_pratt_with_another_dumb_take/n9l36k6/
+
+suppadelicious 2015-05-27
+
+"They’ve done plenty! They attacked trans people, homeless people, women, people of color. They’ve worked to strip voting rights away from people and they’re building concentration camps!"
+
+* :::=== RoundSparrow_Commentary : Yes. Donald Trump has accomplished a lot of self-harm to the nation's future. People who say Donald Trump does nothing but play golf really are not awake to the situation. ===:::
