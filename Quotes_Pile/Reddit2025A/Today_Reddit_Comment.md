@@ -31,3 +31,19 @@ Historical-Bike4626 2024-12-28 (new this year)
 "SNL has been satirizing him for years. There’s the giant Trump baby float at protests. It’s just weird that this of all things riles em up.
 
 I assume it’s because the mockery is coming from a powerful governor like Newsom."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mum929/newsom_doing_his_trump_impression/n9k8bch/
+
+Evenele 2017-03-06
+
+"I just saw the video of her meltdown. It was infuriating seeing her being completely obtuse as to what Newsom is doing. Saying that his wife needs to check on him and he needs to get off twitter. But it’s ok for a POTUS to do this?"
+
+* :::=== RoundSparrow_Commentary : people on Reddit are behaving as if Donald Trump never had a first term in office, was elected way back in year 2016. Recency bias abounds. Russia won the information war, people have their minds blown so incredbily easy since the IRA and CA mind-fucked the population. This isn't just since January 20, 2025 - the United States of America has been flocking to Donald Trump's tweet bullshit styles for over a decade! Denial abounds. Russia won hearts and minds :( ===:::
+
+&nbsp;
+
+
+
+&nbsp;
