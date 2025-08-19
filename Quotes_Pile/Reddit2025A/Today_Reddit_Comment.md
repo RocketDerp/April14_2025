@@ -167,3 +167,34 @@ Shirlenator 2011-11-30
 "I will never understand why he is the guy. There are hundreds of other Republicans that are not dementia riddled rambling sadistic idiots, but for whatever reason, their entire party is ride or die cult status and full on worship him. Why not literally anyone else in the party that supports all of the same shitty ass policies?"
 
 &nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mula4y/trumps_approval_rating_hits_rock_bottomnow_worse/n9koaqk/
+
+throwleavemealone 2019-09-30
+
+"Reminds me of a sketch called "Your Drunk Neighbor: Donald Trump"
+
+https://youtu.be/cRly-0wwl_g
+
+And this was nearly a decade ago, he sounds even worse now."
+
+* :::=== RoundSparrow_Commentary : **New Yorker Donald Trump is playing New Yorker Tony Clifton act**. It is a magnet for hate and dehumanization and mocking. [New Yorker Neil Postman's 1985 book explains Trump's media power](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mula4y/trumps_approval_rating_hits_rock_bottomnow_worse/n9lczgj/
+
+DarthTrader21 2021-01-28
+
+"To the degenerate and morally corrupt scum of the earth which is all leftists, righteousness, truth and the light will be loathsome. Thats why you hate Trump and righteousness so much because you all are despicable filth and yet again, in traditional democrat fashion, are on the wrong side of history. KKK, pro slavery, internment camps, infanticide, anti personal accountability, you all applauded tranies twerking like strippers at toddlers in libraries across America, tried to control the narrative in regards to homosexuals teaching gay tendencies and explicit homsexual acts in public schools, support and create ways for pedophiles to be a protected class by creating bullshit labels like MAPS and other evil degeneracy. We have the moral high ground and you and the rest of the degenerates from the left can keep seething and watching how men take charge and protect not only American children but tens out thousands of immigrant children who are no longer being sex trafficked for your cult lords' homsexual pleasures. Viva Cristo Rey!"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mula4y/trumps_approval_rating_hits_rock_bottomnow_worse/n9kv8yd/
+
+unsaltedbutter 2014-04-02
+
+"OP is a spambot for shitty clickbait websites. I am constantly baffled why people upvote this shit, ah yes my politics news from exactsubtitles.com."
+
+&nbsp;
+
