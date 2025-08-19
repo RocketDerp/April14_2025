@@ -234,6 +234,12 @@ Cipher_null0 2023-01-14
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j568t/
+
+Designer-Welder3939 2020-08-25
+
+"What a stupid, stupid man! Or are people stupid for seeing what he’s doing in the open and not doing anything about it? Isn’t there something in their constitution about this type of behaviour? That’s what I heard from having US propaganda, I mean, movies, taught us?"
+
 &nbsp;
 
 .
