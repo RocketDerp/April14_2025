@@ -8,7 +8,17 @@ ElectricSpeculum 2021-01-24
 
 "Kick is the platform with no rules for streamers other platforms ban. When Sneako and Johnny Somali are on that platform, you just know it's full of degenerate scum."
 
-* :::=== RoundSparrow_Commentary :  It isn't just *rules*, there is an absence of moraltiy education and teaching of morals. People are attracted to Donald Trump, people flock to Donald Trump as a role model on the Internet since year 2013. Donald Trump at age 79 is like the Taliban elders Malala describes in her October 8, 2013 book about Swat Valley Pakistan. Nobody is teaching people good from bad and people are being programmed by billionares (Elon Musk anti-empathy) Donald Trump with massive media power to educate and teach morlity - to behave like Donald Trump, role model! Billionares are setting the social media society standard on Truth Social and Twitter and Fox News (Rupert Murdoch billionaire). The religion people aren't even teaching compassion and love at all, it's all obey and worship Donald Trump preaching / obey and worship Putin preaching. There is a massive education problem of people not following authentic morality reforms of Malala's book! ===:::
+* :::=== RoundSparrow_Commentary :  It isn't just *rules*, there is an absence of moraltiy education and teaching of morals. People are attracted to Donald Trump, people flock to Donald Trump as a role model on the Internet since year 2013. Donald Trump at age 79 is like the Taliban elders Malala describes in her October 8, 2013 book about Swat Valley Pakistan. Nobody is teaching people good from bad and people are being programmed by billionares (Elon Musk anti-empathy) Donald Trump with massive media power to educate and teach morlity - to behave like Donald Trump, role model! Billionares are setting the social media society standard on Truth Social and Twitter and Fox News (Rupert Murdoch billionaire). The religion people aren't even teaching compassion and love at all, it's all obey and worship Donald Trump preaching / obey and worship Putin preaching. There is a massive education problem of people not following authentic morality reforms of Malala's book! Once MLK Jr was murdered, there really hasn't been someone reforming morality in USA at that scale. Bernie Sanders, yes, but he is in politics, and MLK Jr was outside that governing (military backed) power. Malala is outside military backed governing power in her reforms from Pakistan since January 2009 when she went online. As it stand today, the reality of the situation is Putin and Trump and Murdoch and Musk are teaching morality. People are in denial of this situation! Morality is learned, educated, and terrible values are being taught by billioanres to everyone (Musk / Putin / Trump / Murdoch). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1mud5cv/french_streamer_dies_in_his_sleep_after_being/n9i63n7/
+
+hereforcontroversy 2020-08-17
+
+"This reminds me of that Black Mirror episode where the dude ended up pulling his teeth (and the rest) out for clicks. I knew this shit was out there irl but never came across it until reading this post.
+
+Was this in France? I can imagine there would be some repercussions for those involved if so"
 
 &nbsp;
 
