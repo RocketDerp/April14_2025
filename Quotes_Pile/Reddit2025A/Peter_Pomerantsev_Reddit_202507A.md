@@ -1604,3 +1604,13 @@ Representative_Pick3 2020-07-19
 https://old.reddit.com/r/law/comments/1mpajxf/trump_asked_about_russia_hacking_our_federal/
 
 I don't even know where to begin on describing this public statement. It's pure Surkov "key thing" mass mind exploit of the population. This statement comes as Donald Trump is meeting with Putin in Alaska in 2 days.  "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake" - [Adam Cutis, year 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+
+&nbsp;
+
+# Tuesday August 19, 2025
+
+&nbsp;
+
+"Disrespectful to President Putin - so much for America first."   
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/
+
