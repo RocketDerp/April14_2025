@@ -558,6 +558,36 @@ BallerBettas 2020-01-25
 
 * :::=== RoundSparrow_Commentary : The Russian information warfare since March 2013 has been against the ENTIRE POPULATION and people are in such deep denial of how much the problem is Twitter-thinking and reactions in EVERYONE, WE THE PEOPLE, not politicians, but the entire audience. who flocks to hate Trump. Trump is a hate magnet, Trump is a mockery magnet. Faith in hate, religion of hate, has taken over the population. Anti-intellectual *hate harder* worship values. This SHIT has been going on for over a DECADE. Donald Trump was already removed from office, Joe Biden had 4 years, the moralityrot of society is everyone who thinks *hate harder* against Americans and not learn about Russian information warfare... **Americans HATE Americans right now in August 2025**, the future is WRECKED... the HATE of everyday people needs to be directly addressed! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mukxgf/oklahoma_to_test_teachers_from_new_york/n9jifuk/
+
+TheBioethicist87 2016-08-22
+
+"They are insisting on producing an entire generation who are entirely unequipped to participate in the world outside their tiny, shitty little bubble."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mukxgf/oklahoma_to_test_teachers_from_new_york/n9jjo8o/
+
+TheBioethicist87 2016-08-22
+
+"People used to aspire to be smart, and now so many are so offended that smarter people than them exist that they want to shrink the world into something small enough for them to understand."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mukxgf/oklahoma_to_test_teachers_from_new_york/n9jhmyk/
+
+o_MrBombastic_o 2013-02-26
+
+"Radical leftist ideology = critical thought, beliefs in evidence based outcomes, basic understanding of science, history, the world around you and basic human decency towards others. There's a reason Oklahoma and Republican states in general rank in the bottom for education"
+
+* :::=== RoundSparrow_Commentary : Which is why in this commentary I keep hammering again and again and agian on Malala's October 8, 2013 book release and the lack of social media society quoting and repeating and repeating Malala's quotes and videos. All of what people are saying about MAGA / Trump / Education in USA seen through Malala's book about the Taliban in Swat Valley Pakistan is INCREDIBLY revealing. People are AVOIDING gems of quotes to assert: **“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai**, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Further, you are asserting GOODNESS ITSELF and not just REACTING to Donald Trump MAGA locally. :::===
+
+
+&nbsp;
+
+
 .
 
 .
