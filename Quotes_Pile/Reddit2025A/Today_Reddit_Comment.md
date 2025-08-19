@@ -72,5 +72,15 @@ No_Deer4983 2022-04-23
 
 * :::=== RoundSparrow_Commentary : Media addiction is the key to populatoin. Putin and Surkov figured this out TWENTY-FIVE YEARS AGO, and Now California has *recognized* it. **"психотипы и таким образом подобрать универсальный ключик к любому и каждому" - we are only TWENTY-FIVE YEARS behind the Russian mind-fuck**. And we have an ace in hiding, Neil Postman's 1985 book, but we won't embrace it. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mum929/newsom_doing_his_trump_impression/n9klxa3/
+
+mrbigglessworth 2012-08-05
+
+"That boooooomer lead paint eating stare that comes from trumpers when they get all mad and enraged that they finally realize how much of a remedial trump is and they are moronic for having supported him. Glorious. Then they double down on "but but but but" and get all frothy that you point out that they are really mad at trump and they cant handle it and shut down.
+
+edit, having to censor myself because I cant call maga stupid names now? WTF"
+
 
 &nbsp;
