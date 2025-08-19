@@ -314,7 +314,7 @@ Personally I think the most successful blackmail Putin has against Trump is cont
 
 &nbsp;
 
-&npbs;
+&nbbs;
 
 https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9jdrqd/
 
@@ -323,6 +323,17 @@ That_Damn_Raccoon 2023-02-17
 "This whole "Putin has dirt on Trump thing" has got to be the stupidest narrative currently in American politics. It's not that he has dirt on Trump, it's that Trumpism and Putinism are ideological sisters. They align politically, they're natural allies, Putin doesn't need kompromat."
 
 &nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9ji8iy/
+
+mormonbatman_ 2023-09-07
+
+"There's an amazing joke in Arrested development where 2 characters who are so ego-centric and insecure and lonely have sex with each other because they can't distinguish friendship and loneliness and horniness. They do it while wearing masks of each other's faces.
+
+Putin might have compromat on Trump, but it's far more likely that Trump does what he does because he thinks they are friends."
+
+&nbsp;
+
 .
 
 .
