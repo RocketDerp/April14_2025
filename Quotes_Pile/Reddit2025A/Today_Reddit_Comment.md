@@ -22,3 +22,12 @@ n0b0dyneeds2know 2021-08-24
 
 * :::=== RoundSparrow_Commentary : This Reddit user commenting may not be on X / Twitter media platform, but the message they created on Reddit is Twitter-like and short-length Tweet-thinking. Just telling people "you voted for this" and sitll having them vote for the next fiction storyteller to feed their fiction addiciton to short simplistic Twitter-style ideas does not address the problem in any way, shape, or form. Neil Postamn's **book is only 184 pages, a SOCIETY WIDE education campaign to get EVERY PERSON on the SAME PAGE** of the 184 page book "Amusing OUrselves To Death" - ALL PEOPLE, age 12 to age 120, NEED TO LEARN. Just saying "you voted for this" is not in any way addressing the underlying cause of the Russian win of the information war. Moscow won, Surkov won! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mum929/newsom_doing_his_trump_impression/n9kclew/
+
+Historical-Bike4626 2024-12-28 (new this year)
+
+"SNL has been satirizing him for years. There’s the giant Trump baby float at protests. It’s just weird that this of all things riles em up.
+
+I assume it’s because the mockery is coming from a powerful governor like Newsom."
