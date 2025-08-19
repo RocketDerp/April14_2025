@@ -175,6 +175,38 @@ Stup1dMan3000 2023-08-09
 * :::=== RoundSparrow_Commentary : I don't think there is a problem with being best friends with Putin and Russia, *if your agenda is to rescue Russia / Putin from mental atttiudes of hate and dehumanizaiton against Ukraine and other people with goodness.* My whole concern with the the Internet Research Agency and Kremlin is *the hate itself, the dehumanization*. I'm open to good ideas, goodness, from anywhere in the world. I point to Swat Valley Pakstian (which is FAR FAR FAR away from Mecca / Saudi Arabia, which I think is terrible teachers) for goodness, Malala's October 8, 2013 book. ===:::
   
 &nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9jamay/
+
+NeonBrightDumbass 2022-08-27
+
+"Thank you. I don't doubt that there is blackmail on both ends, but Trump likes Putin. He likes Kim Jong, he likes power and people who "look" powerful and adoration, even if it is fake and forced.
+
+Put in having shit on Donnie means nothing, he is a POS who likes other pieces of shit."
+
+* :::=== RoundSparrow_Commentary : People who avoid the books of MLK Jr, people who avoid the books and words of Malala, people who avoid the words of Neil Postman, people who avoid ***goodness itself*** and flock to mockery, hate messaging, and antics are a crisis in August 2025. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j35tq/
+
+Mother_Resident_890 **2025-07-07 (new account**, joined day of FBI memo on Epstein)
+
+"Epstein island was probably the kiddie pool for what Trump has done with Putin in Russia. Probably more than involving rape of children... You wonder why Russian kidnapped 20k-30k Ukrainian children?"
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j40a3/
+
+Adventurous-Meat8067 2020-11-14
+
+"If you've ever asked yourself how much damage can one man do...every day it's getting more and more embarrassing to live in a country run by a career criminal."
+
+* :::=== RoundSparrow_Commentary : “If one man can destroy everything, why can't one girl change it?” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. **Published October 8, 2013 - more than THREE FULL YEARS before** the November 2016 election win of Donald Trump. Social media machine addicts don't care to mimic and repeat Malala since year 2013, medioa junkies want to mimic and mockery with Donald Trump. ===:::
+
+&nbsp;
+
+
 .
 
 .
