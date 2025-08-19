@@ -202,6 +202,23 @@ All they will have to do is say woke, Mexicans are taking your jobs, Blacks are 
 
 * :::=== RoundSparrow_Commentary : Social media society describign keywords "woke", "Mexicans", "blacks", "women" that Cambridge Analytica and Internet Research Agency have attacked into mindsets since March 2013 with zero concern to confront the media ecology programmmigg. Just a Twitter-length reaction comment, no rally cry to defend NATO against Russian information warfare that has turned USA minds into slavish reaction to keywords. USA has lost an information war, hearts and minds, to Putin without even realizing it. The reddit message calls people "morons" without promoting Jen Senko's March 2016 film about brainwashing by Fox News and other right-wing media. There is no desire to rebuild and rescue Americans, just insulting and punching down on those who lost their minds to Putin since year 2013. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mu6l4b/after_supporting_cutting_medicaid_shrinking/n9gr4qw/
+
+Horace-Pinkerr 2024-11-14 (account created after Trump win 2024) 
+
+"Don't worry, somehow it will be crooked Hillary's fault or Joe Obama's doing. The orange king does no wrong."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mu6l4b/after_supporting_cutting_medicaid_shrinking/n9gt96n/
+
+Logistocrate 2022-02-11
+
+"Honestly, I don't give a fuck who they blame. They've been sheltered from suffering by the very people they hate, because the Dems cared about Americans, even the Americans spitting in their face. And since they helped bring about this shit show, who they blame means nothing to me. But their suffering, it's priceless. I used to have empathy, They've killed that in me. So fuck em. At the end of the day, I might have had to smell the shit on their breath, but they're starting to taste it, and that's far worse for them and I'm laughing at the face they're making."
+
+* :::=== RoundSparrow_Commentary : Of course you don't want to *give a fuck* if people in USA are concerend with the Putin origins, Russian information warfare since March 2013. Media addiction to fiction. ===:::
 
 .
 
