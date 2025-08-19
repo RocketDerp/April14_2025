@@ -420,6 +420,24 @@ El_Tormentito 2011-07-06
 
 * :::=== RoundSparrow_Commentary : Which is why we should be *rescuing Donald Trump and MAGA* and facing up that Fox News fiction is mind poison, Internet memes are poison, that Neil Postamn's body of work is essential for EVERY PERSON age 12 to age 120 to recognize what has gone so horribly wrong embracing Putin's information warfare since March 2013. Donald Trump's extreme popularity (hate magnet, mockry magnatism) is a symptom of having Amused Ourselves to Death on social machine Kremlin mind-fuck. ===:::
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1muhnxa/us_state_department_revokes_6000_student_visas/n9iz84i/
+
+yourlittlebirdie 2017-04-22
+
+<img width="1066" height="1480" alt="image" src="https://github.com/user-attachments/assets/26ce5326-4318-403c-811b-d14fa65c30b6" />
+
+&nbsp;
+
+"If you were a hostile foreign leader who knew you could not hope to defeat the U.S. militarily and instead wanted to destroy the country from the inside out - alienate allies, ruin its global reputation, set back scientific progress for decades minimum, throw its people into strife and poverty, destroy the population’s trust in its government and institutions - what would you do differently than what Trump and the Republicans are doing right now?"
+
+&nbsp;
+
+&nbsp;
+
 .
 
 .
