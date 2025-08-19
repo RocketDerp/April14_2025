@@ -252,6 +252,14 @@ Wasn't McCarthy a republican??"
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/n9j5o5d/
+
+edudley909 2016-09-21
+
+"There is no blackmail, Trump idolizes Putin. Also, I don’t think there is a low, low enough for his supporters to not support him. We can’t even get democratic senators to not vote yes on his agenda."
+
+&nbsp;
+
 .
 
 .
