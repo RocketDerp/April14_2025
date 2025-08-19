@@ -242,6 +242,16 @@ I also suspect that this administration and all the various groups behind it wil
 
 &nbsp;
 
+https://old.reddit.com/r/europe/comments/1mud5cv/french_streamer_dies_in_his_sleep_after_being/n9i4cj8/
+
+Perelka_L 2016-03-01
+
+"I can't even bring myself to click any of those links, mere descriptions make me want to cry. This is so cruel and disgusting I struggle to find words... How can anyone do this to another human being, or watch it for enjoyment..."
+
+* :::=== RoundSparrow_Commentary : Media addiction dehumanizes. How can people let Neil Postamn's 1985 book "Amusing Ourselves To Death" sit and rot on the shelf when Donald Trump is the role model of social media / media engagement? When Putin and Trump IRA have mind-fucked everyone in all the ways Neil Postman warned in 1985? People have learned NOTHING from Jean B and September 11, 2001 - terrorism is media addiction! Donald Trump MAGA is media addiction! Fox News audience is media addiction! Dehumanization via consumption of media. Compusive self-harm. ===:::
+
+&nbsp;
+
 
 .
 
