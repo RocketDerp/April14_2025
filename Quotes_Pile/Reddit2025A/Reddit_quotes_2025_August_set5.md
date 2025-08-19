@@ -220,6 +220,17 @@ Logistocrate 2022-02-11
 
 * :::=== RoundSparrow_Commentary : Of course you don't want to *give a fuck* if people in USA are concerend with the Putin origins, Russian information warfare since March 2013. Media addiction to fiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mu85io/mit_report_95_of_generative_ai_pilots_at/n9h56k3/
+
+Austin_Peep_9396 2021-08-08
+
+"Legal is another problem people aren’t talking enough. The vendor and customer both have legal departments that each want the other to shoulder the blame when the AI screws up. It stymies deals."
+
+&nbsp;
+
+
 .
 
 .
