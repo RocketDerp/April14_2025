@@ -165,6 +165,14 @@ thebarkbarkwoof 2016-12-22
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mu1gcg/thats_kidnapping/n9fsj8u/
+
+Heymanhitthis 2015-01-10
+
+"It really is breathtaking. The majority of my family is all maga and I don’t even know how I’m supposed to speak to these people anymore. Like they’re cheering for this, but this is a full blown, no holds barred, fascist regime that has taken root across our country in less than a year."
+
+&nbsp;
+
 .
 
 .
