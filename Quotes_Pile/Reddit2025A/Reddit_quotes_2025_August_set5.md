@@ -65,7 +65,41 @@ crazunggoy47 2015-04-28
 
 "Can you imagine his stumpy little hotdog fingers, streaking orange spray tan and sweat all over his iPhone screen as he pokes his latest midnight tirade on the shitter?"
 
-* :::=== RoundSparrow_Commentary : This is the fantasy social media consumers dream and imagine. Feitshment of Donald Trump shit content, Tony Clifton performance addicts in audience. People have been media flocking to Trump shit for over a DECADE, IT NEVER FUCKING STOPS, GETS MORE SATURAING EACH AND EVERY DAY FOR OVER TEN FUCKING YEARS! A society driven and run by media addiction to the worst trash content. ===:::
+* :::=== RoundSparrow_Commentary : This is the fantasy social media consumers dream and imagine. Feitshment of Donald Trump shit content, Tony Clifton performance addicts in audience. People have been media flocking to Trump shit for over a DECADE, IT NEVER FUCKING STOPS, GETS MORE SATURATING EACH AND EVERY DAY IN EVERY ASPECT OF UNITED STATES OF AMERICA LIFE FOR OVER TEN FUCKING YEARS! A society driven and run by media addiction to the worst trash content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9i41d1/
+
+justprettymuchdone 2016-02-21
+
+"I mean, Walz had them all absolutely frothing at the mouth with the "man, these guys are fucking weird" commentary. It was astoundingly effective.
+
+Then the DNC/campaign made him stop."
+
+* :::=== RoundSparrow_Commentary : Astoundingly effective, ***at what***? Adding more bullshit to the Donald Trump and Putin bullshit? Diving into the ocean of Kremlin informaiton warfare since March 2013 and adding more shit to the anti-intelelctual total mockery Donald Trump shit-show?  Astoundingly effective at amusing a Reddit user who has never bothered to study Surkov governing in Russia year 2011, neer read book *Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia* fron year 2014 - and wants MORE Putin mind-fuck all the time. **You know what an alternative to saying "man, these guys are fucking weird" is?** Saying "We all need to read Neil Postman's 1985 book Amusing Ourselves To Death in describing what is going on with Donald Trump" and teaching cult depogramming to media addiction / Fox News media brainwashing (Jen Senko's March 2016 film release) DIRECTLY / HEAD ON with intelligence and learning (Neil Postman is an educator of educators). Donald Trump is a product of fast-food media addiction, junk content addiction, adding more trash sinks the USA further and further. Surkov won. ""I mean, Walz had them all absolutely frothing at the mouth" is exacgtly what Russia has of USA people since March 2013 IRA deployment. ""I mean, Walz had them all absolutely frothing at the mouth" is exactly what MAGA means with "liberal tears, cry more*. Americans hate Americans. Americans are **predatory feasting upon Americans who have been mind-fucked by Russia** since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mubh1w/trump_quietly_abandons_allcaps_tirades_after/n9ign2n/
+
+frotz1 2019-03-09
+
+"Honestly, mimicking Dementia Donald right back at him is a highly effective way to demonstrate how weird and childish he is behaving. There's very little he can do to respond without acknowledging his own words, so it will be even more effective in person. As dumb as our time line really is lately, maybe this dumb thing is what it takes to shut down Dementia Donald's roll."
+
+* :::=== RoundSparrow_Commentary : Fixated on ONE SINGLE PERSON. "Dementia" 79 year old. This has been gong on for OVER TEN FULL YEARS of non-stop mocking and insulting Donald Trump's performance of Tony Clifton from the social machine audience. " As dumb as our time line really is lately" - Reddit, August 19, 2025. So you want to add more and more dumb to the Russian information warfare since March 2013 and do nothing on social media to actually call out that this Tony Clifton behavior is Russian Kremlin Surkov methods. Psycologial denial that Surkov won the information war, INCLUSIVE of this Reddit user. "mimicking Dementia Donald" is EXACTLY what USA We The People have been DOING FOR OVER A DECADE NON-STOP EVREY HOUR OF EVERY DAY!!!! People can not see the FOREST for the trees! ===:::
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
 
 .
 
