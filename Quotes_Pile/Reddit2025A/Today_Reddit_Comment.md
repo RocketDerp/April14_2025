@@ -52,6 +52,22 @@ acfox13 2017-02-22
 
 https://old.reddit.com/r/PoliticalHumor/comments/1mv8ahw/worst_chris_is_is_worst/n9od3ra/
 
+TyrellCorpWorker 2013-04-26
+
 "If you look at his weird public relationship with religion where he won’t take a stance on his own beliefs but yet, is super def religious, it sheds some light. Not sure we should listen to someone for any subject that cannot define and stand by his own beliefs. He is an actor. He just wants to please the next the person he talks to for his career and not offend anyone. Nothing super wrong with that until one protects fascism and spread anti-science misinformation which actually hurts people."
 
 * :::=== RoundSparrow_Commentary : Dear Chris Pratt - as a Christian, Bible follower, turn to verse "1 John 3:17" - you are to JUDGE Donald Trump, it is a judgement statement in verse "1 John 3:17" - that Donald Trump is without love with his material greed. Same judgement of Elon Musk and Rupert Murdoch. And the IMPORTED Bible book is transted to Englsh and is not American / North American. Study the Navajo Pollen Path and other systems too. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1mv8ahw/worst_chris_is_is_worst/n9ok14i/
+
+en43rs 2021-11-26
+
+"I personnally don’t care about his faith, he wants to be seen as religious but keep it private? I get it. I don’t need to know the details.
+
+Here it’s different because it’s public policy.
+
+But yea I agree that I’m not that surprised."
+
+* :::=== RoundSparrow_Commentary : people who say statements like this are bewildered. Do you think The Bible is nonfiction? Do you think The Bible is the one and only one perfect book in the entire public library? It is a science fiction book. And if people can't comprehend and read a 2,000 YEAR OLD story properly. Regarding Chris Platt and Donald Trump, if he is so poor at literacy he can't find verse "1 John 3:17' in that 2,000 year old story - what luck do you think Chris Pratt has reading year 1776 Founding Fathers writings if he can't comprehend 2,000 year old Bible fiction? This is a LITERACY problem, not a FAITH or "BELIEF" problem. It is not good to let people run around with fundamental misundersanding and comrpehension failures and act like they aren't misinterpreting other books, users manuals, websites, literature, art work! Test Chris Plat on some song lyrics, what wild interpretations does he come up with if he can't see "1 John 3:17" applies to Donald Trump judgement by Bible fiction fans? WISE UP USA - we have hundreds of millions of people who can't tell Russian Internet memes are fiction. We have people who think Fox news is nonfiction! Addiction to fiction is driving the Donald Trump nation. the TWO THOUSAND YEAR OLD Bible literacy is EVIDENCE of an absence of media ecology literacy (Marshall McLuhan, Neil Postman, James Joyce, Joseph Campbell, Bill Moyers level of multi-media literacy) ===:::
