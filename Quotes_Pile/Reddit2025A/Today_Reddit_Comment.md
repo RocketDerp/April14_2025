@@ -179,3 +179,21 @@ Optimal_Ad_4846 2021-01-29
 "The accuracy is stunning, particularly the part about “America’s shadow made flesh”. This buffoon represents everything we should not be, but are. We have fallen as a nation."
 
 * :::=== RoundSparrow_Commentary : The Fall as expounded in Finnegans Wake, 1924 onward publication. Surkov won the meme war since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/n9plh8e/
+
+jujubean67 2013-06-24
+
+"I'm coming from /r/all and every time this sub pops up it's 2-3 nested quotes like this, it's like forwards from grandma. Learn to crop ffs if you can't just screenshot the original message."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/n9p6cez/
+
+ohsnapitsjf 2012-09-11 ( 9/11 )
+
+"A four-level nested quote repost would mocked and banned on any other sub. Pretty wild, and pretty embarrassing as representation of Bluesky."
+
+&nbsp;
