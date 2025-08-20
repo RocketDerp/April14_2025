@@ -363,3 +363,11 @@ https://old.reddit.com/r/okbuddycinephile/comments/1msuqjp/good_old_days/
 Egypt American-creted art (Journalism, Research Research Research, Great Seal nile river USA 1776)    
 Video title: "Dagger of Amon Ra Copy Protection Failures"     
 https://www.youtube.com/watch?v=1Xv2kTn-Wac
+
+&nbsp;
+
+### Download Rituals and Practices 
+
+Topics: Like getting a concert ticket months in advance, the line of ticket purchase for assigned seatings. Season seat passes for sports stadiums. Downloading large files.   
+
+https://old.reddit.com/r/pcmasterrace/comments/1mv7qkq/no_wifi_at_home_how_to_download_heavy_games/
