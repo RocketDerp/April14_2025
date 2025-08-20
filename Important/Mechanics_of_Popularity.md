@@ -1,6 +1,6 @@
 # The Mechanics of Popularity
 
-Same Bible book many Church and televangelist venues. Joyce saw the media systems progression of fiction media beinga adapted to new live theater perfomances (in Church) and emegence of distance media.
+Same Bible book many Church and televangelist venues. The network of one media story distribution. Joyce saw the media systems progression of fiction media beinga adapted to new live theater perfomances (in Church) and emegence of distance media.
 
 "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
 
@@ -8,7 +8,7 @@ Same Bible book many Church and televangelist venues. Joyce saw the media system
 
 # Current mechanics
 
-peer pressure, peer to peer influence, anonymous Reddit and Bluesky social media where people hide and cower with their real identity - while wealth lords plaster their real identity all over the Internet (Elon Musk, donald Trump, etc).
+peer pressure, peer to peer influence, anonymous Reddit and Bluesky social media where people hide and cower with their real identity - while wealth lords plaster their real identity all over the Internet (Elon Musk, Donald Trump, etc).
 
 &nbsp;
 
