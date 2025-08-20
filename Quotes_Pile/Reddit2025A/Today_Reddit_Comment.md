@@ -156,5 +156,18 @@ JohnDivney 2011-04-29
 
 "this is NOT Ai."
 
+* :::=== RoundSparrow_Commentary : Stephen the repeating repeater here, I would like to assert that the Kremlin war against Reality was described way back in Steptember 9, 2014 (the first year of the Ukraine hot war). [Russia and the Menace of Unreality. How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Peter Pomerantsev titled the second book in his series "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries"...
+I'm emphasizing year 2014, year 2019, war against reality, war against nonfiction. And that was **BEFORE the late 2022 introduciton of ChatGPT / generative AI**. These have now converged. Billionare Putin was waging war against reality since the IRA spun up in March 2013 - and now with ChatGPT / GrokAI and other systems - all the billionares are funding machine-message anti-reality content! Everyday people are bonbarded by the IRA since March 2013 and machine systems creating fiction and bewildering messages. [Texan Rick Roderick's year 1993 lecture "Self Under Siege" is critical self-awareness on this loss of raelity subject](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/). It is a 7-hour total series, I recommend multiple viewings weeks apart. I consider the root of all anti-reality media ecology to be James Joyce's work augmented by Marshall McLuhan's teaching about James Joyce and Joseph Campbell's (and his wife Jean's) teaching about James Joyce. Finnegans Wake is the ultimate confrontation of fiction storytelling vs. science reality - The Bible Church 1,900 years hanging over the Dublin Ireland society. James Joyce: "I confess that I do not see what good it does to fulminate against the English tyranny while the Roman tyranny occupies the palace of the soul." -
+"Ireland, Island of Saints and Sages," lecture, Università Popolare, Trieste (27 April 1907) ===:::
+
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/n9p63kr/
+
+RatedRSuperstar81 2021-04-14
+
+"And 150 million people either worship every word he says or have no opinion on it. What's that say about us?"
+
+* :::=== RoundSparrow_Commentary : It says we are addicted to fiction in August 2025 and ficiton outsells nonfiction. Surkov won the war since March 2013. ===:::
+
+&nbsp;
