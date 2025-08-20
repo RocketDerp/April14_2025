@@ -49,7 +49,7 @@ We The People, even our teachers, just didn't put the time into Marshall McLuhan
 
 We The People just didn't see it coming. Few people after year 1995 in USA kept up with the ideas of Marshall McLuhan. Neil Postman carried it past Y2K vibe barrier, but once Neil Postman died, the vibe media was mastered by Putin and Murdoch and Surkov and Trump and a whole lot of social media junk. In terms of education and learning, around year 2007 with the introduciton of the first Apple iPhone - [We The People left something behind, skipped a subject, lost a self-awareness gained from comprehension](https://youtu.be/Q2g0hrrKLNw?t=102) (McLuhan and Postman teaching material is the something back there, left behind). Donald Trump can ride the vibes and Putin believes he can tame the vibes and direct the waves of media vibes.
 
-We The People without self-awareness at the Marshall McLuhan are stuck in 1985 "Amusing Ourselves To Death".  *Death by vibes*. Donald Trump is the button-pushing emotion-button vibe master. Few recognize what has happened with our addiction to vibe media. We have already Amused Ourselves To Death with mockery and mocking and satire and paraody. Fox News already Donald Trump reality vibes.
+We The People without self-awareness at the Marshall McLuhan levels are stuck in 1985 "Amusing Ourselves To Death".  *Death by vibes*. Donald Trump is the button-pushing emotion-button vibe ringmaster. Few recognize what has happened with our addiction to vibe media. We have already Amused Ourselves To Death with mockery and mocking and satire and paraody. Fox News already Donald Trump reality vibes.
 
 The medium vibes are the message.
 
