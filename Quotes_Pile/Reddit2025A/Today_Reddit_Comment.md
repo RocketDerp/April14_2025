@@ -801,3 +801,23 @@ FHL88Work 2013-08-05
 "Hamberder"
 
 * :::=== RoundSparrow_Commentary : Meme addict society has made Donald Trump the center of attention for OVER TEN FUCKING YEARS because audeinces compusively flock to mocking and insutling, Trump is a hate magnet, Tony Clifton act. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9qxud1/
+
+Current_Tea6984 2021-04-30
+
+"Edema is never a good sign. And this guy is talking about heaven all of a sudden. He's not expecting to live much longer."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9s3qqk/
+
+Nernoxx 2016-03-04
+
+"I've said it for a few months, I don't think he'll live past Christmas - the way he's been acting since they "investigated" the swelling in his legs seems to indicate he's second-guessing some of the crap he started with. The crazy has slowed, and I can only attribute it to this."
+
+* :::=== RoundSparrow_Commentary : These kind of social machine messages serve to tell the audience that there is nothing that We The People need to change, just sit back and enjoy the Donald Trump center of attentioon show as you have done for OVER TEN FUCKING YEARS. Fixate on one single person, not hundreds of millions in poulation mind-fucked by Russian information warare. Just sit back and follow the shiny entertainment topic of Donald Trump. ===:::
+
+&nbsp;
