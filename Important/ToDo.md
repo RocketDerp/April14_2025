@@ -707,3 +707,8 @@ https://old.reddit.com/r/politics/comments/1mvcb2u/rfk_jr_vowed_to_find_the_envi
 Year 1918 choice marriage honesty publications    
 https://old.reddit.com/r/interestingasfuck/comments/1mvf2fy/1918_a_suffragette_tells_young_women_what_to_know/
 
+&nbsp;
+
+Choice marriage honesty    
+Year 1964 concern about each other mindsets and life   
+https://old.reddit.com/r/TikTokCringe/comments/1mvih4a/this_is_interesting_to_watch/
