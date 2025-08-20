@@ -197,3 +197,11 @@ ohsnapitsjf 2012-09-11 ( 9/11 )
 "A four-level nested quote repost would mocked and banned on any other sub. Pretty wild, and pretty embarrassing as representation of Bluesky."
 
 &nbsp;
+
+ResidentAllie 2024-09-12
+
+"This is 1000 times accurate. Sadly this doesn't even stir any emotion in most Americans. They just hear "America First" and every Latino, Asian (represent!) and African is suddenly an enemy. Don't even get me started on how the women are treated - if it isn't already bad world wide, American has taken a sinister interest in making it exceptionally depressing for women/girls. Truly sad to know how rotten the "free world" really is. ."
+
+* :::=== RoundSparrow_Commentary : Freedom to hate, freedom to dehumanize, freedom to war, freedom to imprison. Freedom to let addictions to fiction run wild, freedom to avoid nonfiction. The anti-Malala society USA 2025. ===:::
+
+&nbsp;
