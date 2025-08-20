@@ -381,3 +381,10 @@ RevolutionNumber5 2011-03-13
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_who_dissed_trumps/n9pnt96/
+
+Hey_Giant_Loser 2024-12-13 (this year)
+
+"Jack's right. But honestly, the more we can keep him focused on fucking up the White House it's less time you can devote to fucking up the rest of the world. Let him gild the fuck out of it I don't care"
+
+* :::=== RoundSparrow_Commentary : This is very revealing to the social media society, USA media addict behaviors. The widespread addiction to keeping Donald Trump in office as a magnet for hate messaging. This Reddit meme addict wants more meme content, cravings for the stream of *trickle down images* and antics from Donald Trump playing as Tony Clifton. People are not standing up on social media saying "Dear World, I am sorry, we made a huge bluder in education - we need to rescue people who believe Donald Trump is sincere and factually accurate. We need to teach Neil Postman's 1985 book Amusing Ourselves to Death and face up to our Donald Trump addiction" - and repeat repeating it. ===:::
