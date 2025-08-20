@@ -524,5 +524,16 @@ SiWeyNoWay 2023-03-14
 
 "Idk if they finally turned off the comment section but it was HILARIOUS when I last checked"
 
-Donlad Trump White House doing Tony Clifton generates HILARIOUS ENTERTAINMENT from the mockery audience. Total mockery nation. We The people can not resist Donald Trump charms because we are addicted to Tony Clifton audience interaction.
+Donald Trump White House doing Tony Clifton generates HILARIOUS ENTERTAINMENT from the mockery audience. Total mockery nation. We The people can not resist Donald Trump charms because we are addicted to Tony Clifton audience interaction.
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9r47pd/
+
+Hardcorish 2012-12-29
+
+"How hilarious would it be if Trump drew the other half of his droopy face with a Sharpie to make it look 'normal' again"
+
+TEN FUCKING YEARS of social media addict nation mocking and insulting one person, Donald Trump, every hour of every day. Tony Clifton act that people eat up. Addiction to Donald Trump content, Reality TV show, has wrecked the USA. Russian information warfare of Surkov students has turned every aspect of USA life into constant jokes and hilarious Donald Trump stink. My god, do USA people have the worst possible taste in junk memes and trash media consumption to flock to this content creator. People upvote this trash taste on Reddit every hour of every day and can not resist handing power and wealth to Donald Trump in cumpulsive addiciton to the Clifton performance. It is like a wish list for the 11th season of Donald Trump South Park entertainment show: "How hilarious would it be if Trump drew the other half of his droopy face with a Sharpie to make it look 'normal' again".
+
 
