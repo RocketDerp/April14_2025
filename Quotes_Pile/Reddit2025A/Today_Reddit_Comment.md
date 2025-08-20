@@ -512,3 +512,15 @@ EditRemove 2022-07-10
 
 * :::=== RoundSparrow_Commentary : People on social media and the Twitter-length Tweet-thinking MAGA attitudes. A USA pupulation so mind-fucked by Russia into fiction that one-line comments like this are popular. The Taliban in Afghanistan defeated the USA military after 20 years, as Chicago's Roger Ebert predicted a decade earlier: ["It raises for me an obvious question: How can this war possibly be won?"](https://www.rogerebert.com/reviews/restrepo-2010#google_vignette) ===::
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mvijsn/robert_de_niro_on_donald_trump_its_about_right/n9qkvlw/
+
+BakedBeanFlicker  2022-03-07
+
+"Honestly it is reassuring to hear a celebrity saying what I’m thinking out loud. I felt the same in 2016, cried when he got elected because I couldn’t believe so many people would vote for a sexual predator??? Almost everyone blows trumps actions off like a joke but none of it is funny and things are mega (maga?) fucked up now (and quickly getting worse) because of people’s amusement and complacency. People have died and are dying and it’s only the beginning"
+
+* :::=== RoundSparrow_Commentary : "Almost everyone blows trumps actions off like a joke but none of it is funny" - the outcome of the Russian war against reality. Surkov won since March 2013. Neil Postman's 1985 book "Amusing Ourselves To Death" explains how this was possible for Russia to win the information war into turning all things into joke humor absurd surreal funny. "Almost everyone blows trumps actions off like a joke but none of it is funny" - Americans have all blown their minds on Tomy Clifton act that Trump does. ===:::
+
+
+
