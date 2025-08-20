@@ -111,3 +111,27 @@ codespiral 2016-02-16
 "Corporations don't give a fuck about you. They just want you to buy more and more shit."
 
 &nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mvd2g7/turns_out_alienating_your_customers_for_the_sake/n9pfkrv/
+
+Imaginary-Snow-7031 2021-02-06
+
+"This headline is (a lot) misleading. Target has a policy that requires executives to step down at a certain age and this has been in the works for years. In fact, Brian Cornell was granted a few years extension on his contract.
+
+He's leaving, but not because of declining sales, but because his contract ran out. I think Cornell made a bad decision in January to bend the knee. He did what he thought was right for shareholders, which is fine - I guess, but that decision had consequences that I don't think he anticipated or frankly cared too much about since he knew he was leaving later this year."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/
+
+* :::=== RoundSparrow_Commentary : Twitter post (Seth is Twiter screenshot ?) + Bluesky + Reddit crossover content on front page of Reddit. *Dehumanize thy enemy* society politics. **"not even a man", not even human, dehumanize messages on cloud computing machines**. Russian information warfare since March 2013 has Americans dehumanizing Americans, instead of seeking out nonficiton such as Neil Postman's 1985 book "Amusing Ourselves To Death" which needs to be repeated over and over and repeated again until every person age 12 to age 120 is self-aware of what electric media systems have done to our society and how Putin defeated the USA hearts and minds in information warfare. I will repeat and repeat. Dehumanization abounds, hate abounds, hate-motivated nation. Donald Trump attracts hate Trump. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/n9ow11t/
+
+vonnegutsbutthole 2023-07-04 (Independence day)
+
+"He represents the worst of humanity"
+
+* :::=== RoundSparrow_Commentary : This simple statement is *not dehumanizing*. It describes the crisis in very few words. Attraction to badness itself. We have a media addiction society that is addicted to Tony Clifton performance of Donald Trump. People have sold out *goodness itself* to feed their streaming meme channels full of hate of how bad Tony Clifton stage performance is, how terrible Donald Trump is, an addiction to terrible. "the worst of humanity" addiction, induced since March 2013 IRA rampup. ===:::
