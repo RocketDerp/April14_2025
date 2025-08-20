@@ -565,3 +565,55 @@ https://old.reddit.com/r/Music/comments/1mvox1x/jack_white_goes_scorched_earth_o
 monkeymatt69 2019-03-04
 
 "I don’t think I’ve ever heard everything I loathe about Trump so perfectly summed up at once before. One of his “powers” is creating so much havoc it’s hard to remember them all or pick one out of the crowd. I bow to JW and his unparalleled way with words. Holy shit!"
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mvox1x/jack_white_goes_scorched_earth_on_trump_and_his/n9rsjk0/
+
+citizenjones 2012-05-04 (Finnegans Wake publication day, Star Wars Force)
+
+"I'm reading this every day like it's Lord's Prayer.
+
+There's so much in that write up, any two lines reprinted and argued over would fill a week of debate. Not a word wasted and an amazing laundry list of filth to defend."
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mvox1x/jack_white_goes_scorched_earth_on_trump_and_his/n9rxn6u/
+
+Academic-Clerk8901 **2025-07-04 (new July 4)**
+
+"Our highest levels of government are involved in some internet beef with a singer. If they're spending time on this shit then what are they ignoring or dropping the ball on?"
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mvox1x/jack_white_goes_scorched_earth_on_trump_and_his/n9s5lsa/
+
+coldliketherockies 2021-02-02
+
+"Well said Jack white. I genuinely hate every person who voted for Trump. For anyone to see this as responsible, quality, leadership, etc is so beyond pathetic. They have actually wasted their lives by just this action. Though it’s never just that action. No one I’ve ever met who voted for Trump didn’t also come with a lot of shitty behavior on a day to day basis as well. Every day I can go where I don’t have to interact with one of those pieces of shit is a good day for me to"
+
+* :::=== RoundSparrow_Commentary : Americans hate Americans and don't want to rescue lost hearts and minds from Russian information warfare since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mvox1x/jack_white_goes_scorched_earth_on_trump_and_his/n9s2jib/
+
+SincereNative 2022-07-24
+
+"All of that shit Trump has done is real and it shows how much clownery exists in his circus. And his supporters are either that stupidly ignorant or hateful, spiteful and miserable people. Probably all of the above and everyone should go down with his tent when all is said and done and never be allowed in governmental positions again. Well put Mr White"
+
+* :::=== RoundSparrow_Commentary : Americans are igorannt of media ecology (Marshall McLuhan, Neil Postman), ignorant of Surkov domestic Russia... and don't want to rescue lost hearts and minds from Russian information warfare since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mvox1x/jack_white_goes_scorched_earth_on_trump_and_his/n9s394z/
+
+Sinocatk 2016-10-16
+
+"Sadly Trump supporters can’t read that much and it uses words they don’t understand. Orange good Democrat bad is all they can say.
+
+Excellent post though from Jack. Here’s a little joke for you all.
+
+“What’s the difference between MAGA supporters and a yogurt?” “Yogurts have more culture” "
+
+* :::=== RoundSparrow_Commentary : Americans are igorannt of media ecology (Marshall McLuhan, Neil Postman). This is exactly what Neil Postmans' 1985 book addresses, amusement to death. A population so addicted to media mocking and insulting of Donald Trump and MAGA that they will not organie education and information warfare to defend against Putin's media invasion since March 2013. Meme junkes, meme addicts, who think this is hillarious to crack jokes EVERY DAY FOR TEN FUCKING YEARS at the mentally damaged Americans that Russia's IRA harmed. ===:::
