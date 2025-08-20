@@ -291,3 +291,9 @@ carpetbugeater 2022-01-15
 "Covid taught me that we won't be working together during an emergency. It'll be every man for himself. That's why the rich are building their bunkers and compounds."
 
 * :::=== RoundSparrow_Commentary : The elections have also taught us: every rural man for the New York City Slickers billionaires. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1muxdan/a_guy_lands_a_strong_punch_on_the_machine_but/n9mi49a/v
+
+"She made a mistake (that was of no real consequence) and when it was pointed out to her she made a “my bad” gesture and walked away, what “justification” do you think is even needed? Y’all are emotionally disordered, I swear"
