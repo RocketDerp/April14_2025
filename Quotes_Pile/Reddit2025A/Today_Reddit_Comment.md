@@ -237,3 +237,11 @@ LesnBOS 2021-01-31
 Maybe as ignorant as a high school drop out working as a grunt for the local crime syndicate"
 
 * :::=== RoundSparrow_Commentary : media ecology! Awareness of inebriated vs. sober. Tired mind worn down by constant Donald Trump meme content machine messages vs. clear thinking mind.  [Joyce drank heavily and habitually from his early twenties to his death](https://www.jstor.org/stable/24598883) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mvcd5j/donnie_famous_for_never_paying_his_bills_deployed/n9parjl/
+
+captaingrey 2013-02-03
+
+"It is a loyalty test. Plain and simple. Trump is building his personal brown shirts. Next it will be loyalty tests for the troops. Start giving them some orders that fall into a gray legal area. Those that accept the orders, pass the test. If they hesitate over the orders, they fail and are moved out of DC. Keep increasing the stakes with each order. After a few cycles, he will have his loyal army. That is what is happening."
