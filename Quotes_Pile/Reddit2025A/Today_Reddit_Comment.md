@@ -420,3 +420,19 @@ ClerkPsychological58 2021-05-10
 "History shouldn’t be divisive. It’s factual. If you’re offended by the atrocities of history then, good. You should be. We have done some truly heinous shit as a species and we should always shine a light on that."
 
 * :::=== RoundSparrow_Commentary : Much better to lern war and pandemics from a film about World War One or a film abput the Spanish Flu pandemic than to live out a real one. Books and films and other media can be used to educate people on nonfiction. But fiction addiction to Fox News fiction and Donald Trump fiction needs to be addressed, it is an extreme crisis in year 2025. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MadeMeSmile/comments/1mvhk2n/bernie_defending_lgbtq_over_30_years_ago/n9q9q8t/
+
+Lisa_lou_hoo
+
+"Ahhh but he's looked this way since he's been 40! /s
+
+As a Canadian, y'all messed up the world, not voting for this guy. Imagine *his* executive orders?! Free Education and Healthcare for everyone!"
+
+* :::=== RoundSparrow_Commentary : The Russian IRA wes ramping up in March 2013 to a [plan put in place by Donald Trump in early November 2012 to mind-fuck the population](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) into *hate thy neighbor* values of anti-compassion and fiction addiction. By the time Bernie Sanders announced himself as **candidate April 30, 2015**, the Russian infomation warfare (since March 2013) had USA population eating out of [Trump's November 2012 plan](https://www.facebook.com/konstantin.rykov/posts/10210643558675446). Measles are spreading in Texas in 2025 and people on social media can't even be bothered to call out [Russian IRA mind-fucking on that topic of being pro-disease, ***factual hard evidence*** going back to year 2014](https://www.bbc.com/news/world-us-canada-45294192).
+
+USA social media users have zero sense of civic duty to defend American hearts and minds from Putin's meme warfare. People are silent on the topic except to say "Russian bot", can't name any dates / timelines / players / techniques / book authors / Surkov techniques / etc. People in USA have lost their hearts and minds to mocking and insulting Donald Trump topics: dirty diapers, orange skin color, golf course outings, etc, etc. **Even AFTER Trump-thinking was ruling USA, Bernie Sanders announced a 2nd run February 19, 2019** - and people STILL didn't face up to the ONE WEEK EARLIER [February 12, 2019 mocking by Surkov in Newsweek](https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793). Surkov won since March 2013, Russia won the information war. Meme addics of USA can not resist Trump's fiction content creation. ===:::
+
+&nbsp;
