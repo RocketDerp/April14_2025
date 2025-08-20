@@ -617,3 +617,37 @@ Excellent post though from Jack. Here’s a little joke for you all.
 “What’s the difference between MAGA supporters and a yogurt?” “Yogurts have more culture” "
 
 * :::=== RoundSparrow_Commentary : Americans are igorannt of media ecology (Marshall McLuhan, Neil Postman). This is exactly what Neil Postmans' 1985 book addresses, amusement to death. A population so addicted to media mocking and insulting of Donald Trump and MAGA that they will not organie education and information warfare to defend against Putin's media invasion since March 2013. Meme junkes, meme addicts, who think this is hillarious to crack jokes EVERY DAY FOR TEN FUCKING YEARS at the mentally damaged Americans that Russia's IRA harmed. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9rz73y/
+
+fintage 2012-07-11
+
+"What is happening to your country? Extremely disturbing watching from the other side of the world."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9s91iq/
+
+slumvillain 2017-09-10
+
+"Everybody's just watching and waiting. For what, I do not know.
+
+Americans are seeing other Americans getting dragged to the back of unmarked cars and can only pick up their phones to record.
+
+Concentration camps popping up across the country and we are still just watching and waiting. for what
+
+Where's the line? Where's the bottom? How many peoples screams can we tolerate before we actually get out and help?
+
+I'm tired of this. We lack solidarity when we really need it.
+
+This administration is immoral. This occupation is illegal. We are well within our rights to reject this on a moral basis of preventing humans, our neighbors, our communities from being snuffed out and erased.
+
+Stop watching. Stop waiting. Fascism works 24/7 to upend reality. We must push back. With everything that America claims to stand for. Freedom. Liberty. Justice FOR ALL. Don't let these fascists fucks take the language.
+
+TAKE IT BACK. STOP WATCHING. STOP WAITING. WE THE PEOPLE."
+
+* :::=== RoundSparrow_Commentary : Americans are television addicts. media addicts, Reddit addicts, Bluesky addicts, Facebook addicts, TikTok addicts. They can't stop reaction commenting to everything and feeding the amusement meme cycle of LOL LMAO to everything oing on. Neil Postamn's 1985 book "Amusing Ourselves To Deat" about media addiction explains this crisis. Social media addicts are using social media to organize protests at 7:00am and 7:00pm every day on social media, because people do not want the antics politics and shit show to stop, because the population has been mind-fucked by Russia's IRA since March 2013 and is enitrely addicted to the televised coverage and breaking memes covering action news. The junkies of content consumption do not want to FACE UP TO their own media addiction being just like Donald Trump media addiction. Donald Trump sending troops to try and create *action media events* so he is like film director, Americans are glued to the Trump addiction. That is why the keep voting for Trump, content addict nation. ===:::
