@@ -669,3 +669,11 @@ WhyMustIMakeANewAcco 2023-03-18
 "The US is now a fascist dictatorship. Most people seem to have still not gotten the memo."
 
 * :::=== RoundSparrow_Commentary : Audiences are waiting for the South Park season to progress to episode 3. This is all entertainment addiction, Donald Trump and team entertainers of Internet drama. Media addiction to Donald Trump FOR OVER TEN YEARS, people adore the hate Trump magnet. Fiction outsells nonfiction, Trump provides fiction. Surkov won the information war since March 2013. People are craving for a reboot / recasting of Idiocracy film to see it like South Park and [Amsued to Death](https://en.wikipedia.org/wiki/Amused_to_Death) at their own mockery of always mocking Donald Trumpism / MAGA anti-intellectualism. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9rv1na/
+
+Holiday-Proof9819 2022-07-10
+
+"Things are getting intolerable...... how long are we going to tolerate it? This isn't a question about voting."
