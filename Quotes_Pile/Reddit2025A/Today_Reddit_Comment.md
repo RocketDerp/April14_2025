@@ -101,3 +101,13 @@ the_millenial_falcon 2016-12-16
 "If you are bass pro shop it makes more sense to go anti-woke. But fucking Target? Tesla? Unbelievable stupidity there."
 
 * :::=== RoundSparrow_Commentary : media ecology crisis in USA of *branding* and planting ideas in consumer minds goes beyond Donald Trump and Rupert Murdoch systems. Street gang logic "colors" of identity behaviors on the Internet public streets and phyusical public streets. Hate thy enemy nation August 2025. Democracy does not work when people don't have compassion and love for one another. Hate motivations for profit are the Donald Trump social movement. Surkov won the information war since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mvd2g7/turns_out_alienating_your_customers_for_the_sake/n9pezxn/
+
+codespiral 2016-02-16
+
+"Corporations don't give a fuck about you. They just want you to buy more and more shit."
+
+&nbsp;
