@@ -510,3 +510,19 @@ JacquoRock 2016-01-06
 
 Media addicts of America, the social media society USA, can never get enough mocking and insulting Donald Trump on media. Instead of REMOVING Donald Trump from the spotlight, people are entirely addicted to having him there to insult and mock. IT NEVER FUCKING ENDS, OVER A DECADE OF THIS SHIT! Donald Trump content creator is irresitable to USA population. Terrible horrific taste in attraction to media garbage.
 
+&nbsp;
+
+&nbsp;
+
+# Wednesday, August 20, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mvjjwo/white_house_launches_tiktok_account_less_than_one/n9qpcas/
+
+SiWeyNoWay 2023-03-14
+
+"Idk if they finally turned off the comment section but it was HILARIOUS when I last checked"
+
+Donlad Trump White House doing Tony Clifton generates HILARIOUS ENTERTAINMENT from the mockery audience. Total mockery nation. We The people can not resist Donald Trump charms because we are addicted to Tony Clifton audience interaction.
+
