@@ -411,3 +411,12 @@ AMP_1182 2018-12-01
 - "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance. Orwell feared we would become a captive culture. Huxley feared we would become a trivial culture" - Amused To Death, 1985. &nbsp;
 Notice the Reddit meme consumer is amused and anticipaing the next act in the Surkov screenplay, Tony Clifton performance art. The media addics of USA, the entire society, doesn't want to face anti-intelleculism with books from Carl Sagan / Neil Postman / Malala / Joseph Campbell / Marshall McLuhan / Martin Luther King Jr ... the USA audience (We The People) are *entire engaged* in mocking the Tony Clifton act. We are living in tolitarian mockery, Surkovian governing Russia year 2011. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mvhkhk/but_its_okay_for_donny_to_erase_history/n9q9ytn/
+
+ClerkPsychological58 2021-05-10
+
+"History shouldn’t be divisive. It’s factual. If you’re offended by the atrocities of history then, good. You should be. We have done some truly heinous shit as a species and we should always shine a light on that."
+
+* :::=== RoundSparrow_Commentary : Much better to lern war and pandemics from a film about World War One or a film abput the Spanish Flu pandemic than to live out a real one. Books and films and other media can be used to educate people on nonfiction. But fiction addiction to Fox News fiction and Donald Trump fiction needs to be addressed, it is an extreme crisis in year 2025. ===:::
