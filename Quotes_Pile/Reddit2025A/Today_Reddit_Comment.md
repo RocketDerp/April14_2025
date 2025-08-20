@@ -295,3 +295,24 @@ LookLikeUpToMe 2017-03-17
 "The only response they have to these criticisms is to call the person a has-been or irrelevant. Trump admin people said the same regarding South Park while it got some of its best ratings with recent episodes. Clown show administration."
 
 * :::=== RoundSparrow_Commentary : To Trump, human beings who developed compassion are has-been failures. “With the rise of Technopoly, one of those thought-worlds disappears. Technopoly eliminates alternatives to itself in precisely the way Aldous Huxley outlined in Brave New World. It does not make them illegal. It does not make them immoral. It does not even make them unpopular. It makes them invisible and therefore irrelevant. And it does so by redefining what we mean by religion, by art, by family, by politics, by history, by truth, by privacy, by intelligence, so that our definitions fit its new requirements. Technopoly, in other words, is totalitarian technocracy.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, **year 1992** ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_who_dissed_trumps/n9pu3nb/
+
+BrownSugarBare 2014-07-07
+
+"I'm surprised more people aren't drawing this comparison. This is exactly how Saddam had his palaces decorated, right down to the gold toilets."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_who_dissed_trumps/n9p6qvx/
+
+Individual-Guest-123 2020-10-20
+
+"There are hardworking American families who can't afford to feed their kids hamburg, many of them living paycheck to paycheck one disaster away from homelessness. The R's are hell bent on cutting food stamps, education, health care, (and more) and their chosen one surrounds himself with obscene wealth.
+
+One one hand cutting government expenses, firing long term employees, and on the other, adding more gold to his private office. Nothing to see here, folks, move along. The SC determined a prez can do no wrong, don't be surprised if this stuff doesn't get packed up and moved to FL if and when he ever leaves. Who is gonna stop him? No one."
+
+* :::=== RoundSparrow_Commentary : No one wants to stop Donald Trump because for 10 years it has been onstop social media addiction to mocking and insutling how bad Tony Clifton act is on stage. Surkov media systems adapted to Tony Clifton. People can not resist the Trump notification opera, antics politics. Sobering up with Neil Postman's 1985 "Amusing Ourselves To Death" media ecology addresses the root addiction issues of TCP/IP network delivered Trump content. USA population, We The People, can admit we took electric media networks too far and a Reality TV super-star, greatest Tony Clifton actor i all human history, drove us off a media addiction cliff. We have *an out* if we use Neil Postman's 184 page book... and we all start repeating it as *We The People* admitting our media ecology oversight in education. The USA created the Internet, but we did not listen to wisdom from previous electric media generations - we did not pass down Neil Postman to prepare for the Apple iPhone / Apple iPad society. ===:::
+
