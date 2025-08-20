@@ -311,3 +311,38 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1muuk1t/nebraska_voted_5932_
 Curious_Twat 2020-10-20
 
 "Imagine it’s 2025 and/or you’re a grown person who still thinks it’s super cool to hate people because of skin color and it’s okay to call people names out of bigotry. The way they brigade on people, even representatives of their own party, calling them and their families the cruelest things and telling them they’re not American is so disgusting. What does any of that accomplish? Who fucking hurt these people?"
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1muuk1t/nebraska_voted_5932_in_favor_of_trump_now_they/n9lmhjz/
+
+Excellent-Phone8326 2021-10-11
+
+"MAGA: Literally threatens the sovereignty of Canada after decades of being close allies.  Canadians: Okay we're boycotting travel to USA and will avoid buying US products indefinitely.  MAGA: You're being mean! Come back you're wrecking our tourism and alcohol industries!"
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1muuk1t/nebraska_voted_5932_in_favor_of_trump_now_they/n9ln75f/
+
+ACartonOfHate 2019-06-19
+
+"Outside of how happy they are with, 'librul tears!' and all the horrors that ICE is doing (cheering on "Gator Gitmo) they still think that, 'oh this will make sense financially in the end!'
+
+When no, this isn't just short-term pain for long-term gain, there is no long-term gain that is going to happen. Tarifs aren't going to bring back manufacturing, especially when tariffs are making metals more expensive.
+
+Also how would tariffs bring back manufacturing when people have less disposable income because everything is more expense because of tariffs? And less people will have jobs, and people with jobs are less likely to spend more than they can/wanting to save money for feared upcoming bad economic times."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1muuk1t/nebraska_voted_5932_in_favor_of_trump_now_they/n9lq6t3/
+
+Sasquatch1729 2020-06-18
+
+"Well yes, because somehow this is all Biden, Harris, Hillary, and Obama's fault.
+
+Don't ask me why, I can't translate Stupid MAGA Talking Points at that level. It's far beyond my language skills, at least until I'm in a terrible car crash or smash my head hard enough on the ice next time I play hockey.
+
+I just know that it's their fault, and that a true MAGA spells her name Hitlery."
+
+&nbsp;
+
