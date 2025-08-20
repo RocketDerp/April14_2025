@@ -485,3 +485,11 @@ https://old.reddit.com/r/nottheonion/comments/1mvjjwo/white_house_launches_tikto
 Ironically, maybe it'll actually push them to go through with the ban lmao"
 
 &nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mvjjwo/white_house_launches_tiktok_account_less_than_one/n9qkyy8/
+
+FestusPowerLoL 2014-10-28
+
+"Because the Twitter propaganda campaign on top of the Charlie Kirks and the Andrew Tates and the Adin Rosses weren't nearly enough."
+
+&nbsp;
