@@ -297,3 +297,9 @@ carpetbugeater 2022-01-15
 https://old.reddit.com/r/mildlyinfuriating/comments/1muxdan/a_guy_lands_a_strong_punch_on_the_machine_but/n9mi49a/v
 
 "She made a mistake (that was of no real consequence) and when it was pointed out to her she made a “my bad” gesture and walked away, what “justification” do you think is even needed? Y’all are emotionally disordered, I swear"
+
+&nbsp;
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1muxdan/a_guy_lands_a_strong_punch_on_the_machine_but/n9mlu07/
+
+"The internet just sort of trains people to have extreme reactions to things even if it isn't warranted. I honestly view it as a huge modern issue in general - hardly limited to this sub."
