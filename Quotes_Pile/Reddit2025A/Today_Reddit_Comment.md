@@ -448,3 +448,14 @@ Robert De Niro on Donald Trump: “It’s about right and wrong. Period. The guy
 
 &nbsp;
 
+<img width="916" height="994" alt="image" src="https://github.com/user-attachments/assets/910be0c4-b1c6-4eb2-b77c-e0e59da3283d" />
+
+&nbsp;
+
+"They are never banning Tiktok while it serves as a great tool for their uses. I saw more people upset about Tiktok getting banned than really any specific political issue in my adult life."
+
+* :::===  TikTok White House, Surrkovian - [Everything is media ecology](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+&nbsp;
+
+&nbsp;
