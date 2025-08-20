@@ -687,3 +687,12 @@ EconomicRegret 2023-01-25
 "Many/most of us are watching it like entertainment or a show, also many are heavily desensitized. So we're gonna tolerate it for a loooong time..."
 
 &nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9rvxi4/
+
+extra_less 2009-10-16
+
+"Sooner or later this is going to explode. What happened to the US? Why do so many people in America hate America's Bill of Rights and the rule of law?"
+
+* :::=== RoundSparrow_Commentary : The Internet Research Agency ramped up in March 2013 and mind-fucked all Americans into self-harm and hate upon Americans. We The People lost an information war on the Internet and are so addicted to the hate and dehumanization. USA did not fight an information warfare, people can't even name the IRA and describe the November 2012 scheme: https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ - we ALREDY verified the factaul hard evidence that it goes back to year 2014: https://www.bbc.com/news/world-us-canada-45294192 - but we rather see children die from Measles than pin these stories on the top of every social media website as emergency notices. ===:::
+
