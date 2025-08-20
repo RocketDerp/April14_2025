@@ -71,3 +71,33 @@ Here it’s different because it’s public policy.
 But yea I agree that I’m not that surprised."
 
 * :::=== RoundSparrow_Commentary : people who say statements like this are bewildered. Do you think The Bible is nonfiction? Do you think The Bible is the one and only one perfect book in the entire public library? It is a science fiction book. And if people can't comprehend and read a 2,000 YEAR OLD story properly. Regarding Chris Platt and Donald Trump, if he is so poor at literacy he can't find verse "1 John 3:17' in that 2,000 year old story - what luck do you think Chris Pratt has reading year 1776 Founding Fathers writings if he can't comprehend 2,000 year old Bible fiction? This is a LITERACY problem, not a FAITH or "BELIEF" problem. It is not good to let people run around with fundamental misundersanding and comrpehension failures and act like they aren't misinterpreting other books, users manuals, websites, literature, art work! Test Chris Plat on some song lyrics, what wild interpretations does he come up with if he can't see "1 John 3:17" applies to Donald Trump judgement by Bible fiction fans? WISE UP USA - we have hundreds of millions of people who can't tell Russian Internet memes are fiction. We have people who think Fox news is nonfiction! Addiction to fiction is driving the Donald Trump nation. the TWO THOUSAND YEAR OLD Bible literacy is EVIDENCE of an absence of media ecology literacy (Marshall McLuhan, Neil Postman, James Joyce, Joseph Campbell, Bill Moyers level of multi-media literacy) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mve3lq/rfk_jr_vowed_to_find_the_environmental_causes_of/n9pfe5j/
+
+notnotbrowsing 2015-04-20
+
+"well, since he knows vaccines, aluminum, wi-fi, and 5g cause autism, why would he fund any research that comes to a different conclusion?"
+
+&nbsp;
+
+Journeys_End71 2024-10-15
+
+"Ah, the comment I was hoping to see!
+
+If nobody said it, I was going to say the same thing. Been shopping at Target for about 20-25 years, they always seemed to be the high-end big box store with quality products. We all used to call them Targét for a reason…they were the snooty upper class suburban option.
+
+Lately…and by lately I mean over the last 5 years or so, they’ve just been adding more junk. They’re still an option for standard commodity stuff like food, toiletries, books, toys that are identical to products you can buy elsewhere (although whether they’re cheaper is debatable…I usually have my Amazon app ready to price compare) but damn if their other products just don’t seem cheaper and more poorly made.
+
+If it’s Target vs Walmart…I’m not seeing too much of a difference now. Except that Target is offering the same junk and higher prices and that won’t fly in this day of Trump-manufactured inflation"
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mvd2g7/turns_out_alienating_your_customers_for_the_sake/n9peg6u/
+
+the_millenial_falcon 2016-12-16
+
+"If you are bass pro shop it makes more sense to go anti-woke. But fucking Target? Tesla? Unbelievable stupidity there."
+
+* :::=== RoundSparrow_Commentary : media ecology crisis in USA of *branding* and planting ideas in consumer minds goes beyond Donald Trump and Rupert Murdoch systems. Street gang logic "colors" of identity behaviors on the Internet public streets and phyusical public streets. Hate thy enemy nation August 2025. Democracy does not work when people don't have compassion and love for one another. Hate motivations for profit are the Donald Trump social movement. Surkov won the information war since March 2013. ===:::
