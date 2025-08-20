@@ -830,6 +830,12 @@ sniksniksnek 2025-01-10 (new this year)
 
 &nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9rulxr/
 
+Inevitable-Host-7846 2023-11-03
+
+"No, it’s a garbage clickbait headline upvoted by the most brainrotten wing of our side of the political spectrum. “Not doing well” is completely bent here to make it seem like he’s commenting on his health. What he actually said is he hears he’s not doing well vis a vis his chances getting into heaven. Dumb shits like whoever the shithead editor is on the linked site is why trump is pres"
+
+* :::=== RoundSparrow_Commentary : Soaking in Donald Trump memes and Donald Trump content FOR OVER TEN FUCKING YEARS has caused widespread brain damage. [Fox News Speak has taken over thinking, Trump language dominates communications, this problem can't even be described or articulated](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) ===:::
 
 &nbsp;
