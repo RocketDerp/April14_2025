@@ -650,4 +650,12 @@ Stop watching. Stop waiting. Fascism works 24/7 to upend reality. We must push b
 
 TAKE IT BACK. STOP WATCHING. STOP WAITING. WE THE PEOPLE."
 
-* :::=== RoundSparrow_Commentary : Americans are television addicts. media addicts, Reddit addicts, Bluesky addicts, Facebook addicts, TikTok addicts. They can't stop reaction commenting to everything and feeding the amusement meme cycle of LOL LMAO to everything oing on. Neil Postamn's 1985 book "Amusing Ourselves To Deat" about media addiction explains this crisis. Social media addicts are using social media to organize protests at 7:00am and 7:00pm every day on social media, because people do not want the antics politics and shit show to stop, because the population has been mind-fucked by Russia's IRA since March 2013 and is enitrely addicted to the televised coverage and breaking memes covering action news. The junkies of content consumption do not want to FACE UP TO their own media addiction being just like Donald Trump media addiction. Donald Trump sending troops to try and create *action media events* so he is like film director, Americans are glued to the Trump addiction. That is why the keep voting for Trump, content addict nation. ===:::
+* :::=== RoundSparrow_Commentary : Americans are television addicts. media addicts, Reddit addicts, Bluesky addicts, Facebook addicts, TikTok addicts. They can't stop reaction commenting to everything and feeding the amusement meme cycle of LOL LMAO to everything going on (with live streaming meme coverage). Neil Postamn's 1985 book "Amusing Ourselves To Deat" about media addiction explains this crisis. Social media addicts are using social media to organize protests at 7:00am and 7:00pm every day on social media, because people do not want the antics politics and shit show to stop, because the population has been mind-fucked by Russia's IRA since March 2013 and is enitrely addicted to the televised coverage and breaking memes covering action news. The junkies of content consumption do not want to FACE UP TO their own media addiction being just like Donald Trump media addiction. Donald Trump sending troops to try and create *action media events* so he is like film director, Americans are glued to the Trump addiction. That is why the keep voting for Trump, content addict nation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9ska8p/
+
+F1shB0wl816 2018-05-10
+
+"The average American is likely to be similar to the average German during their fascist period. A solid mix of “I couldn’t smell the death from camps” and “I was just doing my job.” I’d hope they’d prove me wrong."
