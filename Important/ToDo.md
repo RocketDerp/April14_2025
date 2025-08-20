@@ -695,3 +695,10 @@ https://www.youtube.com/watch?v=zBq_krhKbW4
 &nbsp;
 
 https://old.reddit.com/r/CringeTikToks/comments/1muysc6/idiocracy_took_place_in_the_year_2500_we_got/
+
+&nbsp;
+
+August 20, 2025   
+RFK Jr and autism nonsense  
+https://old.reddit.com/r/politics/comments/1mvcb2u/rfk_jr_vowed_to_find_the_environmental_causes_of/
+
