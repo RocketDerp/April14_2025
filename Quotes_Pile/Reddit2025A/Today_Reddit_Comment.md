@@ -135,3 +135,17 @@ vonnegutsbutthole 2023-07-04 (Independence day)
 "He represents the worst of humanity"
 
 * :::=== RoundSparrow_Commentary : This simple statement is *not dehumanizing*. It describes the crisis in very few words. Attraction to badness itself. We have a media addiction society that is addicted to Tony Clifton performance of Donald Trump. People have sold out *goodness itself* to feed their streaming meme channels full of hate of how bad Tony Clifton stage performance is, how terrible Donald Trump is, an addiction to terrible. "the worst of humanity" addiction, induced since March 2013 IRA rampup. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/n9pjvux/
+
+brosjd 2017-03-15
+
+"We all think he's Jim Jones.
+
+Conservatives think he's Leonidas.
+
+We all end up dead either way."
+
+&nbsp;
