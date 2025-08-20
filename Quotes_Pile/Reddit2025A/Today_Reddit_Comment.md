@@ -771,3 +771,33 @@ BaconJets 2012-08-10
 "RIP fucking *everyone* who scoffed at this being part of a broader political movement. The amount of times I was dogpiled for saying this was insane."
 
 &nbsp;
+
+https://old.reddit.com/r/pcmasterrace/comments/1mvpveu/it_turns_out_steams_adult_content_ban_has_been/n9s6d9n/
+
+lonelyroom-eklaghor 2024-08-31
+
+"The thing which surprises me is that, some people used to say "anti-woke" as having features which go towards the NSFW territory, but the bastions of "anti-woke" are censoring the same stuff.
+
+Digesting both of these truths individually is fine, but I can't digest both. This also means that ma-ga has gone to the literal woke territory.
+
+Like, I can't wrap my head around this, how is this even possible? Is this even possible?"
+
+* :::=== RoundSparrow_Commentary : ***Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia*** is a [2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media](https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible).  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9r0oma/
+
+Neceon 2023-08-03
+
+"They are going to need a damn around his gravesite to contain all the piss from people stopping by just to piss on his grave."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9s1xjq/
+
+FHL88Work 2013-08-05
+
+"Hamberder"
+
+* :::=== RoundSparrow_Commentary : Meme addict society has made Donald Trump the center of attention for OVER TEN FUCKING YEARS because audeinces compusively flock to mocking and insutling, Trump is a hate magnet, Tony Clifton act. ===:::
