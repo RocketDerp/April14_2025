@@ -10,7 +10,7 @@ CaptSpacePants 2018-11-05
 
 I'm so tired of these fuckalls who suck from the government teat and complain about the government offering other people besides them assistance as well."
 
-* :::=== RoundSparrow_Commentary : We have a massive media ecology crisis described 40 years ago in Neil Postman's year 1985 book "Amusing Ourselves To DeatH" about television news systems. Adult education isn't optional. We need to educate people why Fox News is wrong, we can't keep leeting rural uneducated adults in USA not comrprehend how Facbook, Fox News, Reddit, Bluesky, Twitter works on their mind. Russia won, Surkov won the information war since March 2013 because we did not educate rural Americans with media ecology. Neil Postman's 1985 book was essential for the smartphone age, and we did not teach it to every adult. ===:::
+* :::=== RoundSparrow_Commentary : We have a massive media ecology crisis described 40 years ago in Neil Postman's year 1985 book "Amusing Ourselves To Death" about television news systems. Adult education isn't optional. We need to educate people why Fox News is wrong, we can't keep letting rural uneducated adults in USA not comprehend how Facebook, Fox News, Reddit, Bluesky, Twitter works on their mind. Russia won, Surkov won the information war since March 2013 because we did not educate rural Americans with media ecology. Neil Postman's 1985 book was essential for the smartphone age, and we did not teach it to every adult. ===:::
 
 &nbsp;
 
@@ -20,7 +20,7 @@ n0b0dyneeds2know 2021-08-24
 
 "The only reason I wish I was still on X is to see all the people replying to this moron telling him he did, in fact, vote for this."
 
-* :::=== RoundSparrow_Commentary : This Reddit user commenting may not be on X / Twitter media platform, but the message they created on Reddit is Twitter-like and short-length Tweet-thinking. Just telling people "you voted for this" and sitll having them vote for the next fiction storyteller to feed their fiction addiciton to short simplistic Twitter-style ideas does not address the problem in any way, shape, or form. Neil Postamn's **book is only 184 pages, a SOCIETY WIDE education campaign to get EVERY PERSON on the SAME PAGE** of the 184 page book "Amusing OUrselves To Death" - ALL PEOPLE, age 12 to age 120, NEED TO LEARN. Just saying "you voted for this" is not in any way addressing the underlying cause of the Russian win of the information war. Moscow won, Surkov won! ===:::
+* :::=== RoundSparrow_Commentary : This Reddit user commenting may not be on X / Twitter media platform, but the message they created on Reddit is Twitter-like and short-length Tweet-thinking. Just telling people "you voted for this" and still having them vote for the next fiction storyteller to feed their fiction addiction to short simplistic Twitter-style ideas does not address the problem in any way, shape, or form. Neil Postman's **book is only 184 pages, a SOCIETY WIDE education campaign to get EVERY PERSON on the SAME PAGE** of the 184 page book "Amusing Ourselves To Death" - ALL PEOPLE, age 12 to age 120, NEED TO LEARN. Just saying "you voted for this" is not in any way addressing the underlying cause of the Russian win of the information war. Moscow won, Surkov won! ===:::
 
 &nbsp;
 
@@ -40,7 +40,7 @@ Evenele 2017-03-06
 
 "I just saw the video of her meltdown. It was infuriating seeing her being completely obtuse as to what Newsom is doing. Saying that his wife needs to check on him and he needs to get off twitter. But it’s ok for a POTUS to do this?"
 
-* :::=== RoundSparrow_Commentary : people on Reddit are behaving as if Donald Trump never had a first term in office, was elected way back in year 2016. Recency bias abounds. Russia won the information war, people have their minds blown so incredbily easy since the IRA and CA mind-fucked the population. This isn't just since January 20, 2025 - the United States of America has been flocking to Donald Trump's tweet bullshit styles for over a decade! Denial abounds. Russia won hearts and minds :( ===:::
+* :::=== RoundSparrow_Commentary : people on Reddit are behaving as if Donald Trump never had a first term in office, was elected way back in year 2016. Recency bias abounds. Russia won the information war, people have their minds blown so incredibly easy since the IRA and CA mind-fucked the population. This isn't just since January 20, 2025 - the United States of America has been flocking to Donald Trump's tweet bullshit styles for over a decade! Denial abounds. Russia won hearts and minds :( ===:::
 
 &nbsp;
 
@@ -70,7 +70,7 @@ No_Deer4983 2022-04-23
 
 "I always hated all capital messages, now they make me laugh. Hell yeah Newsom!!"
 
-* :::=== RoundSparrow_Commentary : Media addiction is the key to populatoin. Putin and Surkov figured this out TWENTY-FIVE YEARS AGO, and Now California has *recognized* it. **"психотипы и таким образом подобрать универсальный ключик к любому и каждому" - we are only TWENTY-FIVE YEARS behind the Russian mind-fuck**. And we have an ace in hiding, Neil Postman's 1985 book, but we won't embrace it. ===:::
+* :::=== RoundSparrow_Commentary : Media addiction is the key to population. Putin and Surkov figured this out TWENTY-FIVE YEARS AGO, and Now California has *recognized* it. **"психотипы и таким образом подобрать универсальный ключик к любому и каждому" - we are only TWENTY-FIVE YEARS behind the Russian mind-fuck**. And we have an ace in hiding, Neil Postman's 1985 book, but we won't embrace it. ===:::
 
 &nbsp;
 
@@ -148,7 +148,7 @@ WolfzandRavenz 2022-02-27
 
 I get a kick out of when they get down voted and start whining about the liberal brigade. It never occurs to them that they could just have an unpopular opinion 😂."
 
-* :::=== RoundSparrow_Commentary : This is why I track goodness messages across the whole world. Good ideas for humanity are good ideas. You see people discussing Palestine and Israel content CONSTANTLY on Reddit and Bluesky in year 2024 and year 2025. But what you DO NOT see is people saying: *we need another MLK jr*, it is the absence of goodness. People all KNOW OF Martin Luther King Jr, but you don't witness peopel saying: Bernie Sanders is right to keep bringing up MLK Jr. Why aren't we doing it? Why aren't we giving attention to someone preaching and teaching from MLK Jr's recorded materials, books and such? Malala was on the world stage, global attention, for **education and teaching**, her father is a teacher. And she came to attention in year 2012 and year 2013, right when Donald Trump popularity is formulating. But people are incredibly avoidant of goodness itself. " It never occurs to them that they could just have an unpopular opinion" - yha, like Neil Postman on media addiciton is *unpopular*, and like Malala from Pakistan on education is *unpopular*, and Carl Sagan's 1995 book is *unpopular*. You know what is popular? Americans hate Americans in August 2025. Constantly dunking, insulting, name-caling, hating up USA people. **Toxic Popularity** of hate magnet Donald Trump. Joe Rogan is popular. Fox News is popular. ===:::
+* :::=== RoundSparrow_Commentary : This is why I track goodness messages across the whole world. Good ideas for humanity are good ideas. You see people discussing Palestine and Israel content CONSTANTLY on Reddit and Bluesky in year 2024 and year 2025. But what you DO NOT see is people saying: *we need another MLK jr*, it is the absence of goodness. People all KNOW OF Martin Luther King Jr, but you don't witness people saying: Bernie Sanders is right to keep bringing up MLK Jr. Why aren't we doing it? Why aren't we giving attention to someone preaching and teaching from MLK Jr's recorded materials, books and such? Malala was on the world stage, global attention, for **education and teaching**, her father is a teacher. And she came to attention in year 2012 and year 2013, right when Donald Trump popularity is formulating. But people are incredibly avoidant of goodness itself. " It never occurs to them that they could just have an unpopular opinion" - yha, like Neil Postman on media addiction is *unpopular*, and like Malala from Pakistan on education is *unpopular*, and Carl Sagan's 1995 book is *unpopular*. You know what is popular? Americans hate Americans in August 2025. Constantly dunking, insulting, name-calling, hating upon USA people. **Toxic Popularity** of hate magnet Donald Trump. Joe Rogan is popular. Fox News is popular. ===:::
 
 &nbsp;
 
