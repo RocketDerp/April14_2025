@@ -677,3 +677,13 @@ https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_re
 Holiday-Proof9819 2022-07-10
 
 "Things are getting intolerable...... how long are we going to tolerate it? This isn't a question about voting."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9sktka/
+
+EconomicRegret 2023-01-25
+
+"Many/most of us are watching it like entertainment or a show, also many are heavily desensitized. So we're gonna tolerate it for a loooong time..."
+
+&nbsp;
