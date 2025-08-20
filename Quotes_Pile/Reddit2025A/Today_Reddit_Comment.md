@@ -493,3 +493,11 @@ FestusPowerLoL 2014-10-28
 "Because the Twitter propaganda campaign on top of the Charlie Kirks and the Andrew Tates and the Adin Rosses weren't nearly enough."
 
 &nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mvkocz/russia_wants_russia_to_have_veto_over_western/n9r18l8/
+
+JamesTiberiusCrunk 2019-02-11
+
+"He's not even delaying. He's outright refusing to make peace because Trump is dumb enough to think he's really trying to negotiate."
+
+* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions, calling Putin / Kremlin dumb for doing absurd surreal antics politics](Surkovian_Onion_Eating.md). Simplistic one-line Twitter-thinking Tweet-logic reactions, as conditioned by IRA since March 2013. Absurd surreal antics have kept Putin in power for 25 years and defeated the United States of America in information warfare since March 2013. ===:::
