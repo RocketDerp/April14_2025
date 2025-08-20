@@ -19,7 +19,7 @@ When people blame "the media", "the mainstream media",  especially in the USA , 
 
 In the past few years in USA, the term "vibe" has become common way to describe the situation. "vibe coding" for software generation. "vibe politics"
 
-As an autistic person, communications input/output disorder, #AutismSpectrumDisorder 
+As an autistic person, communications input/output disorder, Autism Spectrum Disorder 
 
 I can listen to people and think a lot about how we communicate and say: "vibe media consumption" to "the news", "the mainstream media" - vibe media consumption.  Very reactionary, shallow, superficial, clickbait. Baited by vibe clicking. Baited by vibe like Fox News and Joe Rogan "vibe media".
 
