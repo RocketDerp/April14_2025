@@ -741,3 +741,33 @@ electricshadow 2011-07-13
 "Americans are too apathetic, self centred, and selfish to stop what's happening and when they do clue in, it'll be too late."
 
 * :::=== RoundSparrow_Commentary : The people with spare time, free time, on social media use it to mock and insult poopy diapers and golf outings instead of sharing information about Russian information warfare spreading measles: https://www.bbc.com/news/world-us-canada-45294192 and Russians manipulating people to argue over hurricanes: https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57 - people are too busy making jokes about Trump orange skin over and over in endless loops. Russia won since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pcmasterrace/comments/1mvpveu/it_turns_out_steams_adult_content_ban_has_been/n9ryoha/
+
+Suns_In_420 2022-04-19
+
+"I find it sad they can’t even say rape or incest when talking about it in a news article. The self censorship to appeal to social media is just as bad."
+
+&nbsp;
+
+https://old.reddit.com/r/pcmasterrace/comments/1mvpveu/it_turns_out_steams_adult_content_ban_has_been/n9s6hrs/
+
+LionoftheNorth 2014-02-27
+
+"Being able to induce self censorship is the highest form of power bar none. When you reach that point, you do not even have to overtly restrict free speech, because you have successfully convinced people to not even invoke their rights in the first place.
+
+With that in mind, I have a couple of exceptionally important words to say, just because I can:
+
+Incest rape incest rape incest rape."
+
+&nbsp;
+
+https://old.reddit.com/r/pcmasterrace/comments/1mvpveu/it_turns_out_steams_adult_content_ban_has_been/n9rxdho/
+
+BaconJets 2012-08-10
+
+"RIP fucking *everyone* who scoffed at this being part of a broader political movement. The amount of times I was dogpiled for saying this was insane."
+
+&nbsp;
