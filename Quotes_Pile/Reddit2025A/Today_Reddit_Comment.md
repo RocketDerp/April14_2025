@@ -226,4 +226,14 @@ Justingotgame22 2023-12-16
 
 * :::=== RoundSparrow_Commentary :  People are reacting to the Donald Trump act of Tony Clifton. One way to look at it: [Society of grading and ranking Donald Trump / Tony Clifton turds, media addiction to declaing how bad Donald Trump diaper smells over and over on social media messages](../../Grim_Blunt/Society_of_grading_and_ranking_turds.md) ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/n9p7jqx/
+
+LesnBOS 2021-01-31
+
+"Very good! Except bar stool drunks aren’t ignorant- they are everyone from the top to bottom of the socioeconomic strata. It’s such a general person it’s like saying as someone who wears a flannel shirt.
+
+Maybe as ignorant as a high school drop out working as a grunt for the local crime syndicate"
+
+* :::=== RoundSparrow_Commentary : media ecology! Awareness of inebriated vs. sober. Tired mind worn down by constant Donald Trump meme content machine messages vs. clear thinking mind.  [Joyce drank heavily and habitually from his early twenties to his death](https://www.jstor.org/stable/24598883) ===:::
