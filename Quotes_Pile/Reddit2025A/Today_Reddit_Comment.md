@@ -557,3 +557,11 @@ glyptostroboides 2012-02-17
 "They can’t understand the roasts. They need simple sentences with “EMPHASIZED WORDS” to highlight which part of the sentence they should try to read."
 
 * :::=== RoundSparrow_Commentary : Yes, you may notice my extreme bluntness and repeating. We have been living in total shit thinking since the Russian information warfare took hearts and minds. Neil Postman's 1985 book is much better than my writing, I keep saying that we ALL (every preson age 12 to age 120) need to master the meaning of that 184 page book "Amusing Ourselves To Death". ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mvox1x/jack_white_goes_scorched_earth_on_trump_and_his/n9rsq8h/
+
+monkeymatt69 2019-03-04
+
+"I don’t think I’ve ever heard everything I loathe about Trump so perfectly summed up at once before. One of his “powers” is creating so much havoc it’s hard to remember them all or pick one out of the crowd. I bow to JW and his unparalleled way with words. Holy shit!"
