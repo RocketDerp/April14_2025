@@ -277,3 +277,21 @@ zombiskunk 2013-10-22
 Wait, you're telling me that TX Republicans are now trying to get Democrats to sign fake documents to legitimize their illegal operations and the Democrates are resisting?
 
 Alright, who do we sue for plagiarism?"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_who_dissed_trumps/n9p84mc/
+
+Calcutec_1 2021-08-10
+
+"Worth adding that Jack White is not just a rocker but also a self made businesses owner and a job creator in the American heartland. Conservatives should love him if they weren’t all hypocritical assholes"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_who_dissed_trumps/n9prt6f/
+
+LookLikeUpToMe 2017-03-17
+
+"The only response they have to these criticisms is to call the person a has-been or irrelevant. Trump admin people said the same regarding South Park while it got some of its best ratings with recent episodes. Clown show administration."
+
+* :::=== RoundSparrow_Commentary : To Trump, human beings who developed compassion are has-been failures. “With the rise of Technopoly, one of those thought-worlds disappears. Technopoly eliminates alternatives to itself in precisely the way Aldous Huxley outlined in Brave New World. It does not make them illegal. It does not make them immoral. It does not even make them unpopular. It makes them invisible and therefore irrelevant. And it does so by redefining what we mean by religion, by art, by family, by politics, by history, by truth, by privacy, by intelligence, so that our definitions fit its new requirements. Technopoly, in other words, is totalitarian technocracy.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, **year 1992** ===:::
