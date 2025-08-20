@@ -704,3 +704,20 @@ CallMeParagon 2017-01-15
 
 "It’s fascism. It spreads like a festering rot and changes people. Their minds are rotten with it. Everything to them is a zero sum game now, which means they will support anything at all as long as it means their side wins the game. Any means are justified to their ends. Fairness, honor, truth, hypocrisy… these are now just tools for them to take advantage of against those of us who do value those things."
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9si5d8/
+
+korben2600 2018-07-05
+
+"This. Their entire values and belief system has been permanently modified by decades of indoctrination by extremist conservative media telling them daily that Dems are destroying America and that the cult leader must break some rules to defend it. No different from Nazi Germany. And once the propaganda's rot entrenches itself, it's virtually impossible to stamp out. They will go to their graves with their dumb beliefs.
+
+Consider it took full occupation by foreign powers and decades upon decades for Nazism to disappear from Germany. Even after Allied powers' efforts to de-Nazify, years after the war ended, the truths and horrors being revealed, mountains of contradictory evidence, yet the population wasn't easily deprogrammed. They essentially had to just wait for the older generations to die off.
+
+For instance, in 1952, still 68% of Germans polled believed other countries started the war. It wouldn't be until the 1960s, nearly 20 years after the war, before it was less than a majority. Or in another polling example: a full decade after the war (1955) nearly a majority answered 'yes' to the proposition 'were it not for the war, mustache man would've been one of the greatest statesmen of the 20th century.'
+
+Cult indoctrination is notoriously difficult to deprogram. And we're suffering from a [personality cult](https://en.wikipedia.org/wiki/Cult_of_personality) characteristic of countless failed democracies throughout history. But the inoculation to cult demagoguery is an educated and questioning populace before they succumb to the cult. If Nazi Germany is any indication, odds are the 15-25% of America that are full blown maga won't suddenly have an epiphany and come back to reality.
+
+We're only a few steps away from invocation of the Insurrection Act and deployment of the military into US cities under martial law. And with an arsenal of 5,000 nuclear weapons, we won't have the luxury of being invaded by anyone. This is on us Americans, and Americans alone to fight this evil. Nobody is coming to save us."
+
+* :::=== RoundSparrow_Commentary : This message on Reddit is a big fat denial of the role that Facebook and Reddit and Twitter has played in this, and the timeline of the [November 2012 agreement Trump made with Russia](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) and the Internet Research Agency media invasion... going [online in 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) before Trump's November 2013 trip to Moscow and the [December 2013 Conservative International announcement](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) before the February 2014 Ukraine hot war. Hard EVIDENCE of the IRA activities are analyzed and collected; https://www.bbc.com/news/world-us-canada-45294192 ===::::
