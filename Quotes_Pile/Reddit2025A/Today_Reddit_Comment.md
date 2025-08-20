@@ -388,3 +388,26 @@ Hey_Giant_Loser 2024-12-13 (this year)
 "Jack's right. But honestly, the more we can keep him focused on fucking up the White House it's less time you can devote to fucking up the rest of the world. Let him gild the fuck out of it I don't care"
 
 * :::=== RoundSparrow_Commentary : This is very revealing to the social media society, USA media addict behaviors. The widespread addiction to keeping Donald Trump in office as a magnet for hate messaging. This Reddit meme addict wants more meme content, cravings for the stream of *trickle down images* and antics from Donald Trump playing as Tony Clifton. People are not standing up on social media saying "Dear World, I am sorry, we made a huge bluder in education - we need to rescue people who believe Donald Trump is sincere and factually accurate. We need to teach Neil Postman's 1985 book Amusing Ourselves to Death and face up to our Donald Trump addiction" - and repeat repeating it. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mvhkhk/but_its_okay_for_donny_to_erase_history/n9q98ah/
+
+e-zimbra 2022-07-17
+
+"I thought they hated cancel culture. They’re literally canceling our culture."
+
+* :::=== RoundSparrow_Commentary : The USA population in August 2025 is social media addicts, second hand consumption and direct consumption. One-line twitter-think messaging mania, tweet-thinking like this Reddit message chanting *gotcha* in the style of the MAGA message cult has taken over the entire nation. Simplistic meme-think ideas within echo-chamber reursive logic bouncing. "I thought they hated cancel culture" -is a gullibility crisis that was described Octoboer 19, 2024: ["Human gullibility is not a new phenomenon. But social media and polarized politics are exposing it at industrial scale, fueled by a poisonous cocktail of bad actors, media illiteracy"](https://www.axios.com/2024/10/19/musk-ackman-election-misinformation) . Media addicts repeat MAGA talking points about cancel culture and other topics without being able to describe the forest of this behavior going on for TEN FUCKING YEARS - and not just the immediate media content in front of their touchscreen. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mvhkhk/but_its_okay_for_donny_to_erase_history/n9q6u6u/
+
+AMP_1182 2018-12-01
+
+"Oh, cool, the book burnings have started. I was wondering when that would kick off"
+
+* :::=== RoundSparrow_Commentary :  The USA population in August 2025 is social media addicts, second hand consumption and direct consumption. One-line twitter-think messaging mania, tweet-thinking like this Reddit message chanting. Addicts to The Tony Clifton behaviors of the Trump White House and Kremlin for a decade have been mocking away in predictable patterns, exactly what Surkov information warfare induces. Compsuirvdly addicted to the sitmulation of media content (book media in this sitaution bieng deep symbol in the mind). As Neil Postman wrote in his 1985 book about this kind of one-line Reddit stream of meme *condtioned amusement* thinking:
+* "What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance. Orwell feared we would become a captive culture. Huxley feared we would become a trivial culture" - Amused To Death, 1985.
+Notice the Reddit meme consumer is amused and anticipaing the next act in the Surkov screenplay, Tony Clifton performance art. The media addics of USA, the entire society, doesn't want to face anti-intelleculism with books from Carl Sagan / Neil Postman / Malala / Joseph Campbell / Marshall McLuhan / Martin Luther King Jr ... they are *entire engaged* in mocking the Tony Clifton act. We are living in tolitarian mockery, Surkovian governing Russia year 2011. ===:::
+
