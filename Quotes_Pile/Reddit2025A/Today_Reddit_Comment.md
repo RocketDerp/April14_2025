@@ -374,3 +374,10 @@ RevolutionNumber5 2011-03-13
 * :::=== RoundSparrow_Commentary : denial abounds. Donald Trump brand and mark and children aren't going to disappear. L Ron Hubbard died and Scientology is still repeating. Donald Trump entertainer has gone deep into media addict minds. This kind of thinking is disassocation from reality and the need for Reddit users to deal with thier own media addiciton to shit content every hour of every day... which is why they deny Trump media ecology and Surkov information warfare, because it is meme trash brain-exploiting (Infintie Jest viral) like Reddit consumes. [Donald Trump is Pop Culture King, street gangs of Internet trash-talk meme-addicts, Fox News trash-talk wave rider](../../Grim_Blunt/Donald_Trump_SuperStar.md). ===:::
 
 &nbsp;
+
+"Long after the last douchebag trying to be clever says "You're Fired" tens of thousands of sports fans will chant Jack's music on the regular."
+
+* :::=== RoundSparrow_Commentary : Reddit society, meme addicts of Reddit, constantly chant "hamberders", "Covfefe", etc, etc, and mimic his style, over and over and over on social machines venues. The mob mentalty on Reddit may not like "You're Fired", but the sure think mimicing Donald Trump communications and adopting Trump social media anti-intelelcual attitudes and anti-nonfiction behaviors is clever. They are not self-aware, [Neil Postman's 1985 book about media addiction - "Amusing Ourselves To Death" is cricially important to rescue the USA society](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) from the Trump culture. ===:::
+
+&nbsp;
+
