@@ -171,3 +171,11 @@ RatedRSuperstar81 2021-04-14
 * :::=== RoundSparrow_Commentary : It says we are addicted to fiction in August 2025 and ficiton outsells nonfiction. Surkov won the war since March 2013. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/n9p8f8d/
+
+Optimal_Ad_4846 2021-01-29
+
+"The accuracy is stunning, particularly the part about “America’s shadow made flesh”. This buffoon represents everything we should not be, but are. We have fallen as a nation."
+
+* :::=== RoundSparrow_Commentary : The Fall as expounded in Finnegans Wake, 1924 onward publication. Surkov won the meme war since March 2013. ===:::
