@@ -149,3 +149,12 @@ Conservatives think he's Leonidas.
 We all end up dead either way."
 
 &nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/n9pr5gw/
+
+JohnDivney 2011-04-29
+
+"this is NOT Ai."
+
+&nbsp;
+
