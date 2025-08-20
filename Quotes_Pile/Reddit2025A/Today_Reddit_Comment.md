@@ -303,3 +303,11 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1muxdan/a_guy_lands_a_strong
 https://old.reddit.com/r/mildlyinfuriating/comments/1muxdan/a_guy_lands_a_strong_punch_on_the_machine_but/n9mlu07/
 
 "The internet just sort of trains people to have extreme reactions to things even if it isn't warranted. I honestly view it as a huge modern issue in general - hardly limited to this sub."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1muuk1t/nebraska_voted_5932_in_favor_of_trump_now_they/n9lpgky/
+
+Curious_Twat 2020-10-20
+
+"Imagine it’s 2025 and/or you’re a grown person who still thinks it’s super cool to hate people because of skin color and it’s okay to call people names out of bigotry. The way they brigade on people, even representatives of their own party, calling them and their families the cruelest things and telling them they’re not American is so disgusting. What does any of that accomplish? Who fucking hurt these people?"
