@@ -362,3 +362,15 @@ I call him Twump because I cannot call him by an adult name due to his brat beha
 
 * “Educators may bring upon themselves unnecessary travail by taking a tactless and unjustifiable position about the relation between scientific and religious narratives. We see this, of course, in the conflict concerning creation science. Some educators representing, as they think, the conscience of science act much like those legislators who in 1925 prohibited by law the teaching of evolution in Tennessee. In that case, **anti-evolutionists were fearful that a scientific idea would undermine religious belief. Today, pro-evolutionists are fearful that a religious idea will undermine scientific belief. The former had insufficient confidence in religion; the latter insufficient confidence in science**. The point is that profound but contradictory ideas may exist side by side, if they are constructed from different materials and methods and have different purposes. Each tells us something important about where we stand in the universe, and it is foolish to insist that they must despise each other.”
 ― Neil Postman, The End of Education: Redefining the Value of School, September 1995 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_who_dissed_trumps/n9pl5o5/
+
+RevolutionNumber5 2011-03-13
+
+"I wonder how Trumpy Dumpty feels about the fact that Seven Nation Army will still be chanted in sports stadiums decades from now, he’ll be reduced to an unpleasant footnote, remembered only by academics."
+
+* :::=== RoundSparrow_Commentary : denial abounds. Donald Trump brand and mark and children aren't going to disappear. L Ron Hubbard died and Scientology is still repeating. Donald Trump entertainer has gone deep into media addict minds. This kind of thinking is disassocation from reality and the need for Reddit users to deal with thier own media addiciton to shit content every hour of every day... which is why they deny Trump media ecology and Surkov information warfare, because it is meme trash brain-exploiting (Infintie Jest viral) like Reddit consumes. [Donald Trump is Pop Culture King, street gangs of Internet trash-talk meme-addicts, Fox News trash-talk wave rider](../../Grim_Blunt/Donald_Trump_SuperStar.md). ===:::
+
+&nbsp;
