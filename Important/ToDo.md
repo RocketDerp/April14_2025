@@ -691,3 +691,7 @@ https://old.reddit.com/r/comics/comments/1mum1ts/imagination/
 
 Rick Beato UMC copyright battle    
 https://www.youtube.com/watch?v=zBq_krhKbW4
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1muysc6/idiocracy_took_place_in_the_year_2500_we_got/
