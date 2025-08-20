@@ -694,5 +694,13 @@ extra_less 2009-10-16
 
 "Sooner or later this is going to explode. What happened to the US? Why do so many people in America hate America's Bill of Rights and the rule of law?"
 
-* :::=== RoundSparrow_Commentary : The Internet Research Agency ramped up in March 2013 and mind-fucked all Americans into self-harm and hate upon Americans. We The People lost an information war on the Internet and are so addicted to the hate and dehumanization. USA did not fight an information warfare, people can't even name the IRA and describe the November 2012 scheme: https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ - we ALREDY verified the factaul hard evidence that it goes back to year 2014: https://www.bbc.com/news/world-us-canada-45294192 - but we rather see children die from Measles than pin these stories on the top of every social media website as emergency notices. ===:::
+* :::=== RoundSparrow_Commentary : The Internet Research Agency ramped up in March 2013 and mind-fucked all Americans into self-harm and hate upon Americans. We The People lost an information war on the Internet and are incredibly addicted to the hate and dehumanization ([unwilling to study Marshall McLuhan and fight back](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village)). USA did not fight an information warfare, people can't even name the IRA and describe the November 2012 scheme: https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ - we ALREDY verified the factaul hard evidence that it goes back to year 2014: https://www.bbc.com/news/world-us-canada-45294192 - but we rather see children die from Measles than pin these stories on the top of every social media website as emergency notices. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9s14d5/
+
+CallMeParagon 2017-01-15
+
+"It’s fascism. It spreads like a festering rot and changes people. Their minds are rotten with it. Everything to them is a zero sum game now, which means they will support anything at all as long as it means their side wins the game. Any means are justified to their ends. Fairness, honor, truth, hypocrisy… these are now just tools for them to take advantage of against those of us who do value those things."
 
