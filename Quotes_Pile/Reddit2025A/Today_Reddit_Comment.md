@@ -821,3 +821,15 @@ Nernoxx 2016-03-04
 * :::=== RoundSparrow_Commentary : These kind of social machine messages serve to tell the audience that there is nothing that We The People need to change, just sit back and enjoy the Donald Trump center of attentioon show as you have done for OVER TEN FUCKING YEARS. Fixate on one single person, not hundreds of millions in poulation mind-fucked by Russian information warare. Just sit back and follow the shiny entertainment topic of Donald Trump. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9r5oil/
+
+sniksniksnek 2025-01-10 (new this year)
+
+"Yes. And the press will be all aflutter about how Trump has managed to defy expectations as the United States' first completely incapacitated President. Meanwhile, have you heard that Mamdani is a communist, Biden was old, and Harris laughed?"
+
+&nbsp;
+
+
+
+&nbsp;
