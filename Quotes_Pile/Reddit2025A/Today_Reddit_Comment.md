@@ -215,3 +215,15 @@ Old_Badger311 2024-06-18
 "I’d say it aptly describes our nation at this point, too. We are not great no matter how many times we scream and shout that we are."
 
 * :::=== RoundSparrow_Commentary : how many times we program could computers to repeat the message, programming on Fox News to repeat it. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvbj3y/well_said_and_brutally_accurate/n9p5b5l/
+
+Justingotgame22 2023-12-16
+
+"What the fuck is this administration even? Every single Trump headline is just another announcement of something despicable he has done. Yet no one is protesting on the streets."
+
+* :::=== RoundSparrow_Commentary :  People are reacting to the Donald Trump act of Tony Clifton. One way to look at it: [Society of grading and ranking Donald Trump / Tony Clifton turds, media addiction to declaing how bad Donald Trump diaper smells over and over on social media messages](../../Grim_Blunt/Society_of_grading_and_ranking_turds.md) ===:::
+
+
