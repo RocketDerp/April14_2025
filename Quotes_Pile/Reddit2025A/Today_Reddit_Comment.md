@@ -256,3 +256,24 @@ MonkeyCartridge 2023-09-18
 
 That's why I say "happy spouse, happy house". I'm not putting up with this "it doesn't matter what the truth is, only that I'm right" bs."
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mvfkrq/oc_democratic_rep_mihaela_plesa_tears_her_dept_of/n9pr4c0/
+
+BlogintonBlakley 2019-11-11
+
+"Life would be so much better if we took the entire business and political class, along with their elite sugar daddies, and put them all in suspended animation until we develop the techniques to help them recover from their disease."
+
+* :::=== RoundSparrow_Commentary :  At least people are trying to find messages better than *murder the others I disagree with* that you see on social machines constantly. Science fiction shows like Futuruma depict this partially. Star Trek TNG too. Some man from the 1980's coming into Futurmama year 3000, into Star Trek the TNG time. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mvfkrq/oc_democratic_rep_mihaela_plesa_tears_her_dept_of/n9qa08i/
+
+zombiskunk 2013-10-22
+
+"The Trade Federation tried to get Queen Amidala to sign fake documents to legitimize their illegal operations and she famously resisted.
+
+Wait, you're telling me that TX Republicans are now trying to get Democrats to sign fake documents to legitimize their illegal operations and the Democrates are resisting?
+
+Alright, who do we sue for plagiarism?"
