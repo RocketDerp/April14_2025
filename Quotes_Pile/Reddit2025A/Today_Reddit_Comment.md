@@ -343,3 +343,21 @@ https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_w
 S1gorJabjong 2023-05-23
 
 "OMG LMAO XD. Does he have to react to every goddamn of his haters in the world? Dude's like almost 80 already... and he's the president of the USA."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_who_dissed_trumps/n9pi2bw/
+
+ChooseMercy 2020-01-06
+
+"Twump is so obviously a person of poor moral character as the mountain of black marks against him clearly shows. He is a convicted felon and many of his associates and persons who came to know him well have spoken out regarding his lack of integrity and worse.
+
+The Governor of California (who Twump calls Newscum) has thrown Twump's written hate speech vomit in his face by mocking his disgusting way of belittling anyone who does not offer him their obeisances or even questions anything he does or says. It is very amusing to see how his lackeys are reacting.
+
+As someone watching the fracturing of the USA from the other side of the planet it sickens me that anyone can stand behind such a repulsive person.
+
+I call him Twump because I cannot call him by an adult name due to his brat behaviour."
+
+* :::=== RoundSparrow_Commentary : Casting Donald Trump as a child constaly is Russian mind-fuck outcomes / Cambridge Analytica outcomes. A chld is innocent, not responsible for their actions. Statemens like "I call him Twump because I cannot call him by an adult name" - in other words, this person is describing compusive viewing Donald J. Trump, age 79, as a child in their mind. Because we do not have good models of educating adults. Trump is not being held accountable for inability to distinguish fiction from nonfiction, a very common adult education crisis in year 2025 - not just elderly like Trump - but adults age 23 to age 120. We NEED TO be teaching Neil Postman's body of work to help people recognize the timeline of where we went wrong - as Postman aws excellent at publishing to the general public as these media generation problems developed. As The Church was confronted with 1960's psychodelic rock music and 2001 Space Oddesy, the Church had a choice of marketing The Bible as *the best science fiction story from old times*, but instead they doubled-down and declared The Bible as nonfiction. This has wrecked many minds in society! This was a major mistake.
+“Educators may bring upon themselves unnecessary travail by taking a tactless and unjustifiable position about the relation between scientific and religious narratives. We see this, of course, in the conflict concerning creation science. Some educators representing, as they think, the conscience of science act much like those legislators who in 1925 prohibited by law the teaching of evolution in Tennessee. In that case, **anti-evolutionists were fearful that a scientific idea would undermine religious belief. Today, pro-evolutionists are fearful that a religious idea will undermine scientific belief. The former had insufficient confidence in religion; the latter insufficient confidence in science**. The point is that profound but contradictory ideas may exist side by side, if they are constructed from different materials and methods and have different purposes. Each tells us something important about where we stand in the universe, and it is foolish to insist that they must despise each other.”
+― Neil Postman, The End of Education: Redefining the Value of School, September 1995 ===:::
