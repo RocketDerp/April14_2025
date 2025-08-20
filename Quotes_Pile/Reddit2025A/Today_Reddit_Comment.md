@@ -720,4 +720,15 @@ Cult indoctrination is notoriously difficult to deprogram. And we're suffering f
 
 We're only a few steps away from invocation of the Insurrection Act and deployment of the military into US cities under martial law. And with an arsenal of 5,000 nuclear weapons, we won't have the luxury of being invaded by anyone. This is on us Americans, and Americans alone to fight this evil. Nobody is coming to save us."
 
-* :::=== RoundSparrow_Commentary : This message on Reddit is a big fat denial of the role that Facebook and Reddit and Twitter has played in this, and the timeline of the [November 2012 agreement Trump made with Russia](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) and the Internet Research Agency media invasion... going [online in 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) before Trump's November 2013 trip to Moscow and the [December 2013 Conservative International announcement](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) before the February 2014 Ukraine hot war. Hard EVIDENCE of the IRA activities are analyzed and collected; https://www.bbc.com/news/world-us-canada-45294192 ===::::
+* :::=== RoundSparrow_Commentary : This message on Reddit is a big fat denial of the role that Facebook and Reddit and Twitter has played in this, and the timeline of the [November 2012 agreement Trump made with Russia](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/) and the Internet Research Agency media invasion... going [online in 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) before Trump's November 2013 trip to Moscow and the [December 2013 Conservative International announcement](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) before the February 2014 Ukraine hot war. Hard EVIDENCE of the IRA activities are analyzed and validated: https://www.bbc.com/news/world-us-canada-45294192 ===::::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9s2fgk/
+
+LittleCheeseBucket 2019-07-25
+
+"It’s a multi prong answer really. someone said fascism I agree I also feel like the culture in America is so suppressive, to get one step above your neighbor rather than help them. We’ve lost our humanity - we don’t spend time with our family enough for instance, rather our time is getting swallowed by the greed of corporate interests"
+
+* :::=== RoundSparrow_Commentary : Americans with free time, spare time, use it all to mock and insult on social machines: Trump diapers, Trump orange skin, Trump golf outings, Trump said funny words. Over and over and over FOR TEN FUCKING YEARS. Instead of teaching how all this amusement humor at Trump's poopy diapers - we could be using spare time on social media to teach lessons every 12 hours for years from  Neil Postman's 1985 book "Amusing Ourselves To Death" about this very sitaution. ===:::
+
