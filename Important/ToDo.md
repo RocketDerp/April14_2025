@@ -702,3 +702,8 @@ August 20, 2025
 RFK Jr and autism nonsense  
 https://old.reddit.com/r/politics/comments/1mvcb2u/rfk_jr_vowed_to_find_the_environmental_causes_of/
 
+&nbsp;
+
+Year 1918 choice marriage honesty publications    
+https://old.reddit.com/r/interestingasfuck/comments/1mvf2fy/1918_a_suffragette_tells_young_women_what_to_know/
+
