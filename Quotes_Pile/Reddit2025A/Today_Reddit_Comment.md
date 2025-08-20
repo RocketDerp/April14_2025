@@ -245,3 +245,14 @@ https://old.reddit.com/r/AdviceAnimals/comments/1mvcd5j/donnie_famous_for_never_
 captaingrey 2013-02-03
 
 "It is a loyalty test. Plain and simple. Trump is building his personal brown shirts. Next it will be loyalty tests for the troops. Start giving them some orders that fall into a gray legal area. Those that accept the orders, pass the test. If they hesitate over the orders, they fail and are moved out of DC. Keep increasing the stakes with each order. After a few cycles, he will have his loyal army. That is what is happening."
+
+&nbsp;
+
+https://old.reddit.com/r/GuysBeingDudes/comments/1mvg506/karen_being_herself/n9qa2tb/
+
+MonkeyCartridge 2023-09-18
+
+"I think she is starting to realize when guys her age say "the woman is always right", that's not a compliment...
+
+That's why I say "happy spouse, happy house". I'm not putting up with this "it doesn't matter what the truth is, only that I'm right" bs."
+
