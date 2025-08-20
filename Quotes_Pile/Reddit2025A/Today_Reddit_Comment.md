@@ -522,5 +522,28 @@ BakedBeanFlicker  2022-03-07
 
 * :::=== RoundSparrow_Commentary : "Almost everyone blows trumps actions off like a joke but none of it is funny" - the outcome of the Russian war against reality. Surkov won since March 2013. Neil Postman's 1985 book "Amusing Ourselves To Death" explains how this was possible for Russia to win the information war into turning all things into joke humor absurd surreal funny. "Almost everyone blows trumps actions off like a joke but none of it is funny" - Americans have all blown their minds on Tomy Clifton act that Trump does. ===:::
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mvox1x/jack_white_goes_scorched_earth_on_trump_and_his/n9s241t/
+
+PeopleFunnyBoy 2012-11-13
+
+<img width="1284" height="1498" alt="image" src="https://github.com/user-attachments/assets/ce6406da-c4bf-49c4-bd75-edf6cc96d9b3" />
+
+&nbsp;
+
+"I am at a similar point with this.
+
+I also agree with Jack - it has all been transparent to me from the start a decade ago. But all of his failings and shortcomings as a business man, family man, politician, and general citizen have been laid out ad nauseam at this point.
+
+It really boils down to him being a reflection of the American people at this point. The problem is us, not really him anymore. We have invited this and have changed the course of our society, culture, politics, and economy.
+
+Whatever comes after this won’t be easy to dial back. As much as I want him to fail because I think he’s terrible, it also means my county will have to fail too. That is not something I want to see.
+
+I love being an American but not in this way. Let’s hope we can thread the needle and come out of this in a better way somehow."
 
 
+* :::=== RoundSparrow_Commentary : "reflection of the American people at this point. The problem is us, not really him anymore" - yes, and as Carl Sagan called it as a warning about the future, ***Celebration of Ignrorance*** Donald Trump is the celebraation of Russian information warfare apathy. Carl Sagan called it **Celebration of Ignorance** Donald Trump is the elebration of Twitter-logic Tweet reactionary thinking. Donald Trump is the celebration of Reddit and Fox News meme garbage.
+* “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ===:::
