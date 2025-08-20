@@ -346,3 +346,24 @@ I just know that it's their fault, and that a true MAGA spells her name Hitlery.
 
 &nbsp;
 
+https://old.reddit.com/r/AskReddit/comments/1mv2753/why_the_f_did_we_stop_talking_about_epstein/n9n3uu9/
+
+Exciting_Telephone65 2022-06-27
+
+"His name is posted about 500 times per day on the subs I follow alone"
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mv2753/why_the_f_did_we_stop_talking_about_epstein/n9n51xm/
+
+MyUsernameIsForSale 2025-03-11 (new this year)
+
+"Because the media machine moves really fast. Does anyone talk about MeToo anymore? What about BLM? What about the war in Ukraine? Once the momentum is gone, it's gone"
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1mv2753/why_the_f_did_we_stop_talking_about_epstein/n9n5w86/
+
+robbob19 2012-12-13
+
+"Because most people realise that just like every other big reveal (Panama papers, Snowden files etc), nothing will change and some high paid lawyers will ensure their clients never face the consequences. The only reason it's news now is because one of his mates/clients decided it was a good idea to both be associated with him and become President. Normally when someone goes into politics they try to hide their past indiscretions, not Trump, there isn't enough carpet in the White House to sweep all his shit under 😂."
