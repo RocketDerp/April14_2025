@@ -454,8 +454,24 @@ Robert De Niro on Donald Trump: “It’s about right and wrong. Period. The guy
 
 "They are never banning Tiktok while it serves as a great tool for their uses. I saw more people upset about Tiktok getting banned than really any specific political issue in my adult life."
 
-* :::===  TikTok White House, Surrkovian - [Everything is media ecology](../../Media_Ecology/Everything_is_ME.md) ===:::
+* :::=== RoundSparrow_Commentary : TikTok White House, Surrkovian - [Everything is media ecology](../../Media_Ecology/Everything_is_ME.md) ===:::
 
 &nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mvjjwo/white_house_launches_tiktok_account_less_than_one/n9qr7i4/
+
+Aeroknight_Z 2020-08-20
+
+"The right functionally never planned to.
+
+They recognized the power it had to reach so many young minds and wanted it for themselves. TikTok is a golden goose. They want the goose alive and for themselves, not dead.
+
+They’ve spent this entire time attempting to force bytedance to sell it to an American company that the federal government could control.
+
+TikTok absolutely represents a problem for humanity in the way its algorithm can and has shaped peoples minds, meaning the best choice is to perform a series of studies to analyze its effects, identify any problematic outcomes it contributes to, issue ultimatums on changing such effects, create a group within the government to monitor the ongoing effect for changes that violate whatever standards are being set, and in the event of the parent company refusing or failing to comply then drafting a piece of legislation that bans said platform.
+
+The right wants to snake it so they can turn it into a propaganda machine for themselves. If trump could, I’m certain he’d force them to sell it to his “social media” company and rebrand it as “TrumpTok” or some other asinine thing."
 
 &nbsp;
