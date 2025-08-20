@@ -435,3 +435,16 @@ As a Canadian, y'all messed up the world, not voting for this guy. Imagine *his*
 USA social media addictts / media junkies to Trump content have zero sense of civic duty to defend American hearts and minds from Putin's meme warfare. People addicted to insulting Trump are silent on the topic of the media invasion except to say "Russian bot", meme addicts can't name any dates / timelines / players / techniques / book authors / [Surkov techniques](https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/) / etc. People in USA have lost their hearts and minds to mocking and insulting Donald Trump topics: dirty diapers, orange skin color, golf course outings, etc, etc. **Even AFTER Trump-thinking was ruling USA, Bernie Sanders announced a 2nd run February 19, 2019** - and people STILL didn't face up to the ONE WEEK EARLIER [February 12, 2019 mocking by Surkov in Newsweek](https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793). Surkov won since March 2013, Russia won the information war. Meme addics of USA can not resist Trump's fiction content creation. ===:::
 
 &nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mvijsn/robert_de_niro_on_donald_trump_its_about_right/
+
+Robert De Niro on Donald Trump: “It’s about right and wrong. Period. The guy’s a monster. It’s beyond wrong. It’s almost like he wants to do the most horrible things that he can think of. It’s fucking scary.”
+
+* :::=== RoundSparrow_Commentary : Front page of Reddit. People can not see what Robert DeNiro is saying in clear language. Russia and Cambridge Analytica since March 2013 have fucked the minds of We The People so badly, Reddit users being front line of the mind-fucking, that they can't face up to reality of having lost an information war to Putin. Surkov won, people are blind to the need to rescue MAGA with cult depgroamming and emergency media ecology teaching. People just keep posting meme after meme on Reddit and not organizing counter-measures (Neil Postman payloads). Meme addicts can't stop compusively mimicing and mocking wtih Donald Trump as the nation is wrecked by attraction to badness itself. ===:::
+
+&nbsp;
+
+&nbsp;
+
