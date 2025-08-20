@@ -501,3 +501,14 @@ JamesTiberiusCrunk 2019-02-11
 "He's not even delaying. He's outright refusing to make peace because Trump is dumb enough to think he's really trying to negotiate."
 
 * :::=== RoundSparrow_Commentary : [Eating the Surkovian onions, calling Putin / Kremlin dumb for doing absurd surreal antics politics](Surkovian_Onion_Eating.md). Simplistic one-line Twitter-thinking Tweet-logic reactions, as conditioned by IRA since March 2013. Absurd surreal antics have kept Putin in power for 25 years and defeated the United States of America in information warfare since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mvkocz/russia_wants_russia_to_have_veto_over_western/n9re26m/
+
+EditRemove 2022-07-10
+
+"Russia couldn't beat Wisconsin in a war, they are a joke."
+
+* :::=== RoundSparrow_Commentary : People on social media and the Twitter-length Tweet-thinking MAGA attitudes. A USA pupulation so mind-fucked by Russia into fiction that one-line comments like this are popular. The Taliban in Afghanistan defeated the USA military after 20 years, as Chicago's Roger Ebert predicted a decade earlier: ["It raises for me an obvious question: How can this war possibly be won?"](https://www.rogerebert.com/reviews/restrepo-2010#google_vignette) ===::
+
