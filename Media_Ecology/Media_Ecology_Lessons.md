@@ -371,3 +371,13 @@ https://www.youtube.com/watch?v=1Xv2kTn-Wac
 Topics: Like getting a concert ticket months in advance, the line of ticket purchase for assigned seatings. Season seat passes for sports stadiums. Downloading large files.   
 
 https://old.reddit.com/r/pcmasterrace/comments/1mv7qkq/no_wifi_at_home_how_to_download_heavy_games/
+
+&nbsp;
+
+### The candybar is the message
+
+&nbsp;
+
+Prank culture, ritual hazing, ritual hurdles, jump through hoops, courtship, friendship, relationship, indctrination, double-down rituals.   
+
+https://old.reddit.com/r/comics/comments/1mvjuva/liam_pranks_gator_days/
