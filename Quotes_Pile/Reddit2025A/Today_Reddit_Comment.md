@@ -316,3 +316,30 @@ One one hand cutting government expenses, firing long term employees, and on the
 
 * :::=== RoundSparrow_Commentary : No one wants to stop Donald Trump because for 10 years it has been onstop social media addiction to mocking and insutling how bad Tony Clifton act is on stage. Surkov media systems adapted to Tony Clifton. People can not resist the Trump notification opera, antics politics. Sobering up with Neil Postman's 1985 "Amusing Ourselves To Death" media ecology addresses the root addiction issues of TCP/IP network delivered Trump content. USA population, We The People, can admit we took electric media networks too far and a Reality TV super-star, greatest Tony Clifton actor i all human history, drove us off a media addiction cliff. We have *an out* if we use Neil Postman's 184 page book... and we all start repeating it as *We The People* admitting our media ecology oversight in education. The USA created the Internet, but we did not listen to wisdom from previous electric media generations - we did not pass down Neil Postman to prepare for the Apple iPhone / Apple iPad society. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_who_dissed_trumps/n9pnji2/
+
+TintedApostle 2020-01-15
+
+"It seems to me that the standard MAGA response is to be outraged. Why? It is a fascist approach to making people bow down. If you are trying to take over power than anyone who criticizes you is an enemy.
+
+“Those who are determined to be ‘offended’ will discover a provocation somewhere. We cannot possibly adjust enough to please the fanatics, and it is degrading to make the attempt.”
+
+― Christopher Hitchens
+
+But even more to the point...
+
+“I'm very depressed how in this country you can be told "That's offensive" as though those two words constitute an argument.”
+
+― Christopher Hitchens"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mvcoj5/white_house_rages_at_rocker_who_dissed_trumps/n9pfphp/
+
+S1gorJabjong 2023-05-23
+
+"OMG LMAO XD. Does he have to react to every goddamn of his haters in the world? Dude's like almost 80 already... and he's the president of the USA."
