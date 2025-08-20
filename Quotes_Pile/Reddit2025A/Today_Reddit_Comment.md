@@ -475,3 +475,13 @@ TikTok absolutely represents a problem for humanity in the way its algorithm can
 The right wants to snake it so they can turn it into a propaganda machine for themselves. If trump could, I’m certain he’d force them to sell it to his “social media” company and rebrand it as “TrumpTok” or some other asinine thing."
 
 &nbsp;
+
+I_eat_mud_ 2021-12-07
+
+https://old.reddit.com/r/nottheonion/comments/1mvjjwo/white_house_launches_tiktok_account_less_than_one/n9r5f92/
+
+"The White House page is just getting flooded with comments about Epstein and him sucking off Putin.
+
+Ironically, maybe it'll actually push them to go through with the ban lmao"
+
+&nbsp;
