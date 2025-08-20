@@ -732,3 +732,12 @@ LittleCheeseBucket 2019-07-25
 
 * :::=== RoundSparrow_Commentary : Americans with free time, spare time, use it all to mock and insult on social machines: Trump diapers, Trump orange skin, Trump golf outings, Trump said funny words. Over and over and over FOR TEN FUCKING YEARS. Instead of teaching how all this amusement humor at Trump's poopy diapers - we could be using spare time on social media to teach lessons every 12 hours for years from  Neil Postman's 1985 book "Amusing Ourselves To Death" about this very sitaution. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mvpbug/watch_as_texas_state_rep_collier_says_shes_forced/n9sa8w2/
+
+electricshadow 2011-07-13
+
+"Americans are too apathetic, self centred, and selfish to stop what's happening and when they do clue in, it'll be too late."
+
+* :::=== RoundSparrow_Commentary : The people with spare time, free time, on social media use it to mock and insult poopy diapers and golf outings instead of sharing information about Russian information warfare spreading measles: https://www.bbc.com/news/world-us-canada-45294192 and Russians manipulating people to argue over hurricanes: https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57 - people are too busy making jokes about Trump orange skin over and over in endless loops. Russia won since March 2013. ===:::
