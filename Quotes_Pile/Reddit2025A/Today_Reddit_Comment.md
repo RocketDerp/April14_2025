@@ -868,8 +868,22 @@ ZoomZoom_Driver 2023-01-26
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9s0m63/
 
-noestaaqui99 2022-10-07 (Putin's birthday, one year before Putin's Birthday terrorism Palestine attack)
+noestaaqui99 2022-10-07 (Putin's birthday, one year before Putin's birthday terrorism Palestine attack)
 
 "They genuinely believe it though. That parasocial relationship dynamic is critical to his support. They genuinely believe he cares about them individually. It would be pitiable if everyone involved wasn't so horrible."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9s5obn/
+
+DoJu318 2014-10-03
+
+"All you have to do is read the cringy emails they send out when asking for donations.
+
+"President Trump is gathering a list of his most loyal supporters, he will be disappointed if your name is not on that list, donate today a minimum of X to show your support in making America great again"
+
+And the dummies fall for it all the time."
+
+* :::=== RoundSparrow_Commentary : "All you have to do is read the cringy emails they send out" ... All you have to do is read and analyze the cringy social media content people share and flock to on Bluesky, Reddit, Twitter, TikTok to see [Neil Postman's 1985 Amusing Ourselves To Death book ideas](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) and Donald Trump playing Tony Clifton act goes together with Surkov [Kremlin information warfare since March 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america). ===:::
 
 &nbsp;
