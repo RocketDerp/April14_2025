@@ -1159,3 +1159,11 @@ ProtectionOne9478 2022-04-11
 I hate Trump as much as the next person with a brain but let's not pretend this behavior is unique to one side."
 
 &nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvxdn8/newsom_responds_to_bed_bath_and_beyond/n9tl3kk/
+
+PixelBrewery 2014-07-22
+
+"I like it as a form of mockery against Donald Trump because he's a piece of shit. I don't like it as a new model for all Democrats to become exactly like Donald Trump"
+
+&nbsp;
