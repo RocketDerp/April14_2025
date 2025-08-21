@@ -1072,3 +1072,8 @@ TheMonsterMensch 2019-08-01
 
 &nbsp;
 
+https://old.reddit.com/r/goodnews/comments/1mvtsln/its_time/n9sqv9f/
+
+Bluedogpinkcat 2018-12-30
+
+"Hell no. We need real change. AOC!!!!!!!!"
