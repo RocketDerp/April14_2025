@@ -894,7 +894,7 @@ nightwyrm_zero 2017-02-04
 
 "The letter is a prayer but addressed to Trump instead of Jesus. By writing it, the dad can feel like he's done something, even though it has the same effect as a prayer to Jesus."
 
-* :::=== RoundSparrow_Commentary : Media cult behavior, like a cargo cult. Bible and Quran (Jesus is in Mohammad's Quran retcon) are science fiction stories imported from the Levant. Donald Trump is a Reality TV and Truth Social fiction content creator. Addiction to fiction storytelling is a core understanding at getting to the root of why people are attracted to the hate and mocking Donald Trump. People avoidant of nonfiction and attracted to fiction Fox News / fiction Trump / fiction memes / fiction Russian information warfare content. Letters to Santa for Chirstmas are similar fiction content addictions. Donald Trump has made himself mythological. As Carl Sagan said in January 1939 about Adolph Hitler, [*"So you see, Hitler is a medicine man, a spiritual vessel, a demi-deity or, even better, a myth."*](../Doctors/Carl_Jung_on_Hitler.md). ===:::
+* :::=== RoundSparrow_Commentary : Media cult behavior, like a cargo cult. Bible and Quran (Jesus is in Mohammad's Quran retcon 600 years later) are science fiction stories imported from the Levant. Donald Trump is a Reality TV and Truth Social fiction content creator. Addiction to fiction storytelling is a core understanding at getting to the root of why people are attracted to the hate and mocking Donald Trump. People avoidant of nonfiction and attracted to fiction Fox News / fiction Trump / fiction memes / fiction Russian information warfare content. Letters to Santa for Chirstmas are similar fiction content addictions. Donald Trump has made himself mythological. As Carl Sagan said in January 1939 about Adolph Hitler, [*"So you see, Hitler is a medicine man, a spiritual vessel, a demi-deity or, even better, a myth."*](../Doctors/Carl_Jung_on_Hitler.md). ===:::
 
 &nbsp;
 
@@ -977,3 +977,21 @@ Democrat Tariffs Are Raising Taxes on all American by More Than 30%!!!! Small Bu
 These supporters see Trump is doing taxing them into bankruptcy and business failure, and instead of getting angry about it, these bozos are pleading with him to reconsider. As if.
 
 The media is, of course, "ho hum it's okay if you're a Republican taxing the shit out of Americans". If Biden were doing this it would be doom headlines every single hour."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9s4ulh/
+
+jimbo831 2010-11-12
+
+"One of the few things Trump has been most consistent on is tariffs. How do these people vote for him then act shocked that he is doing tariffs?"
+
+* :::=== RoundSparrow_Commentary : It was disclosed in a book published **year 2019** about the trade war, LONG BEFORE "Project 2025". 2019: "What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019** ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9s1t98/
+
+hellogoawaynow 2016-08-11
+
+"Trump’s social media presence has really made a lot of people think that he cares about them in particular. Like lol you wrote a letter about this to the White House? As if someone besides *maybe* an intern is going to read it? They legitimately think that Trump himself is reading letters from the people who voted for him and it’s wild."
