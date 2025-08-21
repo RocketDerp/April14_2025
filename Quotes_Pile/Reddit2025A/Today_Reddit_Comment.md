@@ -612,3 +612,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1mweg5p/this_is_a_literal_s
 "This is literally to show the rest of the world that Putin has Trump by the balls."
 
 &nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mweg5p/this_is_a_literal_shot_across_the_bow/n9x3kk4/
+
+DeaddyRuxpin 2016-12-17
+
+"At this point I think Putin is just trolling the American public. He wants to keep pointing out how Trump is pathetic and completely under Putin’s control."
+
+&nbsp;
