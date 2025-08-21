@@ -1239,3 +1239,11 @@ https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_
 SargeantSasquatch 2012-12-19
 
 "I wish people would stop focusing on the Epstein files while Trump is dismantling our democracy. How have y'all not figured out yet that his supporters don't care?"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9u7px8/
+
+fractiousrhubarb 2013-11-09
+
+"Trump and the GOP are just Murdoch and Putins implementation department"
