@@ -847,3 +847,39 @@ Jaded_Jellybean 2023-05-31
 "There's nothing progressive about using generative AI. Fuck anyone willing to destroy the planet regardless of party."
 
 * :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_manic_fascist_rantand/n9wl5xj/
+
+geoken 2008-06-06
+
+"I think at this point the 'stop trying to distract from Epstein' crowd isn't doing anything but minimizing the biggest fascist overtures they've made yet.
+
+Casting something as a distraction makes it seem less important and troubling than it actually is. They'd likely prefer that all the recent actions be categorized as distraction because it makes people pay less attention to them."
+
+* :::=== RoundSparrow_Commentary : Fiction QAnon fantasy outsells nonfiction. Instead of people addressing the meme addiciton crisis and cult of memes directly, people keep feeding Epstein private jet sex fantasy topics. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_manic_fascist_rantand/n9wlqye/
+
+Duster929 2020-08-20
+
+"Yeah, I think at this point we need to realize that they're using the Epstein files to distract from the fascist coup."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_manic_fascist_rantand/n9wj7cn/
+
+relax_live_longer 2012-01-31
+
+"If the American voting public actually paid attention to anything they would be horrified by Stephen Miller. Too bad they can't pay attention to anything that isn't in their immediate field of vision."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_manic_fascist_rantand/n9wx21m/
+
+Convergecult15 2015-07-26
+
+"The boomers built a system and molded a society so shield themselves from consequences, and it worked flawlessly until Trump. Congress ceded all power to the President so that they’d have an eternal scape goat for their lack of action on literally anything that may upset people, they left the back door open because they were worried about the neighbors peeping in the windows."
