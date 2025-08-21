@@ -522,3 +522,11 @@ ArrivesLate 2016-04-04
 * :::=== RoundSparrow_Commentary : Eating the Surkovian onions, eating the Tony Clifton act of Donald Trump. Surkov governing has been going on by [Trump since his November 2012 agreement with the Kremlin to use Cambridge Analytica](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/). Like a long-running television show (that has episodes every day, 365 episodes a year), there are changes as seasons have different writers and different tastes in the audience are manipulated / exploited. Donald Trump is an exploitation media star. People who hate Trump are attracted to hate itself. Media addiciton as described in Neil Postman's 1985 book "Amusing Ourselves To Death" explains how this is possible. ""He has always been dumb" Reddit comment is like calling Andy Kaufman dumb for creating Tony Clifton performance. Trump is not *media dumb*, he is the most successful media star in all human history. Turmp has bamboozled the ENTIRE POPUALTION, 100%, not just MAGA, not just Republicans. Putin and Kremlin using Surkov techniques have fed the media addiciton by manipulating minds in society via meme warfare / Internet delivery (Putin's IRA) since March 2013. [People are in massive denial of the evidence and social media addicts can't discuss the hard factual evidence validated by George Washington University and Johns Hopkins University going back to year 2014](https://www.bbc.com/news/world-us-canada-45294192). ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1mw8rxk/trump_and_melanias_scammy_meme_coins_have_lost/n9wqvy2/
+
+thotfullawful 2018-12-28
+
+"You also have to think how much stress he's under from all sides. Lying and keeping up with constant threads, backlash from a failing economy by design, half of the staff he brought on can't keep their own story straight so he has to monitor them to keep up with the lies, Putin not particularly happy if he doesn't answer a single call, everyone constantly bringing up his best friend Epstein and just how much he loves little girls. Stress is a huge killer, and with the poor circulation something will break in a way that not a single doctor can fix- because he deported them."
+
+&nbsp;
