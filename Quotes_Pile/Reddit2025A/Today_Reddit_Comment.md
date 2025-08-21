@@ -320,3 +320,11 @@ https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_heal
 Year1951 2022-04-13
 
 "Maybe he is trying to save Russian soldiers bc we know he is not trying to save us."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_health_concerns_after/n9w9rih/
+
+Buffednerf 2017-06-05
+
+"Russians need free healthcare and free food and other free things. Maybe hes finally agreed to help his best bud Putin out."
