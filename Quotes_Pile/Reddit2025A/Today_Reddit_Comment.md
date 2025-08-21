@@ -307,3 +307,16 @@ https://old.reddit.com/r/MurderedByWords/comments/1mwbw4o/thats_what_satire_is/
 
 &nbsp;
 
+https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_health_concerns_after/n9wlch8/
+
+WokNWollClown 2025-01-30 (new this year)
+
+"Yea cause all these Christians are so fucking moral lately...."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_health_concerns_after/n9w0y6c/
+
+Year1951 2022-04-13
+
+"Maybe he is trying to save Russian soldiers bc we know he is not trying to save us."
