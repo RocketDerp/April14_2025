@@ -1012,3 +1012,10 @@ BreadConqueror5119 2018-06-18
 
 "No republican believes in free speech, they want to be protected from the truth that their political ideology is based on hate and supremacy, not inclusion and democratic values. In short they are all un American as hell."
 
+&nbsp;
+
+https://old.reddit.com/r/Wellthatsucks/comments/1mvq2g9/times_are_tough_especially_in_the_deli_department/n9stj8g/
+
+Throwaway2562613470 2015-12-05
+
+"The world just hates people with special needs. It's a crewl place out there."
