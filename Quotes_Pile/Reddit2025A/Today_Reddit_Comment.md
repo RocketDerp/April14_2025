@@ -404,3 +404,13 @@ mabhatter 2012-08-13
 "There is no heaven or hell.  He brainwashed all those parents and abused all those kids for nothing."
 
 * :::=== RoundSparrow_Commentary : My stance is *we do not know*, and it is a fundamental mistake to declare the Bible or Quran or Torah as ***one and only one perfect science fiction storybook**. The entire public library of all oral tradition and written stories and art work should be viewed. Not just the most popular and your paren'ts story. A new metaphor of heaven, a new science fiction story, can still be created next week and released as film or YouTube or even a Reddit posting. Declaring the Bible as nonficiton or the Quran as nonfiction is a self-harm of humanity. ALL the public library has ideas and concepts. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mwdfat/james_dobson_influential_founder_of_conservative/n9wo093/
+
+VampireOnHoyt 2025-01-21 (new this year)
+
+"There's an entire generation of us who have spent decades in therapy to try and undo the consequences of his parenting advice."
+
+* :::=== RoundSparrow_Commentary : Please also focus on the role model Fox News and Donald Trump has provided to children for the past 10 years. ===:::
