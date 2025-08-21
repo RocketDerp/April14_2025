@@ -907,3 +907,9 @@ hellogoawaynow 2016-08-11
 Normally, I’d say a 2nd term president doesn’t care because they can’t run again, but we all know the plan here."
 
 &nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9s4vjq/
+
+hollow114 2013-01-02
+
+"The Venn diagram of people who think they have a personal relationship with God and Trump voters who think he cares about them is likely a circle"
