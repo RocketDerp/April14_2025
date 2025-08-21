@@ -221,3 +221,13 @@ UpbeatAccountant3710 2021-05-17
 "100%. Trump is the guy that is going to get as much as Project 2025 done. When he pops his clogs Vance will step in and Thiel will pull strings. So fucking sad what's happening over there. Gonna affect everyone on the planet. Would never consider visiting the States now."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vwtzy/
+
+Syntaire 2013-09-11 (9/11)
+
+"That's the really crazy part. He was a weak, pathetic pile of human-shaped garbage even in 2016, but at least his word vomit pretended to sound somewhat coherent, sometimes. While he was campaigning last year it was so obvious that he's in rapid cognitive decline. Even just comparing August 2024 Diaper Donnie to today's it's ridiculous how far he's degraded."
+
+* :::=== RoundSparrow_Commentary : Look at the trash on every social media system. People flock to shit, people in USA are entirely addicted to what this Reddit user calls "word vomit", the more Donald Trump behaves like Tony Clifton, the more meme addicts (We The People, all inclusive) flock with their horrible taste in emdia consumption. Donald Trump provides endless stimulation to meme addicts who play crave any fiction story. People are compeletely repulsed by nonfiction authentic learning. People are addicted to the Kremlin War Against Realty / War Against Nonficiton that started March 2013. It is not just ONE MAN, Donald Trump, the trash media is all over Reddit and Fox News - and peple on social machines can't stop chanting "couhc couhc couhc" whenever JD Vance comes up, etc. It is the anti-intellectulism, the ficiton addiction, driving USA population. Surkov won, Russia won since 2013. ===::::
+
+&nbsp;
