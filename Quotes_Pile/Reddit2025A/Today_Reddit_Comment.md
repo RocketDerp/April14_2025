@@ -1303,3 +1303,19 @@ https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_
 Sweatytubesock 2016-08-04
 
 "It was inevitable that this kind of shit would happen if Trump and his scumbag cronies were put in power again, but special marks for the absolutely worthless and supine Fox news party senate for rubber stamping all of these completely incompetent clowns to important positions in government. The country is eventually going to pay a very high price for it, and it will be entirely on the hands of these cowardly and completely unserious assholes."
+
+&nbsp;
+
+# Thursday August 21, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mw5cun/russian_missile_strike_hits_usowned_factory_in/n9v41fq/
+
+world_weary_1108 2025-01-16 (new this year)
+
+"He is pissing on you guys and laughing about it to his people.
+
+why is it so hard for the US to understand this.
+
+The rest of the world sees it clearly."
