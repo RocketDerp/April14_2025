@@ -1210,6 +1210,10 @@ It’s been waged online and through misinformation. Our adversaries are kicking
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9u6b1l/
 
+ratlunchpack 2015-02-09
+
+"Frankly, just nuke me now. I’m sick of this clown show. At least it would be quick and easy for me and my friends."
 
 &nbsp;
