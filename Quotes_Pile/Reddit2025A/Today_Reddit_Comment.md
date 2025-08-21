@@ -637,6 +637,22 @@ BalanceTraining 2020-10-06
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mwbmci/trump_steps_back_from_russia_and_ukraine_peace/n9wi0na/
 
+PrivacyBush 2024-05-02
+
+"It was worse than a waste of time. The traitor is actively spouting Russian talking points,, such as land given to Russia and stopping mail in voting. 
+
+The pedophile / traitor had some answering to do."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mwbmci/trump_steps_back_from_russia_and_ukraine_peace/n9wchb6/
+
+epicredditdude1 2019-11-17
+
+"He got the soundbytes of all the European leaders kissing his ass, he got the photo ops of him smiling and shaking hands with world leaders, and he got the news talking about him, so he got what he wanted.
+
+This was never about peace."
 
 &nbsp;
