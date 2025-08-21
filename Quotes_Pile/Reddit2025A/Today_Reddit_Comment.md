@@ -386,3 +386,14 @@ Think_Pride_634 2024-08-14
 And I think you're kidding yourself if you think "he doesn't have the pull of trump", it's not Trump, it's Peter Thiel and Billionaires money having influence over politics right now, everything else is just a show for the masses."
 
 * :::=== RoundSparrow_Commentary :  "just show for the masses" - the Tony Clifton act will become tedius for the audience *at some point*, despite the entire population reveling in the mockery and hate and dehumanization of the Tony Clifton performance of Trump, the anti-Canada anti-Greenland anti-NATO waves will continue to be exploited by China and Russia and the anti-goodness campaign of Putin and Trump will be seen by everday people. Trump could become a scaptegoat, as so many USA people are screaming at MAGA to wake up. But it will not be an authentic media addiction wake (Dublin Finnegans Waie, 1924 publication onward), it will just b onion peeling of a few layers of the largest onion in all human history in terms fo monomyth fiction patterns. The Kremlin won the information war since March 2013, addiciton to fiction runs incredibly deep in USA population, meeme addiciton isn't being addressed. Neil Postman's 1985 book 'Amusing Ourselves To Death" on media ecology (electric media, Fox News, Reddit, Bluesky, Twitter, TikToK, etc) tries to explain. The older 1985 book perspective is key to getting people to realize how much social media addiciton has come to direct life in USA. Donald Turmp is a huge junkie to memes and trash Internet content / TV content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_health_concerns_after/n9whm24/
+
+DanielDEClyne_writes 2022-12-15
+
+"Public support for the leader doesn’t matter once you’ve established a sufficient security apparatus to punish opponents"
+
+&nbsp;
+
