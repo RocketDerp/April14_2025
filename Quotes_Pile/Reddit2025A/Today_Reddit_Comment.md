@@ -328,3 +328,38 @@ https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_heal
 Buffednerf 2017-06-05
 
 "Russians need free healthcare and free food and other free things. Maybe hes finally agreed to help his best bud Putin out."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_health_concerns_after/n9vk4er/
+
+Vyzantinist 2017-01-17
+
+"When Trump dies, MAGA implodes.
+
+There is no heir to the throne. If Trump wanted MAGA as a movement to outlast him he'd have groomed a successor and familiarized the base with them, but he can't abide the spotlight being on anyone but himself so he hasn't. When he dies, conservative notables will nominate themselves as his "spiritual successor" and try to capture the MAGA vote. But there's no one on the scene who comes anywhere near being Trump's obvious follow-up, so the base will tear itself apart in factional infighting."
+
+* :::=== RoundSparrow_Commentary : When dealing with widespared fiction addiction, it is important to study comparative mythology. Trump is mythological, a *myth*. L Ron Hubbard, Mohammad - both dead, but the fiction media story continues of the Quran and Scientology storytelling. Fox News since October 7, 1996 has planted parts of a mythological story of a type of leadership and billionare worship (wealth televagelsim) that goes beyond Donald Trump and Putin worshiping. Elon Musk is being worshiped with Twitter media venue. Rupert Murdoch worship has been very successful. Surkov Kremlin + Cambridge Analytica information warfare since March 2013 has put is way deeper into mythological monomyth fiction patterns. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_health_concerns_after/n9vxffz/
+
+ExMoFojo 2013-08-29
+
+"I disagree. They don't actually need charisma. Trump is the wrench in the gears, he's the wild card that holds them back from moving even more quickly on all of these things. The rest of JDs cronies are already installed in every major tech company and key government positions. Things will fly when they can finally get rid of Trump.
+
+And I think the slow release of Epstein files is just to give Trump time to die before it causes them bigger issues. Once he's dead they can say fuck it and put that behind them too.
+
+I do think the base will be fragmented, but they've got plenty of time to essentially end the midterm elections, and these idiots still won't vote for a Democrat but they'll stand in line all day to vote for someone they don't like."
+
+* :::=== RoundSparrow_Commentary : https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s "But curiosity began to creep from underneath the bed... Of toil and doctrine **and the marionettes awaken into a nightmare**. Now we see the warning sign... We'll disobey our Frankenstein" ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_health_concerns_after/n9vygtb/
+
+Vyzantinist 2017-01-17
+
+"Yes, that's why Trump's backers are trying to rush through totalitarian control - they know the base is going to fragment when he croaks."
+
