@@ -898,5 +898,12 @@ nightwyrm_zero 2017-02-04
 
 &nbsp;
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9s370a/
+
+hellogoawaynow 2016-08-11
+
+"I just wrote a similar comment. I think trump’s social media presence makes these people think they are personally connected to him and he genuinely cares about them and their little feelings. We all know they would vote for him again, including Trump and his staff, so he doesn’t actually have to do shit for them to get their vote or support.
+
+Normally, I’d say a 2nd term president doesn’t care because they can’t run again, but we all know the plan here."
 
 &nbsp;
