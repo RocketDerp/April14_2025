@@ -1140,3 +1140,22 @@ wRADKyrabbit 2025-05-07 (recent account)
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mvxdn8/newsom_responds_to_bed_bath_and_beyond/n9tptlc/
+
+FuckwitAgitator 2024-06-22
+
+"Of course they would. Russians are encouraged to be xenophobic and grovel to their violent, authoritarian leader and Democrats are encouraged to be good people.
+
+They're basically saying "I'd rather war, poverty and oppression than to treat others with basic decency"."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvxdn8/newsom_responds_to_bed_bath_and_beyond/n9u05kp/
+
+ProtectionOne9478 2022-04-11
+
+"Meanwhile reddit frontpage is a steady stream of meaningless "oh Trump is really fuming this time!" articles.
+
+I hate Trump as much as the next person with a brain but let's not pretend this behavior is unique to one side."
+
+&nbsp;
