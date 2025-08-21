@@ -231,3 +231,13 @@ Syntaire 2013-09-11 (9/11)
 * :::=== RoundSparrow_Commentary : Look at the trash on every social media system. People flock to shit, people in USA are entirely addicted to what this Reddit user calls "word vomit", the more Donald Trump behaves like Tony Clifton, the more meme addicts (We The People, all inclusive) flock with their horrible taste in emdia consumption. Donald Trump provides endless stimulation to meme addicts who play crave any fiction story. People are compeletely repulsed by nonfiction authentic learning. People are addicted to the Kremlin War Against Realty / War Against Nonficiton that started March 2013. It is not just ONE MAN, Donald Trump, the trash media is all over Reddit and Fox News - and peple on social machines can't stop chanting "couhc couhc couhc" whenever JD Vance comes up, etc. It is the anti-intellectulism, the ficiton addiction, driving USA population. Surkov won, Russia won since 2013. ===::::
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vsohp/
+
+Stephen_Gawking 2012-09-25
+
+"I do kind of wish Gavin went the extra step of wearing a bunch of bronzer on his face and then refusing to talk about it when pressed. But that’s probably just as damaging to GN as it is to the other guy."
+
+* :::=== RoundSparrow_Commentary : People are so addicted to Trump image and content they keep voting for more and more and more. FOR OVER TEN YEARS, horrific bad taste in media has driven the embrace of Russian information warfare. ===:::
+
+&nbsp;
