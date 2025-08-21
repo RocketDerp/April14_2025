@@ -1172,4 +1172,14 @@ No_Investment9639 2021-01-22
 
 "Shit like this is how you win a presidency. Republicans created a world where we don't have to be polite anymore and we can just be sarcastic assholes and that's just how it is now. I'm happy to see some left Wingers go along with it. Do I wish that we had some of the class and Grace that Obama showed us? Sure. But we don't live in that world anymore, so let's keep doing shit like this because you either adapt or die"
 
+* :::=== RoundSparrow_Commentary : media addicted society thinks fiction addiction isn't a problem and ChatGPT and GrokAI everywhere will make the world great. [The Simpsons Y2K jokes about everytihng behaving broken and dumb](https://www.youtube.com/watch?v=WWPdBhlsBYI) is what the corwds are cheering on. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mvxdn8/newsom_responds_to_bed_bath_and_beyond/n9ujlzx/
+
+DocumentNo3571 2024-08-16
+
+"Welcome to the Trump world. From here on out you gotta talk like an elementary school bully to get elected."
+
 &nbsp;
