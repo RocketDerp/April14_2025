@@ -1086,4 +1086,12 @@ lordnecro 2009-10-17
 
 "I don't know... I kinda agree. Whatever republicans are is so far beyond stupid that we really need a different word."
 
+&nbsp;
 
+https://old.reddit.com/r/technology/comments/1mvuvep/trump_says_us_will_not_approve_solar_or_wind/n9swhxj/
+
+Efficient-Wish9084  2024-01-10
+
+"It's hard to believe this is real. If this were the plot of a movie, no one would believe it because it's so stupid."
+
+* :::=== RoundSparrow_Commentary : Russia won the War Against Reality that deployed March 2013 onward. Surkov students won. ===:::
