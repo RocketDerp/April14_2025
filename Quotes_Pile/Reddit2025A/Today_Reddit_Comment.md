@@ -995,3 +995,12 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_
 hellogoawaynow 2016-08-11
 
 "Trump’s social media presence has really made a lot of people think that he cares about them in particular. Like lol you wrote a letter about this to the White House? As if someone besides *maybe* an intern is going to read it? They legitimately think that Trump himself is reading letters from the people who voted for him and it’s wild."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mvrqpb/free_speech_for_me_but_not_for_thee/n9szjrn/
+
+Longjumping_Lynx_972 2022-07-06
+
+"Fuck this country. I'm not proud to be American, I'm fucking embarrassed."
+
