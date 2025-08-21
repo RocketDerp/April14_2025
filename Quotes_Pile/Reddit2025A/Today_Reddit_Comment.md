@@ -363,3 +363,14 @@ Vyzantinist 2017-01-17
 
 "Yes, that's why Trump's backers are trying to rush through totalitarian control - they know the base is going to fragment when he croaks."
 
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1mw7tmy/donald_trump_sparks_health_concerns_after/n9vioxu/
+
+Dorksim 2013-01-20
+
+"People say that. But people have also been adamant that Trump has been cooked criminally four or five times now and yet he's still President.
+
+I somewhat believe that the rights hatred of anything descent will ensure JD would be enough of a figurehead to stick around"
+
+* :::=== RoundSparrow_Commentary : “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ===:::
