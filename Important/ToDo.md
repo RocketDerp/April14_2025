@@ -755,3 +755,8 @@ FranLab
 On Thinking being a luxury   
 Device reliance, media ecology.  
 https://www.youtube.com/watch?v=e38p4FlXcmI
+
+&nbsp;
+
+Malala topic, women freedom, freedom to clothing    
+https://old.reddit.com/r/memes/comments/1mwek0g/what_has_she_written/
