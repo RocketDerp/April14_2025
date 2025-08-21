@@ -688,3 +688,17 @@ https://old.reddit.com/r/worldnews/comments/1mwbmci/trump_steps_back_from_russia
 Resident_Text4631 2020-12-13
 
 "He so badly wants Putin to win but he knows it’s unpopular because everyone else on the planet except Trump (Russian agent) knows Putin is the bad guy here. So he does this ridiculous dance with the facts and empty threats and ….2 weekseses. Same exact thing with Epstein. So tired of the stupidest people on the planet calling all the shots"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mwhwfq/white_house_says_slavery_is_being_taught_wrong/n9xoa8m/
+
+Tree_Shirt 2012-06-19
+
+"They never kid, ever.
+
+Every “joke” is always the truth, conservative media and pundits just pretend it’s a “joke” to “trigger the libs” until it comes true.
+
+How do people not understand this."
+
+* :::=== RoundSparrow_Commentary : Putin and Surkov discovered that humor, amusement, entertaining funny, LOL, is the best mind-fuck. Laughter is the best mind-fuck. Weaponized absurd surreal antis are the Surkov governing methods. Since March 2013, Russia won, Americans eat the total mockery shit show up, mocking away at those who lost their minds and hearts to Russia. ===:::
