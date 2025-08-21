@@ -712,3 +712,21 @@ How do people not understand this."
 &nbsp;
 
 &nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mwhwfq/white_house_says_slavery_is_being_taught_wrong/n9xm561/
+
+M3RV-89 2017-07-09
+
+"Liberals cared about real social improvements which to the uneducated came off like whining and begging. They're too stupid to realize liberals are trying to better their lives. They're just toddlers who don't want to eat healthy so they get mad at their parents. Liberals policies don't sound sexy or simple enough for them so they don't like it and call it woke"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mwhwfq/white_house_says_slavery_is_being_taught_wrong/n9xno3k/
+
+TenTonSomeone 2018-08-27
+
+"Facts. They rally around their little sayings, like "woke = bad." Then when something new comes around, they just call it "woke" and they've already been trained that woke = bad, so The brainwashing just continues."
+
+* :::=== RoundSparrow_Commentary : Finnegans Wake by James Joyce is all about *being Woke* to brainwaashing. Irish Dublin metaphors of cognative self-awareness to meme systems, published year 1924 onward. ==:::
+
+&nbsp;
