@@ -894,6 +894,9 @@ nightwyrm_zero 2017-02-04
 
 "The letter is a prayer but addressed to Trump instead of Jesus. By writing it, the dad can feel like he's done something, even though it has the same effect as a prayer to Jesus."
 
-* :::=== RoundSparrow_Commentary : Media cult behavior, like a cargo cult. Bible and Quran (Jesus is in Mohammad's Quran retcon) are science fiction stories imported from the Levant. Donald Trump is a Reality TV and Truth Social fiction content creator. Addiction to fiction storytelling is a core understanding at getting to the root of why people are attracted to the hate and mocking Donald Trump. People avoidant of nonfiction and attracted to fiction Fox News / fiction Trump / fiction memes / fiction Russian information warfare content. ===:::
+* :::=== RoundSparrow_Commentary : Media cult behavior, like a cargo cult. Bible and Quran (Jesus is in Mohammad's Quran retcon) are science fiction stories imported from the Levant. Donald Trump is a Reality TV and Truth Social fiction content creator. Addiction to fiction storytelling is a core understanding at getting to the root of why people are attracted to the hate and mocking Donald Trump. People avoidant of nonfiction and attracted to fiction Fox News / fiction Trump / fiction memes / fiction Russian information warfare content. Letters to Santa for Chirstmas are similar fiction content addictions. Donald Trump has made himself mythological. As Carl Sagan said in January 1939 about Adolph Hitler, [*"So you see, Hitler is a medicine man, a spiritual vessel, a demi-deity or, even better, a myth."*](../Doctors/Carl_Jung_on_Hitler.md). ===:::
+
+&nbsp;
+
 
 &nbsp;
