@@ -893,3 +893,11 @@ Str4425 2019-04-26
 "You’re right. But here’s what I think the weakness is. Constantly now, whenever some group criticizes Trump, they become the enemy. It was whites against cat-eating latinos during the election. Now even whites are Miller’s enemies. Point being, Trump governs for the few and is intent on leaving most of the population worse off to make him and his friends better off. 
 
 Pretty soon big part of the voters will be made his enemies. Even Trump’s propaganda machine can’t handle that effectively."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_manic_fascist_rantand/n9x0uty/
+
+sluttttt 2013-12-19
+
+"Miller and RFK Jr. freak me out more than Trump does in several ways. Trump is a classic racist POS and has no problem flaunting it verbally, and that's certainly bad considering that he's basically a cult leader, but both Miller and RFK Jr. seem to have well-defined visions of how they plan to handle any group of people that they view as "undesirable." It's straight-up Nazi shit, but too many will still argue that calling it that is an exaggeration."
