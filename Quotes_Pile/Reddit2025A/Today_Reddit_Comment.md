@@ -128,3 +128,27 @@ anabanana100 2023-02-12
 
 "I’ve been catching up on all of my recommended screenings this year which are supposed to be “free” per ACA yet almost every one ends up with a charge or copay slapped on. It’s ridiculous. And most are billing errors! I legit spent 1.25 hrs on the phone to try to get $40 back on the last one."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vy7fs/
+
+Berb337 2020-07-31
+
+"Not everyone is mocking him is kind of a moot point. What matters is that a lot of people on the internet are, and he consistently gives an entertaining response. Like children, denizens of the internet see a response and keep poking.
+
+(Which is good, in this case)"
+
+* :::=== RoundSparrow_Commentary : Surkovian Russian information warfare is build upon a base of fatih in mocking. It's been TEN FUCKING YEARS of non-stop mocking and insulting Donald Trump as a terrible person. People in USA are so exploited in the brain to not recognize that Trump is playing Tony Clifton act with improv audience interaction. Mocking, hate, dehumanization magnet. The entire USA has adopated faith in hate and mocking. USA society is nothing at all like what it ws in year 2012 - every area of life has been consumed by this horribile faith in dehumanizing. Hate thy enemy nation. People love their social machines but huate human persons! Trump is a magnet for hate, Trump inspires hate. Peoople are media addicted to their machines delivering Trump hate messages, people will not face the media addiction itself and Russian media warfare that started in March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9w0qd4/
+
+TheShipEliza 2019-01-07
+
+"It is crazy it took so long for someone like Newsome to come along and get into the slop where Trump lives. It is so easy and it is very effective."
+
+* :::=== RoundSparrow_Commentary : Twitter-length tweet-thinking shallowness. This has been going on for TEN FUCKING YEARS. People in USA are acting like this just started in August 2025. Recency bias abounds. Just like Dr. Carl Jung said about **german people not realizing what was happening to them**: “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... No one knew what was happening to him, least of all of the Germans, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945 ===:::
+
+&nbsp;
+
