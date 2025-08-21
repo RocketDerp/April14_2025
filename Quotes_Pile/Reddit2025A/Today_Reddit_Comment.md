@@ -1201,3 +1201,15 @@ Key-Routine4237 2025-01-19 (new this year)
 * :::=== RoundSparrow_Commentary : There is no self-awareness of all that the IRA has turned the USA into a clown society (every person clowning aroun on social media LOL LMAO at the Tony Clifton White House act, Surkovian governing). Chuckehead mindset, Amused to Death nation of meme addicts to constantly insulting and mocking Trump. ===:::
 
 &nbsp;
+
+redyellowblue5031 2013-04-26
+
+"WW3 doesn’t need to be won with bombs and guns.
+
+It’s been waged online and through misinformation. Our adversaries are kicking our fucking ass and have been for some time."
+
+&nbsp;
+
+
+
+&nbsp;
