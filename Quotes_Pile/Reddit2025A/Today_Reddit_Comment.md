@@ -119,3 +119,12 @@ lostboy005 2016-07-29
 "Simply, millennials have been watching the high crest water mark of post WWII progress roll back with increasing speed.
 
 Old people who should have known better pissed it all away for short term convenience, turning the planting trees for shade they’ll never see proverb on its head"
+
+&nbsp;
+
+https://old.reddit.com/r/Futurology/comments/1mw7zhu/american_millennials_are_dying_at_an_alarming/n9vnygq/
+
+anabanana100 2023-02-12
+
+"I’ve been catching up on all of my recommended screenings this year which are supposed to be “free” per ACA yet almost every one ends up with a charge or copay slapped on. It’s ridiculous. And most are billing errors! I legit spent 1.25 hrs on the phone to try to get $40 back on the last one."
+
