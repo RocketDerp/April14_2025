@@ -887,3 +887,13 @@ And the dummies fall for it all the time."
 * :::=== RoundSparrow_Commentary : "All you have to do is read the cringy emails they send out" ... All you have to do is read and analyze the cringy social media content people share and flock to on Bluesky, Reddit, Twitter, TikTok to see [Neil Postman's 1985 Amusing Ourselves To Death book ideas](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) and Donald Trump playing Tony Clifton act goes together with Surkov [Kremlin information warfare since March 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america). ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9s2l35/
+
+nightwyrm_zero 2017-02-04
+
+"The letter is a prayer but addressed to Trump instead of Jesus. By writing it, the dad can feel like he's done something, even though it has the same effect as a prayer to Jesus."
+
+* :::=== RoundSparrow_Commentary : Media cult behavior, like a cargo cult. Bible and Quran (Jesus is in Mohammad's Quran retcon) are science fiction stories imported from the Levant. Donald Trump is a Reality TV and Truth Social fiction content creator. Addiction to fiction storytelling is a core understanding at getting to the root of why people are attracted to the hate and mocking Donald Trump. People avoidant of nonfiction and attracted to fiction Fox News / fiction Trump / fiction memes / fiction Russian information warfare content. ===:::
+
+&nbsp;
