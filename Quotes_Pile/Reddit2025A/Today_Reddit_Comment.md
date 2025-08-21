@@ -935,3 +935,13 @@ https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_mani
 seeker4482 2019-02-07
 
 "like all members of the trump administration he's a sniveling conniving worm who has managed to get the levers of power into his trembling febrile grip and when he gets the tiniest amount of pushback, he can't maintain any dignity and shits himself with rage."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mweuiy/trumps_sudden_doctor_visit_raises_fresh_doubts/n9wzcws/
+
+Tennessian91 **2025-07-30 (new account)**
+
+"I’m convinced he is going to die relatively soon just because of how much MAGA spouted against Biden and it’s all projection. Just like how Jr is a coke head"
+
+* :::=== RoundSparrow_Commentary : **convinced**, vibe thinking, Tweet-think Twitter-length thinking. Very sus message, as it encourages Tweet-thinking audience to *do nothing* to address Russian information warfare and just sit back and let Donald Trump health take care of the issues. ===:::
