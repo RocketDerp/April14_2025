@@ -691,9 +691,15 @@ Resident_Text4631 2020-12-13
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/nottheonion/comments/1mwhwfq/white_house_says_slavery_is_being_taught_wrong/n9xoa8m/
 
 Tree_Shirt 2012-06-19
+
+<img width="1208" height="1022" alt="image" src="https://github.com/user-attachments/assets/80c08191-053d-413a-b463-69e087a9d1bf" />
+
+&nbsp;
 
 "They never kid, ever.
 
@@ -701,4 +707,8 @@ Every “joke” is always the truth, conservative media and pundits just preten
 
 How do people not understand this."
 
-* :::=== RoundSparrow_Commentary : Putin and Surkov discovered that humor, amusement, entertaining funny, LOL, is the best mind-fuck. Laughter is the best mind-fuck. Weaponized absurd surreal antis are the Surkov governing methods. Since March 2013, Russia won, Americans eat the total mockery shit show up, mocking away at those who lost their minds and hearts to Russia. ===:::
+* :::=== RoundSparrow_Commentary : Putin and Surkov discovered that humor, amusement, entertaining funny, LOL, is the best mind-fuck. Laughter is the best mind-fuck. Weaponized absurd surreal antis are the Surkov governing methods. Since March 2013, Russia won, Americans eat the total mockery shit show up, constantly mocking away at those who lost their minds and hearts to Russia. ===:::
+
+&nbsp;
+
+&nbsp;
