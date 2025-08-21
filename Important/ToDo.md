@@ -712,3 +712,12 @@ https://old.reddit.com/r/interestingasfuck/comments/1mvf2fy/1918_a_suffragette_t
 Choice marriage honesty    
 Year 1964 concern about each other mindsets and life   
 https://old.reddit.com/r/TikTokCringe/comments/1mvih4a/this_is_interesting_to_watch/
+
+&nbsp;
+
+Topic meet    
+Democracy without Love One Another   
+Democracy without Morality education   
+Democracy without Love Humans    
+Democracy without Compassion education    
+Democracy without Media Ecology   
