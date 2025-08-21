@@ -656,3 +656,11 @@ epicredditdude1 2019-11-17
 This was never about peace."
 
 &nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mwbmci/trump_steps_back_from_russia_and_ukraine_peace/n9wqlcx/
+
+Alternative_Rent9307 2023-11-25
+
+"He changes his mind all the fucking time. One of the most important aspects of a good leader is to not do that and he does it all the fucking time. Blatantly and unapologetically. Yet he’s still considered a good leader by a lot of people. What in the holy fuck?"
+
+* :::=== RoundSparrow_Commentary : Social media addicts getting their mind blown evey single day by the mind-blowing media content from Trump/Putin White House/Kremlin. ["BBC's Adam Curtis On The "Contradictory Vaudeville" Of Post-Modern Politics" - December 31, 2014. "what Surkov has done, is to import ideas from conceptual art into the very heart of politics. His aim is to undermine peoples' perceptions of the world, so they never know what is really happening. Surkov turned Russian politics into a bewildering, constantly changing piece of theater."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
