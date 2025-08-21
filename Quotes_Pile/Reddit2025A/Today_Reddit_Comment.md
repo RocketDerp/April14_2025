@@ -286,3 +286,13 @@ KGKSHRLR33 2016-04-16
 "He talks mad shit about people, but when hes called out he throws a lil hissy fit ha. I fzxkn love it."
 
 * :::=== RoundSparrow_Commentary : Media addicts love and adore the Tony Clifton act for over 10 years. Wrecked the USA future and harmed the world because of their addiciton to trash Tony Clifton entertainment. "Amusing Ourselves To Death" ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vtzzh/
+
+cara38 2018-10-31
+
+"Just start laughing at all of them please."
+
+* :::=== RoundSparrow_Commentary : Media addicts love and adore the Tony Clifton act for over 10 years. Wrecked the USA future and harmed the world because of their addiciton to trash Tony Clifton entertainment. "Amusing Ourselves To Death" FOR TEN FUCKING YEARS to Trump. ===:::
