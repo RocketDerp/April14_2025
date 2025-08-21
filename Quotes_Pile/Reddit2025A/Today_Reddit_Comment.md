@@ -423,3 +423,12 @@ zuesk134 2012-02-17
 
 "i saw a comment from someone who said her parents never hit them before dobson and without him they probably would not have. but they were so into the cult they convinced themselves to physically harm their children. its just insane"
 
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mwa389/gavin_newsomwere_gonna_punch_these_sons_of_btches/n9wp6lh/
+
+rileyjw90 2017-08-25
+
+"I mean isn’t this exactly what people claimed to like about Trump? Not afraid to pull punches, tells it like it is?
+
+Except Newsom actually puts his money where his mouth is and follows through with the promises he makes."
