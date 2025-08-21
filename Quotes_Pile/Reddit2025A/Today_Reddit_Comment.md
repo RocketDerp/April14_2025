@@ -1021,6 +1021,3 @@ Throwaway2562613470 2015-12-05
 "The world just hates people with special needs. It's a crewl place out there."
 
 * :::=== RoundSparrow_Commentary : If your *special need* mind involves manipulating billions of people on the world stage of histiory, Stalin, Hitler, Putin, Musk, Trump, *the world* flocks to you as deception leadership for children to adopt as role model. ===:::
-
-
-"The world just hates people with special needs. It's a crewl place out there."
