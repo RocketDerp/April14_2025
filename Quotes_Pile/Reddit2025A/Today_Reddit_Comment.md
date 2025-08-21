@@ -1225,3 +1225,12 @@ your_fathers_beard 2013-06-15
 "We lost the Cold war in 2016."
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9ud0g8/
+
+alotmorealots 2015-03-15
+
+"The first time round with the Trump administration, I feel like many of people held out hope that there would be effective, and severe if needed, responses from the intelligence community and justice institutions against the obvious assaults on them. This time round, there's not even that naive notion to cling to."
+
+&nbsp;
+
