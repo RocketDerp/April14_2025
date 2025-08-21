@@ -238,6 +238,18 @@ Stephen_Gawking 2012-09-25
 
 "I do kind of wish Gavin went the extra step of wearing a bunch of bronzer on his face and then refusing to talk about it when pressed. But that’s probably just as damaging to GN as it is to the other guy."
 
-* :::=== RoundSparrow_Commentary : People are so addicted to Trump image and content they keep voting for more and more and more. FOR OVER TEN YEARS, horrific bad taste in media has driven the embrace of Russian information warfare. ===:::
+* :::=== RoundSparrow_Commentary : People are so addicted to Trump image and content they keep voting for more and more and more. FOR OVER TEN YEARS, horrific bad taste in media has driven the embrace of Russian information warfare. ANYTHING but nonfiction. People were so bored the 4 years while Biden didn't put on orange bronzer face and act like Tony Clifton. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vqfaj/
+
+KnightDuty 2014-09-02
+
+"That's funny because in describing some of his actual literal crimes, Reddit censors me. not even saying anything crazy, just literally stating fact and quoting him himself, is deemed inappropriate."
+
+* :::=== RoundSparrow_Commentary : “The underlying ideology within social media is not to enhance choice or agency, but rather to narrow, filter, and reduce choice to benefit creators and advertisers. Social media herds the citizenry into surveilled spaces where the architects can track and classify them and use this understanding to influence their behavior. If democracy and capitalism are based on accessible information and free choice, what we are witnessing is their subversion from the inside.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, **published 2019** ===:::
+
+&nbsp;
+
