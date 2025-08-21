@@ -1095,3 +1095,13 @@ Efficient-Wish9084  2024-01-10
 "It's hard to believe this is real. If this were the plot of a movie, no one would believe it because it's so stupid."
 
 * :::=== RoundSparrow_Commentary : Russia won the War Against Reality that deployed March 2013 onward. Surkov students won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mvuvep/trump_says_us_will_not_approve_solar_or_wind/n9sxx0g/
+
+jlb1981 2015-02-02
+
+"Technically it's Putin's goal and Trump's just carrying it out, but yeah"
+
+* :::=== RoundSparrow_Commentary : USA media addicts are addicted to mockign and insulting. We The People People don't want to be serious and face up to the media addiciton force driving the USA population. ===:::
