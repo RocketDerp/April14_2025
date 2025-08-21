@@ -454,3 +454,13 @@ Tr33Bl00d 2021-07-06
 * :::=== RoundSparrow_Commentary : "Most Americans want to watch a wrestling match", the *fiction* kind of dramatic Tony Clifton style wresteling. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mwa389/gavin_newsomwere_gonna_punch_these_sons_of_btches/n9wsav1/
+
+Unit_79 2018-03-17
+
+"Nine years of Trump being a political actor and finally someone is playing at his level and taking the threat seriously. Dems have so far dropped the ball so fucking hard. Hopefully this is the beginning of massive change."
+
+* :::=== RoundSparrow_Commentary : It's far longer than 9 years, Trump agreed to work with Cambridge Analtica and Putin in November 2012. https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ "как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." Reddit meme addicts don't want to face the information warfare of meme trash and banal thinking that has taken over USA. Attraction to hate Trump, mocking Trump, the attraction to Tony Clifton act is Surkovian information warfare outcomes. ===:::
+
+&nbsp;
