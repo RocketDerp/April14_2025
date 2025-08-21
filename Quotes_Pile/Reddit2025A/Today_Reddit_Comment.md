@@ -475,4 +475,24 @@ gymleader_michael
 
 &nbsp;
 
+https://old.reddit.com/r/goodnews/comments/1mwa389/gavin_newsomwere_gonna_punch_these_sons_of_btches/n9wvtpb/
 
+Kooky_Dev_  2024-09-23
+
+"I'll believe it when he punches Trump in the mouth next time he see's him. I won't hold my breath.
+
+I'm all for making sure things arn't done illegally, but no one believes Newsome is going to punch anyone in the mouth, this rhetoric is what prompts other people to act and ruin their lives because they think people in power are behind them."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mwa389/gavin_newsomwere_gonna_punch_these_sons_of_btches/n9wwd6a/
+
+Jolly_Ad2446 2025-04-26 (new this year)
+
+"I was watching a video of some other Dem governor giving a speech where he was mad and wondered. Why isn't he acting mad? Why does it feel like he's checking out a book at the library? 
+
+I think that's a the main thing Gavin has brought, he is mad, he acts angry, like the rest of us."
+
+* :::=== RoundSparrow_Commentary : Like Donald Trump is angry, like MAGA is angry. PLOT TO BREAK AMERICA: "What Cambridge Analytica observed was that when respondents **were angry**, their *need for complete and rational explanations was also significantly reduced*. In particular, **anger put people in a frame of mind** in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019** ... and social media addicts want MORE anti-intellectual anger in August 2025. Always more mocking, always more satire, always more South Park to the Tony Clifton satire, always more Russian information warfare, always more hate, always more mocking, always more fiction, always [more anger](https://www.youtube.com/watch?v=xpYHgbjOIq0) machine messages. **Always avodiing nonfiction books like Christopher Wylie** and Neil Postman. Always avoiding educaiton like Malala from Pakistan. ===:::
+
+&nbsp;
