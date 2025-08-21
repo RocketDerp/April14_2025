@@ -807,3 +807,18 @@ https://old.reddit.com/r/GetNoted/comments/1mwd9lt/are_they_though/n9xtiem/
 lawnderl 2023-02-14
 
 "It is time for extreme stupidity days now"
+
+&nbsp;
+
+https://old.reddit.com/r/Snorkblot/comments/1mwcwys/gavin_will_end_1_million_wars_by_christmas/n9woqeb/
+
+Dangerous-Froyo1306 2024-07-28
+
+"Panicked when I saw this, that we're sliding into anti-intellectualism too, until the comments helped me realize this is a dose-of-their-own-medicine thing.
+
+Hope this and stuff like it makes it to right wingers' feeds and that they lose their loser minds over it."
+
+* :::=== RoundSparrow_Commentary : Celebration of ignorance. Pro Russina information warfare. This might be ufnny if people were able to cite or describe the IRA year 2013 onward, if people had any ability to describe Cambridge Analytica. There is no demosntration of self-awareness of what Putin has done to the population. Donald Trump never should have gotten 8% of votes, and people who hate Trump don't even recognize how Surkov and Putin have had power for 25 years. ===:::
+
+&nbsp;
+
