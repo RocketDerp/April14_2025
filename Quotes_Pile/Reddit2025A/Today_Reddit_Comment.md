@@ -1191,3 +1191,13 @@ btcprint 2015-03-27
 "Its already started and we've lost. We're being dismantled and weakened from the inside, by traitors"
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9u7lck/
+
+Key-Routine4237 2025-01-19 (new this year)
+
+"Yeah there seems to be little awareness that all democratic nations are quite literally at war with Russia at this moment, and Russia now owns the American government."
+
+* :::=== RoundSparrow_Commentary : There is no self-awareness of all that the IRA has turned the USA into a clown society (every person clowning aroun on social media LOL LMAO at the Tony Clifton White House act, Surkovian governing). Chuckehead mindset, Amused to Death nation of meme addicts to constantly insulting and mocking Trump. ===:::
+
+&nbsp;
