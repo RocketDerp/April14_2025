@@ -1178,8 +1178,16 @@ No_Investment9639 2021-01-22
 
 https://old.reddit.com/r/BlueskySkeets/comments/1mvxdn8/newsom_responds_to_bed_bath_and_beyond/n9ujlzx/
 
-DocumentNo3571 2024-08-16
+DocumentNo3571 2024-08-18
 
 "Welcome to the Trump world. From here on out you gotta talk like an elementary school bully to get elected."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9u5uri/
+
+btcprint 2015-03-27
+
+"Its already started and we've lost. We're being dismantled and weakened from the inside, by traitors"
 
 &nbsp;
