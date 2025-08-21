@@ -730,3 +730,9 @@ TenTonSomeone 2018-08-27
 * :::=== RoundSparrow_Commentary : Finnegans Wake by James Joyce is all about *being Woke* to brainwaashing. Irish Dublin metaphors of cognative self-awareness to meme systems, published year 1924 onward. ==:::
 
 &nbsp;
+
+"Republicans don't want the public to find the idea of slavery repugnant so that they can have it back. There's been a pretty good demonstration so far that their base will slurp up whatever slop they're fed, so it'll probably work. We have Nazis again, ffs!"
+
+* :::=== RoundSparrow_Commentary : Imported Levant science fiction tradition. ["The Bible is clear: God endorses slavery. - January 27, 2017 There are at least seven passages in the Bible where God is depicted as directly permitting or endorsing slavery. Two of these are in the Law of Moses: God permitted the Israelites to take slaves from conquered peoples permanently, and the Israelites could sell themselves into slavery temporarily to pay off debts (Exod 21:2-11; Lev 25:44-46). The other five passages are in the New Testament, where slavery as a social institution is endorsed and slaves are called to obey their masters “in everything” (Eph 6:5-9; Col 3:22-4:1; 1 Tim 6:1-2; Tit 2:9-10; 1 Pet 2:18-20)."](https://michaelpahl.com/2017/01/27/the-bible-is-clear-god-endorses-slavery/) ===:::
+
+&nbsp;
