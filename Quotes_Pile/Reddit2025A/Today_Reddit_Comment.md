@@ -839,3 +839,29 @@ Inevitable-Host-7846 2023-11-03
 * :::=== RoundSparrow_Commentary : Soaking in Donald Trump memes and Donald Trump content FOR OVER TEN FUCKING YEARS has caused widespread brain damage. [Fox News Speak has taken over thinking, Trump language dominates communications, this problem can't even be described or articulated](https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/) ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9sh4du/
+
+traitorgiraffe 2023-04-06
+
+"there is no side of the American political system that does not suffer from brainrot
+
+america suffers from terminal "us vs them" syndrome. I mean terminal literally, it is a death sentence for a republic. Just a slow one"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9r2kox/
+
+HawkeyeByMarriage 2017-09-25
+
+"According to AI, there has never been parties when a president has died."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1mvkvc7/donald_trump_sparks_health_concerns_after/n9revi6/
+
+ZoomZoom_Driver 2023-01-26
+
+"Any day now, I'll smoke the largest joint IN MY LIFE, then find out where his grave is so i can join the millions who will pilgrimage to piss on it."
+
+&nbsp;
