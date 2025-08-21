@@ -464,3 +464,15 @@ Unit_79 2018-03-17
 * :::=== RoundSparrow_Commentary : It's far longer than 9 years, Trump agreed to work with Cambridge Analtica and Putin in November 2012. https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ "как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." Reddit meme addicts don't want to face the information warfare of meme trash and banal thinking that has taken over USA. Attraction to hate Trump, mocking Trump, the attraction to Tony Clifton act is Surkovian information warfare outcomes. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mwa389/gavin_newsomwere_gonna_punch_these_sons_of_btches/n9wsr8o/
+
+gymleader_michael
+
+"Conservatives love the idea of a victim standing up to a bully, but for some reason never realize (being generous here) they are the bully. They always position themselves as the victims."
+
+* :::=== RoundSparrow_Commentary : "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. **You can't see right. The symbol of objectivity is lost**." - [Martin Luther King Jr.](../Martin_Luther_King_Jr_quotes0.md) ===:::
+
+&nbsp;
+
+
