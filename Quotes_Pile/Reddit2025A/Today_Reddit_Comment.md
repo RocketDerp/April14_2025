@@ -34,3 +34,12 @@ People, family, friends, who have just been enveloped and blinded by the dog and
 
 * :::=== RoundSparrow_Commentary : It is addictiton to meme, addicts to mocking. Everythin in Neil Postman's 1985 book "Amusing Ourselves To Death", addict junk media society of entertainment trash. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mw5cun/russian_missile_strike_hits_usowned_factory_in/n9vgya1/
+
+FireFistMihawk 2015-11-16
+
+"I was literally talking about this at lunch with my friend the other day, the little press conference with Putin & Trump the other day following their meeting absolutely felt like Putin was mocking Trump and America right to his face and the man just doesn't see it lol."
+
+* :::=== RoundSparrow_Commentary : LOL LOL, [eating the Surkovian onion, ignorant of how Russian media works](Surkovian_Onion_Eating.md). Thinks it is "lol" at end of message, social media laugh track. In denial, thinks antics politics isn't a possibility. ===:::
