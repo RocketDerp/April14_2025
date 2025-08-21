@@ -748,3 +748,10 @@ https://old.reddit.com/r/Millennials/comments/1mwbr53/accurate/
 
 pro-Malala, give girls education to defend and communicate about the Epstein abuse / Taliban elder child marriage abuse, parents abusing.   
 https://old.reddit.com/r/TikTokCringe/comments/1mwd7uo/this_is_actually_the_level_of_seriousness_needed/
+
+&nbsp;
+
+FranLab   
+On Thinking being a luxury   
+Device reliance, media ecology.  
+https://www.youtube.com/watch?v=e38p4FlXcmI
