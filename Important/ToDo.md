@@ -721,3 +721,8 @@ Democracy without Morality education
 Democracy without Love Humans    
 Democracy without Compassion education    
 Democracy without Media Ecology   
+
+&nbsp;
+
+The Problem of Natural Disaster | Why the Christian God is a Terrorist    
+https://www.youtube.com/watch?v=PbM420xPC-g
