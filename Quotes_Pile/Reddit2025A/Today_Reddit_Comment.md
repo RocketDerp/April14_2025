@@ -772,7 +772,7 @@ BigDaddyZeus 2016-01-13
 
 And every single person on the left should remember this: they will ALWAYS hate you, no matter what. They don't deserve kindness nor decency. They deserve to rot behind bars for high treason."
 
-* :::=== RoundSparrow_Commentary : *Give up* on goodness messages. Abandon the public library and don't teach cult deprogramming media messages. Lay down and let Russian mind-fuck continue to wreck the nation as it has since March 2013 Putin Media Invasion. *Hate will always win, no matter what* faith. Reddit mind-fucking the audience messages. By this *logic* simple thinking, Tweitter-thinking logic, Germany 1993 (when I traveled to Waldorf and worked for SAP) could not way exist because Germany 1943 had hate. ===:::
+* :::=== RoundSparrow_Commentary : *Give up* on goodness messages. Abandon the public library and don't teach cult deprogramming media messages. Lay down and let Russian mind-fuck continue to wreck the nation as it has since March 2013 Putin Media Invasion. *Hate will always win, no matter what* faith. Reddit mind-fucking the audience messages. By this *logic* simple thinking, Tweitter-thinking logic, Germany 1993 (when I traveled to Waldorf and worked for SAP) could not way exist because Germany 1943 had hate. Anythiung to keep social media addicts from facing up that MAGA *are mental slaves* to billionare meme content. And we need to be doing cult deprogramming on social media with spare time and free tiem instead of react-commeting to every antic out of the White House as has been going on for 10 years. ===:::
 
 &nbsp;
 
@@ -781,5 +781,15 @@ https://old.reddit.com/r/nottheonion/comments/1mwhwfq/white_house_says_slavery_i
 eden_sc2 2011-09-05
 
 "Conservatives tend to see the world as zero sum, so if some group is gaining rights, then they must be losing something to balance the scales. Similarly, if that same group is being hurt, then their life must be getting better (even if they couldn't tell you how)"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mwhwfq/white_house_says_slavery_is_being_taught_wrong/n9xyuoz/
+
+Punchausen 2014-12-29
+
+"And this is literally what so many black people voted for. They literally could have had a black President, but didn't want to elect a woman. Whelp, fuck Black MAGAs, and their fast track to 2nd their citizenship. No sympathy here."
+
+* :::=== RoundSparrow_Commentary : Exactly what Elon Musk has announced he wants: anti-empathy messages on social media. More removal of empathy from society due to reactions to machine messages. ===:::
 
 &nbsp;
