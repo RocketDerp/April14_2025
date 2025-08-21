@@ -1004,3 +1004,11 @@ Longjumping_Lynx_972 2022-07-06
 
 "Fuck this country. I'm not proud to be American, I'm fucking embarrassed."
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mvrqpb/free_speech_for_me_but_not_for_thee/n9t69og/
+
+BreadConqueror5119 2018-06-18
+
+"No republican believes in free speech, they want to be protected from the truth that their political ideology is based on hate and supremacy, not inclusion and democratic values. In short they are all un American as hell."
+
