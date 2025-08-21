@@ -1289,3 +1289,17 @@ rykahn 2014-08-24
 "A known agent of a hostile foreign power becoming DNI and then subsequently firing half of the intelligence staff, including the team working on influence campaigns from said hostile foreign power, is too farcical for even dime novels. Yet here it is, happening before our eyes, and it's a below the fold story"
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9us6yx/
+
+CheesecakeHorror3410 2023-12-20
+
+"Tulsi is a traitor, this only benefits America's enemies. The Trump operation is without any doubt the greatest intelligence coup in history."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9u95ei/
+
+Sweatytubesock 2016-08-04
+
+"It was inevitable that this kind of shit would happen if Trump and his scumbag cronies were put in power again, but special marks for the absolutely worthless and supine Fox news party senate for rubber stamping all of these completely incompetent clowns to important positions in government. The country is eventually going to pay a very high price for it, and it will be entirely on the hands of these cowardly and completely unserious assholes."
