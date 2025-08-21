@@ -747,3 +747,22 @@ Admirable-Sink-2622 2023-04-18
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 which is eleven years before October 7, 1996 opening of Fox News on Putin's birthday. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mwhwfq/white_house_says_slavery_is_being_taught_wrong/n9xmecx/
+
+yea_i_doubt_that **2025-07-10 (new account)**
+
+"we're already selling immigrants to other countries......"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mwhwfq/white_house_says_slavery_is_being_taught_wrong/n9xjlim/
+
+ddrober2003 2013-02-28
+
+"Ya know I am sorta surprised on how fast they're being openly racist. But then again, im sorta not."
+
+* :::=== RoundSparrow_Commentary : A reddit account created right when the IRA started manipualting people on Reddit in year 2013. People *know* because the memes and messages of Cambridge Analytica and Russia have been all over social media since year 2013, ever since Donald Trump agreed with Russians November 7, 2012. https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ "как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." - the HARD FACTUAL EVIDENCE was analyzed by George Washington University dating back to year 2014: https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+
+&nbsp;
