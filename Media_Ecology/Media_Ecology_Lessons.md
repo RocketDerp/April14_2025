@@ -381,3 +381,8 @@ https://old.reddit.com/r/pcmasterrace/comments/1mv7qkq/no_wifi_at_home_how_to_do
 Prank culture, ritual hazing, ritual hurdles, jump through hoops, courtship, friendship, relationship, indctrination, double-down rituals.   
 
 https://old.reddit.com/r/comics/comments/1mvjuva/liam_pranks_gator_days/
+
+&nbsp;
+
+style of skill, team social skills, good shooter vs. good teammate    
+https://www.youtube.com/watch?v=gYZFmW3k5-E
