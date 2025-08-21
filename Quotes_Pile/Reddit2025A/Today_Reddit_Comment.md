@@ -296,3 +296,14 @@ cara38 2018-10-31
 "Just start laughing at all of them please."
 
 * :::=== RoundSparrow_Commentary : Media addicts love and adore the Tony Clifton act for over 10 years. Wrecked the USA future and harmed the world because of their addiciton to trash Tony Clifton entertainment. "Amusing Ourselves To Death" FOR TEN FUCKING YEARS to Trump. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mwbw4o/thats_what_satire_is/
+
+"That's what satire is"
+
+* :::=== RoundSparrow_Commentary : The BLIND FAITH religion of USA is that satire will solve all problems. Donald Trump Tony Clifton act with Kremlin Surkov [informaiton warfare since November 2012 agreement EXPLOITS the faith in amusement, surreal, satire](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html), comedy, mimicing! Russian information warfare has defeated the USA because people will not STOP with the nonstop 24 hour a day social machine messages of satire and idiocracy. Surkov and Putin won, Russia won! Donald Trump is David Foster Wallace's *Infinite Jest*! ===:::
+
+&nbsp;
+
