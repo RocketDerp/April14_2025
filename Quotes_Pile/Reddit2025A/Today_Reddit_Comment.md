@@ -680,3 +680,11 @@ https://old.reddit.com/r/worldnews/comments/1mwbmci/trump_steps_back_from_russia
 harryx67 2024-06-14
 
 "Trump will be remembered as the biggest loser in the history of the USA and he still has three and a half years to go. Imagine the damage to come if the trend continues. 🤦‍♂️"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mwbmci/trump_steps_back_from_russia_and_ukraine_peace/n9wr4w4/
+
+Resident_Text4631 2020-12-13
+
+"He so badly wants Putin to win but he knows it’s unpopular because everyone else on the planet except Trump (Russian agent) knows Putin is the bad guy here. So he does this ridiculous dance with the facts and empty threats and ….2 weekseses. Same exact thing with Epstein. So tired of the stupidest people on the planet calling all the shots"
