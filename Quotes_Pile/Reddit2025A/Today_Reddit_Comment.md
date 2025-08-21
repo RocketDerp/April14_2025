@@ -260,3 +260,11 @@ CheerleaderOnDrugs 2017-06-23
 "I had a comment removed for 'violent content', which was simply quoting the president's own words, which I confirmed via his own source: a Fox News link.
 
 The comment was restored a few days later, after appeal, when no one would read it."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vmzgk/
+
+Happy_Landmine **2025-08-11 (new account)**
+
+"Geriatric dementia patient throws a tantrum during another Adderall binge.."
