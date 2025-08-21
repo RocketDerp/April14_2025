@@ -540,3 +540,11 @@ Professional-Put7605 2024-06-02
 I just don't understand how anyone can be so uninformed, or confused, or just plain shit stupid enough to fall for something like that though."
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1mw8rxk/trump_and_melanias_scammy_meme_coins_have_lost/n9wehnm/
+
+BillW87 2012-01-04
+
+"It is both. They're laundering money for the purpose of a bribe. Campaign finance rules say that the House of Saud can't hand Trump $2B. However, they can bribe him with money laundered through a crypto scheme to make an illegal bribe look plausibly legal. It's a flimsy scheme that wouldn't hold up in a world where Trump didn't also control Congress and the Supreme Court, but that's where we are."
+
+&nbsp;
