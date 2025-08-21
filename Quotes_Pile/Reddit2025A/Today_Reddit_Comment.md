@@ -195,3 +195,19 @@ kia75 2014-02-24
 "Except Vance isn't taking "vacations". He's flying around and meeting with donors all over the nation and the world. He's *campaigning*! In each of his "vacations", hes meeted with various moneyed interests!
 
 The US government legally can't pay for Vance to meet with his donors, but they can pay for his "vacation trips", hence why so many vacations! But Vance is doing some politicking on the side."
+
+&nbsp;
+
+RJ5R 2021-01-05
+
+"Vance is making moves behind the scenes that neither you, nor I, nor even Trump are aware of. You think Peter Thiel is loyal to trump? Peter Thiel merely looked at Trump as a way to get Vance in..heck even Vance isn't loyal to trump he hated the guy right up until the moment Peter Thiel told him the plan. Trump doesn't even know what the heck is going on each day, he's already talking about if he will get into heaven, he's mixing up names, mixing up oceans, can't even remember countries, doesn't even remember what he says anymore. Peter Thiel is bankrolling the data mining for his companies, and allowing heritage to inject itself into every nook of government so they can execute P2025 to completion. While trump walks around pretending to be a president with sharpies and executive orders he is incapable of reading himself"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vx69h/
+
+delorf 2019-02-25
+
+"Yeah, I agree. Vance is an opportunist. Most of the top MAGA seem stupid but Vance is smart. He couldn't have gotten this far without intelligence and patience. Out of all Trump's possible replacements, he scares me the most. Thankfully, he is not the most charismatic person. It seems really hard for him to hide his smug arrogance for long periods. 
+
+I am surprised he hasn't tried to remove Trump from office yet. Maybe he doesn't have the backing to do it now. I think all the vacations are a way to distance himself from Trump."
