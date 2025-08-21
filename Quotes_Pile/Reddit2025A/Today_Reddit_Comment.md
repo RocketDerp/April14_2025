@@ -1260,3 +1260,8 @@ The crazy part is this is barely even a conspiracy, everyone knows she’s at be
 
 &nbsp;
 
+Nerevarine91 2020-08-30
+
+"If there were a hypothetical US administration that was entirely dedicated to serving Russia, what would it do differently from the present one?"
+
+&nbsp;
