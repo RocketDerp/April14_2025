@@ -89,3 +89,33 @@ graeme_1988 2019-04-25
 "She’s a rare shining light in that cesspit of a country she lives in. What on earth is happening in the world where she needs to have security?!"
 
 &nbsp;
+
+https://old.reddit.com/r/whenthe/comments/1mw7jup/thanks_reddit/n9vtlv4/
+
+JoeGibbon 2020-04-24
+
+"For real tho. I had this account "permanently" suspended by the admin bots for "harassment", for simply commenting in a thread about applying kinetic force to the faces of modern adherents of the tenets of national socialism. By some miracle I was able to successfully appeal the suspension to a human being.
+
+However, because of this "permanent suspension", all of my alts got suspended for being associated to this account. Again, for the sole reason of this false "harassment" suspension that an AI bot dreamed up.
+
+On each of those accounts I filed an appeal after this account was restored. In each case the appeal was rejected, because they found I "violated the rules", with no further clarification.
+
+Again, this was all because their killbot falsely suspended this one account for what appeared to be an AI hallucination. I had not logged into the alts in months, and did not log into them until after this account was restored and found them suspended for no reason except they were associated to this account via the IP address."
+
+&nbsp;
+
+https://old.reddit.com/r/whenthe/comments/1mw7jup/thanks_reddit/n9vu3b6/
+
+lolas_coffee 2023-11-03
+
+"Reddit admins banning me for calling Putin names after he killed my family."
+
+&nbsp;
+
+https://old.reddit.com/r/Futurology/comments/1mw7zhu/american_millennials_are_dying_at_an_alarming/n9vmvv5/
+
+lostboy005 2016-07-29
+
+"Simply, millennials have been watching the high crest water mark of post WWII progress roll back with increasing speed.
+
+Old people who should have known better pissed it all away for short term convenience, turning the planting trees for shade they’ll never see proverb on its head"
