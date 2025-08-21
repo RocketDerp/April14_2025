@@ -79,3 +79,13 @@ https://old.reddit.com/r/worldnews/comments/1mw5cun/russian_missile_strike_hits_
 No_Hay_Banda_2000 2025-05-10 (new this year)
 
 "It's a deliberate act to humiliate Trump on the world stage. This open disrespect towards America just means that they simply have to show to the public how Trump does nothing about it and how much they own America now."
+
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1mw7o2w/to_go_after_ms_rachel_for_caring_about/n9vgywr/
+
+graeme_1988 2019-04-25
+
+"She’s a rare shining light in that cesspit of a country she lives in. What on earth is happening in the world where she needs to have security?!"
+
+&nbsp;
