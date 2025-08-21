@@ -993,3 +993,28 @@ fishbikerun 2019-10-12
 * :::=== RoundSparrow_Commentary : Rural Americans mocked and made fun of *computer nerds* in the 1980's and 1990's, then the Apple iPhone came in year 2007 and changed every non-computer users into a full time meme consumer.  **"I had not realized ... that extremely short exposures to a relatively simple computer program could induce powerful delusional thinking in quite normal people."** - Weizenbaum, Joseph (year 1976). Computer Power and Human Reason: From Judgement to Calculation. W. H. Freeman. page 7. MIT computer science.
 ... The Russian IRA since March 2013 exploited this. Neil Postamn's 1985 book "Amusing Ourselves to Death" explains how meme-entertainment amusement framing of content makes people self-harm to death. Do people really think a 79 year old Donald Trump trusting Fox News, trusting Putin, trusting memes off Twitter understands information systems and research? ===:::
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1mwnx90/im_dead/n9z7giu/
+
+LakeSolon 2008-09-18
+
+<img width="1510" height="1328" alt="image" src="https://github.com/user-attachments/assets/1b94bc2c-b9fa-4152-bad7-77ee5f2cb95f" />
+
+&nbsp;
+
+"Not understanding subtext/nuance/etc is a defining characteristic.
+
+Their “humor” is just variations on name calling. It’s not funny they just laugh as an exercise in self congratulatory affirmation of superiority that each and every one of them is terrified someone might find out is a facade; that they’ll be exposed as the terrified feeble person they feel they are.
+
+I’m not yet sure if the lack of genuine laughter is the symptom or cause of them being so mad all the time.
+
+P.S. I learned a long time ago that most people default to the insults they’re most afraid of themselves. What are their favorites? Cuck/snowflake/etc
+
+P.P.S. lol automod"
+
+&nbsp;
+
+&nbsp;
