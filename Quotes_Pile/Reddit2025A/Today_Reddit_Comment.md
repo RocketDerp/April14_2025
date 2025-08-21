@@ -672,3 +672,11 @@ https://old.reddit.com/r/worldnews/comments/1mwbmci/trump_steps_back_from_russia
 Annual-Knee5521 2021-07-21
 
 "Well, we tried this huge peacemaking show with military props, our best spin doctors, and forcing world leaders to fly in for an awkward Oval Office photo op, but everyone still wants to talk about the goddamn Epstein files! On to the next distraction: can we try to stir up more shit in some dem cities maybe?"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mwbmci/trump_steps_back_from_russia_and_ukraine_peace/n9wp5i3/
+
+harryx67 2024-06-14
+
+"Trump will be remembered as the biggest loser in the history of the USA and he still has three and a half years to go. Imagine the damage to come if the trend continues. 🤦‍♂️"
