@@ -865,3 +865,11 @@ ZoomZoom_Driver 2023-01-26
 "Any day now, I'll smoke the largest joint IN MY LIFE, then find out where his grave is so i can join the millions who will pilgrimage to piss on it."
 
 &nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9s0m63/
+
+noestaaqui99 2022-10-07 (Putin's birthday, one year before Putin's Birthday terrorism Palestine attack)
+
+"They genuinely believe it though. That parasocial relationship dynamic is critical to his support. They genuinely believe he cares about them individually. It would be pitiable if everyone involved wasn't so horrible."
+
+&nbsp;
