@@ -443,3 +443,14 @@ BuddhistSagan 2011-09-13
 
 * :::=== RoundSparrow_Commentary : Nobody can beat Donald Trump's antics and Tony Clifton act. Media addiction to trash content, shit memes, shit television, garbage addiction runs the USA for 10 years. Children have been raised for a decade that Donald Trump is a role model of a social media influencer. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mwa389/gavin_newsomwere_gonna_punch_these_sons_of_btches/n9wm0ke/
+
+Tr33Bl00d 2021-07-06
+
+"This should have been the campaign we got. Most Americans want to watch a wrestling match and most of the established party won’t pay attention to the poorer side of the electorate"
+
+* :::=== RoundSparrow_Commentary : "Most Americans want to watch a wrestling match", the *fiction* kind of dramatic Tony Clifton style wresteling. ===:::
+
+&nbsp;
