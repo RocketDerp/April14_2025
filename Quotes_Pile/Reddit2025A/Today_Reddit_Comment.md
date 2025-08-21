@@ -961,3 +961,19 @@ not_ch3ddar 2022-07-23
 "Blows my mind that the sheep dont realize trump is a wolf"
 
 * :::=== RoundSparrow_Commentary : Russian **information warfare since March 2013 has blown the minds of American population** to not discuss facts, timelines, players in the [Internet Research Agency agreement that Trump made in November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9s4obs/
+
+Cosmicdusterian 2020-03-14
+
+"Why are these people under this sick delusion that he gives a shit about them, much less reads their pleas? It wasn't like he didn't spend the whole fricking campaign waxing poetic about "beautiful tariffs". WTH did he and his daughter expect? That her suppliers would eat the cost?
+
+Those bastions of MAGA, Home Depot and Walmart are both raising prices and are being upfront that it's because of the Trump Tariff Tax. Imagine if a Democrat did this. Every article, every newscast would be pounding it into the nation's subconscious. I can see the headlines now:
+
+Democrat Tariffs Are Raising Taxes on all American by More Than 30%!!!! Small Businesses are Collapsing Thank to Democratic Tariff Policy. Why is Congress Silent on Democratic Tariiffs?
+
+These supporters see Trump is doing taxing them into bankruptcy and business failure, and instead of getting angry about it, these bozos are pleading with him to reconsider. As if.
+
+The media is, of course, "ho hum it's okay if you're a Republican taxing the shit out of Americans". If Biden were doing this it would be doom headlines every single hour."
