@@ -548,3 +548,33 @@ BillW87 2012-01-04
 "It is both. They're laundering money for the purpose of a bribe. Campaign finance rules say that the House of Saud can't hand Trump $2B. However, they can bribe him with money laundered through a crypto scheme to make an illegal bribe look plausibly legal. It's a flimsy scheme that wouldn't hold up in a world where Trump didn't also control Congress and the Supreme Court, but that's where we are."
 
 &nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mwect4/aries_spears_go_off_on_a_trumper_at_his_show/n9x70ff/
+
+I-Love-Tatertots 2023-04-08
+
+"I’ve lived in the Deep South my whole life.
+
+All around me the church goers have always acted like they are the most persecuted people on the planet, and like no one has suffered as much as Christians.
+
+Going to church as a kid, I was almost immediately turned off because the second you questioned anything you were treated like an outcast it felt like. You weren’t part of the “in group” anymore.
+
+Note: As a kid, the only question I really had was “Why do we act like Judas and the Romans are bad guys for what they did to Jesus?” because in my kid brain I thought that, if it was all God’s plan, then they should not be punished or hated for their actions.
+
+It was more of questioning how we had free will if everything was God’s plan, because those two things contradict each other.
+
+It later evolved into questioning things like how are Christians persecuted if people of that faith control pretty much all of Western civilization?
+
+Like… it’s absolutely wild to me, and even as an adult I can’t grasp how people don’t see all the contradictions."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mwect4/aries_spears_go_off_on_a_trumper_at_his_show/n9x3nko/
+
+radiantwave 2006-03-23 (LONG-time Reddit account)
+
+"What cracks me up is that these are the people that invented the word Snowflake to throw at liberals. 
+
+MAGA people are the worst snowflakes ever. From ice to teardrops in the blink of an Epstein file."
+
+&nbsp;
