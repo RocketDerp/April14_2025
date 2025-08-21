@@ -923,3 +923,31 @@ karankshah 2011-03-26
 "This whole personal appeal thing is something Trump and his lackeys *absolutely love* - they love to be able to pick and choose who they help and who they don't.
 
 No functioning democracy would hand that much power to government officials like that, which is why they're dismantling traditional bureaucracy in the US."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9sdpa6/
+
+spyguy318 2015-03-20
+
+"These are the kinds of people who believe you can get a job by walking up to the front desk, asking to see the CEO, and handing them your resume with a firm handshake. They’re the kind of people who believe all those hoodlums on the streets should get a job and be productive. The kind that tout traditional American values without even realizing how that phrase has been co-opted by white supremacists, authoritarians, and grifters. Their sensibilities are old fashioned and out of date. I’ve seen it so many times and it’s always a huge reality check when consequences actually hit them in the face."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9siqku/
+
+therealtaddymason 2024-10-20
+
+"This is what caught my attention too. A letter to him? Like he's the fucking editor of a paper or Santa Claus. Also Trump is more or less illiterate so good luck with that. Hope you used really small basic words in your plea letter to the Idiot King."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9sqwkq/
+
+YT-Deliveries 2018-03-21
+
+"I'll never get tired of saying this: they're praying to Trump. It's a cult and their letters, tweets, replies, posts, etc are in all substantive matters the equivalent of praying to a deity for favor, relief or deliverance.
+
+With the added bonus of the deity not giving a shit about them."
+
+* :::=== RoundSparrow_Commentary : I'm tired of saying it... it is a *media cult*. media addiction as defined in Neil Postman's 1985 book "Amusing Ourselves To Death" on media ecology. L Ron Hubbard is dead, the science fiction media cult of Sceintology storytelling lives on. And Reddit / Bluesky users with free time and spare time to comment is a cult don't ever say: **Hey, we need to do our civic duty and go tot he public library and get every book we can about cult deprogramming and get it to the front page and trending hashtags every 12 hours for the next 18 months, who can take the next shift of creating the teaching about cults?** People do not want to *rescue MAGA* from Kremlin information warfare won, rescue lost hearts and minds that Putin stole, people want to mock and insult and attack fellow Americans. ===:::
