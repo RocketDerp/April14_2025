@@ -883,3 +883,13 @@ https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_mani
 Convergecult15 2015-07-26
 
 "The boomers built a system and molded a society so shield themselves from consequences, and it worked flawlessly until Trump. Congress ceded all power to the President so that they’d have an eternal scape goat for their lack of action on literally anything that may upset people, they left the back door open because they were worried about the neighbors peeping in the windows."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_manic_fascist_rantand/n9wnnnf/
+
+Str4425 2019-04-26
+
+"You’re right. But here’s what I think the weakness is. Constantly now, whenever some group criticizes Trump, they become the enemy. It was whites against cat-eating latinos during the election. Now even whites are Miller’s enemies. Point being, Trump governs for the few and is intent on leaving most of the population worse off to make him and his friends better off. 
+
+Pretty soon big part of the voters will be made his enemies. Even Trump’s propaganda machine can’t handle that effectively."
