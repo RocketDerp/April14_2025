@@ -909,3 +909,21 @@ https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_mani
 Historical_Bend_2629 2023-03-23
 
 "Bully maybe isn’t the right word, just expose them. Quote them. Shed light. Taking an unfiltered picture isn’t bullying."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_manic_fascist_rantand/n9wmw2y/
+
+Rombledore 2013-04-11
+
+"tbh when people call all this fascist takeover actions a "distraction"- it begun to anger me. the firehose of bullshit is designed to make *everything* a distraction. yes, putting his relationship and his participation in Epstein's child trafficking ring on blast IS important. but SO IS calling out these blatantly unconstitutional, retaliatory and discriminatory actions he's been taking.
+
+we should be protesting in the streets for **all of it**, not pick and choose which ones should be the focus. if the firehose of bullshit is meant to put out the fires of dissent, then those very same fires need to be uncontrollable to where they can't put it out. and that is done via constant, large scale, nationwide PROTESTS."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_manic_fascist_rantand/n9x33np/
+
+"I firmly believe it was Miller’s personal insights to the inner workings and frustrations of incel and y’allqueda psychology that has led to Trumps success and popularity. He perfectly articulates the delusions of a nation, gender, culture under attack and presents it as fact, preying on their vulnerabilities. The sick part is, these supporters are hurt by problem they face that were created in whole by decades of conservative destruction of the fabric of American culture that was forming organically from the strengths of the diverse, educated populous. This was too much success for conservatives, or rather, too many people succeeding at living their lives as they pleased. To turn it around and effectively assign blame on the people who were actually living and fighting for incels success and happiness is a level an evil and masterful manipulation I will never understand. I can’t imagine being so deceived that knowing the history of this world and the U.S., one can think that Stephen Miller’s world view is the solution and not the problem. This is a main reason why they are now looking to rewrite history in a fictional way that would supports this delusion. It will make the deception much easier if there is no truth to counter it."
+
+* :::=== RoundSparrow_Commentary : This is a message you would share on social media if you never ever studied Putin and Surkov power for 25 years or studied the Internet Research Agency or studied Cambridge Analytica and were in complete denial of the information warfare out of Russia since March 2013. It ENITRELY basis this on domestic USA, fixated on North America, and entirely DENIES mutliple NATO nations reporting Russian information warfare. ["The cyber soldiers are ruthlessly targeting politicians and audiences across a number of countries including the UK, South Africa and India. The research exposes how the Kremlin’s large-scale disinformation campaign is designed to manipulate international public opinion of Russia’s illegitimate war in Ukraine, trying to grow support for their abhorrent war, and recruiting new Putin sympathisers. Sick masterminds of the operation are believed to be working overtly from an old factory in St Petersburg, with paid employees, and internal working teams."](https://www.gov.uk/government/news/uk-exposes-sick-russian-troll-factory-plaguing-social-media-with-kremlin-propaganda) ===:::
