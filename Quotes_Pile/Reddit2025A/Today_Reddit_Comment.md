@@ -901,3 +901,11 @@ https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_mani
 sluttttt 2013-12-19
 
 "Miller and RFK Jr. freak me out more than Trump does in several ways. Trump is a classic racist POS and has no problem flaunting it verbally, and that's certainly bad considering that he's basically a cult leader, but both Miller and RFK Jr. seem to have well-defined visions of how they plan to handle any group of people that they view as "undesirable." It's straight-up Nazi shit, but too many will still argue that calling it that is an exaggeration."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwclsi/stephen_miller_erupts_in_manic_fascist_rantand/n9wzdh2/
+
+Historical_Bend_2629 2023-03-23
+
+"Bully maybe isn’t the right word, just expose them. Quote them. Shed light. Taking an unfiltered picture isn’t bullying."
