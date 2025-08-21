@@ -984,3 +984,11 @@ https://old.reddit.com/r/politics/comments/1mwmxjk/if_you_still_support_trump_lo
 
 &nbsp;
 
+https://old.reddit.com/r/PoliticalHumor/comments/1mwnx90/im_dead/n9z48gn/
+
+fishbikerun 2019-10-12
+
+"Recent events would lead me to believe they are that dense. Trump supporters are just so infuriating, you can’t even make fun of them because they don’t even understand the joke."
+
+* :::=== RoundSparrow_Commentary : Rural Americans mocked and made fun of *computer nerds* in the 1980's and 1990's, then the Apple iPhone came in year 2007 and changed every non-computer users into a full time meme consumer.  **"I had not realized ... that extremely short exposures to a relatively simple computer program could induce powerful delusional thinking in quite normal people."*** Weizenbaum, Joseph (year 1976). Computer Power and Human Reason: From Judgement to Calculation. W. H. Freeman. page 7. MIT computer science. The Russian IRA since March 2013 exploited this. Neil Postamn's 1985 book "Amusing Ourselves to Death" explains how meme-entertainment amusement framing of content makes people self-harm to death. ===:::
+
