@@ -72,3 +72,10 @@ xorinz 2015-11-03
 
 Trump is such a muppet.. my god."
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mw5cun/russian_missile_strike_hits_usowned_factory_in/n9vmssq/
+
+No_Hay_Banda_2000 2025-05-10 (new this year)
+
+"It's a deliberate act to humiliate Trump on the world stage. This open disrespect towards America just means that they simply have to show to the public how Trump does nothing about it and how much they own America now."
