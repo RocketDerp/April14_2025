@@ -211,3 +211,13 @@ delorf 2019-02-25
 "Yeah, I agree. Vance is an opportunist. Most of the top MAGA seem stupid but Vance is smart. He couldn't have gotten this far without intelligence and patience. Out of all Trump's possible replacements, he scares me the most. Thankfully, he is not the most charismatic person. It seems really hard for him to hide his smug arrogance for long periods. 
 
 I am surprised he hasn't tried to remove Trump from office yet. Maybe he doesn't have the backing to do it now. I think all the vacations are a way to distance himself from Trump."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vy2om/
+
+UpbeatAccountant3710 2021-05-17
+
+"100%. Trump is the guy that is going to get as much as Project 2025 done. When he pops his clogs Vance will step in and Thiel will pull strings. So fucking sad what's happening over there. Gonna affect everyone on the planet. Would never consider visiting the States now."
+
+&nbsp;
