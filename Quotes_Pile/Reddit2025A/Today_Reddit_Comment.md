@@ -1167,3 +1167,9 @@ PixelBrewery 2014-07-22
 "I like it as a form of mockery against Donald Trump because he's a piece of shit. I don't like it as a new model for all Democrats to become exactly like Donald Trump"
 
 &nbsp;
+
+No_Investment9639 2021-01-22
+
+"Shit like this is how you win a presidency. Republicans created a world where we don't have to be polite anymore and we can just be sarcastic assholes and that's just how it is now. I'm happy to see some left Wingers go along with it. Do I wish that we had some of the class and Grace that Obama showed us? Sure. But we don't live in that world anymore, so let's keep doing shit like this because you either adapt or die"
+
+&nbsp;
