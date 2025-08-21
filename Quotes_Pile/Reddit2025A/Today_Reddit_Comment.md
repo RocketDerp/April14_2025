@@ -620,3 +620,23 @@ DeaddyRuxpin 2016-12-17
 "At this point I think Putin is just trolling the American public. He wants to keep pointing out how Trump is pathetic and completely under Putin’s control."
 
 &nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mweg5p/this_is_a_literal_shot_across_the_bow/n9x1jas/
+
+Quietschedalek 2021-02-02
+
+"Putin just disproved Mango Mussolinis talking points about his raw materials deal with Ukraine. Since Peachy Palpatine claimed that the presence of US companies in Ukraine would act as a security guarantee, because russia would never dare to attack US companies, Ukraine would hence be save. Putin just embarassed the Conman-in-chief in front of the whole world. And sure as hell, the White House usurper won'T retaliate. Because he always chickens out."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mweg5p/this_is_a_literal_shot_across_the_bow/n9x7jhx/
+
+BalanceTraining 2020-10-06
+
+"It's embarrassing watching the trump get played so easily. The rest of the world sees him for the sad clown that he is but somehow he's viewed as a hero by maga. It boggles my brain."
+
+&nbsp;
+
+
+
+&nbsp;
