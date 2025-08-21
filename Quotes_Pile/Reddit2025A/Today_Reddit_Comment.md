@@ -950,4 +950,14 @@ YT-Deliveries 2018-03-21
 
 With the added bonus of the deity not giving a shit about them."
 
-* :::=== RoundSparrow_Commentary : I'm tired of saying it... it is a *media cult*. media addiction as defined in Neil Postman's 1985 book "Amusing Ourselves To Death" on media ecology. L Ron Hubbard is dead, the science fiction media cult of Sceintology storytelling lives on. And Reddit / Bluesky users with free time and spare time to comment is a cult don't ever say: **Hey, we need to do our civic duty and go tot he public library and get every book we can about cult deprogramming and get it to the front page and trending hashtags every 12 hours for the next 18 months, who can take the next shift of creating the teaching about cults?** People do not want to *rescue MAGA* from Kremlin information warfare won, rescue lost hearts and minds that Putin stole, people want to mock and insult and attack fellow Americans. ===:::
+* :::=== RoundSparrow_Commentary : I'm tired of saying it... it is a *media cult*. media addiction as defined in Neil Postman's 1985 book "Amusing Ourselves To Death" on media ecology. L Ron Hubbard is dead, the science fiction media cult of Sceintology storytelling lives on. And Reddit / Bluesky users with free time and spare time to comment that "White House is a cult" over and over every day... don't ever say: **Hey, we all need to do our civic duty and go to the public library and get every book we can about cult deprogramming and get quotes to the front page and trending hashtags every 12 hours for the next 18 months, who can take the next shift of creating the teaching about cults?** People do not want to *rescue MAGA* from Kremlin information warfare won, rescue lost hearts and minds that Putin stole, people want to mock and insult and attack fellow Americans. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9rzv75/
+
+not_ch3ddar 2022-07-23
+
+"Blows my mind that the sheep dont realize trump is a wolf"
+
+* :::=== RoundSparrow_Commentary : Russian **information warfare since March 2013 has blown the minds of American population** to not discuss facts, timelines, players in the [Internet Research Agency agreement that Trump made in November 2012](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/). ===:::
