@@ -970,4 +970,17 @@ I can't believe how big an ego one must have to be this terrible at something wh
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mwo0xd/a_fascist_international_is_forming_with_the_trump/
+
+"A fascist international is forming, with the Trump regime at its center"
+
+* :::=== RoundSparrow_Commentary : Denial denial, Recency bias, denial denial. Deecember 2013, Putin Russia annoucned Conservative International movement in Moscow. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/  One month after Donald Trump visit to Moscow November 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mwmxjk/if_you_still_support_trump_look_in_the_mirror_the/
+
+" ‘If you still support Trump, look in the mirror’: The 13-year-old Texas boy who has gone viral for criticizing the president on social media "
+
+&nbsp;
 
