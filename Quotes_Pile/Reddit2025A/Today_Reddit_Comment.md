@@ -432,3 +432,14 @@ rileyjw90 2017-08-25
 "I mean isn’t this exactly what people claimed to like about Trump? Not afraid to pull punches, tells it like it is?
 
 Except Newsom actually puts his money where his mouth is and follows through with the promises he makes."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mwa389/gavin_newsomwere_gonna_punch_these_sons_of_btches/n9wvkn6/
+
+BuddhistSagan 2011-09-13
+
+"And how did that work out? Turns out when beating Trump is your only priority people don't seem to wanna show up and vote for that."
+
+* :::=== RoundSparrow_Commentary : Nobody can beat Donald Trump's antics and Tony Clifton act. Media addiction to trash content, shit memes, shit television, garbage addiction runs the USA for 10 years. Children have been raised for a decade that Donald Trump is a role model of a social media influencer. ===:::
+
