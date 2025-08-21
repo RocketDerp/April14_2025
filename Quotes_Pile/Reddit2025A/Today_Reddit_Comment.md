@@ -1049,3 +1049,26 @@ https://old.reddit.com/r/goodnews/comments/1mvtsln/its_time/n9t6py3/
 BobaTheMaltipoo 2025-05-07 (recent account)
 
 "It's because liberals have a habit of always trying to appease conservatives, while conservatives want liberals killed/imprisoned/enslaved, which is why the appeasement is fucking stupid."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mvtsln/its_time/n9tfee9/
+
+aPrussianBot 2024-10-10 (new this year, note mocking username)
+
+"Corporate neoliberals are literally the enemy of the left man wtf are you people talking about
+
+Liberals don't actually believe in anything so they get really confused when leftists who actually do still despise worthless corporate scum like Newsom. Just because he does some stupid little unfunny internet posts doesn't suddenly make him NOT a corporate neoliberal scumbag. If all it takes to get you guys clapping like trained monkeys is dumb tweets, no wonder Democrats can get away with and do anything, you let them do anything including genocide because all it takes to get your approval is to le epically pwn the orange man. No fking standards or beliefs whatsoever. Genuinely pathetic."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mvtsln/its_time/n9t5der/
+
+TheMonsterMensch 2019-08-01
+
+"No he doesn't. He's been absolutely horrible to the homeless and there isn't anyone he isn't willing to throw under the bus. He does't even hate Trump, he'll have his entire cabinet on his podcast. This is funny but we can do better."
+
+* :::=== RoundSparrow_Commentary : social media addict nation, population, cares only about the funny amusing part. Neil Postman 1985 book "Amusing Ourselves To Death" (I keep repeating) explains social media addiction problems. ===:::
+
+&nbsp;
+
