@@ -738,3 +738,8 @@ https://www.youtube.com/watch?v=Lhfd9BOXPFE
 Left vs. right, fiction vs. nonfiction.   
 Morality topic discussion    
 https://old.reddit.com/r/science/comments/1mw6s83/leftist_causes_widely_seen_as_more_moral_even_by/
+
+&nbsp;
+
+The graphics artists, commercial artists, meme chamers did not defend against the IRA and ongoing Russian information war since March 2013. The elderly and youth were mocked as Russia mind-fucked them, people have been kicking the rural population while they were down and abused by Kremlin.    
+https://old.reddit.com/r/Millennials/comments/1mwbr53/accurate/
