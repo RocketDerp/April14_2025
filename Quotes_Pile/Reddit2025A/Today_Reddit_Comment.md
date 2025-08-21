@@ -829,3 +829,11 @@ The-Traveler- 2025-01-06 (new this year)
 "Best one so far. The more ridiculous the better because FOX can’t spin them."
 
 * :::=== RoundSparrow_Commentary : Fox News does not need to spin fiction into fiction. They just present it directly. Pre-fiction packaged. Addiciton to fiction has ruined the uSA since March 2013 when IRA started mind-fucking everyone. Putin won the *War Against Reality*, the War Against Nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Snorkblot/comments/1mwcwys/gavin_will_end_1_million_wars_by_christmas/n9wo1en/
+
+Pristine-Manner-6921 2024-11-09 (joined at election win)
+
+"Politics is so unserious, we're all getting what we deserve"
