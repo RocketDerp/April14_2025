@@ -496,3 +496,11 @@ I think that's a the main thing Gavin has brought, he is mad, he acts angry, lik
 * :::=== RoundSparrow_Commentary : Like Donald Trump is angry, like MAGA is angry. PLOT TO BREAK AMERICA: "What Cambridge Analytica observed was that when respondents **were angry**, their *need for complete and rational explanations was also significantly reduced*. In particular, **anger put people in a frame of mind** in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019** ... and social media addicts want MORE anti-intellectual anger in August 2025. Always more mocking, always more satire, always more South Park to the Tony Clifton satire, always more Russian information warfare, always more hate, always more mocking, always more fiction, always [more anger](https://www.youtube.com/watch?v=xpYHgbjOIq0) machine messages. **Always avodiing nonfiction books like Christopher Wylie** and Neil Postman. Always avoiding educaiton like Malala from Pakistan. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1mwaaxo/hannity_going_on_fox_news_to_claim_a_performative/
+
+"Hannity going on Fox News to claim a performative confrontational style won't win votes"
+
+* :::=== RoundSparrow_Commentary :  Population of USA eating the Surkovian onions. Meme aduciences onion eating... as if Kremlin informaiton warfare, Surkov methods, don't exist and that it hasn't been the basis of Russian information warfare. [Contradictory is intentional, and Reddit users are eating the shit up for a decae, unable to cite **Adam Curtis BBC from year 2014**](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). ===:::
+
+&nbsp;
