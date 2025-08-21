@@ -801,3 +801,9 @@ Rizenstrom 2015-05-08
 "Seems like more and more things they say are just blatantly false but they know their base is either too ignorant to fact check or simply doesn’t care."
 
 &nbsp;
+
+https://old.reddit.com/r/GetNoted/comments/1mwd9lt/are_they_though/n9xtiem/
+
+lawnderl 2023-02-14
+
+"It is time for extreme stupidity days now"
