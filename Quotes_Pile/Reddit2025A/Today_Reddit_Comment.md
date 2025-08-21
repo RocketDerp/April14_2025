@@ -578,3 +578,21 @@ radiantwave 2006-03-23 (LONG-time Reddit account)
 MAGA people are the worst snowflakes ever. From ice to teardrops in the blink of an Epstein file."
 
 &nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mwect4/aries_spears_go_off_on_a_trumper_at_his_show/n9wwng5/
+
+Looptydude 2016-05-12
+
+"What's more fuck up is these people walk out like they still won the argument, like some kind of martyr for sticking for trump."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mwect4/aries_spears_go_off_on_a_trumper_at_his_show/n9wvmil/
+
+Apprehensive_Zone281 2021-02-19
+
+"They're trump supporters. They're used to be publicly humiliated. He does it to them every days so they're numb to it."
+
+* :::=== RoundSparrow_Commentary : Cambridge Analytica and the Internet Research Agency have mind-fucked people since March 2013 to self-harm the USA. Attracted to hate, adopting mocking, attraction to dehumanization, *hate thy enemy, hate harder to solve problems* attitudes. [Trump's November 2012 agreement with the Kremlin to use Cambridge Analytica](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/). ===:::
+
+&nbsp;
