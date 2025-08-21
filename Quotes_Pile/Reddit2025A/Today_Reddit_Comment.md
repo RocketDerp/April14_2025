@@ -152,3 +152,28 @@ TheShipEliza 2019-01-07
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vook3/
+
+Deicide1031 2020-09-26
+
+"Why are people even still afraid of him?
+
+He’s declined so much that if you look at him even just 2-3 years ago there’s a noticeable difference."
+
+* :::=== RoundSparrow_Commentary : Let it be known world: This twitter-length tweet-think comment is shallow. Let it be known: People here in USA are not *afraid* of Donald J. Trump. What people can't tolerate in USA is boredom of Joe Biden and normal intelligent people. Study The Killing Fields in Cambodia 1975. People in USA are scared to death of not having nonstop amusement and entertainment. That is why they won't do the ONE THING that addresses Donald Trump Reality TV "The Apprentice" and Fox News - be serious and sustained about teaching media ecology. People here are so afraid of their own addiciton to television (Donald Trump is a total addict to media content), that they wont' discuss media warfare even from enemy nation Russia. [Neil Postman's 1985 book "Amusing Ourselves To Death" explains Donald Trump and Putin's power over the population. Twitter thinking and meme addiciton to mockery and insulting, Donald Trump playing Tony Clifton is irresistable to chuckleheadn amused societ](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/). We here in USA have social media channel after social media feed streaming non-stop Trump hate content. Fox News is not "old with bad health", and people like the same fiction content bullshit addiction that you see with Donald Trump. Look at the other people like Elon Musk, they provide fiction Twitter content. We have a nassive media ecology crisis, addiction to fiction. Donald Trump is the ringleader of media addicts population. Joe Biden was "sleepy boring" to people, not entertaining. Jimmy Carter was not entertaining in 1979, people voted for entertainer Ronald Reagan - that is the topic of Neil Postmans' 1985 book (Reagan's second term in office, entertainment amusement addiction). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9w14fq/
+
+sobakedbruh 2018-03-11
+
+"I think they are out of touch with anything above the age of 12."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vw7yk/
+
+Soulshiner402 2018-10-11
+
+"They’re not afraid of him, they are using him for cover. They’ll prop him up in front of the cameras for as long as they can just like they did with Reagan."
