@@ -837,3 +837,13 @@ https://old.reddit.com/r/Snorkblot/comments/1mwcwys/gavin_will_end_1_million_war
 Pristine-Manner-6921 2024-11-09 (joined at election win)
 
 "Politics is so unserious, we're all getting what we deserve"
+
+&nbsp;
+
+https://old.reddit.com/r/Snorkblot/comments/1mwcwys/gavin_will_end_1_million_wars_by_christmas/n9wyne2/
+
+Jaded_Jellybean 2023-05-31
+
+"There's nothing progressive about using generative AI. Fuck anyone willing to destroy the planet regardless of party."
+
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. ===:::
