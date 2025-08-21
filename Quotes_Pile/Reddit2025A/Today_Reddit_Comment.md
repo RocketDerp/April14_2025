@@ -1077,3 +1077,13 @@ https://old.reddit.com/r/goodnews/comments/1mvtsln/its_time/n9sqv9f/
 Bluedogpinkcat 2018-12-30
 
 "Hell no. We need real change. AOC!!!!!!!!"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mvuvep/trump_says_us_will_not_approve_solar_or_wind/n9swtsy/
+
+lordnecro 2009-10-17
+
+"I don't know... I kinda agree. Whatever republicans are is so far beyond stupid that we really need a different word."
+
+
