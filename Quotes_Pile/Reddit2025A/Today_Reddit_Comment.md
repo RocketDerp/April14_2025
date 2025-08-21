@@ -43,3 +43,21 @@ FireFistMihawk 2015-11-16
 "I was literally talking about this at lunch with my friend the other day, the little press conference with Putin & Trump the other day following their meeting absolutely felt like Putin was mocking Trump and America right to his face and the man just doesn't see it lol."
 
 * :::=== RoundSparrow_Commentary : LOL LOL, [eating the Surkovian onion, ignorant of how Russian media works](Surkovian_Onion_Eating.md). Thinks it is "lol" at end of message, social media laugh track. In denial, thinks antics politics isn't a possibility. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mw5cun/russian_missile_strike_hits_usowned_factory_in/n9v2tai/
+
+ZyronZA 2013-08-15
+
+"Trump will definitely blame Zelenskyy for this and say if Zelenskyy didn't start the war and just gave putin what he wants, that factory would not have been hit with a missile.
+
+And then he'll blame the workers for being an easy target."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mw5cun/russian_missile_strike_hits_usowned_factory_in/n9v3ydg/
+
+Yuzumi_ 2017-04-04
+
+"The fact that we have reached a point where this seems plausible goes to show just how fucked all of this is."
