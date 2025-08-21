@@ -743,3 +743,8 @@ https://old.reddit.com/r/science/comments/1mw6s83/leftist_causes_widely_seen_as_
 
 The graphics artists, commercial artists, meme chamers did not defend against the IRA and ongoing Russian information war since March 2013. The elderly and youth were mocked as Russia mind-fucked them, people have been kicking the rural population while they were down and abused by Kremlin.    
 https://old.reddit.com/r/Millennials/comments/1mwbr53/accurate/
+
+&nbsp;
+
+pro-Malala, give girls education to defend and communicate about the Epstein abuse / Taliban elder child marriage abuse, parents abusing.   
+https://old.reddit.com/r/TikTokCringe/comments/1mwd7uo/this_is_actually_the_level_of_seriousness_needed/
