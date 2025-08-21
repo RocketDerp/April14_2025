@@ -1113,3 +1113,16 @@ https://old.reddit.com/r/democrats/comments/1mvzf29/gavin_just_destroyed_fox_and
 rhj2020 2019-10-11
 
 "That is the most beautiful thing I have ever read. Really, conservatives are so pissed. They literally don’t know what to say. That’s exactly what Trump sounds like."
+
+&nbsp;
+
+https://old.reddit.com/r/democrats/comments/1mvzf29/gavin_just_destroyed_fox_and_im_here_for_it/n9ug3wy/
+
+GeneralZex 2014-03-17
+
+"I think they are scared. They know “he talks like me”was one of the ways Trump appeared as someone “for” the common man (despite all evidence to the contrary…), as a political outsider (despite being part of the elite…), and what made dumbasses think he was funny…
+
+I suspect they fear that Newsom may tap into some of the things that made Trump popular."
+
+&nbsp;
+
