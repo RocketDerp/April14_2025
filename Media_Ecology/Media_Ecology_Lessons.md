@@ -390,4 +390,5 @@ https://old.reddit.com/r/comics/comments/1mvjuva/liam_pranks_gator_days/
 
 Hugely popular content.    
 style of skill, team social skills, good shooter vs. good teammate    
+One trick pony metaphore. One favorite skill, one overdeveloped talent.   
 https://www.youtube.com/watch?v=gYZFmW3k5-E
