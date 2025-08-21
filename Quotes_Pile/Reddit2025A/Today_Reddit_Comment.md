@@ -530,3 +530,13 @@ thotfullawful 2018-12-28
 "You also have to think how much stress he's under from all sides. Lying and keeping up with constant threads, backlash from a failing economy by design, half of the staff he brought on can't keep their own story straight so he has to monitor them to keep up with the lies, Putin not particularly happy if he doesn't answer a single call, everyone constantly bringing up his best friend Epstein and just how much he loves little girls. Stress is a huge killer, and with the poor circulation something will break in a way that not a single doctor can fix- because he deported them."
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1mw8rxk/trump_and_melanias_scammy_meme_coins_have_lost/n9w2ofp/
+
+Professional-Put7605 2024-06-02
+
+"I'm definitely not the smartest person on the planet, far from it. I, like anyone else, can get manipulated and scammed under the right circumstances.
+
+I just don't understand how anyone can be so uninformed, or confused, or just plain shit stupid enough to fall for something like that though."
+
+&nbsp;
