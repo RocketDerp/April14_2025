@@ -61,3 +61,14 @@ https://old.reddit.com/r/worldnews/comments/1mw5cun/russian_missile_strike_hits_
 Yuzumi_ 2017-04-04
 
 "The fact that we have reached a point where this seems plausible goes to show just how fucked all of this is."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mw5cun/russian_missile_strike_hits_usowned_factory_in/n9vgvkb/
+
+xorinz 2015-11-03
+
+"So let me get this straight.. Trump was about to turn up the heat with some nice sanctions.. Putin fools him with a trip.. Trump gets hoodwinked, forgets all about sanctions.. then ruzzians get to go back home and bomb US factories. Lol.
+
+Trump is such a muppet.. my god."
+
