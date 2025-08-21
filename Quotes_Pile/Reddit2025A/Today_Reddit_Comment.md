@@ -945,3 +945,29 @@ Tennessian91 **2025-07-30 (new account)**
 "I’m convinced he is going to die relatively soon just because of how much MAGA spouted against Biden and it’s all projection. Just like how Jr is a coke head"
 
 * :::=== RoundSparrow_Commentary : **convinced**, vibe thinking, Tweet-think Twitter-length thinking. Very sus message, as it encourages Tweet-thinking audience to *do nothing* to address Russian information warfare and just sit back and let Donald Trump health take care of the issues. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1mwj75r/guy_needs_to_see_a_therapist/n9xvnx3/
+
+zigaliciousone 2012-09-08
+
+"I am a classically trained chef, now watch as I handle raw food before handling prepared food without changing my gloves or washing my hands"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1mwj75r/guy_needs_to_see_a_therapist/n9ygiiz/
+
+Meph616 2012-10-21
+
+"He takes it too seriously while also sucking ass at it. 
+
+Keeps pulling the bread off the griddle instead of letting it toast on there. Doesn't put any salt or any other seasoning on there. Doesn't caramelize onions, just cold raw onions. Uses Whiz like a toddler, complaining about baby food, instead of the far superior and only true cheesesteak cheese: provolone. Doesn't wash hands after handling raw meat.
+
+I can't believe how big an ego one must have to be this terrible at something while also acting like the gatekeeper of it."
+
+* :::=== RoundSparrow_Commentary : I lived in Philadelphia while I worked for SAP and went to a dozen shops. Is this guy doing aa social media Tony Clifton act? Is this antoher example of the outcome of Donald Trump role model society? ====:::
+
+&nbsp;
+
+
