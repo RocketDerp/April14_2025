@@ -1281,3 +1281,11 @@ Guataguano 2016-04-26
 "Why does it fucking feel like they are weakening the country for a takeover??? Putin’s visit with his orange agent in chief was just a visit like Palpatine spot checking the Death Star"
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9uk0dq/
+
+rykahn 2014-08-24
+
+"A known agent of a hostile foreign power becoming DNI and then subsequently firing half of the intelligence staff, including the team working on influence campaigns from said hostile foreign power, is too farcical for even dime novels. Yet here it is, happening before our eyes, and it's a below the fold story"
+
+&nbsp;
