@@ -726,3 +726,9 @@ Democracy without Media Ecology
 
 The Problem of Natural Disaster | Why the Christian God is a Terrorist    
 https://www.youtube.com/watch?v=PbM420xPC-g
+
+&nbsp;
+
+Junk image addicts are not goint to care of film or TV meme image is fiction or nonfiction anymore than religon people cared if a story was ficiton or nonfiction when they go to war against another religion in The Crusades   
+The apathy towards truth, fiction vs. nonfiction, was the hippie revolution / Woodstock 1969 was actually caring about each other at macro (Pale Blue Dot) level to actually desire sincerity. Now with machines that lie, artificial fiction, there isn't even humans behind our addiction to fiction.   
+https://www.youtube.com/watch?v=Lhfd9BOXPFE
