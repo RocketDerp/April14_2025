@@ -177,3 +177,21 @@ https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after
 Soulshiner402 2018-10-11
 
 "They’re not afraid of him, they are using him for cover. They’ll prop him up in front of the cameras for as long as they can just like they did with Reagan."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vvv9m/
+
+Raesong 2011-12-29 (Self declare Austrailian on account)
+
+"Considering that by all measures the ultimate goal of the GOP is turning the United States into a Dictatorship, they won't really even need MAGA for much longer."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vxjuc/
+
+kia75 2014-02-24
+
+"Except Vance isn't taking "vacations". He's flying around and meeting with donors all over the nation and the world. He's *campaigning*! In each of his "vacations", hes meeted with various moneyed interests!
+
+The US government legally can't pay for Vance to meet with his donors, but they can pay for his "vacation trips", hence why so many vacations! But Vance is doing some politicking on the side."
