@@ -1105,3 +1105,11 @@ jlb1981 2015-02-02
 "Technically it's Putin's goal and Trump's just carrying it out, but yeah"
 
 * :::=== RoundSparrow_Commentary : USA media addicts are addicted to mockign and insulting. We The People People don't want to be serious and face up to the media addiciton force driving the USA population. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/democrats/comments/1mvzf29/gavin_just_destroyed_fox_and_im_here_for_it/n9tvrmg/
+
+rhj2020 2019-10-11
+
+"That is the most beautiful thing I have ever read. Really, conservatives are so pissed. They literally don’t know what to say. That’s exactly what Trump sounds like."
