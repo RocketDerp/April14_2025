@@ -1126,3 +1126,17 @@ I suspect they fear that Newsom may tap into some of the things that made Trump 
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mvxdn8/newsom_responds_to_bed_bath_and_beyond/n9tnoej/
+
+Darkdragoon324 2015-11-04
+
+"My solace in the coming dystopia will be that at least they're just as miserable as I am, no matter how hard they desperately struggle to convince themselves that they aren't. They're gonna get the country they deserve, I just wish that we weren't forced along for the ride."
+
+&nbsp;
+
+wRADKyrabbit 2025-05-07 (recent account)
+
+"I take no solace cause they're going to kill millions of us"
+
+&nbsp;
+
