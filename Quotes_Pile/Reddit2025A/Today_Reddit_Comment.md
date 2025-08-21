@@ -604,3 +604,11 @@ SmurfStig 2018-03-02
 "They really are. Every one of them I’ve met are quick to dish it out on anyone they see as a threat but as soon as you talk smack about daddy Trump or anyone in his cabinet/close orbit, they get crazy defensive. If I try to defend who ever they are going after, they get even more aggressive. Bunch of toddlers parading as adults."
 
 &nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mweg5p/this_is_a_literal_shot_across_the_bow/n9wyvbz/
+
+2punornot2pun 2020-03-18
+
+"This is literally to show the rest of the world that Putin has Trump by the balls."
+
+&nbsp;
