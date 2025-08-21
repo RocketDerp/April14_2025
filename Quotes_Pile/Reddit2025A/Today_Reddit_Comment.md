@@ -1273,3 +1273,11 @@ Zoratheesavage 2025-03-19 (new this year)
 "It’s not remotely suspicious that someone who’s long been rumored to be a Russian asset, wants to eliminate the department that monitors the exact type of misinformation efforts Russia is known to engage in. Not suspicious at all."
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9uqqix/
+
+Guataguano 2016-04-26
+
+"Why does it fucking feel like they are weakening the country for a takeover??? Putin’s visit with his orange agent in chief was just a visit like Palpatine spot checking the Death Star"
+
+&nbsp;
