@@ -793,3 +793,11 @@ Punchausen 2014-12-29
 * :::=== RoundSparrow_Commentary : Exactly what Elon Musk has announced he wants: anti-empathy messages on social media. More removal of empathy from society due to reactions to machine messages. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/GetNoted/comments/1mwd9lt/are_they_though/n9x16h4/
+
+Rizenstrom 2015-05-08
+
+"Seems like more and more things they say are just blatantly false but they know their base is either too ignorant to fact check or simply doesn’t care."
+
+&nbsp;
