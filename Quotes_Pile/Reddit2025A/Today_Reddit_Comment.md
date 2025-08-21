@@ -504,3 +504,21 @@ https://old.reddit.com/r/SelfAwarewolves/comments/1mwaaxo/hannity_going_on_fox_n
 * :::=== RoundSparrow_Commentary :  Population of USA eating the Surkovian onions. Meme aduciences onion eating... as if Kremlin informaiton warfare, Surkov methods, don't exist and that it hasn't been the basis of Russian information warfare. [Contradictory is intentional, and Reddit users are eating the shit up for a decae, unable to cite **Adam Curtis BBC from year 2014**](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html). ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1mw8rxk/trump_and_melanias_scammy_meme_coins_have_lost/n9vnxn8/
+
+nankerjphelge 2013-02-10
+
+"Doesn't matter, they served their purpose--to use the office of the presidency to personally enrich Trump, while the public has no idea what domestic and foreign actors may have enriched him in a quid pro quo that we'll never fully know the details of. The most corrupt president in US history."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mw8rxk/trump_and_melanias_scammy_meme_coins_have_lost/n9w35f7/
+
+ArrivesLate 2016-04-04
+
+"He has always been dumb, and now he’s almost 80 so he’s dumber than he’s ever been. He’s basically a toddler at this point in his life. His handlers are doing whatever they want and using him for his signature. They set up musk to take a fall for some unpopular shit and they set up trump to take the fall for some unpopular shit, both full of themselves and too dumb to see they were being manipulated.
+
+* :::=== RoundSparrow_Commentary : Eating the Surkovian onions, eating the Tony Clifton act of Donald Trump. Surkov governing has been going on by [Trump since his November 2012 agreement with the Kremlin to use Cambridge Analytica](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/). Like a long-running television show (that has episodes every day, 365 episodes a year), there are changes as seasons have different writers and different tastes in the audience are manipulated / exploited. Donald Trump is an exploitation media star. People who hate Trump are attracted to hate itself. Media addiciton as described in Neil Postman's 1985 book "Amusing Ourselves To Death" explains how this is possible. ""He has always been dumb" Reddit comment is like calling Andy Kaufman dumb for creating Tony Clifton performance. Trump is not *media dumb*, he is the most successful media star in all human history. Turmp has bamboozled the ENTIRE POPUALTION, 100%, not just MAGA, not just Republicans. Putin and Kremlin using Surkov techniques have fed the media addiciton by manipulating minds in society via meme warfare / Internet delivery (Putin's IRA) since March 2013. [People are in massive denial of the evidence and social media addicts can't discuss the hard factual evidence validated by George Washington University and Johns Hopkins University going back to year 2014](https://www.bbc.com/news/world-us-canada-45294192). ===:::
+
+&nbsp;
