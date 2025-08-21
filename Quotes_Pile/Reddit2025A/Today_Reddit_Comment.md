@@ -1234,3 +1234,8 @@ alotmorealots 2015-03-15
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9u6mt1/
+
+SargeantSasquatch 2012-12-19
+
+"I wish people would stop focusing on the Epstein files while Trump is dismantling our democracy. How have y'all not figured out yet that his supporters don't care?"
