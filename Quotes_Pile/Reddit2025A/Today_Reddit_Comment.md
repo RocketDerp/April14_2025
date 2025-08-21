@@ -913,3 +913,13 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_
 hollow114 2013-01-02
 
 "The Venn diagram of people who think they have a personal relationship with God and Trump voters who think he cares about them is likely a circle"
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mvqg1a/man_votes_for_trump_to_crush_his_daughters/n9sbka3/
+
+karankshah 2011-03-26
+
+"This whole personal appeal thing is something Trump and his lackeys *absolutely love* - they love to be able to pick and choose who they help and who they don't.
+
+No functioning democracy would hand that much power to government officials like that, which is why they're dismantling traditional bureaucracy in the US."
