@@ -1247,3 +1247,16 @@ https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_
 fractiousrhubarb 2013-11-09
 
 "Trump and the GOP are just Murdoch and Putins implementation department"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mw0nrd/tulsi_gabbard_announces_plans_to_cut_intelligence/n9u7bj5/
+
+Dblcut3 2016-04-09
+
+"She’s actually the one cabinet pick I thought wouldn’t get approved by the Senate. I guess even in the year 2025 I’m shocked the Senate would appoint such a blatant foreign asset to be a mole or gut our intelligence agencies from within
+
+The crazy part is this is barely even a conspiracy, everyone knows she’s at best sympathetic to anti-American (namely Russian) interests and at worst an actual collaborator"
+
+&nbsp;
+
