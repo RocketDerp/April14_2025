@@ -596,3 +596,11 @@ Apprehensive_Zone281 2021-02-19
 * :::=== RoundSparrow_Commentary : Cambridge Analytica and the Internet Research Agency have mind-fucked people since March 2013 to self-harm the USA. Attracted to hate, adopting mocking, attraction to dehumanization, *hate thy enemy, hate harder to solve problems* attitudes. [Trump's November 2012 agreement with the Kremlin to use Cambridge Analytica](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/). ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1mwect4/aries_spears_go_off_on_a_trumper_at_his_show/n9x78o7/
+
+SmurfStig 2018-03-02
+
+"They really are. Every one of them I’ve met are quick to dish it out on anyone they see as a threat but as soon as you talk smack about daddy Trump or anyone in his cabinet/close orbit, they get crazy defensive. If I try to defend who ever they are going after, they get even more aggressive. Bunch of toddlers parading as adults."
+
+&nbsp;
