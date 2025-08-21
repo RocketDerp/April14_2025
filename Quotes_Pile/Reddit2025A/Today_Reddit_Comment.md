@@ -1021,3 +1021,11 @@ Throwaway2562613470 2015-12-05
 "The world just hates people with special needs. It's a crewl place out there."
 
 * :::=== RoundSparrow_Commentary : If your *special need* mind involves manipulating billions of people on the world stage of histiory, Stalin, Hitler, Putin, Musk, Trump, *the world* flocks to you as deception leadership for children to adopt as role model. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Wellthatsucks/comments/1mvq2g9/times_are_tough_especially_in_the_deli_department/n9sr13x/
+
+SelectKaleidoscope0 2018-12-18
+
+"Thats even more messed up if he was mentally handicapped. Back in the day, I was a shift leader at a chain pizza place. I got into it with the new general manager because he wanted me to fire a mentally handicapped person who worked part time folding boxes. The previous gm always gave him a free drink at the end of his shift, when he finished his shift with the new guy he just got one without saying anything, because that was normal for him. New gm flips out and wants to fire him. Wants me to do the write up so I have experience doing it, and I refuse. In my best judgement he didn't do anything wrong. GM ended up firing him anyway when I wasn't around, I think he was just looking for any excuse to fire him because he didn't like him. Dude was a heartless piece of work."
