@@ -764,5 +764,22 @@ ddrober2003 2013-02-28
 
 * :::=== RoundSparrow_Commentary : A reddit account created right when the IRA started manipualting people on Reddit in year 2013. People *know* because the memes and messages of Cambridge Analytica and Russia have been all over social media since year 2013, ever since Donald Trump agreed with Russians November 7, 2012. https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ "как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." - the HARD FACTUAL EVIDENCE was analyzed by George Washington University dating back to year 2014: https://www.bbc.com/news/world-us-canada-45294192 ===:::
 
+&nbsp;
+
+BigDaddyZeus 2016-01-13
+
+"You're wasting your time. These people do not operate on logic, facts, nor reality. Their truth is always in motion. Their North Star is fear and hatred. The vast majority of them are beyond saving.
+
+And every single person on the left should remember this: they will ALWAYS hate you, no matter what. They don't deserve kindness nor decency. They deserve to rot behind bars for high treason."
+
+* :::=== RoundSparrow_Commentary : *Give up* on goodness messages. Abandon the public library and don't teach cult deprogramming media messages. Lay down and let Russian mind-fuck continue to wreck the nation as it has since March 2013 Putin Media Invasion. *Hate will always win, no matter what* faith. Reddit mind-fucking the audience messages. By this *logic* simple thinking, Tweitter-thinking logic, Germany 1993 (when I traveled to Waldorf and worked for SAP) could not way exist because Germany 1943 had hate. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mwhwfq/white_house_says_slavery_is_being_taught_wrong/n9xmfxd/
+
+eden_sc2 2011-09-05
+
+"Conservatives tend to see the world as zero sum, so if some group is gaining rights, then they must be losing something to balance the scales. Similarly, if that same group is being hurt, then their life must be getting better (even if they couldn't tell you how)"
 
 &nbsp;
