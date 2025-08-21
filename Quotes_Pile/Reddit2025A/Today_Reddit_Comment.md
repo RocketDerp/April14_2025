@@ -1029,3 +1029,23 @@ https://old.reddit.com/r/Wellthatsucks/comments/1mvq2g9/times_are_tough_especial
 SelectKaleidoscope0 2018-12-18
 
 "Thats even more messed up if he was mentally handicapped. Back in the day, I was a shift leader at a chain pizza place. I got into it with the new general manager because he wanted me to fire a mentally handicapped person who worked part time folding boxes. The previous gm always gave him a free drink at the end of his shift, when he finished his shift with the new guy he just got one without saying anything, because that was normal for him. New gm flips out and wants to fire him. Wants me to do the write up so I have experience doing it, and I refuse. In my best judgement he didn't do anything wrong. GM ended up firing him anyway when I wasn't around, I think he was just looking for any excuse to fire him because he didn't like him. Dude was a heartless piece of work."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mvtsln/its_time/n9t5mfp/
+
+elcaifasmayor **2025-07-28 (new account)**
+
+"I’m sick of it too. Yeah, I get it. The guy is a privileged centrist politician who has passed not so great legislation or said dumb things. But WAKE THE FUCK UP, we are on the verge of becoming an authoritarian state with a failing economy in which more and more people are struggling to just get by.
+
+We need politicians who will stand up to him and set an example, and right now he’s the only one doing it and doing a good job of it and I would vote for Newsom in a heartbeat versus ANY Republican politician.
+
+Edit: Plus, as I’m learning more, I also see that he has done a good job as governor and as mayor of SF."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1mvtsln/its_time/n9t6py3/
+
+BobaTheMaltipoo 2025-05-07 (recent account)
+
+"It's because liberals have a habit of always trying to appease conservatives, while conservatives want liberals killed/imprisoned/enslaved, which is why the appeasement is fucking stupid."
