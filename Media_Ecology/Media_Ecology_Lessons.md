@@ -392,3 +392,12 @@ Hugely popular content.
 style of skill, team social skills, good shooter vs. good teammate    
 One trick pony metaphore. One favorite skill, one overdeveloped talent.   
 https://www.youtube.com/watch?v=gYZFmW3k5-E
+
+&nbsp;
+
+### Public media devices and headphones 
+
+&nbsp;
+
+Jack or no jack, public noise, ringtone songs, notification opera.   
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1mw854f/the_good_old_days/
