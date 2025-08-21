@@ -268,3 +268,21 @@ https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after
 Happy_Landmine **2025-08-11 (new account)**
 
 "Geriatric dementia patient throws a tantrum during another Adderall binge.."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vqnao/
+
+11CRT 2021-04-06
+
+"They still claim that a woman couldn’t be president with the mood swings once a month. Has there been any month he hasn’t had a mood swing yet?"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mw8opy/trump_goes_off_deep_end_after_msnbc_mocks_cankle/n9vrhzo/
+
+KGKSHRLR33 2016-04-16
+
+"He talks mad shit about people, but when hes called out he throws a lil hissy fit ha. I fzxkn love it."
+
+* :::=== RoundSparrow_Commentary : Media addicts love and adore the Tony Clifton act for over 10 years. Wrecked the USA future and harmed the world because of their addiciton to trash Tony Clifton entertainment. "Amusing Ourselves To Death" ===:::
