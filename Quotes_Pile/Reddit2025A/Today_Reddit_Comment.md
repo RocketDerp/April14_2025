@@ -1028,3 +1028,13 @@ obxtalldude 2016-08-18
 It's so beautiful, so perfect, you won't believe it.'
 
 &nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1mwnx90/im_dead/n9zfhr0/
+
+JustAlpha 2016-03-09
+
+"This is "feud" is becoming nothing but a distraction just like everything else. It's just more noise to give the impression of a storyline which makes people think progress is occurring.
+
+Meanwhile the fascist march on without organized resistance.
+
+Stick to the Epstein files."
