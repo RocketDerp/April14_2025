@@ -749,3 +749,12 @@ Moonlight_Katie 2023-08-27
 
 "A sane country would have tried him for treason after Jan 6. And a sane country would definitely not have voted for him a second time."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mxe278/trump_threatens_to_deploy_the_us_military_into/na49sqh/
+
+Chim________Richalds 2020-08-05
+
+"Does anybody think America will return to it's role as a leader of the free world after (if?) this clown show ends? Like, just objectively looking at the scene. A soulless pig-man with a billboard on his forehead and a stolen trophy, surrounded by syncophants, gold, and billboards... Threatening to impose martial law on additional US cities... How do we de-normalize this lunacy? What's the route back?
+
+He's stained the office of the Presidency so deeply, does his shit wash out?"
