@@ -161,3 +161,16 @@ NotNufffCents 2024-06-15
 "I think you're putting too much thought into it. Republicans are simple people. They will say and do anything to grab and maintain power. Thats it. They'll knowingly make two completely contradictory statements in the same sentence because they dont value honesty or truth. Just power."
 
 * :::=== RoundSparrow_Commentary : "If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, the tumult in Europe, wars and wars and wars -- we have pulled ourselves out of it and **created a state in the name of reason, not in the name of power**, and out of that will come the flowerings of the new life. That's the sense of that part of the pyramid." - George Lucas Skywalke Ranch lessons to Star Wars / Hollywood film audience (Power Of Myth book 1988). How to understand the Great Seal of the United States of America from founding fathers. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2b1rb/
+
+zuzg 2019-05-19
+
+"Everything they don't like is Fake News.
+And only their "sources" FoxNews, Breitbart, etc. Are telling the truth.
+
+Not that empirical facts matter in that context."
+
+* :::=== RoundSparrow_Commentary : These are all fiction sources. Fiction outsells nonfiction. We do not educate the population how to distinguish fiction from nonfiction. Addiction to fiction is addiction to Donald Trump mockery information. ===:::
