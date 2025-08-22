@@ -668,3 +668,12 @@ zuzg 2018-05-19
 
 "He's the embodiment of everything that's wrong in America.    
 And every single day is a step further down the Authoritarian slope."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1mx9w2v/kid_finds_out_trump_is_a_real_person_and_he/na3cfz7/
+
+YouWereBrained 2024-01-19
+
+"I mean, he’s basically a media-fed and media-created monster who *should* be fictional. But alas, here we are…"
+
