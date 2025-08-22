@@ -186,3 +186,19 @@ Daft00 2012-07-20
 Anyone who can't connect the dots now nearly a decade later is painfully naive. (This isn't a slight towards you in any way zuzg)"
 
 &nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na28mkw/
+
+PricklePete 2024-12-07
+
+"Welcome to the post-truth world. 
+
+They will lie and when given data that proves their lie, they will dismiss it."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2bmhv/
+
+Knitspin 2020-04-01
+
+"Remember when Christians claimed the “worldly” people were promoting a post-truth world? I used to be in that cult. I wish I knew about projection back then."
