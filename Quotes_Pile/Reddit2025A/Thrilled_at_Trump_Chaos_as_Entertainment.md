@@ -550,3 +550,11 @@ Pixburghkev 2019-09-08
 "This is the way. Finally, people having fun and laughing at them."
 
 FINALLY? That is all people have done since year 2015, endless LOL LOL LOL LMAO at Donald Trump. This tiny short message of Twitter-think is rececy bias personified. People in USA have "Amused Ourselves to Death" so much that population is thinking and acting like this is Donald Trump's FIRST TERM IN OFFICE, We The Peole ahve lost their memories of the pandemic, all the non-stop laughing and giggles over Doald Trump's media appearances and speeches. People ahve blown their minds so wide open that they can't even remember year 2016 election!!
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mww968/president_of_the_united_states_donald_trump/na0yq06/
+
+Bolaf 2012-06-05
+
+"And here we are, making fun of his hair"
