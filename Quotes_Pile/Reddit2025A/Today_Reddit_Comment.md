@@ -694,3 +694,13 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxa0e6/r_conservative_membe
 SatanicPanic619 2021-12-28
 
 "This is the problem. Conservatives make everyone miserable and then offer to fix everything by upending the government to make things more conservative. And people listen because fixing something slowly isn't fun."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mxf9nk/donald_trump_says_people_are_in_epstein_files_who/na4g2si/
+
+snoo_spoo 2024-05-28
+
+"How would he know?
+
+To know whose name "doesn't deserve to be" in the Epstein files would imply a deep familiarity with whose name *should* be there."
