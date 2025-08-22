@@ -1123,3 +1123,10 @@ MattyIce8998 2017-04-05
 
 "Walmart's margins aren't very big. It's less than 3% on groceries. They make billions and billions of dollars, but it's on an unfathomable volume of product, not because they're ripping consumers off. They can't just eat a 15 or 30% tariff and take the losses. They have shareholders to be responsible for - and if they run at a loss on purpose to "help consumers", the board gets replaced with individuals who won't."
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mwixvf/putins_demand_to_ukraine_give_up_donbas_no_nato/n9xvubj/
+
+Phantom160 2015-09-26
+
+"It’s worse than that. Donbas is a Ukrainian defense bulwark, with trenches, mine fields, and fortifications. Giving Donbas up would open up the road for the Russian troops to march straight into the interior of Ukraine. There is no guarantee that they will stop there and every possible reason to believe that Putin is simply trying to sell a Trojan horse without any intention to stop at Donbas."
