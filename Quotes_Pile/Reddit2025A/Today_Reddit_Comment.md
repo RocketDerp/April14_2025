@@ -1150,3 +1150,13 @@ positivcheg 2015-04-19
 Interestingly people fear more those “demands” of putin for russian language to remain national language. I guess so that next time he is able to invade again to defend russian speaking people.
 
 Additionally, putin wants his church to be allowed in Ukraine again. We all know that the church is just a KGB network. Religion is one of the best way to brainwash people and divide people. Always was. Always will be."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mwi8ax/abdullah_the_child_whose_cry_of_im_hungry_exposed/n9xqbpi/
+
+VFTM  2025-02-24 (new this year)
+
+"Humanity was a mistake. We do not deserve existence."
+
+* :::=== RoundSparrow_Commentary :The simple Twiter-think Bluesky-think one-line logical answer to life's problems with compassion. Just give up, don't support Malala from Pakistan, just say 8 billion people are a mistake. Social medi machine logic. Instead of people teaching world wide reformation that Malala has been pushing since October 8, 2013 - people just wnat to react-comment to stories using their free time / spare time on Reddit. ===:::
