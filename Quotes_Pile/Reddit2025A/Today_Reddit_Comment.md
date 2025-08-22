@@ -741,3 +741,11 @@ Glad-Barracuda2243 2025-05-09 (new this year)
 
 "Many of us predicted it. People simply weren’t listening."
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mxfmhz/we_blew_past_sane_quite_a_while_ago/na4p736/
+
+Moonlight_Katie 2023-08-27
+
+"A sane country would have tried him for treason after Jan 6. And a sane country would definitely not have voted for him a second time."
+
