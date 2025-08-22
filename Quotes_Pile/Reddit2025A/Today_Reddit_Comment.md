@@ -561,3 +561,11 @@ https://old.reddit.com/r/MurderedByWords/comments/1mxb3xy/were_in_the_worst_time
 Puzzleheaded-Sea8340 2021-03-18 (I am not following user, organically finding multiple times)
 
 "Exactly .. we are not sliding toward authoritarianism we are in an authoritarian regime… And there is nothing apparently that can be done to stop him everyone should be really fucking scared… Whether you voted for him or not whether you’re a citizen or not… There are now no limits to his power and what the fuck he will do"
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mxb3xy/were_in_the_worst_timeline/na3mnzv/
+
+MoGreensGlasses 2018-01-08
+
+"A left winger just defended the civil rights of a right winger. That's called nuanced political thinking. Something the right seems utterly incapable of."
