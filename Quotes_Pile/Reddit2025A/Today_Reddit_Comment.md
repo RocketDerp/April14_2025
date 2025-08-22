@@ -1068,3 +1068,21 @@ https://old.reddit.com/r/socal/comments/1mwg1dv/governor_gavin_newsom_is_not_bac
 sargrvb 2011-12-21
 
 "When people talk about TDS, this is what they mean BTW. Trump is going to 'lose'? He's literally on top of the world. This is delusional and dangerous. Everyone else is going to lose. Including him. Time to man up Gavi. Screaming isn't going to work."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mwrln4/never_be_as_cool_as_trump/n9zm2lm/
+
+TheGOPisTheDeepState 2025-03-06 (new this year, note username meaning)
+
+"That’s because Trump is hot garbage and a pedophile of the United States. Only human garbage support Trump."
+
+* :::=== RoundSparrow_Commentary : Twitter-length Bluesky-length Tweet-thinking. A nagion drowning in insult and mockery. Hate magnet, hate faith, hate as religion. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mwrln4/never_be_as_cool_as_trump/n9zps32/
+
+Thamnophis660 2019-06-05
+
+"They really don't see a gross old man wearing too much orange spray tan. They see a buff hero with cool hair who makes everyone they don't like angry. MAGA is a cult."
