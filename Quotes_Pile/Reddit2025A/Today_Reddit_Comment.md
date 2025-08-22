@@ -1177,3 +1177,13 @@ wheremykittykatat 2022-01-11
 
 "So many people dead. Children dead. Pregnant women dead. This cannot be what Israel finds pleasure in. This systematic genocide of Palestinians should not bring joy to anyone, not even Zionists. Why have we become so apathetic and cruel? Why is Israel brutally murdering those that resist its land grab? Edit: typo"
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mww968/president_of_the_united_states_donald_trump/na1odgu/
+
+Catsssssssss 2014-02-16
+
+"To all of you Americans sitting back spending your time idly making jokes and memes about the Cheeto in Chief:
+
+It is time you put away your screens and go outside; touch some grass, smell the air and go protest the bejesus out of that deranged psychotic narcissist and his cruel cronies like your lives depend on it!
+(At this rate, it is not a far cry to suggest that it really does..)"
