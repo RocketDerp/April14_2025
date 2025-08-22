@@ -250,3 +250,18 @@ ZiKyooc 2017-03-07
 
 &nbsp;
 
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na37j1v/
+
+Gold-Sherbert-7550 2024-03-04
+
+"It’s because that’s how they perceive truth. Feelings and tribal loyalty are facts to them. They’re not looking at objective reality and then deciding on how they feel about it (“states that have higher crime rates are bad”), they’re deciding how they feel and then pretending that the facts support that."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2gm5i/
+
+glenn_ganges 2024-06-17
+
+"That is exactly what conservatives want and it’s nakedly obvious even without all this bullshit.
+
+It was true when people started dying their hair, getting tattoos, being vocal that they have sex, and all the many many many moral panics that conservatives whine about."
