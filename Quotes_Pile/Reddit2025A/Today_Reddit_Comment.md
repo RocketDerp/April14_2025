@@ -498,4 +498,14 @@ FireDragon737 2020-12-16
 
 "Magats quite literally do not live in reality. It does not matter what Democrats have actually done, what matters is what Magats *think* Democrats have done. This entire time, they genuinely truly believed Democrats were doing these things, thus have no problem doing it themselves because "well, well, they did it first!" They are all delusional psychopaths."
 
-* :::=== RoundSparrow_Commentary : The Russian Internet Research Agency has been waging war against reality since March 2013. USA has lost the war against nonfiction. Putin won, Surkov won. People insult and mock and nickname, *hate harder*, and *hate thy enemy* values abound in USA August 2025. ===:::
+* :::=== RoundSparrow_Commentary : The Russian Internet Research Agency has been waging war against reality since March 2013. USA has lost the war against nonfiction. Putin won, Surkov won. People insult and mock and nickname, *hate harder*, and *hate thy enemy* values abound in USA August 2025.
+“a steady diet over the years of falsifications and distortions made a certain impression on one’s mind and often misled it. No one who has not lived for years in a totalitarian land can possibly”
+― William L. Shirer, The Rise and Fall of the Third Reich: A History of Nazi Germany, 1960 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_house_i_could/na3hriq/
+
+Glexan1 2015-05-16
+
+"No, they don't. They live in a different reality where democrats are always just one day away from kicking your door in and killing you and your family so immigrants can live in your house. Im willing to he money that most republicans would say that this was a great thing and he deserves this. There is no reasoning with them."
