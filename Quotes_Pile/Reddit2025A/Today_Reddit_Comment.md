@@ -677,3 +677,12 @@ YouWereBrained 2024-01-19
 
 "I mean, he’s basically a media-fed and media-created monster who *should* be fictional. But alas, here we are…"
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1mx9w2v/kid_finds_out_trump_is_a_real_person_and_he/na3e6up/
+
+DruidicMagic 2019-03-20
+
+"This kid represents the feelings of everyone who possess common sense and compassion."
+
+* :::=== RoundSparrow_Commentary : "The big moment in the medieval myth is the awakening of the heart to compassion, the transformation of passion into compassion. That is the whole problem of the Grail stories, compassion for the wounded king. And out of that you also get the notion that Abelard offered as an explanation of the crucifixion: that the Son of God came down into this world to be crucified to awaken our hearts to compassion, and thus to turn our minds from the gross concerns of raw life in the world to the specifically human values of self-giving in shared suffering. In that sense the wounded king, the maimed king of the Grail legend, is a counterpart of the Christ. He is there to evoke compassion and thus bring a dead wasteland to life. There is a mystical notion there of the spiritual function of suffering in this world. The one who suffers is, as it were, the Christ, come before us to evoke the one thing that turns the human beast of prey into a valid human being. That one thing is compassion. This is the theme that James Joyce takes over and develops" - Joseph Campbell, age 82, Skywalker Ranch lessons from George Lucas to Star Wars audience / Hollywood fans publisehed 1988. ===:::
