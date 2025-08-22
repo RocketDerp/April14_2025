@@ -424,6 +424,14 @@ balllzak 2012-10-20
 
 "One of the groups the nazis targeted when they invaded Poland was called the intelligenzaktion. The soviets called them the intelligentsia when they did the exact same thing with their half of the country. Can you guess who was in this group? Authoritarians absolutely fear the highly educated organizing resistance."
 
-* :::=== RoundSparrow_Commentary : “The extremists are afraid of books and pens, the power of education frightens them. they are afraid of women.” ― Malala Yousafzai ===:::
+* :::=== RoundSparrow_Commentary : “The extremists are afraid of books and pens, the power of education frightens them. they are afraid of women.” ― [Malala Yousafzai: 16th birthday speech at the United Nations](https://malala.org/news-and-voices/malala-un-speech) ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teachers_a_decent_wage_but/na3iiw9/
+
+Successful-Daikon777 2025-01-28 (new this year)
+
+"The USA is a shithole. It got lucky to be a dominant power for a while, but the white men in charge really just suck, and have always sucked."
+
+* :::=== RoundSparrow_Commentary : Since March 2012 Russia has manipulated the executive function of the minds in USA. Surkov won the war. Twitter-think reactionary insulting and mocking abounds. ===:::
