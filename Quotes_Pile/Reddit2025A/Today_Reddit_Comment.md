@@ -435,3 +435,13 @@ Successful-Daikon777 2025-01-28 (new this year)
 "The USA is a shithole. It got lucky to be a dominant power for a while, but the white men in charge really just suck, and have always sucked."
 
 * :::=== RoundSparrow_Commentary : Since March 2012 Russia has manipulated the executive function of the minds in USA. Surkov won the war. Twitter-think reactionary insulting and mocking abounds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teachers_a_decent_wage_but/na31xys/
+
+neddy_seagoon 2014-10-21
+
+"Memorization of semi-random strings of abstract symbols isn't a skill that comes naturally to everyone. Being dyslexic shouldn't bar you from a higher degree or participating in public discourse."
+
+* :::=== RoundSparrow_Commentary : Yes. Every English language who uses written should read James Joyce's Finnegans Wake from year 1924 onward. ===:::
