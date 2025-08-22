@@ -8,7 +8,7 @@ ImDrunkFightMe 2019-02-13
 
 "Land of the free, Home of the brave. The US is a fucking joke on the international stage both morally and politically."
 
-* :::=== RoundSparrow_Commentary : freedom to be addicted to Disney and Rupert Murdoch fiction media content. Freedom to hate. Freedom to dehumanize. Freedom to avoid nonfiction. Freedom to avoid science. Freedom to become cult addicts to one-line Twitter message length like this Reddit comment and not learn and study Neil Postamn's 1985 book "Amusing Ourselves To Death", and instead use social machines to create tiny reaction commments and image animations every hour of every day for 10 years in service to Putina nd Trump information warfare. Freedom to Celebrate Ignorance on social media. ===:::
+* :::=== RoundSparrow_Commentary : freedom to be addicted to Disney and Rupert Murdoch fiction media content. Freedom to hate. Freedom to dehumanize. Freedom to avoid nonfiction. Freedom to avoid science. Freedom to become cult addicts to one-line Twitter message length like this Reddit comment and not learn and study Neil Postamn's 1985 book "Amusing Ourselves To Death", and instead use social machines to create tiny reaction commments and image animations every hour of every day for 10 years in service to Putin and Trump information warfare. Freedom to Celebrate Ignorance on social media. ===:::
 
 &nbsp;
 
@@ -732,4 +732,12 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mxfmhz/we_blew_past_sane_quite_
 plattner-da 2019-09-29
 
 "This, is not a sane country."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mxfmhz/we_blew_past_sane_quite_a_while_ago/na4q0jh/
+
+Glad-Barracuda2243 2025-05-09 (new this year)
+
+"Many of us predicted it. People simply weren’t listening."
 
