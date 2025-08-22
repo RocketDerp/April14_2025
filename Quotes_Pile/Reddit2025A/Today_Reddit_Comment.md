@@ -444,4 +444,13 @@ neddy_seagoon 2014-10-21
 
 "Memorization of semi-random strings of abstract symbols isn't a skill that comes naturally to everyone. Being dyslexic shouldn't bar you from a higher degree or participating in public discourse."
 
-* :::=== RoundSparrow_Commentary : Yes. Every English language who uses written should read James Joyce's Finnegans Wake from year 1924 onward. ===:::
+* :::=== RoundSparrow_Commentary : Yes. Every person using written English over age 16 should read James Joyce's Finnegans Wake book from year 1924 onward to gain perspective on how language is different from person to person, context to context, the Tower of Babel metaphor. "Finnegans Wake is the **greatest guidebook to media study** ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mx7n0h/trump_wants_you_to_forget_and_move_on/na32a5l/
+
+CloseDaLight 2015-07-08
+
+"This dick flute cares more about the logo of a dumb restaurant than he does about running a country. More time spent trying to OWN DA LIBZ than he does about making the lives of the American people better."
+
