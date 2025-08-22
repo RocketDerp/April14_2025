@@ -323,3 +323,27 @@ KorolEz 2019-11-11
 "I really don't get the appeal. Playing PvP and winning feels like overcoming an obstacle/an achievement. If I do it with cheating it would feel empty without any joy"
 
 * :::=== RoundSparrow_Commentary : Who teaches moraltiy? Donald Trump role model? ["these are the phenomenon that Baudrillard examines with the most care. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how children used to learn morality from their parents and now I think that ... Super Mario Brothers. They spend much more time with Super Mario Brothers and are much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pcmasterrace/comments/1mx6agx/a_disgusting_cheater/na30xpc/
+
+P_a_p_a_G_o_o_s_e 2019-05-29
+
+"Yes. They wiggle at each other like this to communicate they can see each other, and typically will stay out of each other's way. 
+
+They form alliances/truces, not always but more common than you think. 
+
+Idk what you mean with walls. If you mean wall hacks, the point is to see on the other side. Some purchased hacks have more or less whistles but typically its always the skeleton.
+
+My experience with this is mostly from Tarkov and Battlefield"
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teachers_a_decent_wage_but/na31ix3/
+
+thecyanvan 2023-08-03
+
+"Going after PBS was the sign. Sesame Street, Mr. Rodgers, and Reading Rainbow are extremely effective weapons against their hate.
+
+If we teach kids to accept each others differences and love each other. To be helpful and civic minded. To be kind. The fascist's control game no longer works. They want your children to hate easily, to live in cultural enclaves apart for each other, and they most especially don't want them thinking critically."
