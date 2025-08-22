@@ -704,3 +704,24 @@ snoo_spoo 2024-05-28
 "How would he know?
 
 To know whose name "doesn't deserve to be" in the Epstein files would imply a deep familiarity with whose name *should* be there."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mxf9nk/donald_trump_says_people_are_in_epstein_files_who/na4ioo9/
+
+Killerkurto 2019-05-06
+
+"This is the same guy who accused CBS of unfairly editing an interview with Kamala Harris that he wasn’t there to see. It’s not like we don’t know that he’s a habitual liar. Furthermore, his base is so stupid they’ll believe it despite no reason to assume it’s true.
+
+It’s the perfect marriage of pants conman liar with an audience of gullible rubes."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mxf9nk/donald_trump_says_people_are_in_epstein_files_who/na4lojn/
+
+booksfoodfun 2018-12-09
+
+"It also implies the existence of the files, which he claims don’t exist…"
+
+* :::=== RoundSparrow_Commentary : **New Years Eve year 2014***, long before Donald Trump in office in January 2017: ["Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
+
