@@ -1046,3 +1046,25 @@ https://old.reddit.com/r/MurderedByWords/comments/1mwnu2b/apparently_theyve_left
 Mucking_Fountain  2016-08-05
 
 "Classic Mafia/Religion scheme: Do what I say, so I can save you from what I will do to you if you don’t do what I say."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mwnu2b/apparently_theyve_left_him_to_his_own_devices/n9z1a3y/
+
+Pure_Frosting_981 2025-05-24 (recent account)
+
+"Man. I’d love an index of all these “polls” and “numbers” he blathers on about. He always makes these claims like they are record breaking, never before seen, yet, no news outlets, real or propaganda seem to report on them. It seems like these never before seen “numbers” or whatever the fuck polls he reads daily are ever linked or mentioned by name.
+
+Can we stop pretending that any of this is even close to normal? He’s supposed to be a world leader (thanks, conservative assholes for not only the first failed term, but giving him a second).
+
+You know what he reminds me of? A 7 year old kid that is so insecure that he lies about anything and everything to make him seem cool or whatever because otherwise, nobody would pay any attention at all. I wish he would have gone to public school. He would have received the humbling from other kids that he so desperately needed.
+
+Can you imagine how many things he would say while growing up started with “my father…” followed by him making threats as if his father gave a fuck. Christ he’s insufferable. Provided humans somehow survive long enough to have decent written history of this time, future generations will marvel at how we let someone mentally incapable of almost everything into office, then stood by while weakening the country, shutting down the government, and stomping his feet like an angry toddler every day. He doesn’t even have charisma, unless you liked the brain dead football player on high school’s football team who was cruel and condescending to everyone and called it humor."
+
+&nbsp;
+
+https://old.reddit.com/r/socal/comments/1mwg1dv/governor_gavin_newsom_is_not_backing_down/n9yeynw/
+
+sargrvb 2011-12-21
+
+"When people talk about TDS, this is what they mean BTW. Trump is going to 'lose'? He's literally on top of the world. This is delusional and dangerous. Everyone else is going to lose. Including him. Time to man up Gavi. Screaming isn't going to work."
