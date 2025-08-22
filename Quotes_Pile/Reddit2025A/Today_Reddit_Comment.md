@@ -298,3 +298,10 @@ masturbathon 2011-11-22
 
 Not that i think it’s an easy thread to pull."
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mx67rk/oc_fbi_raids_john_boltons_home_in_a_probe_to_find/na3col0/
+
+txwoodslinger 2017-10-06
+
+"Both actually. There's an inverse relationship between rank and document security. Low ranking folks get their ass chewed for leaving their cac in a computer. High ranking folks get to take their work home because they're tired of being in the office. Then there's an almost expected amount of leakage when someone has been around that much classified stuff for that many years. Trump is a pedophile, but Bolton also decided writing a book was more important than really trying to stop Trump."
