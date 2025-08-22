@@ -1203,3 +1203,11 @@ https://old.reddit.com/r/MurderedByWords/comments/1mwwztn/irony_meets_faith/na1p
 LethalViolins 2024-10-20
 
 "Eli David is an extremely racist Israeli propagandist, not a Christian. He hates Francis for being anti-genocide, not for his other socially progressive views."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1mwz9x4/ice_pushes_to_deport_double_amputee_in_us_since/na16z5y/
+
+brokenmessiah 2014-09-09
+
+"The law has never cared about the individual struggles"
