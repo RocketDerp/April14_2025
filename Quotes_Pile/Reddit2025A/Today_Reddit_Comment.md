@@ -371,3 +371,27 @@ https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teache
 SirLeaf 2013-05-09
 
 "noting the source and their interests is the definition of media literacy. certainly worth noting"
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teachers_a_decent_wage_but/na35jle/
+
+BraveLittleTowster 2014-03-26
+
+"In Indiana, the charter schools accept an enormous amount of students, they get paid for them at the start of the year, then kick about half of them out for various reasons about a week later. It's been going on for a decade now and no one seems to want to fix that. 
+
+We have public schools that have to absorb all this kids back in without having any of the funding allocated to the charter school for those kids. The charter schools just get to keep it."
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teachers_a_decent_wage_but/na39l7r/
+
+borntolose1 2017-11-12
+
+"The money spent on athletics is insane to me too.
+
+I recently was visiting the town I went to high school in and was genuinely shocked at the football field and basketball arena.
+
+It’s a town of a little over 5000. They have facilities nicer than most colleges I’ve seen. It’s ridiculous.
+
+And they’re not even any good."
