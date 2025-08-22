@@ -783,3 +783,9 @@ Lots of fun at Finnegans Wake!
 "35.5ml here in Ireland you guys are getting stiffed."    
 https://old.reddit.com/r/mildlyinteresting/comments/1mxec4f/i_was_charged_150_to_avoid_ice_in_my_scotch/na4g6cx/
 
+&nbsp;
+
+Professor of Rock     
+"For The Love of All That’s HOLY…Leave RICK BEATO the HELL Alone! | Professor of Rock"    
+https://www.youtube.com/watch?v=a0qlf__FcC8       
+"Today’s live stream is about how technology is threatening music.  Including the hologram at JFK airport of artist Billy Morrison busking…  A busing hologram?  Doesn’t that kind of defeat the purpose e of live music?  Also Rick Beato has been dealing with being silenced by the labels, especially UMG for merely promoting the music and bands that are under there company.  All it does is promote them.  Are they trying to replace all of us with AI?  Is there hope for the future?  Find out next on professor of rock"    
