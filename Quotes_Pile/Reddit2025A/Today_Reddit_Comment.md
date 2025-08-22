@@ -202,3 +202,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_
 Knitspin 2020-04-01
 
 "Remember when Christians claimed the “worldly” people were promoting a post-truth world? I used to be in that cult. I wish I knew about projection back then."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2aa8y/
+
+DrMaxwellEdison 2016-02-01
+
+"Conservative voters have shown that they don't care much for fact checking. The burden of proof falls to their opponents, and *gods fuck them* if even one iota of a statement is not perfectly accurate or said conservatives will devolve the conversation into character assassination.
+
+They don't exactly argue in good faith when their only faith is trying to seize power."
