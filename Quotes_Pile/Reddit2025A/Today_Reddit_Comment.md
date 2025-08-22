@@ -130,3 +130,14 @@ Commercial_Blood2330 2024-12-07
 
 "This isn’t ironic to them. These people are dumb. They can’t put two and two together that Trump won’t release them because he’s in them. They believe his constant lies. What gets me is if he wasn’t in them, he’d absolutely release them to make himself seem more like a god, but again anyone left in maga is not smart."
 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na276j4/
+
+isecore 2015-08-15
+
+"The most fascinating thing with conservatives these days is how completely disconnected they are from reality. They will claim something that is literally wrong, and easily disprovable, and yet act as if they have the factual and moral high ground.
+
+It's absolute madness."
+
+* :::=== RoundSparrow_Commentary :  I assert that the Kremlin war against Reality was described way back in Steptember 9, 2014 (the first year of the Ukraine hot war). [Russia and the Menace of Unreality. How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Peter Pomerantsev titled the second book in his series "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries"...  ===:::
