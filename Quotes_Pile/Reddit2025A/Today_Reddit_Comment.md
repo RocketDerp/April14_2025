@@ -212,3 +212,12 @@ DrMaxwellEdison 2016-02-01
 "Conservative voters have shown that they don't care much for fact checking. The burden of proof falls to their opponents, and *gods fuck them* if even one iota of a statement is not perfectly accurate or said conservatives will devolve the conversation into character assassination.
 
 They don't exactly argue in good faith when their only faith is trying to seize power."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2i6hv/
+
+QuesoChef 2016-11-21
+
+"Because Republicans don’t research. They don’t want facts, only outrage and hate. Facts get in the way of that."
+
