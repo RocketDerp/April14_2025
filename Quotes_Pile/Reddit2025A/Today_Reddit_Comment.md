@@ -1168,3 +1168,12 @@ https://old.reddit.com/r/Fauxmoi/comments/1mwi8ax/abdullah_the_child_whose_cry_o
 staebles 2016-08-31
 
 "It's very logical, but sadly, logic has no room for emotion, morality, or justice."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mwi8ax/abdullah_the_child_whose_cry_of_im_hungry_exposed/n9xuc9g/
+
+wheremykittykatat 2022-01-11
+
+"So many people dead. Children dead. Pregnant women dead. This cannot be what Israel finds pleasure in. This systematic genocide of Palestinians should not bring joy to anyone, not even Zionists. Why have we become so apathetic and cruel? Why is Israel brutally murdering those that resist its land grab? Edit: typo"
+
