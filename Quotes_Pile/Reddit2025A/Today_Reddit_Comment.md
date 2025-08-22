@@ -123,3 +123,10 @@ We live in weird times."
 * :::=== RoundSparrow_Commentary : We are living in the aftermath of The Internet Research Agency (IRA) and Cambridge Analytica, the fallout abounds. Since March 2013. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2i3bq/
+
+Commercial_Blood2330 2024-12-07
+
+"This isn’t ironic to them. These people are dumb. They can’t put two and two together that Trump won’t release them because he’s in them. They believe his constant lies. What gets me is if he wasn’t in them, he’d absolutely release them to make himself seem more like a god, but again anyone left in maga is not smart."
+
