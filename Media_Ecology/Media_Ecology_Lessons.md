@@ -435,5 +435,7 @@ https://www.youtube.com/watch?v=9Ej9JUnFCO0
 &nbsp;
 
 Autism, hyperlexia, dyslexia, handwriting problems, listening problems.   
+Not understanding lyrics to song.   
+Visual and language sound same time.  
 "I have an auditory processing disorder."    
 https://www.youtube.com/watch?v=tfJ7i_uKWSo
