@@ -1187,3 +1187,19 @@ Catsssssssss 2014-02-16
 
 It is time you put away your screens and go outside; touch some grass, smell the air and go protest the bejesus out of that deranged psychotic narcissist and his cruel cronies like your lives depend on it!
 (At this rate, it is not a far cry to suggest that it really does..)"
+
+&nbsp;
+
+https://old.reddit.com/r/Wellthatsucks/comments/1mww39g/guy_wins_mecum_car_auction_then_they_keep_taking/na0m3v1/
+
+starrpamph 2017-12-18
+
+"I’d hire a portable video screen truck and play this video out front of the auctioneers office or house until he publicly admits he’s trash"
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mwwztn/irony_meets_faith/na1p7s9/
+
+LethalViolins 2024-10-20
+
+"Eli David is an extremely racist Israeli propagandist, not a Christian. He hates Francis for being anti-genocide, not for his other socially progressive views."
