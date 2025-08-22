@@ -424,7 +424,7 @@ balllzak 2012-10-20
 
 "One of the groups the nazis targeted when they invaded Poland was called the intelligenzaktion. The soviets called them the intelligentsia when they did the exact same thing with their half of the country. Can you guess who was in this group? Authoritarians absolutely fear the highly educated organizing resistance."
 
-* :::=== RoundSparrow_Commentary : “The extremists are afraid of books and pens, the power of education frightens them. they are afraid of women.” ― [Malala Yousafzai: 16th birthday speech at the United Nations](https://malala.org/news-and-voices/malala-un-speech) ===:::
+* :::=== RoundSparrow_Commentary : “The extremists are afraid of books and pens, the power of education frightens them. they are afraid of women.” ― [Malala Yousafzai: 16th birthday speech at the United Nations. New York City, New York](https://malala.org/news-and-voices/malala-un-speech) ===:::
 
 &nbsp;
 
@@ -454,3 +454,12 @@ CloseDaLight 2015-07-08
 
 "This dick flute cares more about the logo of a dumb restaurant than he does about running a country. More time spent trying to OWN DA LIBZ than he does about making the lives of the American people better."
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mx7n0h/trump_wants_you_to_forget_and_move_on/na338mv/
+
+AgentWD409 2020-07-02
+
+"I don't even understand how the Cracker Barrel thing is a story at all. Who cares if they changed their logo? Why is the right melting down about this? It's completely insane."
+
+* :::=== RoundSparrow_Commentary : actress Rosie O'Donnell with Trumpcalling her a "threat to humanity", Bruce Springsteen, Taylor Swift, Star Wars images, Cracker Barrel logo, under Surkov govering systems, [Everything is *Media Ecology / Everything is ME](../../Media_Ecology/Everything_is_ME.md) ===:::
