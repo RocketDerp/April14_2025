@@ -347,3 +347,19 @@ thecyanvan 2023-08-03
 "Going after PBS was the sign. Sesame Street, Mr. Rodgers, and Reading Rainbow are extremely effective weapons against their hate.
 
 If we teach kids to accept each others differences and love each other. To be helpful and civic minded. To be kind. The fascist's control game no longer works. They want your children to hate easily, to live in cultural enclaves apart for each other, and they most especially don't want them thinking critically."
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teachers_a_decent_wage_but/na3jpu2/
+
+the-virtual-hermit 2025-06-11 (recent account)
+
+"So again, the problem is religion.
+
+Religion is inherently incompatible with democracy. Religion doesn't teach democracy, the entire belief system is based around a single entity controlling the universe - the ultimate dictator.
+
+It actively discourages independent, critical thought. It teaches that your church and pastors have all the answers to everything and that going against them is morally wrong. It's not democracy if one, infallible pastor can convince a whole town of people to vote a certain way on the threat of eternal damnation. It's theocracy with extra steps.
+
+Religion needs to go. We will never be able to move on as a species until we stop letting people dupe others into believing in magic sky wizards that hate whatever the hot button topic of the week happens to be."
+
+* :::=== RoundSparrow_Commentary : Short sighted. People fixate on religions from 2,000 years ago and Quran from 1,400 years ago. Ficiton vs. nonfiction education covers addiction to Trump Truth Social fiction, Fox News fiction, Bible science fiction, Torah science fiction, etc. People take Reddit memes as nonfiction and get easily confused. Addiciton to memes, addiction to fiction, compusive rejection of nonfiction. ===:::
