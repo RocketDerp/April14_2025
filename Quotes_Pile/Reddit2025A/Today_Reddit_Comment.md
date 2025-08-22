@@ -569,3 +569,14 @@ https://old.reddit.com/r/MurderedByWords/comments/1mxb3xy/were_in_the_worst_time
 MoGreensGlasses 2018-01-08
 
 "A left winger just defended the civil rights of a right winger. That's called nuanced political thinking. Something the right seems utterly incapable of."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mxc4ma/hegseth_orders_national_guard_troops_in_dc_to/na3v11v/
+
+JohnnyGFX 2015-03-22
+
+"I can't help but think the Trump administration is trying to start a war against America."
+
+&nbsp;
+
