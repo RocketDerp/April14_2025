@@ -22,4 +22,10 @@ newredditacct25 **2025-08-15 (new account**, note meaning)
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2dtc3/
 
+Face-EatingLeopards **2025-06-24 (recent account**, note meaning)
+
+"And most of these MAGA heroes are either beating or trying to make it with their underage daughters or their friends."
+
+* :::=== RoundSparrow_Commentary : Supporting Malala from Swat Valley Pakstan is a global movement to empower young girls / daughters / children to have a voice and be able to stand up to Taliban elders and Donald Trump elders, Rupert Murdoch elders. ===:::
