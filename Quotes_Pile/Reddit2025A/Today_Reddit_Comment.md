@@ -1086,3 +1086,40 @@ https://old.reddit.com/r/MurderedByWords/comments/1mwrln4/never_be_as_cool_as_tr
 Thamnophis660 2019-06-05
 
 "They really don't see a gross old man wearing too much orange spray tan. They see a buff hero with cool hair who makes everyone they don't like angry. MAGA is a cult."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mwqnog/california_gov_newsom_signs_legislation_calling/n9zn0td/
+
+blazelet 2012-07-20
+
+"Texas' move will likely flip 5 seats to Republicans.
+
+California's move can potentially flip 10 to Democrats if they can flip them all.
+
+If this starts a domino effect of other states following suit, Republicans ultimately come out ahead.
+
+There are 23 Republican trifecta states (full Republican control). These are states they can gerrymander however they like. These 23 states have 114 Republican seats in the house and 49 Democratic
+
+There are 15 Democratic trifecta states (full Democrat control). These 15 states have 130 Democrat seats and 32 Republican seats.
+
+If all the trifecta states Gerrymander to the point there are none left and all seats are flipped, Republicans stand to flip 49 seats and Democrats stand to flip 32.
+
+This game ultimately is a win for Republicans."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mwqkg9/walmart_says_tariff_costs_are_rising_each_week/n9zgaf8/
+
+Pop-Pop68 2014-02-20
+
+"Ah, Wal-Mart, the main shopping destination for most southern MAGA Trump supporters. Let’s see if the media is able to keep covering for Trump and if MAGA voters are able to connect higher prices to Trump’s policies. I have my doubts they will. Instead they will blame Obama or some horseshit like that."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1mwqkg9/walmart_says_tariff_costs_are_rising_each_week/n9zkfkc/
+
+MattyIce8998 2017-04-05
+
+"Walmart's margins aren't very big. It's less than 3% on groceries. They make billions and billions of dollars, but it's on an unfathomable volume of product, not because they're ripping consumers off. They can't just eat a 15 or 30% tariff and take the losses. They have shareholders to be responsible for - and if they run at a loss on purpose to "help consumers", the board gets replaced with individuals who won't."
+
