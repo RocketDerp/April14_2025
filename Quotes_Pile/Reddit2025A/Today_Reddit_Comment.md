@@ -111,3 +111,15 @@ Pretty-Vehicle-6338 2020-10-23
 * :::=== RoundSparrow_Commentary : The Internet Research Agency (IRA) weaponized **irony poisoning** since Q2 2013 on the World Wide Web (leading up to February 2014 Ukraine War), creating patterns of memes and messages to exploit all brains with surreal, absurd, ironic, satire patterns. Surkovian information warfare has defeated the United States of America. Meme addled Americans abound on social systems. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2eddl/
+
+shoot_your_eye_out 2014-05-27
+
+"Never thought I’d see the day where some small town redneck had a bumper sticker supporting a billionaire geriatric playboy New Yorker socialite pedophile.
+
+We live in weird times."
+
+* :::=== RoundSparrow_Commentary : We are living in the aftermath of The Internet Research Agency (IRA) and Cambridge Analytica, the fallout abounds. Since March 2013. ===:::
+
+&nbsp;
