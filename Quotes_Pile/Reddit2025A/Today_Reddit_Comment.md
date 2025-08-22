@@ -517,3 +517,11 @@ https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_h
 Fark_ID 2015-06-08
 
 "Russia, Social Media and FOX News convinced a bunch of fucking fools that a silver spoon born Russian compromised failed NYC Real Estate Developer (money laundering for Russian oligarchs) gave a shit about them, OH and he has to pull every string because SO MANY GREAT PEOPLE ARE SAYING DONALD JOHN TRUMP RAN A CHILD SEX TRAFFICKING RING WITH EPSTEIN."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_house_i_could/na3bcq1/
+
+Tremolat 2009-10-08
+
+"WTF? We've reached the Judge Dredd "I am the Law!" phase of this national nightmare. Show trials and summary executions within the year."
