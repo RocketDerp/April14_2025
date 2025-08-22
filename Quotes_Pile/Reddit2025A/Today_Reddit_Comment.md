@@ -1130,3 +1130,23 @@ https://old.reddit.com/r/worldnews/comments/1mwixvf/putins_demand_to_ukraine_giv
 Phantom160 2015-09-26
 
 "It’s worse than that. Donbas is a Ukrainian defense bulwark, with trenches, mine fields, and fortifications. Giving Donbas up would open up the road for the Russian troops to march straight into the interior of Ukraine. There is no guarantee that they will stop there and every possible reason to believe that Putin is simply trying to sell a Trojan horse without any intention to stop at Donbas."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mwixvf/putins_demand_to_ukraine_give_up_donbas_no_nato/n9yr128/
+
+willstr1 2015-02-08
+
+"The Russians need time to build up equipment and troops. Also Putin might be betting on the current US regime succeeding in their plans to collapse democracy"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mwixvf/putins_demand_to_ukraine_give_up_donbas_no_nato/n9ykpra/
+
+positivcheg 2015-04-19
+
+"Some context from Ukrainian and the moods in Ukrainian social networks.
+
+Interestingly people fear more those “demands” of putin for russian language to remain national language. I guess so that next time he is able to invade again to defend russian speaking people.
+
+Additionally, putin wants his church to be allowed in Ukraine again. We all know that the church is just a KGB network. Religion is one of the best way to brainwash people and divide people. Always was. Always will be."
