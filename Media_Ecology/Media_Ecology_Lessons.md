@@ -419,3 +419,11 @@ Lesson focus:
 
 https://old.reddit.com/r/antiwork/comments/1mx4ze9/do_you_guys_agree_with_this/
 
+&nbsp;
+
+### Paywalls / Content behind payment
+
+&nbsp;
+
+How the New York Times Beat Paywall Hackers For Good    
+https://www.youtube.com/watch?v=9Ej9JUnFCO0
