@@ -1018,3 +1018,13 @@ P.P.S. lol automod"
 &nbsp;
 
 &nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1mwnx90/im_dead/n9z2w9o/
+
+obxtalldude 2016-08-18
+
+"I had been holding back sharing all the Gavin Newsom AI art, but this one broke me.
+
+It's so beautiful, so perfect, you won't believe it.'
+
+&nbsp;
