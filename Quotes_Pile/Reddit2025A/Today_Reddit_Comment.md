@@ -395,3 +395,25 @@ I recently was visiting the town I went to high school in and was genuinely shoc
 It’s a town of a little over 5000. They have facilities nicer than most colleges I’ve seen. It’s ridiculous.
 
 And they’re not even any good."
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teachers_a_decent_wage_but/na32e3b/
+
+rematar 2017-12-10
+
+"Teaching is still based on the repetitive system of one room schools, where many students spoke a native tongue when they arrived. It definitely has not evolved for the age of information.
+
+It's like a workplace. The legacy workweek is antiquated, but no one will change it. Less hours for the same wage should improve the quality of work and improve happiness and wellbeing."
+
+&nbsp;
+
+Krytan 2012-07-27
+
+"All the teachers I know are incredibly demoralized. Our current system just isn't working. Uninvolved parents, all the COVID lockdowns, phones everywhere, now AI....genuinely feels like a relic of a bygone age that simply doesn't work any more for all but a few students.
+
+It seems like it's more serving as a government subsidized daycare system so both parents can generate profits for shareholders for some corporation."
+
+* :::=== RoundSparrow_Commentary : “Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, **What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens?** Or a public imbued with confidence, a sense of purpose, a respect for learning, and tolerance? The answer to this question has nothing whatever to do with computers, with testing, with teacher accountability, with class size, and with the other details of managing schools. The right answer depends on two things, and two things alone: the existence of shared narratives and the capacity of such narratives to provide an inspired reason for schooling.” ― Neil Postman, The End of Education: Redefining the Value of School, September 1995 (Eternal September Year 1) ===:::
+
+&nbsp;
