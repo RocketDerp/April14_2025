@@ -580,3 +580,16 @@ JohnnyGFX 2015-03-22
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mxc4ma/hegseth_orders_national_guard_troops_in_dc_to/na44da6/
+
+Ace_Ranger 2014-11-06
+
+"You're giving them too much credit. They don't know that there is a difference between respect and fear. They think power over people IS respect."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mxc4ma/hegseth_orders_national_guard_troops_in_dc_to/na4d1br/
+
+lookieherehere 2018-06-29
+
+"And all the conservatives cheer. For so long, I thought this line or that line, if crossed, would definitely cause people to turn on him. We have blown through so many of those lines that I've lost hope. Trump is just a symptom of a greater disease in this country. That disease will continue to exist and spread even when he is gone. I don't see a way out this in our lifetimes. It's truly a dark time for the US and the world in general."
