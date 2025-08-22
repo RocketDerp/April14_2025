@@ -28,7 +28,7 @@ Face-EatingLeopards **2025-06-24 (recent account**, note meaning)
 
 "And most of these MAGA heroes are either beating or trying to make it with their underage daughters or their friends."
 
-* :::=== RoundSparrow_Commentary : Supporting Malala from Swat Valley Pakstan is a global movement to empower young girls / daughters / children to have a voice and be able to stand up to Taliban elders and Donald Trump elders, Rupert Murdoch elders. ===:::
+* :::=== RoundSparrow_Commentary : Supporting [Malala from Swat Valley Pakstan is a global movement](https://en.wikipedia.org/wiki/Malala_Yousafzai) to empower young girls / daughters / children to have a voice and be able to stand up to Taliban elders and Donald Trump elders, Rupert Murdoch elders. ===:::
 
 &nbsp;
 
@@ -47,3 +47,11 @@ Sexisthunter 2024-09-14
 "And by a pedophile they mean your local harmless drag queen. I’m sure if a straight Christian man predated on a young girl he wouldn’t care as much"
 
 &nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2cebv/
+
+gullboi 2021-11-24
+
+"No one likes pedophiles, for a good reason. But a lot of people (conservative and wannabe "alpha" men) use them just to entertain their violent power fantasies about killing and mutilating someone. They don't actually give a shit about children being abused."
+
+* :::=== RoundSparrow_Commentary : Supporting [Malala from Swat Valley Pakstan is a global movement](https://en.wikipedia.org/wiki/Malala_Yousafzai) to empower young girls / daughters / children to have a voice and be able to stand up to Taliban elders and Donald Trump elders, Rupert Murdoch elders. ===:::
