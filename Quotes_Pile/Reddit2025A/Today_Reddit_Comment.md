@@ -66,6 +66,10 @@ villianrules 2019-07-23
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2gimp/
+
+FixBreakRepeat 2015-02-28
+
 "Conservatives don't believe in using words accurately.
 
 When they say pedophile or groomer they're not talking about the youth pastor who got a 17 year old pregnant. They're talking about gay people being gay in public. 
@@ -77,3 +81,13 @@ They're way more ok with a 25 year old dude getting a 15 year old girl pregnant 
 That sticker is just calling for the execution of gay people. It's not ironic, the words just mean different things to them."
 
 * :::=== RoundSparrow_Commentary : Conservatives do not grasp the John 1:1 *poetry and only poetry, words and only words* crisis. The Tower of Babel metaphor. Conservatives think fighting others with violence and hate over language and words (no outsiders who speak Spanish from Mexico, etc) is good, not comprehnding the meaning of the Tower of Babel lesosns to *transcend* the tower of langauges and memes. [James Joyce's year 1924 onward Finnegans Wake publication is essential for our highest educators and teachers to grasp in the modern media ecology systems](https://www.youtube.com/watch?v=TV3vT5nW_I4) so they can teach the other teachers. It is likely not practical for every person to learn Finnegans Wake, but we can have a millions across the world who *teach the teachers*. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2cf9t/
+
+RamsHead91 2014-05-26
+
+"Most of these bigots that ride around with these decals are individuals that think anyone in the LGBT space are groomers and pedophiles. They don't actually think trying to there is anything wrong going after 16 or 17 year old girls, at times younger.
+
+You can see it with who their mouth pieces are and who their elected representatives are."
