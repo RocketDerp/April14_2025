@@ -265,3 +265,26 @@ glenn_ganges 2024-06-17
 "That is exactly what conservatives want and it’s nakedly obvious even without all this bullshit.
 
 It was true when people started dying their hair, getting tattoos, being vocal that they have sex, and all the many many many moral panics that conservatives whine about."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mx67rk/oc_fbi_raids_john_boltons_home_in_a_probe_to_find/na2nfzj/
+
+Dangerousrhymes 2015-06-20
+
+"The problem is what to do.
+
+Election day is when people decided they were going to stand aside and let this happen.
+
+All three branches of government are compromised and somewhere between 30 and 40% of the population of the country is complicit in this authoritarian takeover.
+
+Until or unless there is violence initiated against Republican politicians by their own deep red constituents at a scale that cannot be written off as some kind of deep state plot, we are all just passengers watching the ship burn from its deck.
+
+They own the country now, the American public willingly sold it to them in exchange for the promise that people different than them would be hurt, despite the protests of tens of millions.
+
+Unfortunately, for the overwhelming majority of people, trying to make the best of a broken world and raise children in it is preferable to leaving them orphaned or just dying outright.
+
+The only hero we have waiting in the wings is the brutal and glaring incompetence of this administration, and the hope that they fail to compromise the voting system while alienating enough of their base that they get absolutely wiped out in the midterms.
+
+Otherwise, hasta la vista America."
+
