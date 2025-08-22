@@ -427,3 +427,13 @@ https://old.reddit.com/r/antiwork/comments/1mx4ze9/do_you_guys_agree_with_this/
 
 How the New York Times Beat Paywall Hackers For Good    
 https://www.youtube.com/watch?v=9Ej9JUnFCO0
+
+&nbsp;
+
+### Human brain disorders with media and communications 
+
+&nbsp;
+
+Autism, hyperlexia, dyslexia, handwriting problems, listening problems.   
+"I have an auditory processing disorder."    
+https://www.youtube.com/watch?v=tfJ7i_uKWSo
