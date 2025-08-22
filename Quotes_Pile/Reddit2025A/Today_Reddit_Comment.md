@@ -91,3 +91,14 @@ RamsHead91 2014-05-26
 "Most of these bigots that ride around with these decals are individuals that think anyone in the LGBT space are groomers and pedophiles. They don't actually think trying to there is anything wrong going after 16 or 17 year old girls, at times younger.
 
 You can see it with who their mouth pieces are and who their elected representatives are."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2c9vw/
+
+hectorbrydan 2025-06-26 (recent account)
+
+"People like this truck guy are the worst type of people. Because they trust the worst people that project their own qualities on their opposition and critics. There is a reason we have jury trials and do not just execute somebody based on an accusation, let alone some rumor."
+
+&nbsp;
+
