@@ -1159,4 +1159,12 @@ VFTM  2025-02-24 (new this year)
 
 "Humanity was a mistake. We do not deserve existence."
 
-* :::=== RoundSparrow_Commentary :The simple Twiter-think Bluesky-think one-line logical answer to life's problems with compassion. Just give up, don't support Malala from Pakistan, just say 8 billion people are a mistake. Social medi machine logic. Instead of people teaching world wide reformation that Malala has been pushing since October 8, 2013 - people just wnat to react-comment to stories using their free time / spare time on Reddit. ===:::
+* :::=== RoundSparrow_Commentary :The simple Twitter-think Bluesky-think one-line logical answer to life's problems with compassion. Just give up, don't support Malala from Pakistan, just say 8 billion people are a mistake. Social media machine logic. Instead of people teaching world wide reformation that Malala has been pushing since October 8, 2013 - people just want to react-comment to stories using their free time / spare time on Reddit. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mwi8ax/abdullah_the_child_whose_cry_of_im_hungry_exposed/n9y6jme/
+
+staebles 2016-08-31
+
+"It's very logical, but sadly, logic has no room for emotion, morality, or justice."
