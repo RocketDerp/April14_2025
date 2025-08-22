@@ -766,3 +766,7 @@ https://old.reddit.com/r/memes/comments/1mwek0g/what_has_she_written/
 "Now I'm GETTING HIT for UNSUITABLE Content-What is OFFENSIVE About This VIDEO?--Professor of Rock"   
 https://www.youtube.com/watch?v=JCJGbS3pgqg
 
+&nbsp;
+
+Abrupt Loss of Antarctic Sea Ice is obviously a Climate Tipping Point    
+https://www.youtube.com/watch?v=K4QqJhyJtr0
