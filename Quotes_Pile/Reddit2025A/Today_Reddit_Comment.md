@@ -525,3 +525,11 @@ https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_h
 Tremolat 2009-10-08
 
 "WTF? We've reached the Judge Dredd "I am the Law!" phase of this national nightmare. Show trials and summary executions within the year."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_house_i_could/na3axto/
+
+TruePutz 2020-10-22
+
+"We have a president who proudly stands on TV wearing a hat that says he was right about everything, which you can also buy from his store….let that sink in"
