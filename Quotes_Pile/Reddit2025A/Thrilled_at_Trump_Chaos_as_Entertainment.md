@@ -577,14 +577,6 @@ But yunno, Biden kissed his granddaughter in a slightly less-weird way than how 
 
 Fetishment of rich men's sexual power and wealth power to be a super-star and *grab women by the pussy* and manpipulate the society. It is so hillarious and funny and god-damned entertaining to meme addicts on Reddit who react-comment and joke and are constantly amused at mocking Trump, insutling Doanld Trump, eating the Tony Clifton act Trump does on the world stage of history FOR TEN FUCKING YEARS. Over and over the meme addicts of USA society can't get enough of Donald Trump to mock, the Tony Clifton act of contradictions and nonsense draws a Reddit and Bluesky and Twitter crowd every hour of every day. "It's even more hilarious that Trump's political allies are pedophiles as well." - sometimes a cigar statement is a Freudin slip of attraction to the power of wealth lords / sex lords. The story is in HOW LONG people go on and on and on for year after year declaring that Donald Trump is absurd, surreal, ironic, Tony Clifton [without being able to describe Russian information warfare techniques](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) and call for (CALL TO INTELLECTUAL ARMS) society-wide teaching about Surkov and Putin techniques in defense of NATO.
 
-&nbsp;
 
-https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2fbp7/
-
-Dry_Interaction5722 2024-12-12
-
-"Because its just justification for violence against the undesirables. Thats why they try and paint trans and other LGBT people as pedos all the time, and why the right pounces on any story of a immingrant/muslim/brown person being a pedo."
-
-&nbsp;
 
 
