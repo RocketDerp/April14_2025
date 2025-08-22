@@ -55,3 +55,14 @@ gullboi 2021-11-24
 "No one likes pedophiles, for a good reason. But a lot of people (conservative and wannabe "alpha" men) use them just to entertain their violent power fantasies about killing and mutilating someone. They don't actually give a shit about children being abused."
 
 * :::=== RoundSparrow_Commentary : Supporting [Malala from Swat Valley Pakstan is a global movement](https://en.wikipedia.org/wiki/Malala_Yousafzai) to empower young girls / daughters / children to have a voice and be able to stand up to Taliban elders and Donald Trump elders, Rupert Murdoch elders. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2emnw/
+
+villianrules 2019-07-23
+
+"Bingo and conveniently it's never their religious people or politicians it's their undesirables (people of the "wrong faith", color, orientation, wrong party, etc)"
+
+&nbsp;
+
