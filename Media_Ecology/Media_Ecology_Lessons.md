@@ -401,3 +401,21 @@ https://www.youtube.com/watch?v=gYZFmW3k5-E
 
 Jack or no jack, public noise, ringtone songs, notification opera.   
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1mw854f/the_good_old_days/
+
+&nbsp;
+
+### Work Media Ecology of Information Age
+
+I personally have worked from home since August 1999. Home has included home office in South America, Africa, Middle East, Mayalisa, Indonesia and RV all over the USA (8 diffeerent RV sizes and shapes). With my wife and solo after divorce.    
+Lesson focus:   
+1. Is work office culture the same in 1975 vs. 1995 vs 2025?
+2. pandemic COVID-19 changes
+3. Is work office same in different nations, rural vs. city, other geographic differences.
+4. Work hours culture, work days culture. Muslims have their Friday night on Thursday night and do not work on Friday and start week on Sunday in several nations I have lived in.  In Chile in South America, people were used to long work hours and staying up late was more routine.  Japan is famous for after-work obligations for salarymen.
+5. Contractors vs. employees and expectations.
+6. Jobs that can't possibly be work from home: delivery person, repair person, installation, construction, waiters, drivers, pilots, cleaners, physical labor in factory, fresh food preperations, etc, etc.
+7. Working with your spouse and children around during summer school breaks.
+8. Vacations and working 'on call' even when on paid holiday.
+
+https://old.reddit.com/r/antiwork/comments/1mx4ze9/do_you_guys_agree_with_this/
+
