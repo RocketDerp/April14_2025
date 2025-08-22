@@ -141,3 +141,13 @@ isecore 2015-08-15
 It's absolute madness."
 
 * :::=== RoundSparrow_Commentary :  I assert that the Kremlin war against Reality was described way back in Steptember 9, 2014 (the first year of the Ukraine hot war). [Russia and the Menace of Unreality. How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Peter Pomerantsev titled the second book in his series "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries"...  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2d4d5/
+
+GoldPenis 2016-07-08
+
+"They seemed to have weaponized hypocrisy. They are blatant and in your face hypocrites and all anyone does is try and call them out on it. They don't care they get off on the other side getting mad about it."
+
+* :::=== RoundSparrow_Commentary : The Internet Research Agency (IRA) weaponized **irony poisoning** since Q2 2013 on the World Wide Web (leading up to February 2014 Ukraine War), creating patterns of memes and messages to exploit all brains with surreal, absurd, ironic, satire patterns. Surkovian information warfare has defeated the United States of America. Meme addled Americans abound on social systems. Another point of great importance: adults are not educated in rectangle schools, classrooms. Adults are educated by Internet memes on Reddit / Twitter / Facebook (exploited by the Russian IRA) and educated by Fox News HDTV. Media ecology education is essential to rescue USA from Putin information warfare. Neil Postman's 184 page book "Amusing Ourselves To Death" needs to be grasped by every person age 12 to 120. ===:::
