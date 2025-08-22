@@ -6,7 +6,7 @@
 
 &nbsp;
 
-#### Both Sides Fatihs
+#### Both Sides Faiths
 
 * Another aspect of double-think is that you believe there are TWO and ONLY TWO, that there are BOTH, TWO SIDES, and never 12 or 13 interpretations. To use logic 1-bit thinking instead of USA founding fathers 13-steps reason thinking recursive iteration. Novus ordo seclorum.
 
