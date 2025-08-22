@@ -228,3 +228,11 @@ https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_
 Tylendal  2015-07-31
 
 "Also, their "facts" are not actual facts, and just the vibe they've got from wherever they get their news, regardless of how much the details support them."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2p9m0/
+
+SatanicPanic619  2021-12-28
+
+"They've convinced themselves that liberals, and anyone else who doesn't agree with them, is literally doing so because of the devil. This means anything can be justified. Lying, cheating, murder, whatever."
