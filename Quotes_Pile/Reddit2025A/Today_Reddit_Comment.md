@@ -10,3 +10,16 @@ ImDrunkFightMe 2019-02-13
 
 * :::=== RoundSparrow_Commentary : freedom to be addicted to Disney and Rupert Murdoch fiction media content. Freedom to hate. Freedom to dehumanize. Freedom to avoid nonfiction. Freedom to avoid science. Freedom to become cult addicts to one-line Twitter message length like this Reddit comment and not learn and study Neil Postamn's 1985 book "Amusing Ourselves To Death", and instead use social machines to create tiny reaction commments and image animations every hour of every day for 10 years in service to Putina nd Trump information warfare. Freedom to Celebrate Ignorance on social media. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2inyj/
+
+newredditacct25 **2025-08-15 (new account**, note meaning)
+
+"yup when you idolize, worship someone they will always get a free pass"
+
+* :::=== RoundSparrow_Commentary : To defend against the IRA meme warfare, it is essential every person age 14 to age 120 study Comparative Mythology. ===:::
+
+&nbsp;
+
+
