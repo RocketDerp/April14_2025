@@ -462,4 +462,13 @@ AgentWD409 2020-07-02
 
 "I don't even understand how the Cracker Barrel thing is a story at all. Who cares if they changed their logo? Why is the right melting down about this? It's completely insane."
 
-* :::=== RoundSparrow_Commentary : actress Rosie O'Donnell with Trumpcalling her a "threat to humanity", Bruce Springsteen, Taylor Swift, Star Wars images, Cracker Barrel logo, under Surkov govering systems, [Everything is *Media Ecology / Everything is ME](../../Media_Ecology/Everything_is_ME.md) ===:::
+* :::=== RoundSparrow_Commentary : actress Rosie O'Donnell with Trumpcalling her a "threat to humanity", Bruce Springsteen, Taylor Swift, Star Wars images, Cracker Barrel logo. Ruling under Surkov govering systems, [Everything is *Media Ecology* / Everything is ME](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mx7n0h/trump_wants_you_to_forget_and_move_on/na3xbjz/
+
+strangerbuttrue 2011-08-29
+
+"It’s insane how powerful their right wing media is. The company stock dropped over 10% over this. So all this faux outrage can actually move markets. Like, people, it’s a logo change, not the Country Bumpkin Apocalypse."
+
