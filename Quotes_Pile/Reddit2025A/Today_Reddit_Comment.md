@@ -766,3 +766,13 @@ https://old.reddit.com/r/law/comments/1mxe278/trump_threatens_to_deploy_the_us_m
 lesmainsdepigeon 2025-03-26 (new this year)
 
 "America’s dictatorship looks like a gaudy infomercial."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mxcxne/deploying_the_military_to_american_cities_is/na481tj/
+
+princeofshadows21 2018-06-15
+
+"It died in 2016. The fact he ever got to be president was a fundamental failure of the entire country. All Biden's presidency did was act as a brief remission from a facist cancer. Now it's back and has become terminal."
+
+* :::=== RoundSparrow_Commentary : Russa won the information war since March 2013. Hearts and minds to self-harm USA and be addicted to fiction. Surkov won. ===:::
