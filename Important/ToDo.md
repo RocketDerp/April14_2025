@@ -770,3 +770,9 @@ https://www.youtube.com/watch?v=JCJGbS3pgqg
 
 Abrupt Loss of Antarctic Sea Ice is obviously a Climate Tipping Point    
 https://www.youtube.com/watch?v=K4QqJhyJtr0
+
+&nbsp;
+
+Words are your reality. Tokenize it in your mind.   
+AvE on parts
+https://youtu.be/DvNDfViNq3k?t=27
