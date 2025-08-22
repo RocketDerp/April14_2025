@@ -313,3 +313,13 @@ https://old.reddit.com/r/pics/comments/1mx67rk/oc_fbi_raids_john_boltons_home_in
 Creepy-Debate897 2025-01-30 (new this year)
 
 "The hypocrisy is not a slip up or gotcha moment we have on them. These tactics are deliberate in order to bewilder and frustrate but most of all to show that the law can be used arbitrarily as a chilling and intimidation tactic to all of us. This is fascism."
+
+&nbsp;
+
+https://old.reddit.com/r/pcmasterrace/comments/1mx6agx/a_disgusting_cheater/na2lmai/
+
+KorolEz 2019-11-11
+
+"I really don't get the appeal. Playing PvP and winning feels like overcoming an obstacle/an achievement. If I do it with cheating it would feel empty without any joy"
+
+* :::=== RoundSparrow_Commentary : Who teaches moraltiy? Donald Trump role model? ["these are the phenomenon that Baudrillard examines with the most care. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how children used to learn morality from their parents and now I think that ... Super Mario Brothers. They spend much more time with Super Mario Brothers and are much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) ===:::
