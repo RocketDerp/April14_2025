@@ -39,3 +39,11 @@ Dry_Interaction5722 2024-12-12
 "Because its just justification for violence against the undesirables. Thats why they try and paint trans and other LGBT people as pedos all the time, and why the right pounces on any story of a immingrant/muslim/brown person being a pedo."
 
 &nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2l79f/
+
+Sexisthunter 2024-09-14
+
+"And by a pedophile they mean your local harmless drag queen. I’m sure if a straight Christian man predated on a young girl he wouldn’t care as much"
+
+&nbsp;
