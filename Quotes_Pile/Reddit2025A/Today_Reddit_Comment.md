@@ -659,3 +659,12 @@ StartButtonPress 2021-08-12
 He does not want resistance. None of them do. To say they want resistance or that it furthers their goals is foolish at best and propaganda at worst."
 
 * :::=== RoundSparrow_Commentary : Year 2014: [“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1mx9w2v/kid_finds_out_trump_is_a_real_person_and_he/na3kjzu/
+
+zuzg 2018-05-19
+
+"He's the embodiment of everything that's wrong in America.    
+And every single day is a step further down the Authoritarian slope."
