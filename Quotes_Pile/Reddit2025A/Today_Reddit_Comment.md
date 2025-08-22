@@ -221,3 +221,10 @@ QuesoChef 2016-11-21
 
 "Because Republicans don’t research. They don’t want facts, only outrage and hate. Facts get in the way of that."
 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2n443/
+
+Tylendal  2015-07-31
+
+"Also, their "facts" are not actual facts, and just the vibe they've got from wherever they get their news, regardless of how much the details support them."
