@@ -640,3 +640,22 @@ BitterFuture 2018-02-14
 
 "It's not a coincidence that he is wearing a hat proclaiming that he's the most brilliant man to have ever lived while declaring he's going to ignore laws and order our military to attack our own citizens."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mxe278/trump_threatens_to_deploy_the_us_military_into/na4bhdx/
+
+Pristine_Read_7476 2020-12-28
+
+"I’m old enough to remember “The Troubles” in British occupied Ireland.  Car bombings, assassination, decentralized guerrila actions.   Heartbreaking that the Republicans are actively bringing this on in the United States"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mxe278/trump_threatens_to_deploy_the_us_military_into/na4l4no/
+
+StartButtonPress 2021-08-12
+
+"This is the most important response to the afraid.
+
+He does not want resistance. None of them do. To say they want resistance or that it furthers their goals is foolish at best and propaganda at worst."
+
+* :::=== RoundSparrow_Commentary : Year 2014: [“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) ===:::
