@@ -537,3 +537,16 @@ Hardcorish 2012-12-29
 TEN FUCKING YEARS of social media addict nation mocking and insulting one person, Donald Trump, every hour of every day. Tony Clifton act that people eat up. Addiction to Donald Trump content, Reality TV show, has wrecked the USA. Russian information warfare of Surkov students has turned every aspect of USA life into constant jokes and hilarious Donald Trump stink. My god, do USA people have the worst possible taste in junk memes and trash media consumption to flock to this content creator. People upvote this trash taste on Reddit every hour of every day and can not resist handing power and wealth to Donald Trump in cumpulsive addiciton to the Clifton performance. It is like a wish list for the 11th season of Donald Trump South Park entertainment show: "How hilarious would it be if Trump drew the other half of his droopy face with a Sharpie to make it look 'normal' again".
 
 
+&nbsp;
+
+# Thursday August 24, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1mwnx90/im_dead/n9z63vn/
+
+Pixburghkev 2019-09-08
+
+"This is the way. Finally, people having fun and laughing at them."
+
+FINALLY? That is all people have done since year 2015, endless LOL LOL LOL LMAO at Donald Trump. This tiny short message of Twitter-think is rececy bias personified. People in USA have "Amused Ourselves to Death" so much that population is thinking and acting like this is Donald Trump's FIRST TERM IN OFFICE, We The Peole ahve lost their memories of the pandemic, all the non-stop laughing and giggles over Doald Trump's media appearances and speeches. People ahve blown their minds so wide open that they can't even remember year 2016 election!!
