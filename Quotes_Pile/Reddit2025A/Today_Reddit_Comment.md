@@ -174,3 +174,15 @@ And only their "sources" FoxNews, Breitbart, etc. Are telling the truth.
 Not that empirical facts matter in that context."
 
 * :::=== RoundSparrow_Commentary : These are all fiction sources. Fiction outsells nonfiction. We do not educate the population how to distinguish fiction from nonfiction. Addiction to fiction is addiction to Donald Trump mockery information. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2geea/
+
+Daft00 2012-07-20
+
+"Sometimes I feel like I'm living in crazy land where this wasn't the completely obvious trajectory once trump started trying to coin the phrase "fake news" back towards the beginning of his "political career".
+
+Anyone who can't connect the dots now nearly a decade later is painfully naive. (This isn't a slight towards you in any way zuzg)"
+
+&nbsp;
