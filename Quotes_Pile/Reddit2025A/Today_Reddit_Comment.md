@@ -533,3 +533,13 @@ https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_h
 TruePutz 2020-10-22
 
 "We have a president who proudly stands on TV wearing a hat that says he was right about everything, which you can also buy from his store….let that sink in"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_house_i_could/na3b8l7/
+
+2012-03-23
+
+"Why does he talk like a baby"
+
+* :::=== RoundSparrow_Commentary : Why do Reddit & Bluesky  reaction comments of 7 words pass as thinking in the face of mass media organized informaton war from Russia? People keep eating the Tony Clifton act with audience interaction. Surkov won, Russia won, since March 2013. “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, **when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience**, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
