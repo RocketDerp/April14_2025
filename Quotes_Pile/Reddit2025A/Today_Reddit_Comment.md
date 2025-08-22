@@ -66,3 +66,14 @@ villianrules 2019-07-23
 
 &nbsp;
 
+"Conservatives don't believe in using words accurately.
+
+When they say pedophile or groomer they're not talking about the youth pastor who got a 17 year old pregnant. They're talking about gay people being gay in public. 
+
+There's a lot of focus on trans folks right now, but the conservative movement at large has never accepted any kind of LGBTQ+ lifestyle.
+
+They're way more ok with a 25 year old dude getting a 15 year old girl pregnant because that's regular "normal" sex. As long as they get married, they might not have any problem with it at all. 
+
+That sticker is just calling for the execution of gay people. It's not ironic, the words just mean different things to them."
+
+* :::=== RoundSparrow_Commentary : Conservatives do not grasp the John 1:1 *poetry and only poetry, words and only words* crisis. The Tower of Babel metaphor. Conservatives think fighting others with violence and hate over language and words (no outsiders who speak Spanish from Mexico, etc) is good, not comprehnding the meaning of the Tower of Babel lesosns to *transcend* the tower of langauges and memes. [James Joyce's year 1924 onward Finnegans Wake publication is essential for our highest educators and teachers to grasp in the modern media ecology systems](https://www.youtube.com/watch?v=TV3vT5nW_I4) so they can teach the other teachers. It is likely not practical for every person to learn Finnegans Wake, but we can have a millions across the world who *teach the teachers*. ===:::
