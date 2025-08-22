@@ -776,3 +776,10 @@ https://www.youtube.com/watch?v=K4QqJhyJtr0
 Words are your reality. Tokenize it in your mind.   
 AvE on parts
 https://youtu.be/DvNDfViNq3k?t=27
+
+&nbsp;
+
+Lots of fun at Finnegans Wake!    
+"35.5ml here in Ireland you guys are getting stiffed."    
+https://old.reddit.com/r/mildlyinteresting/comments/1mxec4f/i_was_charged_150_to_avoid_ice_in_my_scotch/na4g6cx/
+
