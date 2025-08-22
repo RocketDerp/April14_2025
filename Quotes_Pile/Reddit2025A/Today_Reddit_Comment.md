@@ -1038,3 +1038,11 @@ JustAlpha 2016-03-09
 Meanwhile the fascist march on without organized resistance.
 
 Stick to the Epstein files."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mwnu2b/apparently_theyve_left_him_to_his_own_devices/n9yw5bo/
+
+Mucking_Fountain  2016-08-05
+
+"Classic Mafia/Religion scheme: Do what I say, so I can save you from what I will do to you if you don’t do what I say."
