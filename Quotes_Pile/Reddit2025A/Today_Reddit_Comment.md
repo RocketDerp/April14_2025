@@ -479,3 +479,13 @@ https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_h
 DFu4ever 2013-11-18
 
 "Hey Republicans, you do realize no matter how much you demonize Democrats, they never fucking act like this …right?"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_house_i_could/na3ez3h/
+
+\_mattyjoe 2017-07-13
+
+"They are genuinely incapable of seeing that reality. They generally do not see reality accurately at all. Not even being sarcastic, their talk radio and propaganda has been pushing a generally incorrect view of the world for decades now just to rile them up and make money off their rage."
+
+* :::=== RoundSparrow_Commentary : People are unable to tell reality from fiction. It is the aftermath... the Internet consumer society is wrecked since March 2013. Think about the titles of these two books... Peter Pomerantsev: "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia" - 2014, "This Is Not Propaganda: Adventures in the War Against Reality" - 2019. Those two books from year 2014 and 2019 describe the disappearance of faith in reality and attraction to fiction crisis. ===:::
