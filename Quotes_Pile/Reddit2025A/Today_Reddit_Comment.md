@@ -472,3 +472,10 @@ strangerbuttrue 2011-08-29
 
 "It’s insane how powerful their right wing media is. The company stock dropped over 10% over this. So all this faux outrage can actually move markets. Like, people, it’s a logo change, not the Country Bumpkin Apocalypse."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_house_i_could/na39wxt/
+
+DFu4ever 2013-11-18
+
+"Hey Republicans, you do realize no matter how much you demonize Democrats, they never fucking act like this …right?"
