@@ -509,3 +509,11 @@ https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_h
 Glexan1 2015-05-16
 
 "No, they don't. They live in a different reality where democrats are always just one day away from kicking your door in and killing you and your family so immigrants can live in your house. Im willing to he money that most republicans would say that this was a great thing and he deserves this. There is no reasoning with them."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_house_i_could/na3fe1m/
+
+Fark_ID 2015-06-08
+
+"Russia, Social Media and FOX News convinced a bunch of fucking fools that a silver spoon born Russian compromised failed NYC Real Estate Developer (money laundering for Russian oligarchs) gave a shit about them, OH and he has to pull every string because SO MANY GREAT PEOPLE ARE SAYING DONALD JOHN TRUMP RAN A CHILD SEX TRAFFICKING RING WITH EPSTEIN."
