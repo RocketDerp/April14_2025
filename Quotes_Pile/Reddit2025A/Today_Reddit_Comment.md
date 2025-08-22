@@ -288,3 +288,13 @@ The only hero we have waiting in the wings is the brutal and glaring incompetenc
 
 Otherwise, hasta la vista America."
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mx67rk/oc_fbi_raids_john_boltons_home_in_a_probe_to_find/na2s8e2/
+
+masturbathon 2011-11-22
+
+"Their weakness is the media. Fox News is the single thread holding this administration together. 
+
+Not that i think it’s an easy thread to pull."
+
