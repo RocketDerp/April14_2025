@@ -417,3 +417,13 @@ It seems like it's more serving as a government subsidized daycare system so bot
 * :::=== RoundSparrow_Commentary : “Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, **What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens?** Or a public imbued with confidence, a sense of purpose, a respect for learning, and tolerance? The answer to this question has nothing whatever to do with computers, with testing, with teacher accountability, with class size, and with the other details of managing schools. The right answer depends on two things, and two things alone: the existence of shared narratives and the capacity of such narratives to provide an inspired reason for schooling.” ― Neil Postman, The End of Education: Redefining the Value of School, September 1995 (Eternal September Year 1) ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teachers_a_decent_wage_but/na3h845/
+
+balllzak 2012-10-20
+
+"One of the groups the nazis targeted when they invaded Poland was called the intelligenzaktion. The soviets called them the intelligentsia when they did the exact same thing with their half of the country. Can you guess who was in this group? Authoritarians absolutely fear the highly educated organizing resistance."
+
+* :::=== RoundSparrow_Commentary : “The extremists are afraid of books and pens, the power of education frightens them. they are afraid of women.” ― Malala Yousafzai ===:::
+
+&nbsp;
