@@ -362,4 +362,12 @@ It actively discourages independent, critical thought. It teaches that your chur
 
 Religion needs to go. We will never be able to move on as a species until we stop letting people dupe others into believing in magic sky wizards that hate whatever the hot button topic of the week happens to be."
 
-* :::=== RoundSparrow_Commentary : Short sighted. People fixate on religions from 2,000 years ago and Quran from 1,400 years ago. Ficiton vs. nonfiction education covers addiction to Trump Truth Social fiction, Fox News fiction, Bible science fiction, Torah science fiction, etc. People take Reddit memes as nonfiction and get easily confused. Addiciton to memes, addiction to fiction, compusive rejection of nonfiction. ===:::
+* :::=== RoundSparrow_Commentary : Short sighted. People fixate on religions from 2,000 years ago and Quran from 1,400 years ago. Ficiton vs. nonfiction education covers addiction to Trump Truth Social fiction, Fox News fiction, Bible science fiction, Torah science fiction, etc. People take Reddit memes as nonfiction and get easily confused. Addiciton to memes, addiction to fiction, compusive rejection of nonfiction. People say "seperaiton of Church and State" in USA, which makes no account of Scientology and Star Wars fanatics and Fox News media cults. Seperaiton of Fiction and NonFiction is far more important. **Leadership by fiction** is how Putin and Surkov created 25 years of Putin leadership in Russia. Anti-science, anti reason thinking, fiction mythology leadership. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1mx7t85/we_can_afford_to_pay_teachers_a_decent_wage_but/na3gbii/
+
+SirLeaf 2013-05-09
+
+"noting the source and their interests is the definition of media literacy. certainly worth noting"
