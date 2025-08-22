@@ -558,3 +558,21 @@ https://old.reddit.com/r/pics/comments/1mww968/president_of_the_united_states_do
 Bolaf 2012-06-05
 
 "And here we are, making fun of his hair"
+
+&nbsp;
+
+&nbsp;
+
+# Friday August 22, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mx57zk/so_much_irony/na2hqwj/
+
+MacPzesst 2021-04-10
+
+"It's even more hilarious that Trump's political allies are pedophiles as well. Matt Gaetz openly bragged about dating minors and was Trump's original pick for AG. The lawmaker who pushed the Trump Derangement Syndrome was arrested for soliciting a minor. Trump appointed the convicted pedophile Lawrence Taylor to a kids' health and wellness program. Multiple J6ers who were pardoned were arrested shortly after for child sexual abuse crimes.
+
+But yunno, Biden kissed his granddaughter in a slightly less-weird way than how Tom Brady made his son kiss him."
+
+Fetishment of rich men's sexual power and wealth power to be a super-star and *grab women by the pussy* and manpipulate the society. It is so hillarious and funny and god-damned entertaining to meme addicts on Reddit who react-comment and joke and are constantly amused at mocking Trump, insutling Doanld Trump, eating the Tony Clifton act Trump does on the world stage of history FOR TEN FUCKING YEARS. Over and over the meme addicts of USA society can't get enough of Donald Trump to mock, the Tony Clifton act of contradictions and nonsense draws a Reddit and Bluesky and Twitter crowd every hour of every day. "It's even more hilarious that Trump's political allies are pedophiles as well." - sometimes a cigar statement is a Freudin slip of attraction to the power of wealth lords / sex lords. The story is in HOW LONG people go on and on and on for year after year declaring that Donald Trump is absurd, surreal, ironic, Tony Clifton [without being able to describe Russian information warfare techniques](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) and call for (CALL TO INTELLECTUAL ARMS) society-wide teaching about Surkov and Putin techniques in defense of NATO.
