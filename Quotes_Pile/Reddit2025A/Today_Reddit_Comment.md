@@ -151,3 +151,13 @@ GoldPenis 2016-07-08
 "They seemed to have weaponized hypocrisy. They are blatant and in your face hypocrites and all anyone does is try and call them out on it. They don't care they get off on the other side getting mad about it."
 
 * :::=== RoundSparrow_Commentary : The Internet Research Agency (IRA) weaponized **irony poisoning** since Q2 2013 on the World Wide Web (leading up to February 2014 Ukraine War), creating patterns of memes and messages to exploit all brains with surreal, absurd, ironic, satire patterns. Surkovian information warfare has defeated the United States of America. Meme addled Americans abound on social systems. Another point of great importance: adults are not educated in rectangle schools, classrooms. Adults are educated by Internet memes on Reddit / Twitter / Facebook (exploited by the Russian IRA) and educated by Fox News HDTV. Media ecology education is essential to rescue USA from Putin information warfare. Neil Postman's 184 page book "Amusing Ourselves To Death" needs to be grasped by every person age 12 to 120. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na2p5in/
+
+NotNufffCents 2024-06-15
+
+"I think you're putting too much thought into it. Republicans are simple people. They will say and do anything to grab and maintain power. Thats it. They'll knowingly make two completely contradictory statements in the same sentence because they dont value honesty or truth. Just power."
+
+* :::=== RoundSparrow_Commentary : "If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, the tumult in Europe, wars and wars and wars -- we have pulled ourselves out of it and **created a state in the name of reason, not in the name of power**, and out of that will come the flowerings of the new life. That's the sense of that part of the pyramid." - George Lucas Skywalke Ranch lessons to Star Wars / Hollywood film audience (Power Of Myth book 1988). How to understand the Great Seal of the United States of America from founding fathers. ===:::
