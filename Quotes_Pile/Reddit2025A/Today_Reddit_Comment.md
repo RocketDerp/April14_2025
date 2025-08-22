@@ -634,3 +634,9 @@ Freedom_for_Fiume 2015-09-12
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1mxe278/trump_threatens_to_deploy_the_us_military_into/na49guo/
+
+BitterFuture 2018-02-14
+
+"It's not a coincidence that he is wearing a hat proclaiming that he's the most brilliant man to have ever lived while declaring he's going to ignore laws and order our military to attack our own citizens."
+
