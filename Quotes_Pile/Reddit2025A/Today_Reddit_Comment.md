@@ -236,3 +236,17 @@ https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_
 SatanicPanic619  2021-12-28
 
 "They've convinced themselves that liberals, and anyone else who doesn't agree with them, is literally doing so because of the devil. This means anything can be justified. Lying, cheating, murder, whatever."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mx4fiu/get_your_own_house_in_order/na35ay8/
+
+ZiKyooc 2017-03-07
+
+"An increasing number of people get their information from social media with algorithms that will show you what you want. The other side doesn't exist anymore. And it's true for everyone."
+
+* :::=== RoundSparrow_Commentary : And ChatGPT and GrokAI and other artificial intelligence systems now in August 2025. [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md) ...
+"The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation." ===:::
+
+&nbsp;
+
