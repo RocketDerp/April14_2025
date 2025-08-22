@@ -725,3 +725,11 @@ booksfoodfun 2018-12-09
 
 * :::=== RoundSparrow_Commentary : **New Years Eve year 2014***, long before Donald Trump in office in January 2017: ["Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mxfmhz/we_blew_past_sane_quite_a_while_ago/na4l054/
+
+plattner-da 2019-09-29
+
+"This, is not a sane country."
+
