@@ -552,3 +552,12 @@ Heather_ME 2012-09-06
 
 "Agreed. Almost as sick of "we're heading into authoritarianism" rhetoric as I am of people talking about the 2028 election as if it happening in any meaningful way is a foregone conclusion. You'd think fascism is a fucking horizon we will never cross the way people talk about it. The bad is here. It's happened. It's not a future risk."
 
+* :::=== RoundSparrow_Commentary : Denial abounds. [Russian War Against Reality since March 2013](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) has We The People in massive psychological denial of nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mxb3xy/were_in_the_worst_timeline/na3v10p/
+
+Puzzleheaded-Sea8340 2021-03-18 (I am not following user, organically finding multiple times)
+
+"Exactly .. we are not sliding toward authoritarianism we are in an authoritarian regime… And there is nothing apparently that can be done to stop him everyone should be really fucking scared… Whether you voted for him or not whether you’re a citizen or not… There are now no limits to his power and what the fuck he will do"
