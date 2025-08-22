@@ -593,3 +593,44 @@ https://old.reddit.com/r/news/comments/1mxc4ma/hegseth_orders_national_guard_tro
 lookieherehere 2018-06-29
 
 "And all the conservatives cheer. For so long, I thought this line or that line, if crossed, would definitely cause people to turn on him. We have blown through so many of those lines that I've lost hope. Trump is just a symptom of a greater disease in this country. That disease will continue to exist and spread even when he is gone. I don't see a way out this in our lifetimes. It's truly a dark time for the US and the world in general."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mx951q/after_months_of_issuing_warnings_of_impending/na3deky/
+
+g00fyg00ber741 2012-02-10
+
+"The famine has been very clearly and explicitly intentional. The intentional murdering of World Central Kitchen volunteers delivering food aide, twice. The deliberate use of food care packages as bait for murdering starving people coming to collect the food. It’s been clear for many months that this is an intentional and chosen method of genocide, to force them into famine. Frankly, the UN and the world have shown they do not want to prevent the famine or stop it, considering no consequences have come from those clear human rights violations."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mx951q/after_months_of_issuing_warnings_of_impending/na3k2bj/
+
+New-Put-4963 2021-12-06
+
+"Watching this unfold over the past few years from the safety of my home has been one of the most disturbing thing I have every experienced… the lottery of life depending on where you are born… everything around me is normal but how are we supposed to carry on normally when fellow humans are being treated so inhumanely? All I can think about is how scared, hungry, and tired they must be. Free Palestine and free Gaza forever. I hope they find some relief soon and I hope they know some of us will keep fighting for them."
+
+* :::=== RoundSparrow_Commentary : Education and social media users promoting education and teaching of how to move beyond violence and hate.  “The extremists are afraid of books and pens, the power of education frightens them. they are afraid of women.” ― [Malala Yousafzai: 16th birthday speech at the United Nations. New York City, New York](https://malala.org/news-and-voices/malala-un-speech) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/okbuddycinephile/comments/1mx907i/hes_guilty_i_tell_you/na3mdsp/
+
+alexathegibrakiller 2018-01-15
+
+"It really is.
+
+One other not I would add to others: for me, a lot of time old movies are a slowburn/boring, so it takes a lot of deliberate sitting my ass down and steeling through the slow parts to actually watch an older serious movie, but 12 angry men had me at the endge of my seat for the entire duration.
+
+If you are thinking "man it sounds like a niche old movie thats gonna be boring," its not, it gets very fun very quickly, so I heavily recommend giving it a shot."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mxcrby/trumps_intel_chief_freezes_out_five_eyes_allies/na4i0pn/
+
+Freedom_for_Fiume 2015-09-12
+
+"MTG is asset, she is so thick and deep in Russian propaganda she does it inadvertently, Gabbard is an agent, she has connections to the Russosphere"
+
+&nbsp;
+
