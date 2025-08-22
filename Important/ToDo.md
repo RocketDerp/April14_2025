@@ -794,3 +794,9 @@ https://www.youtube.com/watch?v=a0qlf__FcC8
 
 "Antarctica Tipping Points: Why I Now Predict an Antarctic Blue Ocean Event within 10-15 Years"     
 https://www.youtube.com/watch?v=kz_MilyXkk0   
+
+&nbsp;
+
+Faith loss / loss of faith vs. faith wihtout religion    
+Defining faith without faith in a *specific god* and more faith in mystery.    
+https://youtu.be/gO30XLeyrjI?t=704
