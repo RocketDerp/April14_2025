@@ -489,3 +489,13 @@ https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_h
 "They are genuinely incapable of seeing that reality. They generally do not see reality accurately at all. Not even being sarcastic, their talk radio and propaganda has been pushing a generally incorrect view of the world for decades now just to rile them up and make money off their rage."
 
 * :::=== RoundSparrow_Commentary : People are unable to tell reality from fiction. It is the aftermath... the Internet consumer society is wrecked since March 2013. Think about the titles of these two books... Peter Pomerantsev: "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia" - 2014, "This Is Not Propaganda: Adventures in the War Against Reality" - 2019. Those two books from year 2014 and 2019 describe the disappearance of faith in reality and attraction to fiction crisis. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_house_i_could/na3h5uu/
+
+FireDragon737 2020-12-16
+
+"Magats quite literally do not live in reality. It does not matter what Democrats have actually done, what matters is what Magats *think* Democrats have done. This entire time, they genuinely truly believed Democrats were doing these things, thus have no problem doing it themselves because "well, well, they did it first!" They are all delusional psychopaths."
+
+* :::=== RoundSparrow_Commentary : The Russian Internet Research Agency has been waging war against reality since March 2013. USA has lost the war against nonfiction. Putin won, Surkov won. People insult and mock and nickname, *hate harder*, and *hate thy enemy* values abound in USA August 2025. ===:::
