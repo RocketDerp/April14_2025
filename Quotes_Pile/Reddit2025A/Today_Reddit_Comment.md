@@ -543,3 +543,12 @@ https://old.reddit.com/r/law/comments/1mx91vw/trump_on_the_fbi_raiding_boltons_h
 "Why does he talk like a baby"
 
 * :::=== RoundSparrow_Commentary : Why do Reddit & Bluesky  reaction comments of 7 words pass as thinking in the face of mass media organized informaton war from Russia? People keep eating the Tony Clifton act with audience interaction. Surkov won, Russia won, since March 2013. “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, **when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience**, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mxb3xy/were_in_the_worst_timeline/na3tw57/
+
+Heather_ME 2012-09-06
+
+"Agreed. Almost as sick of "we're heading into authoritarianism" rhetoric as I am of people talking about the 2028 election as if it happening in any meaningful way is a foregone conclusion. You'd think fascism is a fucking horizon we will never cross the way people talk about it. The bad is here. It's happened. It's not a future risk."
+
