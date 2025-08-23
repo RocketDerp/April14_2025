@@ -445,3 +445,15 @@ https://www.youtube.com/watch?v=tfJ7i_uKWSo
 ### Year 1859 solar activity - again?
 
 https://en.wikipedia.org/wiki/Carrington_Event
+
+&nbsp;
+
+### Talk Theraphy Media Ecology, ELIZA effect
+
+Topics:
+
+1. ELIZA effect of having information sent back to you reformed. 1960's MIT.
+2. Software developers stuck on fixing *bugs*, would share techniques of using a [rubber duck to verbally change media from internal thinking](https://en.wikipedia.org/wiki/Rubber_duck_debugging).
+
+https://old.reddit.com/r/ContagiousLaughter/comments/1my1j7m/always_read_carefully/
+
