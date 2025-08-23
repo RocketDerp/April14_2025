@@ -803,4 +803,11 @@ https://youtu.be/gO30XLeyrjI?t=704
 
 &nbsp;
 
+Science study on "Woke" men vs. women expectation    
 https://old.reddit.com/r/science/comments/1mxkbqe/for_republicans_items_associated_with_democratic/
+
+&nbsp;
+
+CIA Russian analysis pulled by Trump    
+https://old.reddit.com/r/politics/comments/1mxe0r5/donald_trump_has_purged_one_of_the_cias_most/
+
