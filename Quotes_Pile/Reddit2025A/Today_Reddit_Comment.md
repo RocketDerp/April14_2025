@@ -260,3 +260,22 @@ https://old.reddit.com/r/politics/comments/1my2g4z/gabbard_slashing_intelligence
 3D-Dreams 2024-03-31
 
 "Russia loves this kinda stuff. Cripple our country's ability to defend itself.Nice work Republicans...you are handing us over to Vlad without a single shot fired. Way to bend over GOP."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1my2g4z/gabbard_slashing_intelligence_office_workforce/na9cm2x/
+
+singed_hearth 2024-11-28 (new this year)
+
+"When I read the announcement on this, I felt a pit in my stomach. Every day, we have worse news about what is happening to our Nation. But THIS worried me significantly.
+
+We are genuinely being manipulated by Russia. That’s all I see happening, and it is terrifying. What can be done to stop this? To fight it? Protesting isn’t working. Showing up to town halls isn’t working. Voting rights are being taken from us more and more, or they are planning ways to do so.
+
+Our allies see what is happening and the US is starting to take the side of the Authoritarian countries.
+
+Those of us who are worried and fearful of what is going on are paying attention. We aren’t exaggerating. We are ringing the alarm and it is being ignored by the general population.
+
+It’s truly scary."
+
+&nbsp;
+
