@@ -111,3 +111,17 @@ Fassbinder75 2014-07-24
 "Photo is without context, as are most of the comments. War is terrible, and the common people lose - no matter which side."
 
 * :::=== RoundSparrow_Commentary : ["The Earth is a very small stage in a vast cosmic arena. Think of the rivers of blood spilled by all those generals and emperors so that, in glory and triumph, they could become the momentary masters of a fraction of a dot. Think of the endless cruelties visited by the inhabitants of one corner of this pixel on the scarcely distinguishable inhabitants of some other corner, how frequent their misunderstandings, how eager they are to kill one another, how fervent their hatreds. Our posturings, our imagined self-importance, the delusion that we have some privileged position in the Universe"](https://www.planetary.org/worlds/pale-blue-dot) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mxyi0p/silicon_valley_is_full_of_wealthy_men_who_think/na8cdnt/
+
+Brokenlynx7 2018-08-28
+
+"Is this just something Clegg does?
+
+First he spends years playing defence for the Conservative party enabling them to begin tearing apart UK society with austerity and tuition fee increases.
+
+Now Nick Clegg spend years of his life playing defence for one of the biggest billionaire with a victim complex in Mark Zuckerberg?
+
+If Clegg knew Cameron and Zuckerberg were pricks why does he insist on doing their dirty work?"
