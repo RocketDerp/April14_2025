@@ -468,3 +468,13 @@ Chrowaway6969 2018-06-30
 "One would think so if they weren't in an obvious right wing extremist cult. So the rest of us are suffering because of them."
 
 * :::=== RoundSparrow_Commentary : Kremlin created 5,000 cults in late year 2012 and started to deploy the cult patterns in March 2013 onward. ["Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа."](../Cambridge_Analytica_Quotes.md) - that's what Reddit / Bluesky social media addicts don't get, socail media addiciton to *content / messages*. It is not a cult of Donald Trump, it is a cult of *messages* about POTUS status symbol and other status symbols being waved around and dramatized. Infomation cult. These run much deeper in the mind. John 1:1 Bible verse depth. Again, also note the tiny length of a Twitter-message that says USA people in cults, but offers no suggestion of rescuing with cult deprogramming on social media. Public library is full of books on cult behaviors and cult deprogramming - but addiction to mocking and insulting has taken hold for entire society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mxynwr/trust_me_bro/na8lxix/
+
+judohero 2017-01-03
+
+"Trump really thinks everyone’s just gonna believe her? I mean I suppose his groupies will but anyone with two brain cells won’t."
+
+ :::=== RoundSparrow_Commentary : [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md). Falling for the Tony Clifton performances, unable to describe Russian information warfare and how *extreme obvious lies and deception* are the very means to exploiting the human brain. Egoism of how nobody else has two brain cells, while Putin has defeated ALL of the USA since March 2013. ===:::
