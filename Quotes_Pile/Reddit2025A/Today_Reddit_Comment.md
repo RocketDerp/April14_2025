@@ -253,3 +253,10 @@ This administration is filled with Anti-Americans."
 
 * :::=== RoundSparrow_Commentary : Hate motivates. The IRA and Cambridge Analytica since March 2013 have conditioned We The People, the entire USA population, into self-harm and self-destruction. Addiciton to fiction. All of humanity hated, anti-humanism, pro-hate. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1my2g4z/gabbard_slashing_intelligence_office_workforce/na9eng8/
+
+3D-Dreams 2024-03-31
+
+"Russia loves this kinda stuff. Cripple our country's ability to defend itself.Nice work Republicans...you are handing us over to Vlad without a single shot fired. Way to bend over GOP."
