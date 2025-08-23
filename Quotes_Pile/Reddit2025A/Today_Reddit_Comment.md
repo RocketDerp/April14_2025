@@ -357,5 +357,14 @@ Back to my original point. If Obama were doing this, it would be front page, top
 
 Democracy is gone, and I only hope it's somehow temporary."
 
+* :::=== RoundSparrow_Commentary : [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md). Falling for the Tony Clifton performances, unable to describe Russian information warfare and how *extreme obvious lies and deception* are the very means to exploiting the human brain. "Consider that doing it actually INCREASES attention toward it." - Reddit August 23, 2025. People wo are addicted to the show can't study Russian Surkov techniques of year 2011 and connect the dots, eating the onions. ===:::
+
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1my5i7q/ok/na9rw3s/
+
+ihateeverythingandu 2016-08-14
+
+"You think "jet fuel doesn't melt steel beams" becoming a meme is bad, wait until this cretinous cunt dies, you'll have never seen conspiracy theory like it. He will never die a natural death, the deep state will have taken him out whatever happens. The world will not recover from the fallout of this guy snuffing it."
+
+* :::=== RoundSparrow_Commentary :  1993, Duke University: ["Well if theses like the ones that I just described that Baudrillard holds are true… But of course the word “true” will no longer apply, because we will be in a setting in which you won’t want the true, you will want the truer than true. You won’t even… The false won’t even be a good enough lie for you, you’ll want the lie better than a lie. I mean, the truer than true explanation. **You won’t just want Oliver Stone‘s film about JFK. You’ll want the film about how Oliver Stone himself participated in the plot to cover up the real assassins by making the film JFK. They want the truth about the truth about the truth and all the way down**, interminably. Vertigo."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) - Rick Roderick, year 1993. ===:::
