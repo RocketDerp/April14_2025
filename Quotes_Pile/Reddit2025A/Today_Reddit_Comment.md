@@ -233,3 +233,11 @@ trisul-108 2016-11-18
 
 * :::=== RoundSparrow_Commentary : We The People are react-commenting with images and memes on social media about how bad Tony Clifton performance of Donald Trump is, glued to the touchscreen intimate devices. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1my2g4z/gabbard_slashing_intelligence_office_workforce/na9ftg7/
+
+Intersexyun 2023-09-24
+
+"The damage done to our national security alone is astounding. How can anyone look at the actions taken to cripple our ability to keep our nation secure and think that a strategy of good intent is at play? MAGA is a cancer destroying American democracy from within and it seems increasingly likely that it is heavily influenced by anti-American interests. Sound the alarm."
+
