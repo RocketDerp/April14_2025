@@ -101,3 +101,13 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepa
 Dependent-Outcome-57 2021-12-03
 
 "Having talked to servicemen and retired servicemen, the brainwashing and shall we say "reshaping" of people's personalities when they go into the service is troubling, to put it mildly. I get it - you have to make people into effective fighting units that will follow orders without question and be willing to kill or be killed without hesitation. Unfortunately, it takes very little tinkering with that formula to make them all too eager to obey and kill, and very little effort to create new "others" who are the "enemies of freedom" and who need to be killed. Obviously, not all soldiers are like this, and a bit too much exposure to reality snaps some of them out of the supposed glory of violence in the name of one's nation, but in general you can't expect the military to save you from a dictatorship."
+
+&nbsp;
+
+https://old.reddit.com/r/HistoricalCapsule/comments/1mxzp0e/german_soldier_returns_home_from_war_only_to_find/na8kljb/
+
+Fassbinder75 2014-07-24
+
+"Photo is without context, as are most of the comments. War is terrible, and the common people lose - no matter which side."
+
+* :::=== RoundSparrow_Commentary : ["The Earth is a very small stage in a vast cosmic arena. Think of the rivers of blood spilled by all those generals and emperors so that, in glory and triumph, they could become the momentary masters of a fraction of a dot. Think of the endless cruelties visited by the inhabitants of one corner of this pixel on the scarcely distinguishable inhabitants of some other corner, how frequent their misunderstandings, how eager they are to kill one another, how fervent their hatreds. Our posturings, our imagined self-importance, the delusion that we have some privileged position in the Universe"](https://www.planetary.org/worlds/pale-blue-dot) ===:::
