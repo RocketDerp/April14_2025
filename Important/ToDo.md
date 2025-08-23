@@ -821,3 +821,11 @@ https://old.reddit.com/r/politics/comments/1mxzavj/trump_wants_to_make_art_into_
 Building up artificial empathy   
 https://www.youtube.com/watch?v=XqikPnYKo6M
 
+&nbsp;
+
+https://www.youtube.com/watch?v=adPQqUt98Ss
+
+Comment: "Let's be brutally honest.... this is actually highly realistic to modern times"     
+Comment: "The wild part is Connie is exactly how a lot of smart girls turned out lol"    
+<img width="1174" height="478" alt="image" src="https://github.com/user-attachments/assets/d1b3e1f0-be08-4e3b-9670-21e6917ffa11" />
+
