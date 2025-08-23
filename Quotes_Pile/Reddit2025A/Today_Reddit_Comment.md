@@ -380,3 +380,10 @@ shook70 2019-05-22
 * :::=== RoundSparrow_Commentary : Chuckehead meme addicts on social machines who spend spare time and free time sharing superficial shallow content on social machines every day can't be bothered to resist Kremlin information warfare since March 2013 by teaching and educating with nonfiction. Too busy sharing sports scores, video game releases and footage, movie trailers, kitten images, mocking and insulting Donald Trump as entertainment. Russia won, Surkov won, since March 2013.
 “the totalitarian systems of the 20th century represent a kind of collective psychosis. Whether gradually or suddenly, reason and common human decency are no longer possible in such a system: there is only a pervasive atmosphere of terror, and a projection of “the enemy,” imagined to be “in our midst.” Thus society turns on itself, urged on by the ruling authorities.” - Joost Meerloo, The Rape of the Mind. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1my3hda/army_base_used_for_wwii_japanese_internment_now/na9sl1o/
+
+hypnoticby0 2020-11-02
+
+"when will it be enough? when will we fight back? how many more people need to be disappeared and forced into concentration camps? how many people need to be brutalized by the police and military? how many more people need to be forced into poverty? how many more people need to be killed? why do we allow a parasite class of soulless devils who are destroying the world to exist? let alone hold power, the sooner we do something the better, these traitors and tyrants have no place in society."
