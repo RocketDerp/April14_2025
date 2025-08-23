@@ -304,3 +304,13 @@ https://old.reddit.com/r/goodnews/comments/1my1d0o/trump_melts_down_after_days_o
 anwright1371 2020-05-01
 
 "Grown men using Twitter to mock each other and “lead” our nation. Fucking aye we coulda had Bernie Sanders man."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1my1d0o/trump_melts_down_after_days_of_newsoms_relentless/na9hd9g/
+
+redditAPsucks 2020-06-19
+
+"How many meltdowns does he have to have before something relevant happens? We’re up to just about a thousand headlines talking about individual meltdowns, yet…"
+
+* :::=== RoundSparrow_Commentary : Tony Clifton audience interaction hasn't stisfied the ficiton addiction. ===::
