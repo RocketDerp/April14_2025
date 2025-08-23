@@ -133,3 +133,30 @@ https://old.reddit.com/r/technology/comments/1mxyi0p/silicon_valley_is_full_of_w
 News_Bot 2012-08-01
 
 "Your mistake is assuming these people were bullied at all. They were often the bullies, like Elon Musk (he got thrown down a flight of stairs for the trouble)."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mxyi0p/silicon_valley_is_full_of_wealthy_men_who_think/na8pbw7/
+
+acepukas 2007-11-23
+
+"This thread is chock full of ridiculous stereotypes. Everybody acting like they "know" the nerds.
+
+"Mmmactually it was the nerds who were the pricks in high school, not the popular guys"
+
+Was that high school on fucking Mars? The popular people in my high school were vicious assholes. They were getting into fist fights regularly and picking fights with anyone they thought were too weak to fight back.
+
+We had a computer lab where "socially disadvantaged" kids would attend classes but would also practice programming and bounce ideas off each other during free time. Just collaborating and minding their own business. Well the "popular" kids would sometimes come into the lab and physically harass the people using the computers and taunting them. Calling them (said with air quotes by the "cool" kids) "hackers".
+
+"Hey Mike, you going to hack into the FBI mainframe lol" while grabbing their wheeled chairs and flinging them across the room.
+
+Just dumb shit.
+
+Maybe it's because I was in a dying working class hockey town but the "cool" kids fucking sucked and the "nerds" literally weren't hurting anybody. They were probably just trying to get good enough at programming so they could get the hell out of this shitty town.
+
+It seems to be that people are taking the worst examples of silicon valley moguls (who are absolutely off the rails insane) and applying them to people they didn't much care for in high school for what ever reason. The people that have risen to the top of the heap in silicon valley are a rare breed of ruthless sociopaths who just happen to be technically inclined. If you want someone to blame for the situation then blame corporate America. Every industry, whether it's tech or medicine or automotive, rewards the worst of the worst for ruthless short term cost cutting thinking. It's all about making the share holders happy.
+
+The nerds from our high school didn't create this situation. This is late stage capitalism and it's pervasive in every single industry. The tech moguls are the lightning rods for everyone's ire lately because their influence is so all encompassing and they're playing with people's lives by cosying up to fascist elements within the ruling class."
+
+&nbsp;
+
