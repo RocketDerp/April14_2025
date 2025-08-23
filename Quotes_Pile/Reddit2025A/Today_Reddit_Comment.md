@@ -395,3 +395,13 @@ https://old.reddit.com/r/WorkReform/comments/1my22q4/this_woman_is_the_voice_of_
 smallweirddude 2020-07-12
 
 "Oh, I do. But I'd prefer non violence. More akin to ancient Rome's walkout. All the working class would simply leave the city kevaing the wealthy to cook, clean, and complain to themselves. It worked every damned time. What's the updated version of that. Can we get a "working class only" currency? Stop participating in their game. Stop going to work for them. Stop paying taxes for them. WE provide for THEM. Let's just, not."
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1my22q4/this_woman_is_the_voice_of_the_housing_crisis/na91ztj/
+
+Hartstockz 2012-11-19
+
+"Non violence never works against violence. The rights we've been losing were only gained through bloodshed."
+
+* :::=== RoundSparrow_Commentary : Simplsitic thinking. Messages abound of: give up on education, give up on teaching, stroke guns and go become a terrorist and use violence. Anti-Malala social media messages. Information warfare to encourage terrorism, suicide attacks, etc. Messages of: *thinking never works, splatter brains with machines of violence.* ===:::
