@@ -368,3 +368,15 @@ ihateeverythingandu 2016-08-14
 "You think "jet fuel doesn't melt steel beams" becoming a meme is bad, wait until this cretinous cunt dies, you'll have never seen conspiracy theory like it. He will never die a natural death, the deep state will have taken him out whatever happens. The world will not recover from the fallout of this guy snuffing it."
 
 * :::=== RoundSparrow_Commentary :  1993, Duke University: ["Well if theses like the ones that I just described that Baudrillard holds are true… But of course the word “true” will no longer apply, because we will be in a setting in which you won’t want the true, you will want the truer than true. You won’t even… The false won’t even be a good enough lie for you, you’ll want the lie better than a lie. I mean, the truer than true explanation. **You won’t just want Oliver Stone‘s film about JFK. You’ll want the film about how Oliver Stone himself participated in the plot to cover up the real assassins by making the film JFK. They want the truth about the truth about the truth and all the way down**, interminably. Vertigo."](https://rickroderick.org/308-baudrillard-fatal-strategies-1993/) - Rick Roderick, year 1993. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1my3hda/army_base_used_for_wwii_japanese_internment_now/na9e7xf/
+
+shook70 2019-05-22
+
+"Everyone is too afraid of death, too comfortable, too much too lose; uprisings have happened over less but we're just too complacent. There's no way this ends well."
+
+* :::=== RoundSparrow_Commentary : Chuckehead meme addicts on social machines who spend spare time and free time sharing superficial shallow content on social machines every day can't be bothered to resist Kremlin information warfare since March 2013 by teaching and educating with nonfiction. Too busy sharing sports scores, video game releases and footage, movie trailers, kitten images, mocking and insulting Donald Trump as entertainment. Russia won, Surkov won, since March 2013.
+“the totalitarian systems of the 20th century represent a kind of collective psychosis. Whether gradually or suddenly, reason and common human decency are no longer possible in such a system: there is only a pervasive atmosphere of terror, and a projection of “the enemy,” imagined to be “in our midst.” Thus society turns on itself, urged on by the ruling authorities.” - Joost Meerloo, The Rape of the Mind. ===:::
+
