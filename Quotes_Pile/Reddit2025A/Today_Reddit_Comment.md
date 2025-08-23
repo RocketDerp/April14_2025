@@ -636,3 +636,11 @@ Dayzlikethis 2017-10-19
 "it really is and it speaks volumes that no one really acknowledges it as being insane."
 
 * :::=== RoundSparrow_Commentary : Egomania nation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1myaxps/trump_mobilizing_up_to_1700_national_guard_troops/nab3uuv/
+
+weezyverse 2019-07-08
+
+"We're finding out "law" is relative. It exists when it needs to, and doesn't when it's inconvenient."
