@@ -831,3 +831,9 @@ Comment: "The wild part is Connie is exactly how a lot of smart girls turned out
 
 Me: People get divorced and remarried. People can be more married to their political party or their religion clergy or their boss at job than a spouse. Who teaches marriage, as Joseph Campbell asked in year 1987? People don't understand spirtual marriages - even incredibly smart people - and the sophisticated technical vocabulary depicted about the non-spiritual marriage fits experience. Children and parenting too, climate change and 10 years of Donald Trump role model in Texas Hill Country. I was divorced in Texas Hill Country, where Bobby has his resturant, so ;)
 
+&nbsp;
+
+&nbsp;
+
+Funeral rituals topic   
+https://old.reddit.com/r/todayilearned/comments/1mybyop/til_mormonism_founder_joseph_smith_wrote_the_book/
