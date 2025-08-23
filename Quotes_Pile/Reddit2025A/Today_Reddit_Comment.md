@@ -467,7 +467,7 @@ Chrowaway6969 2018-06-30
 
 "One would think so if they weren't in an obvious right wing extremist cult. So the rest of us are suffering because of them."
 
-* :::=== RoundSparrow_Commentary : Kremlin created 5,000 cults in late year 2012 and started to deploy the cult patterns in March 2013 onward. ["Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа."](../Cambridge_Analytica_Quotes.md) - that's what Reddit / Bluesky social media addicts don't get, socail media addiciton to *content / messages*. It is not a cult of Donald Trump, it is a cult of *messages* about POTUS status symbol and other status symbols being waved around and dramatized. Infomation cult. These run much deeper in the mind. John 1:1 Bible verse depth. Again, also note the tiny length of a Twitter-message that says USA people in cults, but offers no suggestion of rescuing with cult deprogramming on social media. Public library is full of books on cult behaviors and cult deprogramming - but addiction to mocking and insulting has taken hold for entire society. ===:::
+* :::=== RoundSparrow_Commentary : Kremlin created 5,000 cults in late year 2012 and started to deploy the cult patterns in March 2013 onward. ["Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа."](../Cambridge_Analytica_Quotes.md) - that's what Reddit / Bluesky social media addicts don't get, social media addiciton to *content / messages*. It is not a cult of Donald Trump, it is a cult of *messages* about POTUS status symbol and other status symbols being waved around and dramatized. Infomation cult. These run much deeper in the mind. John 1:1 Bible verse depth. Again, also note the tiny length of a Twitter-message that says USA people in cults, but offers no suggestion of rescuing with cult deprogramming on social media. Public library is full of books on cult behaviors and cult deprogramming - but addiction to mocking and insulting has taken hold for entire society. ===:::
 
 &nbsp;
 
@@ -566,3 +566,15 @@ https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naas0ew/
 VermilionRabbit 2022-10-25
 
 "It’s worse than that. We’re living in a mafia-style hierarchy. The concept "don't snitch" within the Mafia hierarchy is known as omertà, the code of silence. It is a sworn oath of loyalty and absolute secrecy that all "made" members must uphold, and breaking it is punishable by death."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naaau82/
+
+Select-Ad7146 2021-02-27
+
+"They clearly aren't, though.
+
+The idea that just anyone could best Trump is insane. His voters don't care if he is a rapist or a pedophile or a traitor. If they don't care about that, what do you think will make them support someone else?"
+
+* :::=== RoundSparrow_Commentary : What changed in USA is that March 2013 the Internet Research Agency in Russia started manipulating people's hearts and minds via social media. Now the USA is a population, We The People, addicted to fiction and out-group hate messaging. People are so engaged with the spectacle of memes and messages that they don't even recognize Russia won an information war and defeated the USA. [Authentic Reality has been *abandoned in favor of meme addiction*, Russsia won the information war](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
