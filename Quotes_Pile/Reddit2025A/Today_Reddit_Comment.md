@@ -125,3 +125,11 @@ First he spends years playing defence for the Conservative party enabling them t
 Now Nick Clegg spend years of his life playing defence for one of the biggest billionaire with a victim complex in Mark Zuckerberg?
 
 If Clegg knew Cameron and Zuckerberg were pricks why does he insist on doing their dirty work?"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1mxyi0p/silicon_valley_is_full_of_wealthy_men_who_think/na8hzwg/
+
+News_Bot 2012-08-01
+
+"Your mistake is assuming these people were bullied at all. They were often the bullies, like Elon Musk (he got thrown down a flight of stairs for the trouble)."
