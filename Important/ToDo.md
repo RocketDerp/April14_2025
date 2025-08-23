@@ -815,3 +815,9 @@ https://old.reddit.com/r/politics/comments/1mxe0r5/donald_trump_has_purged_one_o
 
 Art brainwashing    
 https://old.reddit.com/r/politics/comments/1mxzavj/trump_wants_to_make_art_into_a_tool_of_the_state/
+
+&nbsp;
+
+Building up artificial empathy   
+https://www.youtube.com/watch?v=XqikPnYKo6M
+
