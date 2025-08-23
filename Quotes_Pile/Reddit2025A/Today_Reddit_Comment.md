@@ -502,3 +502,13 @@ https://old.reddit.com/r/WallStreetbetsELITE/comments/1mxysry/strong_attack_by_g
 Funnyboyman69 2014-12-31 (NYE 2014, When [BBC Adam's Curtis Surkov video was released](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)]
 
 "You should look at all of the articles and newspapers mocking Hitler and his supporters in Weimar Germany. Name calling isn’t going to stop fascism, even if it makes you feel better."
+
+&nbsp;
+
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1mxysry/strong_attack_by_governor_newsom_on_the/na9r8t4/
+
+TBANON_NSFW 2020-04-14
+
+"Lol yeah namecalling doesnt work on them. Theyre too dumb to react to such attacks. They literally put "We are all domestic terrorists" on CPAC....
+
+The name calling is for childish morons on the left. Because they think BAZINGAS and Zingers actually do something. Meanwhile they wont bother to show up and vote when the elections and midterms comes because of whatever bs reason they print out."
