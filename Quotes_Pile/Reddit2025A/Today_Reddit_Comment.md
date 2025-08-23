@@ -776,3 +776,14 @@ princeofshadows21 2018-06-15
 "It died in 2016. The fact he ever got to be president was a fundamental failure of the entire country. All Biden's presidency did was act as a brief remission from a facist cancer. Now it's back and has become terminal."
 
 * :::=== RoundSparrow_Commentary : Russa won the information war since March 2013. Hearts and minds to self-harm USA and be addicted to fiction. Surkov won. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mxo3jt/are_they_gold_leafing_trumps_wounds_now/
+
+"Are they gold leafing Trump's wounds now?"
+
+* :::=== RoundSparrow_Commentary : Endless obsession of the meme consumer society over every move, shake, photograph of Donald J. Trump. Fixated audience who can not resist mocking, insult, hate of status symbol icon. GOING ON FOR OVER TEN YEARS. Constant concern for style, fashion, cosmetic applications on body, clothing. Every aspect of celebrity paparazzi culture audience. ===:::
+
