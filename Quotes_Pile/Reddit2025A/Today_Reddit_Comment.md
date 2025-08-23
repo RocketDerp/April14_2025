@@ -167,3 +167,29 @@ RedditTrespasser 2024-06-24
 "America used to have other better qualities too, though you’d hardly be able to tell now. Everything that was ever good about us is now held hostage by this malignant asshole and his asshole cult.
 
 Fox News and social media were the one-two combo I think."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1my42yu/the_president_of_the_united_states_of_america/na9fdgh/
+
+outkastlife 2017-01-17
+
+"Behold. The festering carcass of American rot shoved into an ill-fitting suit: the sleaze of a conman, the cowardice of a draft dodger, the gluttony of a parasite, the racism of a Klansman, the sexism of a back-alley creep, the ignorance of a bar-stool drunk, and the greed of a hedge-fund ghoul—all spray-painted orange and paraded like a prize hog at a county fair. Not a president. Not even a man. Just the diseased distillation of everything this country swears it isn't but has always been-arrogance dressed up as exceptionalism, stupidity passed off as common sense, cruelty sold as toughness, greed exalted as ambition, and corruption worshiped like gospel. It is America's shadow made flesh, a rotting pumpkin idol proving that when a nation kneels before money, power, and spite, it doesn't just lose its soul—it shits out this bloated obscenity and calls it a leader."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1my42yu/the_president_of_the_united_states_of_america/na9hcqc/
+
+fletch_wizard 2018-07-27
+
+"It's fucking crazy making
+
+Like I said in another thread, if I came across any person in my daily life wearing a hat proclaiming in all caps that they were right about everything, I'd giddy-up the fuck in any direction to avoid interacting with that person.
+
+And yet this dude
+
+This dude
+
+I...just....I don't get it man"
+
+* :::=== RoundSparrow_Commentary : Americaans do not get it, Surkov cracked the monomyth code back in year 2011 or so. Since March 2013 the Internet Research Agency in Russia started manipulating people's hearts and minds via social media. Now the USA is a population, We The People, addicted to fiction and out-group hate messaging. People are so engaged with the spectacle of memes and messages that they don't even recognize Russia won an information war and defeated the USA. [Authentic Reality has been *abandoned in favor of meme addiction*, Russsia won the information war](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
