@@ -448,3 +448,14 @@ https://old.reddit.com/r/clevercomebacks/comments/1mxynwr/trust_me_bro/na89x9d/
 Extreme-Slice-1010  2024-03-01
 
 "Maxwell afraid of getting murdered by Trump, that’s why"
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mxynwr/trust_me_bro/na8lvki/
+
+olorinoko 2021-08-27
+
+"This is insane how can a single word from her mouth be trusted? Walk someone down the plank and ask them anything! Or a pot if gold uf you say whatever we want. Absurd."
+
+* :::=== RoundSparrow_Commentary : Absurd surreal messages is the Surkov governing technique. [Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media.](https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible) - media addicts eat this insane information shit up. ===:::
+
