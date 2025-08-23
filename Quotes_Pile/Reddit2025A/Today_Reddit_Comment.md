@@ -343,3 +343,19 @@ klyther 2009-01-22
 
 * :::=== RoundSparrow_Commentary : Fox News HDTV doesn't offer the touch intimacy of an iPhone and iPad that social media addicts do these things with. People are entirely addicted to (attraction to) mock / hate / dehumanize Trump values. Entertainment sells. Fiction outsells nonfiction. ""If this were Biden" - it would not be every person in USA glued to the spectacle of mutliple stages and antics going nonstop. Biden wasn't a never-ending 24 hour a day 7 day a week entertainment content creator. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1my5i7q/ok/na9rhjf/
+
+mikel1814 2016-06-03
+
+"Again, I say. Imagine Obama or Biden smearing wrong-colored makeup on the back of their hand to hide a medical emergency from the public.
+
+Consider that doing it actually INCREASES attention toward it. Not only is it a bruise, something that happens to the human body for mostly normal reasons sometimes, but still curious. But he is literally COVERING IT UP (Poorly). It's literally (Attempted)LACK OF TRANSPARENCY. Is there a greater metaphor?
+
+Back to my original point. If Obama were doing this, it would be front page, top of the broadcast news every day until they hounded it out of his press team. No other message would get out of his administration. Every pundit would debate it in primetime. Every mainstream journalist would investigate his health.
+
+Democracy is gone, and I only hope it's somehow temporary."
+
+&nbsp;
+
