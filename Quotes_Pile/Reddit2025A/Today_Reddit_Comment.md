@@ -578,3 +578,12 @@ Select-Ad7146 2021-02-27
 The idea that just anyone could best Trump is insane. His voters don't care if he is a rapist or a pedophile or a traitor. If they don't care about that, what do you think will make them support someone else?"
 
 * :::=== RoundSparrow_Commentary : What changed in USA is that March 2013 the Internet Research Agency in Russia started manipulating people's hearts and minds via social media. Now the USA is a population, We The People, addicted to fiction and out-group hate messaging. People are so engaged with the spectacle of memes and messages that they don't even recognize Russia won an information war and defeated the USA. [Authentic Reality has been *abandoned in favor of meme addiction*, Russsia won the information war](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naaiwmf/
+
+G-Unit11111 2021-04-23
+
+"I really hate to say it but the democrats really need their own propaganda system. The right wing has shown that propaganda works. That's how they keep winning and flipping. We really don't have anything remotely comparable to Fox, or Fox's cousin on bath salts, OAN."
+
