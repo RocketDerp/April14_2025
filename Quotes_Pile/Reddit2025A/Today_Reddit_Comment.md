@@ -85,3 +85,11 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepa
 RhoOfFeh 2012-07-26
 
 "I have never understood conservative Gen-Xers. As a rather early GenX myself, I have had the time to observe multiple cycles of this downward spiral of the Republican party and the nation as a whole. I don't know whether to pity or loathe those who either can't or won't see it."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepared_as_you_might_expect/na8s26m/
+
+Kooky-Albatross 2020-04-04
+
+"I wish more people actually clicked on the link and read what they’re voting on. This is absolutely not a leopards eating faces situation."
