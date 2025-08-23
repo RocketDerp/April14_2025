@@ -477,7 +477,7 @@ judohero 2017-01-03
 
 "Trump really thinks everyone’s just gonna believe her? I mean I suppose his groupies will but anyone with two brain cells won’t."
 
- :::=== RoundSparrow_Commentary : [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md). Falling for the Tony Clifton performances, unable to describe Russian information warfare and how *extreme obvious lies and deception* are the very means to exploiting the human brain. Egoism of how nobody else has two brain cells, while Putin has defeated ALL of the USA since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md). Falling for the Tony Clifton performances, unable to describe Russian information warfare and how *extreme obvious lies and deception* are the very means to exploiting the human brain. Egoism of how nobody else has two brain cells, while Putin has defeated ALL of the USA since March 2013. ===:::
 
 &nbsp;
 
@@ -487,3 +487,10 @@ funkinggiblet 2015-04-13
 
 "Conservatives have their talking point now, and Democrats will not be able to counter it. Stop being so fucking weak America."
 
+&nbsp;
+
+https://old.reddit.com/r/stephencolbert/comments/1my19el/the_president_is_getting_sicker/
+
+‘The President is getting sicker’
+
+* :::=== RoundSparrow_Commentary : The whole nation, the entir United States of America is getting sicker. This is a sick nation, lost an information war to Putin / Russia / Kremlin and does not even have the self-awareness of what changes since March 2013. Every day is worse than the previous in people abandoning reality and humanism in favor of fiction addictions. ===:::
