@@ -1,6 +1,6 @@
 # Media Ecology Lessons
 
-This page may eventually be split into other pages, for now a dumping ground. In future, this page may become a introduciton and link list to other pages.
+This page may eventually be split into other pages, for now a dumping ground. In future, this page may become a introduction and link list to other pages.
 
 ### Year 2013 capability of audio engineering
 
@@ -52,7 +52,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1mfe87g/bill_burr_goes_after_bi
 
 Does this create a simulacra of resistance?   
 Proxy of saying what people will not stand up in democracy (population, We The People) and say?   
-Is he CALLING on the audience to have bravery and courage to repeat what is beinng said, or just satiating the inner desire and creating spectators / passive office (See Rick Roderick "Self Under Siege" lectures which touches on this media ecology topicc of spectacle media consumers)
+Is he CALLING on the audience to have bravery and courage to repeat what is being said, or just satiating the inner desire and creating spectators / passive office (See Rick Roderick "Self Under Siege" lectures which touches on this media ecology topics of spectacle media consumers)
 
 &nbsp;
 
@@ -64,14 +64,14 @@ https://old.reddit.com/r/CuratedTumblr/comments/1mfq1kx/watching_movies_with_a_d
 
 &nbsp;
 
-### Sports Mentalty
+### Sports Mentality
 
 Reddit posting front page top: Michelle Obama cooks ESPN: "If I watch ESPN for an hour it's like watching The Real Housewives of Atlanta. It's the same drama, they're yelling at each other, they don't get along. Stephen A. Smith would be a great Real Housewife. What's the difference? It's just drama."
 
 https://old.reddit.com/r/nba/comments/1mfucgc/michelle_obama_cooks_espn_if_i_watch_espn_for_an/
 
 
-Media ecology discussion assignment: Rectangle simulacra, armies of medical doctors servicing the ultra rich for entertainment. They could be traveling the world building hospitals, these athletic superment, but people want fiction framed rectangle screens and rectangle FIFA / NBA / NFL. Why not watch children play in the neighborhood and have exercise and make real world friendship, why are people only interested in rich people's lives? Mhythological gods?
+Media ecology discussion assignment: Rectangle simulacra, armies of medical doctors servicing the ultra rich for entertainment. They could be traveling the world building hospitals, these athletic supermen, but people want fiction framed rectangle screens and rectangle FIFA / NBA / NFL. Why not watch children play in the neighborhood and have exercise and make real world friendship, why are people only interested in rich people's lives? Mythological gods?
 
 &nbsp;
 
@@ -79,7 +79,7 @@ Media ecology discussion assignment: Rectangle simulacra, armies of medical doct
 
 https://old.reddit.com/r/Wellthatsucks/comments/1mftfz5/terrible_notification_to_get_on_take_off/
 
-Media ecology discussion topic: Study the comments here about experiences getting faulty notifications.  Deeper... did the person spreading this on Reddit just want a discussion, have flight anxiety or lost bag anxiety, and wanted to share... did they likley know that the indicator may be faulty? Is it like car drivers complaining about weather or traffic, despite being a routine topic, just as conversation starters?
+Media ecology discussion topic: Study the comments here about experiences getting faulty notifications.  Deeper... did the person spreading this on Reddit just want a discussion, have flight anxiety or lost bag anxiety, and wanted to share... did they likely know that the indicator may be faulty? Is it like car drivers complaining about weather or traffic, despite being a routine topic, just as conversation starters?
 
 &nbsp;
 
@@ -91,17 +91,17 @@ https://old.reddit.com/r/politics/comments/1mfwflr/trumps_media_takeover_isnt_ab
 
 Social media has given every person a taste of leveraged machine power: banning people, blocking people. No need to burn physical books on paper like 1930's Nazi Germany... the block button doesn't require flame and paper. Egoism / egomania / echo chambers / [filter bubbles](https://en.wikipedia.org/wiki/Filter_bubble). Silencing and grey-rocking those who dissent.  Since October 8, 2013 - Malala has been routinely grey-rocked by social media users - she provides non-fiction content of progressive reformation. Malala's sincere non-fiction is popular in the rise of Donald Trump / MAGA / Putin invasion of Ukraine (February 2014 onward). What's wrong with what Malala Yousafzai has to say? It doesn't go with the flow of using powerful machines to dehumanize and block and silence those in "the others" groups. Donald Trump and [Radio Mullah media behavior](https://www.lhschools.org/Downloads/Malala%2038-65.pdf) follow the same year 2012 onward trajectory. People are not willing to face up that what Donald Trump is doing, blocking and silencing people he disagrees with, is commonplace in Bluesky social media year 2024, Reddit social media, etc. Marshall McLuhan educated society about this, such as [this 1977 interview on television: "all forms of violence are a quest for (Text sourced from https://www.organism.earth/library/document/mcluhan-mcmanus) identity. When you live out on the frontier, you have no identity. You’re a nobody. Therefore, you get very tough. You have to prove that you are somebody. And so you become very violent. And so identity is always accompanied by violence. This seems paradoxical to you? That ordinary, ordinary people find the need for violence as they lose their identities. So it’s only the threat to people’s identity that makes them — terrorists, hijackers: these are people minus identity. They are determined to make it somehow, to get coverage, to get noticed."](https://www.organism.earth/library/document/mcluhan-mcmanus)
 
-If people can not even share unicode messages on computer without burning books / blocking each other, what hope does humanity have for traveling in the same airports together, sharing a cinema together, sharing a sports stadium, sharing a city, eating next to each other ([breaking bread](https://en.wikipedia.org/wiki/Let_us_break_bread_together) together). People praise the block button (book burning, silencing of what they disagree with in modern digital forms) as "fixing" the egomania and agression issues. Machines are not fixing the human problems, people are blocking it out, a form of phychological denial that world peace is not *optional*.
+If people can not even share Unicode messages on computer without burning books / blocking each other, what hope does humanity have for traveling in the same airports together, sharing a cinema together, sharing a sports stadium, sharing a city, eating next to each other ([breaking bread](https://en.wikipedia.org/wiki/Let_us_break_bread_together) together). People praise the block button (book burning, silencing of what they disagree with in modern digital forms) as "fixing" the egomania and aggression issues. Machines are not fixing the human problems, people are blocking it out, a form of psychological denial that world peace is not *optional*.
 
 * "The wise saying, "The pen is mightier than sword” was true. **The extremists are afraid of books and pens. The power of education frightens them**." - July 12, 2013. Malala Yousafzai: 16th birthday speech.
 
 &nbsp;
 
-### Underground forbiden media
+### Underground forbidden media
 
 https://en.wikipedia.org/wiki/Rock_music_and_the_fall_of_communism
 
-David Foster Walace's Infinite Jest on this theme...
+David Foster Wallace's Infinite Jest on this theme...
 
 &nbsp;
 
@@ -133,10 +133,10 @@ Highlight 2: YouTube community comments such as "Typing in programs like this is
 
 ### Fiction to highlight reality
 
-BBC discusison of televsion comedy show from USA:  
+BBC discussion of television comedy show from USA:  
 "1980: Graham Chapman Reviews M*A*S*H* | Did You See...? | Classic TV Review | BBC Archive"     
 https://www.youtube.com/watch?v=CA_jnbyJMDE      
-Topics: Large number of episodes, decade-long content, anti-war meaning / purpose / intention, futility of war, character Radar, comfort in war zone, USA war that was winning war (developing South Korea as a future alley like Japan after World War Two... in opposition to Vietnam war of the show poduction)   
+Topics: Large number of episodes, decade-long content, anti-war meaning / purpose / intention, futility of war, character Radar, comfort in war zone, USA war that was winning war (developing South Korea as a future alley like Japan after World War Two... in opposition to Vietnam war of the show production)   
 
 &nbsp;
 
@@ -192,7 +192,7 @@ https://www.youtube.com/watch?v=eIlYwDiw_kg
 
 Film about war against a species, network, visual story telling. War with nature. Networked human intelligence.   
 
-Is this subconsious authentic nightmare for you and others you know?
+Is this subconscious authentic nightmare for you and others you know?
 
 &nbsp;
 
@@ -349,7 +349,7 @@ https://www.youtube.com/watch?v=cirBprnMyA4
 
 &nbsp;
 
-### Hollywood people trafficing 
+### Hollywood people trafficking 
 
 Anything to be famous, to be on camera. Seeking Fame.   
 Fame the musical  / Film.   
@@ -360,7 +360,7 @@ https://old.reddit.com/r/okbuddycinephile/comments/1msuqjp/good_old_days/
 
 ### Copy Protection, Copyright in the storytelling and acting 
 
-Egypt American-creted art (Journalism, Research Research Research, Great Seal nile river USA 1776)    
+Egypt symbols, American-created art (Journalism, Research Research Research, Great Seal Nile river USA 1776)    
 Video title: "Dagger of Amon Ra Copy Protection Failures"     
 https://www.youtube.com/watch?v=1Xv2kTn-Wac
 
@@ -368,7 +368,7 @@ https://www.youtube.com/watch?v=1Xv2kTn-Wac
 
 ### Download Rituals and Practices 
 
-Topics: Like getting a concert ticket months in advance, the line of ticket purchase for assigned seatings. Season seat passes for sports stadiums. Downloading large files.   
+Topics: Like getting a concert ticket months in advance, the line of ticket purchase for assigned seating. Season seat passes for sports stadiums. Downloading large files.   
 
 https://old.reddit.com/r/pcmasterrace/comments/1mv7qkq/no_wifi_at_home_how_to_download_heavy_games/
 
@@ -378,7 +378,7 @@ https://old.reddit.com/r/pcmasterrace/comments/1mv7qkq/no_wifi_at_home_how_to_do
 
 &nbsp;
 
-Prank culture, ritual hazing, ritual hurdles, jump through hoops, courtship, friendship, relationship, indctrination, double-down rituals.   
+Prank culture, ritual hazing, ritual hurdles, jump through hoops, courtship, friendship, relationship, indoctrination, double-down rituals.   
 
 https://old.reddit.com/r/comics/comments/1mvjuva/liam_pranks_gator_days/
 
@@ -390,7 +390,7 @@ https://old.reddit.com/r/comics/comments/1mvjuva/liam_pranks_gator_days/
 
 Hugely popular content.    
 style of skill, team social skills, good shooter vs. good teammate    
-One trick pony metaphore. One favorite skill, one overdeveloped talent.   
+One trick pony metaphor. One favorite skill, one overdeveloped talent.   
 https://www.youtube.com/watch?v=gYZFmW3k5-E
 
 &nbsp;
@@ -406,14 +406,14 @@ https://old.reddit.com/r/NonPoliticalTwitter/comments/1mw854f/the_good_old_days/
 
 ### Work Media Ecology of Information Age
 
-I personally have worked from home since August 1999. Home has included home office in South America, Africa, Middle East, Mayalisa, Indonesia and RV all over the USA (8 diffeerent RV sizes and shapes). With my wife and solo after divorce.    
+I personally have worked from home since August 1999. Home has included home office in South America, Africa, Middle East, Malaysia, Indonesia and RV all over the USA (8 different RV sizes and shapes). With my wife and solo after divorce.    
 Lesson focus:   
 1. Is work office culture the same in 1975 vs. 1995 vs 2025?
 2. pandemic COVID-19 changes
 3. Is work office same in different nations, rural vs. city, other geographic differences.
 4. Work hours culture, work days culture. Muslims have their Friday night on Thursday night and do not work on Friday and start week on Sunday in several nations I have lived in.  In Chile in South America, people were used to long work hours and staying up late was more routine.  Japan is famous for after-work obligations for salarymen.
 5. Contractors vs. employees and expectations.
-6. Jobs that can't possibly be work from home: delivery person, repair person, installation, construction, waiters, drivers, pilots, cleaners, physical labor in factory, fresh food preperations, etc, etc.
+6. Jobs that can't possibly be work from home: delivery person, repair person, installation, construction, waiters, drivers, pilots, cleaners, physical labor in factory, fresh food preparations, etc, etc.
 7. Working with your spouse and children around during summer school breaks.
 8. Vacations and working 'on call' even when on paid holiday.
 
@@ -448,7 +448,7 @@ https://en.wikipedia.org/wiki/Carrington_Event
 
 &nbsp;
 
-### Talk Theraphy Media Ecology, ELIZA effect
+### Talk Therapy Media Ecology, ELIZA effect
 
 Topics:
 
@@ -456,4 +456,3 @@ Topics:
 2. Software developers stuck on fixing *bugs*, would share techniques of using a [rubber duck to verbally change media from internal thinking](https://en.wikipedia.org/wiki/Rubber_duck_debugging).
 
 https://old.reddit.com/r/ContagiousLaughter/comments/1my1j7m/always_read_carefully/
-
