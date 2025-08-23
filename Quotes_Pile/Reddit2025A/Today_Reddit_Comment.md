@@ -27,3 +27,13 @@ Agreeable-animal 2020-01-13
 "I’m old enough to remember when the extreme right wing was concerned about the government black helicopters coming for them. After Ruby Ridge and Waco all they could scream about was government overreach and now they’re cheering on that same government to take over the cities…"
 
 * :::=== RoundSparrow_Commentary : What changed in USA is that March 2013 the Internet Research Agency in Russia started manipulating people's hearts and minds via social media. Now the USA is a population, We The People, addicted to fiction and out-group hate messaging. People are so engaged with the spectacle of memes and messages that they don't even recognize Russia won an information war and defeated the USA. [Authentic Reality has been *abandoned in favor of meme addiction*, Russsia won the information war](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepared_as_you_might_expect/na8nl0n/
+
+AccomplishedLeave506 2021-01-29
+
+"I don't see America surviving this. He's not leaving without violence. And now he has American, armed, troops in Washington DC. In a few years when he decides not to leave and he's surrounded by hand picked armed troops I don't see anything good happening.
+
+Your country has gone. I doubt it's coming back."
