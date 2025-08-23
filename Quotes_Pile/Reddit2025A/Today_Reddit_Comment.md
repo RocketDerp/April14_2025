@@ -180,7 +180,7 @@ outkastlife 2017-01-17
 
 https://old.reddit.com/r/pics/comments/1my42yu/the_president_of_the_united_states_of_america/na9hcqc/
 
-fletch_wizard 2018-07-27
+fletch_wizard 2018-06-27
 
 "It's fucking crazy making
 
@@ -193,3 +193,13 @@ This dude
 I...just....I don't get it man"
 
 * :::=== RoundSparrow_Commentary : Americaans do not get it, Surkov cracked the monomyth code back in year 2011 or so. Since March 2013 the Internet Research Agency in Russia started manipulating people's hearts and minds via social media. Now the USA is a population, We The People, addicted to fiction and out-group hate messaging. People are so engaged with the spectacle of memes and messages that they don't even recognize Russia won an information war and defeated the USA. [Authentic Reality has been *abandoned in favor of meme addiction*, Russsia won the information war](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1my42yu/the_president_of_the_united_states_of_america/na9es3d/
+
+Prospero1063 2021-05-29
+
+"No, it’s not normal. But it’s the action of a bully and a truly arrogant ass. He does this to elicit a response. He enjoys angering people, making them emotionally react. To him it’s a feeling of superiority and victory. And to be honest, it’s working. More’s the pity."
+
+* :::=== RoundSparrow_Commentary : Tony Clifton performance is irresistable to meme addicted United States of America population, We The People. ===:::
