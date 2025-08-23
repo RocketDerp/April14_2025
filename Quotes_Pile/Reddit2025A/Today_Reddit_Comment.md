@@ -332,3 +332,14 @@ https://old.reddit.com/r/NoShitSherlock/comments/1mxy118/trumps_dc_occupation_co
 FangSkyWolf 2015-01-02
 
 "It's almost as if he's trying to waste our budgets, put most Americans in debt, piss off our allies.....ECT. I swear this is the way a foreign agent would try to weaken a country from within."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1my5i7q/ok/na9pl9t/
+
+klyther 2009-01-22
+
+"If this were Biden Fox News would be having a complete meltdown around the clock screaming about his age and ‘who is running the country?!’ I bet they haven’t questioned Trump’s health even once this entire term."
+
+* :::=== RoundSparrow_Commentary : Fox News HDTV doesn't offer the touch intimacy of an iPhone and iPad that social media addicts do these things with. People are entirely addicted to (attraction to) mock / hate / dehumanize Trump values. Entertainment sells. Fiction outsells nonfiction. ""If this were Biden" - it would not be every person in USA glued to the spectacle of mutliple stages and antics going nonstop. Biden wasn't a never-ending 24 hour a day 7 day a week entertainment content creator. ===:::
+
