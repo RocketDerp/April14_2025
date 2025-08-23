@@ -432,3 +432,11 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1my3d49/another_kids_maze_ca
 BoerInDieWoestyn 2025-04-30 (new this year)
 
 "What scares me is that parents don't even seem to care. I'm a teacher and while some of my job could probably be done by AI, not all of it can. Your child is never going to connect with an AI the way it does with a human. But I've heard parents say that teachers are going to be replaced by AI like it's a good thing."
+
+&nbsp;
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1my3d49/another_kids_maze_can_any_geniuses_solve_this_one/na9r5kd/
+
+angry_queef_master 2022-03-05
+
+"Its all about money. The people who actually are making things with purpose are being drowned out by the ones with deep pockets funding garbage projects whose only goal is to extract as much money as possible."
