@@ -550,3 +550,11 @@ https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naa7270/
 SweaterSteve1966 2025-02-01 (new this year)
 
 "This is it exactly. The rich are still stepping on the necks of 99% of America and the media is normalizing this insanity."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naav5rn/
+
+Burnt_and_Blistered 2015-07-06
+
+"The media IS the insanity."
