@@ -462,6 +462,7 @@ https://old.reddit.com/r/ContagiousLaughter/comments/1my1j7m/always_read_careful
 ### Sexual attraction to fiction
 
 Women's health bombarded by fiction storytelling.   
-How men manipulate women into pregnency with media systems and mind-tricking messages.   \
+The [history of *snake oil* sales techniques](https://en.wikipedia.org/wiki/Snake_oil), exploitation spots in the human mind, patterns of manipulation to be tricked and bamboozled.    
+How men manipulate women into pregnency with media systems and mind-tricking messages.   
 Exploiting the attraction to exotic sexuality, exotic sexual ideas and creative fictions storytelling.    
 https://old.reddit.com/r/science/comments/1my1ssb/most_tiktok_videos_about_birth_control_are/
