@@ -408,6 +408,19 @@ Hartstockz 2012-11-19
 
 &nbsp;
 
+https://old.reddit.com/r/WorkReform/comments/1my22q4/this_woman_is_the_voice_of_the_housing_crisis/na99nmm/
+
+TheRealBittoman 2019-11-07
+
 "Many many wealthy people have zero idea what things cost and how an actual budget for living works. This isn't some form of hyperbole, it's real. This is one reason so many support minimum wage either being removed or kept low because they actually believe that you can survive on $7.50 an hour. They likely don't even realize that minimum wage barely exceeds $15k a year and that won't even cover rent in roughly half the homes someone could rent BEFORE TAX and not even including food, transportation, and healthcare (which at that level pay is often non-existent.) That also assumes you'll get 40 hours each week which you WON'T because the business doesn't want you getting to close to overtime hours. These same folks also don't believe in food stamps because all food stamps users are apparently drug addicts and lazy folks who don't want to work. They also think the reason many people are poor, if it isn't laziness, is because they buy frivolous things like cell phones or a streaming subscription. The audacity these folks believe YOU have for asking for higher wages is a reflection of their ineptitude and empathy. The rich don't get that way by caring about anything but what's in their world or what's in their way and anyone asking for money is in their way."
 
-* :::=== RoundSparrow_Commentary : This is my experience. I worked for 2 of the 3 richest people in the entire world 1996, 1997, 1998, 1999 as both contractor and employee... out of touch with the wealth gap living. Repeating what the Reddit comment says: "Many many wealthy people have zero idea what things cost and how an actual budget for living works. This isn't some form of hyperbole, it's real" - the real loss of nonfiction with minds so stuffed with fiction addiction. Techniques of marketing, public relations, fiction have eclipsed human comprehension and *reality itself*. ===:::
+* :::=== RoundSparrow_Commentary : This is my experience. I worked for 2 of the 3 richest people in the entire world 1996, 1997, 1998, 1999 as both contractor and employee... out of touch with the wealth gap living. Repeating what the Reddit comment says: "Many many wealthy people have zero idea what things cost and how an actual budget for living works. This isn't some form of hyperbole, it's real" - the real loss of nonfiction with minds so stuffed with fiction addiction. Techniques of marketing, public relations, fiction have eclipsed human comprehension and *reality itself*. "They also think the reason many people are poor, if it isn't laziness" ...
+["He exposes the fallacy of the claim that everyone can be rich and successful provided they work hard. He points to the millions who work themselves to the bone and still remain hungry."](https://www.sa-venues.com/mandela-ghandi.php) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1my22q4/this_woman_is_the_voice_of_the_housing_crisis/na98ju8/
+
+jml011 2016-01-18
+
+"Yeah but you have a phone and a tv so like stop your complaining because what more could you even ask for in life even"
