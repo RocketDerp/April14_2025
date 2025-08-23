@@ -279,3 +279,10 @@ It’s truly scary."
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1my2g4z/gabbard_slashing_intelligence_office_workforce/na97sld/
+
+Substantial__Unit 2023-07-05
+
+"I don't understand how any of our allies hasn't sent a large portfolio with the evidence and proof of a few of these people like her that shows receipts she's in with the Russians. Our agencies dropped the ball completely but at some point someone has to show this is all real. I don't understand."
+
+* :::=== RoundSparrow_Commentary : People don't understand the symptoms and behaviors of ***fiction addiction***. [USA lost the War Against Reality that was launched March 2013 on the World Wide Web](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
