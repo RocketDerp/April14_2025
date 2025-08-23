@@ -800,3 +800,7 @@ https://www.youtube.com/watch?v=kz_MilyXkk0
 Faith loss / loss of faith vs. faith wihtout religion    
 Defining faith without faith in a *specific god* and more faith in mystery.    
 https://youtu.be/gO30XLeyrjI?t=704
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1mxkbqe/for_republicans_items_associated_with_democratic/
