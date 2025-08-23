@@ -93,3 +93,11 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepa
 Kooky-Albatross 2020-04-04
 
 "I wish more people actually clicked on the link and read what they’re voting on. This is absolutely not a leopards eating faces situation."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepared_as_you_might_expect/na90b83/
+
+Dependent-Outcome-57 2021-12-03
+
+"Having talked to servicemen and retired servicemen, the brainwashing and shall we say "reshaping" of people's personalities when they go into the service is troubling, to put it mildly. I get it - you have to make people into effective fighting units that will follow orders without question and be willing to kill or be killed without hesitation. Unfortunately, it takes very little tinkering with that formula to make them all too eager to obey and kill, and very little effort to create new "others" who are the "enemies of freedom" and who need to be killed. Obviously, not all soldiers are like this, and a bit too much exposure to reality snaps some of them out of the supposed glory of violence in the name of one's nation, but in general you can't expect the military to save you from a dictatorship."
