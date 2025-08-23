@@ -787,3 +787,10 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1mxo3jt/are_they_gold_leafi
 
 * :::=== RoundSparrow_Commentary : Endless obsession of the meme consumer society over every move, shake, photograph of Donald J. Trump. Fixated audience who can not resist mocking, insult, hate of status symbol icon. GOING ON FOR OVER TEN YEARS. Constant concern for style, fashion, cosmetic applications on body, clothing. Every aspect of celebrity paparazzi culture audience. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/WomenInNews/comments/1mxn0jc/hegseths_tacit_endorsement_of_disenfranchising/na6bzrc/
+
+EmilieEasie 2020-08-25
+
+"And dudes on reddit keep telling me that actually the US is biased against men!"
