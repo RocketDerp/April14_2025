@@ -196,10 +196,19 @@ I...just....I don't get it man"
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/pics/comments/1my42yu/the_president_of_the_united_states_of_america/na9es3d/
 
 Prospero1063 2021-05-29
 
+<img width="876" height="688" alt="image" src="https://github.com/user-attachments/assets/5e401f6f-3a02-4349-8da6-d3e9fec99da8" />
+
+&nbsp;
+
+
 "No, it’s not normal. But it’s the action of a bully and a truly arrogant ass. He does this to elicit a response. He enjoys angering people, making them emotionally react. To him it’s a feeling of superiority and victory. And to be honest, it’s working. More’s the pity."
 
 * :::=== RoundSparrow_Commentary : Tony Clifton performance is irresistable to meme addicted United States of America population, We The People. ===:::
+
+&nbsp;
