@@ -587,3 +587,10 @@ G-Unit11111 2021-04-23
 
 "I really hate to say it but the democrats really need their own propaganda system. The right wing has shown that propaganda works. That's how they keep winning and flipping. We really don't have anything remotely comparable to Fox, or Fox's cousin on bath salts, OAN."
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naash8d/
+
+Irish_whiskey_famine 2011-01-27
+
+"This argument pisses me off. Where the fuck are all the people at democratic committee meetings and people getting involved to share their voices. People can be pissed off but look at all yourselves in the mirror because if you haven’t been involved than your also part of the issue. Get involved locally, now. I don’t know if your American, you say They so I suspect not. But really the issue is people were putting their heads in the sand thinking someone else is going to take care of it. The fact is we all need to take care of it, and we didn’t when it mattered."
