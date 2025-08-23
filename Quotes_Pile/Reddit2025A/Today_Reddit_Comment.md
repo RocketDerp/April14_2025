@@ -387,3 +387,11 @@ https://old.reddit.com/r/nottheonion/comments/1my3hda/army_base_used_for_wwii_ja
 hypnoticby0 2020-11-02
 
 "when will it be enough? when will we fight back? how many more people need to be disappeared and forced into concentration camps? how many people need to be brutalized by the police and military? how many more people need to be forced into poverty? how many more people need to be killed? why do we allow a parasite class of soulless devils who are destroying the world to exist? let alone hold power, the sooner we do something the better, these traitors and tyrants have no place in society."
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1my22q4/this_woman_is_the_voice_of_the_housing_crisis/na91dog/
+
+smallweirddude 2020-07-12
+
+"Oh, I do. But I'd prefer non violence. More akin to ancient Rome's walkout. All the working class would simply leave the city kevaing the wealthy to cook, clean, and complain to themselves. It worked every damned time. What's the updated version of that. Can we get a "working class only" currency? Stop participating in their game. Stop going to work for them. Stop paying taxes for them. WE provide for THEM. Let's just, not."
