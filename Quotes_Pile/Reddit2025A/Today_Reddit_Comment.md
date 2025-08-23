@@ -602,3 +602,18 @@ https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naapccg/
 caprazzi 2018-08-26
 
 "The right figured out a fundamental truth - idiots are a monolith, while the enlightened are not. This is because education and critical thinking lead to a host of different ideas that SHOULD foster healthy debate and policy in our system. However, if you take those things away from a huge portion of the population, you get brainwashed thralls who vote for whoever you tell them to."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naaw9xg/
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naaw9xg/
+
+MayhemMessiah 2010-10-31 (Haloween)
+
+"When progressives have delusional fantasies you're supposed to cheer them on. The amount of fanfiction written about how Bernie would usher in a socialist utopia is nuts. I mean hell I've had multiple people on this site tell me point blank that Progressives abandoning votes and ushering in Trump was a net positive for the world that we should celebrate because it would send the party "the message".
+
+That the rest of the world is having America inflicted on it is literally seen as a positive because it'll cast a magic spell that will grow the DNC's heart three sizes or some shit. Once imperialists, always imperialists."
+
