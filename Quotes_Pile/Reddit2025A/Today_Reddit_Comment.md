@@ -160,3 +160,10 @@ The nerds from our high school didn't create this situation. This is late stage 
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1my42yu/the_president_of_the_united_states_of_america/na9djso/
+
+RedditTrespasser 2024-06-24
+
+"America used to have other better qualities too, though you’d hardly be able to tell now. Everything that was ever good about us is now held hostage by this malignant asshole and his asshole cult.
+
+Fox News and social media were the one-two combo I think."
