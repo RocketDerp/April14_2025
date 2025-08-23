@@ -37,3 +37,15 @@ AccomplishedLeave506 2021-01-29
 "I don't see America surviving this. He's not leaving without violence. And now he has American, armed, troops in Washington DC. In a few years when he decides not to leave and he's surrounded by hand picked armed troops I don't see anything good happening.
 
 Your country has gone. I doubt it's coming back."
+
+* :::=== RoundSparrow_Commentary : Our country, USA, has gone into extreme media addiction. People have sold out the future of their children's lives to social machine addiciton. We have "Amused Ourselves To Death" on social machines and television HDTV networks (Fox News, Newsmax, etc). Putin won the information war. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepared_as_you_might_expect/na8k3am/
+
+UnderstandingSea7546 2021-01-07
+
+"Trump is trying to make us numb to calling the military on US citizens. Seems like he’s normalizing this to enable his next coup attempt. My guess is he’s pissed the first one didn’t work because the people didn’t have the guns and the guts or the training and direction. Trump wants the military to be on his side for the next one. Is Trump replacing generals with Trump sycophants yet?"
+
+* :::=== RoundSparrow_Commentary : Meme addicts go: LOL, LMAO, so amusing, so hilarioius, so funny, Trump so entertaining. Nothing is real to people, it's just never-ending Reality TV fiction addiction and people don't want to see that attacking Canada "51 state" on the world stage has changed population of over 8 billion people in the world to see USA of only 0.34 billion as self-harm meme addicts to Trump entetainment LOL LOL LOL bullshit. ===:::
