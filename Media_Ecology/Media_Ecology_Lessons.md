@@ -439,3 +439,9 @@ Not understanding lyrics to song.
 Visual and language sound same time.  
 "I have an auditory processing disorder."    
 https://www.youtube.com/watch?v=tfJ7i_uKWSo
+
+&nbsp;
+
+### Year 1859 solar activity - again?
+
+https://en.wikipedia.org/wiki/Carrington_Event
