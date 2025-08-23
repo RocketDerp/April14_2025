@@ -212,3 +212,24 @@ Prospero1063 2021-05-29
 * :::=== RoundSparrow_Commentary : Tony Clifton performance is irresistable to meme addicted United States of America population, We The People. ===:::
 
 &nbsp;
+
+&nnbsp;
+
+https://old.reddit.com/r/politics/comments/1my2g4z/gabbard_slashing_intelligence_office_workforce/na95td6/
+
+inthekeyofc 2017-12-17
+
+"Trump's political rise is like the plot of a spy novel. All the moles carefully nurtured years ago have arrived at their powerful positions and the grand plan is being put into play as we speak."
+
+* :::=== RoundSparrow_Commentary : We The People are **addicted to fiction storytelling** and can't resist social machine addition to mocking, insulting, name-calling the writing as bad. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1my2g4z/gabbard_slashing_intelligence_office_workforce/na9bf01/
+
+trisul-108 2016-11-18
+
+"But only because the nation will not move to protect itself. Everyone is sitting in front of their TV screens waiting for "someone" to rescue them. Those action heroes people are waiting for and not real, that's just in movies. No one is coming, people need to do it themselves, but its not going to happen from the couch."
+
+* :::=== RoundSparrow_Commentary : We The People are react-commenting with images and memes on social media about how bad Tony Clifton performance of Donald Trump is, glued to the touchscreen intimate devices. ===:::
+
