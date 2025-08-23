@@ -617,3 +617,13 @@ MayhemMessiah 2010-10-31 (Haloween)
 
 That the rest of the world is having America inflicted on it is literally seen as a positive because it'll cast a magic spell that will grow the DNC's heart three sizes or some shit. Once imperialists, always imperialists."
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naaa0c5/
+
+Business_Usual_2201 2021-02-08
+
+"In a normal Country, an objective citizenry and media would be asking a LOT of questions about why an intellectually deficient, inept fraudster and felon would have the "car keys" of the nation. Furthermore, they would be DEMANDING assurances of his fitness and adherence to the Oath he took.
+
+But nobody wants to talk about the drunk uncle who is wrecking a family holiday again."
+
