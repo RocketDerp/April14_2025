@@ -49,3 +49,15 @@ UnderstandingSea7546 2021-01-07
 "Trump is trying to make us numb to calling the military on US citizens. Seems like he’s normalizing this to enable his next coup attempt. My guess is he’s pissed the first one didn’t work because the people didn’t have the guns and the guts or the training and direction. Trump wants the military to be on his side for the next one. Is Trump replacing generals with Trump sycophants yet?"
 
 * :::=== RoundSparrow_Commentary : Meme addicts go: LOL, LMAO, so amusing, so hilarioius, so funny, Trump so entertaining. Nothing is real to people, it's just never-ending Reality TV fiction addiction and people don't want to see that attacking Canada "51 state" on the world stage has changed population of over 8 billion people in the world to see USA of only 0.34 billion as self-harm meme addicts to Trump entetainment LOL LOL LOL bullshit. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepared_as_you_might_expect/na8th3p/
+
+Shyassasain 2017-01-16
+
+"Please. Americans have allowed it so far, Trump could declare martial war tomorrow and all you'd do is tut and make memes about how evil it is and "we saw this coming!" 
+
+Not trying to be a dick, but It's the most likely response given all his overreach so far. Trump wants a civil war, and he's gonna get a civil war. And every day Americans wait and see is another day he has to prepare for it. 
+
+You're allowing wolves to surround you entirely rather than fight/scare them off before they can. I hope somebody in America is at least planning for when they strike."
