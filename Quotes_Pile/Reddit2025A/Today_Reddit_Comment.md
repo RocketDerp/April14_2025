@@ -794,3 +794,13 @@ https://old.reddit.com/r/WomenInNews/comments/1mxn0jc/hegseths_tacit_endorsement
 EmilieEasie 2020-08-25
 
 "And dudes on reddit keep telling me that actually the US is biased against men!"
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mxj8ys/the_oligarchy_wont_let_us_in/na5j7hc/
+
+Icy-Cod1405 2024-06-05
+
+"When both parties are owned by the same people one is just controlled opposition"
+
+* :::=== RoundSparrow_Commentary : Kanye West, Tulsi. When people believe in out-group hate it deosn't even matter is there are 2 and only two choices, [it collapses to *the others* in hate. The 1954 Equation](../Martin_Luther_King_Jr_quotes0.md). The hate problem is not unique to USA. Fits Palestine / Israel, Ukraine / Russia, even USA forcing Canada into "51st stage" in year 2025. Instead of recognizng and taking seriously since the March 2013 onward IRA warfare on the World Wide Web, people mock / insult / hate against MAGA ("Leopards Ate My Face" feasting on the Kremlin hearts and minds lost, is very popular in year 2025 WWW meme addicts nation). There is no sense of civic duty to rescue democracy from Putin Media Invasion of year 2013 onward, just a sense of out-group dehumanization. Hate thy enemy. Without love and compassion, democracy does not function. Love is not optional. Despite the Hollywood fiction popularity, Star Wars films are about *war and killing* to solve problems, not fixing the brotherly love of all species. You do not have to agree with people to love them, love thy enemy is about the forest for the trees. ===:::
