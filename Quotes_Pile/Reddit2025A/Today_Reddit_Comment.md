@@ -296,3 +296,11 @@ Skittleavix 2024-12-30 (new this year)
 "Gavin Newsom should create his own social media platform and call it Woke Social. The options for mockery are endless."
 
 * :::=== RoundSparrow_Commentary : People don't understand the symptoms and behaviors of ***fiction addiction***. Always calling for more mocking, more memes, more fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1my1d0o/trump_melts_down_after_days_of_newsoms_relentless/na8zzxg/
+
+anwright1371 2020-05-01
+
+"Grown men using Twitter to mock each other and “lead” our nation. Fucking aye we coulda had Bernie Sanders man."
