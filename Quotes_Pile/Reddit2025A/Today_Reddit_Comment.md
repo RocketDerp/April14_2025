@@ -61,3 +61,27 @@ Shyassasain 2017-01-16
 Not trying to be a dick, but It's the most likely response given all his overreach so far. Trump wants a civil war, and he's gonna get a civil war. And every day Americans wait and see is another day he has to prepare for it. 
 
 You're allowing wolves to surround you entirely rather than fight/scare them off before they can. I hope somebody in America is at least planning for when they strike."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepared_as_you_might_expect/na8ww9o/
+
+UnderstandingSea7546 2021-01-07
+
+"I think you’re right and yet I’m at a complete loss as to what to do. We’ve had rallies they ignore. We’ve seen protests and seen their escalating response. The most important thing I could do was to vote and I’ve done that.
+
+I have spoken out. Many have spoken out. Good friends, family have ignored it and didn’t care. I’ve lost my father and uncle to this Trump cult and they don’t want to hear it. They call me deranged (TDS). What do you do when speaking up only pushes away the people I’d most like to reach?
+
+I’m so sad that the people I loved held values that they so easily tossed aside. My grandfathers both fought in WW2 against fascism. They put their lives on the line against this, but all of their children fell in line supporting this narcissistic dictator, and they don’t even see it.
+
+I went to a New Year’s party with my uncle last year. One of the gents at the party, my uncle’s good friend was so sad that his wife of 40 years was divorcing him, literally over Trump. They truly don’t care how appalling he is to us and think she’s divorcing him over Trump instead of divorcing the man she loved over his lack of values.
+
+So I ask again, and I’d love to ask this of the children of the Germans who grew up as the Nazis rose to power. How do we effectively stop this?"
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1mxzzfh/prepper_not_as_prepared_as_you_might_expect/na8mbcg/
+
+RhoOfFeh 2012-07-26
+
+"I have never understood conservative Gen-Xers. As a rather early GenX myself, I have had the time to observe multiple cycles of this downward spiral of the Republican party and the nation as a whole. I don't know whether to pity or loathe those who either can't or won't see it."
