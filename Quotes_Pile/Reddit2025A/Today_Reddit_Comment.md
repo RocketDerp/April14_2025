@@ -558,3 +558,11 @@ https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naav5rn/
 Burnt_and_Blistered 2015-07-06
 
 "The media IS the insanity."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naas0ew/
+
+VermilionRabbit 2022-10-25
+
+"It’s worse than that. We’re living in a mafia-style hierarchy. The concept "don't snitch" within the Mafia hierarchy is known as omertà, the code of silence. It is a sworn oath of loyalty and absolute secrecy that all "made" members must uphold, and breaking it is punishable by death."
