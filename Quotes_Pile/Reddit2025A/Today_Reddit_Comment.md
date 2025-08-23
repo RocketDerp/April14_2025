@@ -520,3 +520,25 @@ TBANON_NSFW 2020-04-14
 The name calling is for childish morons on the left. Because they think BAZINGAS and Zingers actually do something. Meanwhile they wont bother to show up and vote when the elections and midterms comes because of whatever bs reason they print out."
 
 &nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1mxysry/strong_attack_by_governor_newsom_on_the/na8edlc/
+
+CapitalAd5339 2022-02-06
+
+"Didn’t Putin do the same thing 10 years or so ago, when he had the big televised meeting with the top Oligarchs?
+
+All hail the Comrade-in-chief!"
+
+&nbsp;
+
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1mxysry/strong_attack_by_governor_newsom_on_the/na8vchg/
+
+stevez_86 2018-09-13
+
+"That is exactly what this is about. Turning the US into the same kind of government as Russia. A patronage state where everyone has to go through Trump for access to the American Market. Effectively getting a cut of every dollar coming into the country and going out.
+
+And because this is all executive, there is no law saying how these funds gained must be spent or allocated.
+
+I bet trump is going to try to break the Fed by taking everything gained since his inauguration through these executive acts and using it to buy Trump Coin. Nothing says he can't. This is all slush fund money right now. Not even Congress can touch it."
