@@ -542,3 +542,11 @@ stevez_86 2018-09-13
 And because this is all executive, there is no law saying how these funds gained must be spent or allocated.
 
 I bet trump is going to try to break the Fed by taking everything gained since his inauguration through these executive acts and using it to buy Trump Coin. Nothing says he can't. This is all slush fund money right now. Not even Congress can touch it."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naa7270/
+
+SweaterSteve1966 2025-02-01 (new this year)
+
+"This is it exactly. The rich are still stepping on the necks of 99% of America and the media is normalizing this insanity."
