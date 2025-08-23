@@ -324,3 +324,11 @@ Shigglyboo 2008-10-20
 "look. stop thinking trump is doing the job. he's not trying to be president. he doesn't care about anyone. he's a POS. he is here to hurt people. to destroy society. to crush everyone who didn't think he was cool for banging underage girls and molesting children. he tried his best to be a cool dude and he was shunned for being a creep. so now he's exacting his revenge. that's it. the whole world is gonna wind up like one of his ex wives or his businesses."
 
 * :::=== RoundSparrow_Commentary : Hate motivates. The IRA and Cambridge Analytica since March 2013 have conditioned We The People, the entire USA population, into self-harm and self-destruction. Addiciton to entertainment Reality TV (Trump "The Apprentice") fiction. All of humanity hated, anti-humanism, pro-hate. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1mxy118/trumps_dc_occupation_costs_4_times_more_than_it/na9pbfu/
+
+FangSkyWolf 2015-01-02
+
+"It's almost as if he's trying to waste our budgets, put most Americans in debt, piss off our allies.....ECT. I swear this is the way a foreign agent would try to weaken a country from within."
