@@ -241,3 +241,12 @@ Intersexyun 2023-09-24
 
 "The damage done to our national security alone is astounding. How can anyone look at the actions taken to cripple our ability to keep our nation secure and think that a strategy of good intent is at play? MAGA is a cancer destroying American democracy from within and it seems increasingly likely that it is heavily influenced by anti-American interests. Sound the alarm."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1my2g4z/gabbard_slashing_intelligence_office_workforce/na9erzy/
+
+AgitatedEdge213 2023-11-25
+
+"She's opening the draw bridge and draining the moat.
+
+This administration is filled with Anti-Americans."
