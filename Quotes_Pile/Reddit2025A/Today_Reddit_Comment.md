@@ -440,3 +440,11 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1my3d49/another_kids_maze_ca
 angry_queef_master 2022-03-05
 
 "Its all about money. The people who actually are making things with purpose are being drowned out by the ones with deep pockets funding garbage projects whose only goal is to extract as much money as possible."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mxynwr/trust_me_bro/na89x9d/
+
+Extreme-Slice-1010  2024-03-01
+
+"Maxwell afraid of getting murdered by Trump, that’s why"
