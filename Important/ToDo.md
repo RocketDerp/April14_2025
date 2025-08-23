@@ -837,3 +837,10 @@ Me: People get divorced and remarried. People can be more married to their polit
 
 Funeral rituals topic   
 https://old.reddit.com/r/todayilearned/comments/1mybyop/til_mormonism_founder_joseph_smith_wrote_the_book/
+
+&nbsp;
+
+Classical interpretaiton of autism and metaphorical thinking, literal thinking.    
+Joseph Campbell equation of half + half not explained     
+https://old.reddit.com/r/ExplainTheJoke/comments/1my92b1/what_else_could_this_possibly_mean/   
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
