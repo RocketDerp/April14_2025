@@ -250,3 +250,6 @@ AgitatedEdge213 2023-11-25
 "She's opening the draw bridge and draining the moat.
 
 This administration is filled with Anti-Americans."
+
+* :::=== RoundSparrow_Commentary : Hate motivates. The IRA and Cambridge Analytica since March 2013 have conditioned We The People, the entire USA population, into self-harm and self-destruction. Addiciton to fiction. All of humanity hated, anti-humanism, pro-hate. ===:::
+
