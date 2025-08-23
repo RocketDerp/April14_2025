@@ -594,3 +594,11 @@ https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naash8d/
 Irish_whiskey_famine 2011-01-27
 
 "This argument pisses me off. Where the fuck are all the people at democratic committee meetings and people getting involved to share their voices. People can be pissed off but look at all yourselves in the mirror because if you haven’t been involved than your also part of the issue. Get involved locally, now. I don’t know if your American, you say They so I suspect not. But really the issue is people were putting their heads in the sand thinking someone else is going to take care of it. The fact is we all need to take care of it, and we didn’t when it mattered."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1my7btn/crazy_indeed/naapccg/
+
+caprazzi 2018-08-26
+
+"The right figured out a fundamental truth - idiots are a monolith, while the enlightened are not. This is because education and critical thinking lead to a host of different ideas that SHOULD foster healthy debate and policy in our system. However, if you take those things away from a huge portion of the population, you get brainwashed thralls who vote for whoever you tell them to."
