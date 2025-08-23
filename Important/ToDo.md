@@ -845,7 +845,7 @@ Joseph Campbell equation of half + half not explained
 https://old.reddit.com/r/ExplainTheJoke/comments/1my92b1/what_else_could_this_possibly_mean/   
 “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
-&nsp;
+&nbsp;
 
 So is forgiveness important    
 https://youtu.be/Vw1a-5-ZM0w?t=344
