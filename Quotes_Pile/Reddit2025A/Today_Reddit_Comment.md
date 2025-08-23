@@ -627,3 +627,12 @@ Business_Usual_2201 2021-02-08
 
 But nobody wants to talk about the drunk uncle who is wrecking a family holiday again."
 
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1my78r4/to_not_be_conspicuous_while_desperately_trying_to/naa0vng/
+
+Dayzlikethis 2017-10-19
+
+"it really is and it speaks volumes that no one really acknowledges it as being insane."
+
+* :::=== RoundSparrow_Commentary : Egomania nation. ===:::
