@@ -829,4 +829,5 @@ Comment: "Let's be brutally honest.... this is actually highly realistic to mode
 Comment: "The wild part is Connie is exactly how a lot of smart girls turned out lol"    
 <img width="1174" height="478" alt="image" src="https://github.com/user-attachments/assets/d1b3e1f0-be08-4e3b-9670-21e6917ffa11" />
 
-Me: People get divorced and remarried. People can be more married to their political party or their religion clergy or their boss at job than a spouse. Who teaches marriage, as Joseph Campbell asked in year 1987? People don't understand spirtual marriages - even incredibly smart people - and the sophisticated technical vocabulary depicted about the non-spiritual marriage fits experience. Children and parenting too, climate change and 10 years of Donald Trump role model in Texas Hill Country.
+Me: People get divorced and remarried. People can be more married to their political party or their religion clergy or their boss at job than a spouse. Who teaches marriage, as Joseph Campbell asked in year 1987? People don't understand spirtual marriages - even incredibly smart people - and the sophisticated technical vocabulary depicted about the non-spiritual marriage fits experience. Children and parenting too, climate change and 10 years of Donald Trump role model in Texas Hill Country. I was divorced in Texas Hill Country, where Bobby has his resturant, so ;)
+
