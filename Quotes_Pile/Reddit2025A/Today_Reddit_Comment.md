@@ -494,3 +494,11 @@ https://old.reddit.com/r/stephencolbert/comments/1my19el/the_president_is_gettin
 ‘The President is getting sicker’
 
 * :::=== RoundSparrow_Commentary : The whole nation, the entir United States of America is getting sicker. This is a sick nation, lost an information war to Putin / Russia / Kremlin and does not even have the self-awareness of what changes since March 2013. Every day is worse than the previous in people abandoning reality and humanism in favor of fiction addictions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WallStreetbetsELITE/comments/1mxysry/strong_attack_by_governor_newsom_on_the/na9gvkv/
+
+Funnyboyman69 2014-12-31 (NYE 2014, When [BBC Adam's Curtis Surkov video was released](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)]
+
+"You should look at all of the articles and newspapers mocking Hitler and his supporters in Weimar Germany. Name calling isn’t going to stop fascism, even if it makes you feel better."
