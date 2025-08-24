@@ -330,3 +330,11 @@ amanwithoutaname001 2024-02-16
 "You're right and it's so incredibly embarrassing that we've elected a man so blatantly beholden to a mass murdering trafficker of children in Putin.
 
 There was a time in a truly great America where we would stand up to such bullying but now we have a corrupt bully-in-chief rolling out the red carpet for a global pariah while terrorizing American cities with his own personal gestapo."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_need_us_permission_to/nafu18w/
+
+Oil_slick941611 2015-12-25 (Christmas day)
+
+"for intents and purposes though.Trump is the USA right now. he represents the USA. My comfort in the ability of the US population to stop anything is completely gone after the activations of the National guard on american streets. Your will, or opinion mean nothing to the outside while the Jackboot of the American GI is controlled by Trump and merry band of fascists."
