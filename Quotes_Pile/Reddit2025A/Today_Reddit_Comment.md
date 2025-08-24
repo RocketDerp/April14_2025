@@ -694,3 +694,13 @@ messick 2011-01-12
 "Just learning what the "N" in DNC stands for would cut out like 90% of the useless complaining on Reddit."
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1myz8t5/this_the_new_pbs_viral_kids_cartoon_teaches/nafz9he/
+
+acepiloto 2008-11-05
+
+"Because reality is too woke, and they need to control the narrative."
+
+* :::=== RoundSparrow_Commentary :  I assert that the Kremlin war against Reality was described back in **Steptember 9, 2014** (the first year of the Ukraine hot war). [Russia and the **Menace of Unreality**. How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Peter Pomerantsev titled the second book in his series "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries"...  ===:::
+
+&nbsp;
