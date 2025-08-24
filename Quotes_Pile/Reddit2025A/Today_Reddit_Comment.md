@@ -484,3 +484,14 @@ https://old.reddit.com/r/agedlikemilk/comments/1mz16t1/any_updates_on_this/nag5i
 couldntbdone 2023-06-08
 
 "Populism is when you gaslight regular people to benefit right wing billionaires."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mz16t1/any_updates_on_this/nag4jz2/
+
+QueenInYellowLace 2021-10-18
+
+"A family member almost literally told me just yesterday that everything Trump is doing is Obama’s fault and if Obama hadn’t gotten elected, Trump wouldn’t be forced to do what he is doing."
+
+&nbsp;
+
