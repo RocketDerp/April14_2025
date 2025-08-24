@@ -754,3 +754,17 @@ https://old.reddit.com/r/politics/comments/1mz4dc8/trump_79_melts_down_at_being_
 MajorMorelock 2021-04-12
 
 "These times will be remembered as the most embarrassing moments of our republic."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mz4dc8/trump_79_melts_down_at_being_challenged_to_a_walk/nagqhz1/
+
+BigMax 2008-05-27
+
+"It's sad that some people like how he operates. Genuinely sad.
+
+A totally normal offer to just literally go for a walk and talk about an issue is met with fury and anger, simply because that person has a D next to their name.
+
+Republicans have decided that their real enemy on this planet is literally America, or at least half of it. Nothing makes republicans angrier than Americans who suggest that we work together to make the country better."
+
+* :::=== RoundSparrow_Commentary : We The People keep acting like what Trump is doing is only harming one third or half of the USA. Attacking Canada as the 51st state, harming the environment, it's not only half of America that is being hated, it is world-wide. Humanism is being hated. Technology lust, lust for machines, is being fed. Media addicts craving more fiction. ===:::
