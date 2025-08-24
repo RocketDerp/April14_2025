@@ -768,3 +768,13 @@ A totally normal offer to just literally go for a walk and talk about an issue i
 Republicans have decided that their real enemy on this planet is literally America, or at least half of it. Nothing makes republicans angrier than Americans who suggest that we work together to make the country better."
 
 * :::=== RoundSparrow_Commentary : We The People keep acting like what Trump is doing is only harming one third or half of the USA. Attacking Canada as the 51st state, harming the environment, it's not only half of America that is being hated, it is world-wide. Humanism is being hated. Technology lust, lust for machines, is being fed. Media addicts craving more fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mz4dc8/trump_79_melts_down_at_being_challenged_to_a_walk/nah31vf/
+
+TimeToBond 2017-12-20
+
+"Keep it up DEMs. Troll him nonstop. Plus Americans don’t care about issues anymore. They like reality TV show-style drama."
+
+* :::=== RoundSparrow_Commentary : Media addicts want more Tony Clifton show. ===:::
