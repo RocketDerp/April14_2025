@@ -398,3 +398,27 @@ Like some hideous goose stepping bumblebee.
 They do not mind seeing the emperors naked body under his magic invisible clothes because he has special magic clothes - he has something special or unique and that means he's allowed.
 
 But once they know he's not special, he isn't wearing magic clothes, that he's going to pass away just like grandpa, then he becomes just another overweight old man in America."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1myzac6/my_name_is_captain_dylan_blaha_and_this_message/nafo6jd/
+
+Late-Edge9039 2024-11-24
+
+"No it’s not. They’re already done with him. They just needed to get him elected. The goal is to stop or stifle elections and eradicate any politician who opposes them. They don’t need a base anymore."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1myzac6/my_name_is_captain_dylan_blaha_and_this_message/nafqrii/
+
+Late-Edge9039 2024-11-24
+
+"Because they want people so obsessed with Trump they can’t see the bigger picture."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1myzac6/my_name_is_captain_dylan_blaha_and_this_message/nafy6gv/
+
+lr99999 2014-07-03
+
+"They waited a lot of years for the snake-oil candidate. Even if he croaks tomorrow, they now own the  military and all of the weapons.  I can’t do anything about that, but I am shunning every Republican relative, hard-core and ugly. The dumbass people letting themselves get brainwashed is the real cause."
