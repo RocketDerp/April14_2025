@@ -48,3 +48,14 @@ https://old.reddit.com/r/law/comments/1myurbp/national_guard_to_be_mobilized_in_
 kingtacticool 2019-05-12
 
 "We're not coming back from this."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1myurbp/national_guard_to_be_mobilized_in_19_states_by/naexrl9/
+
+SwishSwishDeath 2012-06-26
+
+"I can only assume the majority of "Americans" on this website frothing at the mouth for revolution are bots or astroturf farms because you'd have to be a moron to be telling other people to spill blood on your behalf, and insulting them for not doing so, while sitting behind a keyboard.
+
+You want to kick start the new bloodiest conflict in American history, go spark it yourself. Everyone else seems to be relying on and exhausting all other options before taking an action that can never be taken back."
+
