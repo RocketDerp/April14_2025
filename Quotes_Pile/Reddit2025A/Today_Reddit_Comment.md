@@ -542,3 +542,15 @@ https://old.reddit.com/r/news/comments/1mz25ee/wa_congressional_candidates_husba
 weezyverse 2019-07-08
 
 "I believe this is in chapter 4 of the "Guide for Fascists" volume 3. Foreword written by Putin with annotations by Medvedev and Netanyahu."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mz25ee/wa_congressional_candidates_husband_a_military/naglbfr/
+
+MalcolmLinair 2019-01-12
+
+"Everyone is next. As they burn through their designated out groups, the definition of "American" will get narrower and narrower. Sooner or later even White, heterosexual men will start to be disappeared for not being "pure" enough.
+
+No one is safe.
+
+No one."
