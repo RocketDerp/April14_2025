@@ -82,3 +82,11 @@ Maga doesn’t even have basic pattern recognition skills, let alone critical th
 * :::=== RoundSparrow_Commentary : MAGA party within the USA, the MAGA social movement of year 2013 onward is the product of the Russian Internet Research Agency / Donald Trump / Cambridge Analytica all working together since November 7, 2012 agreement by Trump with Kremlin.
 https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ "как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года."
 The IRA started ramping up in March 2013 with Cambridge Analytica and Kremlin Surkov students home-grown mind-fucking anti-reality information warfare payloads. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naei1o0/
+
+ElectricSliderz 2025-03-15 (new this year)
+
+"It’s right wing media. That 1st person’s viewpoint is what they’ve been fed by that brainwashing machine. They’re convinced of conspiracies about the “great replacement” coming from the outside by the “southern invasion” and from the inside by BLM, DEI and “woke”."
