@@ -477,3 +477,10 @@ steponmedaddies 2025-06-28 (new account)
 
 "Same old same old. Tomorrow there will be another front page thing with thousands of upvotes saying how bad the dems are at messaging not realizing the entire system is owned by right wing billionaires and that most Redditors are fully under the control of right wing propaganda."
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mz16t1/any_updates_on_this/nag5iup/
+
+couldntbdone 2023-06-08
+
+"Populism is when you gaslight regular people to benefit right wing billionaires."
