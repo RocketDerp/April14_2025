@@ -797,3 +797,12 @@ ImAVillianUnforgiven 2024-07-09
 
 "Not only that, the people don't want to be told what's good for them. Wear a mask during a worldwide pandemic? Don't tell me what to do! Respect others' individuality? I'm not being a bully, I'm just expressing my own! Immigrants just want a better life. They're stealing MY jobs (the jobs I won't do), MY healthcare (the overpriced, privatized, capitalized kind that puts you in life-long debt), and MY social security (that immigrants can only collect after they've paid into it like everyone else)!"
 
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1mz7hv8/snoop_dogg_continues_to_be_disappointing_by/nahgqeg/
+
+xternocleidomastoide 2025-03-29 (new this year)
+
+"Don't forget the endless lyrics he has put out through the years with overt misogyny, glamorization of drugs and gang violence, and that stint in the 90s where he almost went to prison for murder.
+
+But yeah, showing a loving lesbian relationship in passing... is just taking it too far for Snoop."
