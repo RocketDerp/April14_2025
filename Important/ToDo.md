@@ -861,3 +861,10 @@ https://youtu.be/W2iP_yS-qdc?t=163
 
 Concealed camera allows male gaze in public to be noted    
 https://old.reddit.com/r/TikTokCringe/comments/1myi7w0/pov_youre_a_woman_in_a_public_place/
+
+&nbsp;
+
+Dealers of drugs that sell prescriptions to their clients and are users.   
+Booze is a drug. Smoking is a drug. Food can be an addiction.   
+Addiction to trash ideas, meme systems, Fox News ficiton - while selling nonficiton in classrooms. Psycology and media ecology not taught to students, lacking in self-awareness by teacher at the Finnegans Wake Level.   
+https://old.reddit.com/r/Adulting/comments/1mytuqc/is_this_actually_true/
