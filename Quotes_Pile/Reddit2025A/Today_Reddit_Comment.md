@@ -144,3 +144,11 @@ VOevolution 2018-05-23
 "They can't even remember the pandemic started during the Trump administration, as did the lockdowns."
 
 * :::=== RoundSparrow_Commentary : Recency bias abounds. All sense of perspective before year 2013 is lost. Many people in August 2025 are behaving as if this is Donald Trump's first term in office. We The People also seem to have lost sense that Trump was voted out of office for four years and addressing the Cambridge Analytica aftermath and media addiciton (descrbed by Neil Postman in his 1985 book "Amusing Ourselves To Death") hasn't taken over society thinking and behaviors. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/nae8ucu/
+
+GallwayGirl 2021-07-03
+
+"I heard more people say the most disgusting things about Obama and his family, especially Michelle …. they couldn’t shut up about them. It was gross"
