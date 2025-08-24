@@ -668,3 +668,13 @@ He literally said that in one of his tweets.
 Why is he now doing the same thing?"
 
 * :::=== RoundSparrow_Commentary : Understanding the situation... [Formally announced December 2013, "Conservative International"](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) movement. Ukraine war started 2 months later, February 2014, still ongoing in August 2025. ["The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1myg2zb/pentagon_restricts_ukraines_use_of_us_missiles/nac4hok/
+
+KinkyPaddling 2023-12-04
+
+"This is exactly the problem. We can point fingers at Democrats not fighting hard enough, or single issue voters staying home, or the media not pointing out all of his lies. All of this can be true. But the root issue is that over 70 million Americans endured the shit show of 2016-2020, listened to his stuffed-nose voice lie incessantly for 10 years, and watched (and continue to watch) as he acts as an autocrat, and they **still think that it’s great**. Trump supporters are the core of the problem. It’s not an issue of politics or policy - it’s one of culture."
+
+* :::=== RoundSparrow_Commentary : It is a cultural problen of fiction addiciton. Trump and Putin provide fiction storytelling. Constant simulating entertainment. Americans have not faced up to the Russian information warfare since March 2013. People are willing to die for *line delivery*, the way Fox News / RT Kremlin / Donald Trump / Joe Rogan *present media*. Fiction media. ===:::
