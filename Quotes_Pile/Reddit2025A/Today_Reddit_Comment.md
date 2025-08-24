@@ -302,3 +302,11 @@ dalgeek 2011-01-19
 "Conservatives need something new to be angry about all the time. The logo was changed purely as a business decision by a private equity firm. It wasn't done to remove some perceived racist or cultural issue, but conservatives will claim it was due to woke cancel culture just so they have something to be angry about. It must be exhausting to be angry about everything all the time."
 
 * :::=== RoundSparrow_Commentary : logo addiction, symbol addiciton, media addiciton, meme-think, branding-thinking has ruined the USA. Gumbo soup of brand / logo / memes / symbols / icons beinb blended by Trump and Putin since the November 7, 2012 IRA agreement. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_need_us_permission_to/nafed4w/
+
+theclansman22 2009-08-03
+
+"No god damn way they’re relying on US intel after Trump brought multiple Russian ministers to the White House and told them classified intel. That was *eight* years ago yet the dumb fuck American electorate elected that traitorous pedophile again."
