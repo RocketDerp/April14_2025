@@ -456,3 +456,24 @@ https://old.reddit.com/r/NoShitSherlock/comments/1myvrrd/trump_is_at_war_with_al
 exbaddeathgod 2012-03-29
 
 "Let's be clear. If people paid attention to the humanities, we wouldn't have elected Trump..."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mz16t1/any_updates_on_this/nag6i29/
+
+\_deep_thot42 2023-04-03
+
+"Dude. I had a friend I’d known since middle school and saw the downward spiral on Facebook and finally unfriended her in 2020 because her husband commented something about “killing demonrats”, his words. She posted about Epstein all the time. She was still on an old profile I recently got into and…crickets. Not a single mention of it all since this started with Trump.
+
+So I searched for and screenshotted every Epstein/Maxwell post she made and every “save the children” post. I was going to just send it all to her before deleting my profile, but I’m just so done with it all. It wouldn’t change her mind anyway."
+
+* :::=== RoundSparrow_Commentary : Runaway fiction addiciton in society. Fiction outsells nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mz16t1/any_updates_on_this/nag253m/
+
+steponmedaddies 2025-06-28 (new account)
+
+"Same old same old. Tomorrow there will be another front page thing with thousands of upvotes saying how bad the dems are at messaging not realizing the entire system is owned by right wing billionaires and that most Redditors are fully under the control of right wing propaganda."
+
