@@ -687,3 +687,10 @@ steponmedaddies **2025-06-28 (new account)**
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_election_this_tuesday_in_iowa/naggj7g/
+
+messick 2011-01-12
+
+"Just learning what the "N" in DNC stands for would cut out like 90% of the useless complaining on Reddit."
+
+&nbsp;
