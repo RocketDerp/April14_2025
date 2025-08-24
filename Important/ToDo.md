@@ -854,5 +854,6 @@ https://youtu.be/Vw1a-5-ZM0w?t=344
 
 "Was STUPID of Me to COVER This Band Cuz You KNOW Their SINGER Will BLOCK My VIDEO!-Professor of Rock"    
 Don Henley anti-compassion anti-empathy    
+Kill all the lawyers lyrics, yet music copyright lawyers use this song to prevent sharing.    
 https://youtu.be/W2iP_yS-qdc?t=163
 
