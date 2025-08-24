@@ -182,3 +182,11 @@ It is on EVERYWHERE in the south and midwest. It is just playing, by default, in
 That is the problem. Genuinely, it's just Fox News. They have cut the legs out from under the 4th Estate. They are just the personal PR platform for a political Party that subverts the integrity of journalism and lies and misrepresents information CONSTANTLY in order to keep people that seek out no other source of information thinking that they are the only choice worth voting for, despite the obvious and repeated damage it does to them."
 
 * :::=== RoundSparrow_Commentary : Why hasn't social media stayed *focused and sustained* on this topic? Why isn't there a daily posting on the front page of Reddit and trending hashtags on Twitter / Bluesky promoting [Jen Senko's year 2015 film? Why haven't we made Jen Senko a household name?](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad) A *baby boomer* stood up to Fox News - why are we not using her leadership to rally around? Why can't we on social media repeat and keep repeating: Stand Up For Little Guy? Instead, we flock to The Big Guy crushing The Little Guy... Rupert Murdoch and Trump and Musk media systems. Again, why hasn't social media made Jen Senko a household name? THINK ABOUT IT! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/nae6wrq/
+
+Low-Possibility-7060 2024-06-10
+
+"And as always, numbers say the opposite. Both had incredible records in terms of jobs, economy and wages. Their feelings however are so hurt for reasons they don’t understand."
