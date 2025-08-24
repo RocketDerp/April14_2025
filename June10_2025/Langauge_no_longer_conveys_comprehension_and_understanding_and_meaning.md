@@ -45,3 +45,19 @@ Marshall McLuhan is correct, people driven to Bluesky in 2024, new technology - 
 Why after decades of Twiter / SMS, have we not shifted back towards Wikipedia. Siple Wikipedia to complex, and multiple Wiki Values systems of inclusive (beyond scope of Wikipedia itself). Every Subreddit had a wikipedia, but the streaming recency bias of latest 12 hours defines communities. We abandoned the precursor to Wiki systems, the Internet FAQ on topics.
 
 
+&nbsp;
+
+&nbsp;
+
+## Sunday August 24, 2025 headline Europe 
+
+Language and diplomacy and thinking itself abandoned by humanity    
+Woodstock 1969 forgotten in mass man / mass mind     
+Marshall McLuhan Global Village taken over by Internet shit-talk of Donald Trump social media behaviors and Putin IRA / Musk Twitter / Murdoch global media values. Neil Postman was correct in 1985, Amusing Ourselves to Death mind loophole unpatched by education.    
+As Joseph Campbell and Bill Moyers discussed, "Death for a Metaphor", in summer of 1987 when Campbell was age 83. In modern terms, "death for memes". The Cruisades between religons becomes The Cruisades between meme systems / filter bubbles / subreddits / subscribe and follow audiences.    
+Wasteland without spirit, spirtual values abandoned. Woodstock 1969 was spirtual of We The People of media of recorded music and radio networks for western world that was like a book-printing press revolution - but it became controlled by copyright cartels and language lines / cultural lines did not spread with the move from analog to digital and eventually the Internet. Wikipedia / Wiki style open systems were known to the world educators / public library - but not adopted.   
+
+https://old.reddit.com/r/europe/comments/1mypl9x/mario_draghi_europe_no_longer_has_any_weight_in/
+
+
+https://old.reddit.com/r/europe/comments/1mypl9x/mario_draghi_europe_no_longer_has_any_weight_in/
