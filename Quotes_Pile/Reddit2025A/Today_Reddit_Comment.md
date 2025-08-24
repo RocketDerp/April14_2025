@@ -741,4 +741,12 @@ JustJubliant 2024-10-15
 
 "How much more evidence do we need to understand that Trump/MAGA is the enemy of the State and U.S. Constitution??? Fuckin hell...."
 
-* :::=== RoundSparrow_Commentary : [The more egoism and *strut* the more Putin and Trump win](https://www.youtube.com/watch?v=iEPTlhBmwRg) since November 7 agreement to create the IRA and deploy Cambridge Analytica payloads into minds. ===:::
+* :::=== RoundSparrow_Commentary : [The more egoism and *strut* the more Putin and Trump win](https://www.youtube.com/watch?v=iEPTlhBmwRg) since November 7, 2012 agreement to have Russia create the IRA and deploy Cambridge Analytica payloads into minds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1myg2zb/pentagon_restricts_ukraines_use_of_us_missiles/nac8rke/
+
+pickypawz 2012-04-13
+
+"I am pretty sure the world we lived in has gone and won’t be coming back—that the America that was, is no more. Although I’m Canadian, American can still drag us down with them."
