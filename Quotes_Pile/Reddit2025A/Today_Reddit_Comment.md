@@ -422,3 +422,15 @@ https://old.reddit.com/r/law/comments/1myzac6/my_name_is_captain_dylan_blaha_and
 lr99999 2014-07-03
 
 "They waited a lot of years for the snake-oil candidate. Even if he croaks tomorrow, they now own the  military and all of the weapons.  I can’t do anything about that, but I am shunning every Republican relative, hard-core and ugly. The dumbass people letting themselves get brainwashed is the real cause."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1myzac6/my_name_is_captain_dylan_blaha_and_this_message/nafm0fu/
+
+rotervogel1231 2025-05-12 (new this year)
+
+"But at the same time, who's going to hold them responsible? The U.S. certainly won't. Additionally, this regime will last for decades. The GQP has already set up a line of succession even after F47 is gone. It's unlikely any of us within eyeshot will see the end of GQP rule. Small children today might. *Maybe.*
+
+Therefore, nobody committing war crimes today will ever be held responsible. They'll be long dead before that ever happens.
+
+Given the Current Environment, I don't trust the military anymore than I do cops. The overwhelming majority of current military are GQP loyalists. They're not loyal to the Constitution, and they certainly aren't loyal to civilians. They're loyal to the regime, and they'll do anything the regime commands them to."
