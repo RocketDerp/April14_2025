@@ -652,3 +652,19 @@ https://old.reddit.com/r/news/comments/1myaxps/trump_mobilizing_up_to_1700_natio
 Koalachan 2012-06-12
 
 "He flat out said while campaigning vote for him and we would never need to vote again."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1myg2zb/pentagon_restricts_ukraines_use_of_us_missiles/nabtxi8/
+
+CableBoyJerry 2023-11-19
+
+"I don't understand.
+
+Trump complained about Biden restricting Ukraine's use of weapons.
+
+He literally said that in one of his tweets.
+
+Why is he now doing the same thing?"
+
+* :::=== RoundSparrow_Commentary : Understanding the situation... [Formally announced December 2013, "Conservative International"](https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/) movement. Ukraine war started 2 months later, February 2014, still ongoing in August 2025. ["The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
