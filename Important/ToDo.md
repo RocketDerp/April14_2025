@@ -868,3 +868,8 @@ Dealers of drugs that sell prescriptions to their clients and are users.
 Booze is a drug. Smoking is a drug. Food can be an addiction.   
 Addiction to trash ideas, meme systems, Fox News ficiton - while selling nonficiton in classrooms. Psycology and media ecology not taught to students, lacking in self-awareness by teacher at the Finnegans Wake Level.   
 https://old.reddit.com/r/Adulting/comments/1mytuqc/is_this_actually_true/
+
+&nbsp;
+
+Media addiciton behaviors    
+https://old.reddit.com/r/mildlyinfuriating/comments/1myvwyf/always_baffles_me_there_are_people_just_browsing/
