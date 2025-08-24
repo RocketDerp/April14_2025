@@ -1,3 +1,17 @@
+# Sunday August 24, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1myugjn/in_the_1960s_ethologist_john_calhoun_created_a/naeo3cs/
+
+Bloaf 2008-05-17
+
+"1) Reddit has become a lot more like Facebook in the past few years.  There is a lot more tolerance for low quality info in general.     
+
+2) I think highly-viral info like this has a “frequency” or “seasonality”.  After an outbreak, eventually enough people will forget or move platforms, so the user base will become susceptible again."
+
+&nbsp;
+
 # Saturday August 22, 2025
 
 &nbsp;
