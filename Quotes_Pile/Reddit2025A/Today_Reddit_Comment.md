@@ -526,3 +526,12 @@ I'm not a believer, but I was raised in the catholic church and confirmation at 
 In the wildy unlikely case that they are onto something, I'm betting my heathen afterlife is gonna look a whole lot better than theirs."
 
 * :::=== RoundSparrow_Commentary : We The People need to be making a Wikipedia style system of morality lessons and teaching of morals. Open source / public domain. A World Wide Reformation of teaching and coomprehension of best practices / rituals / values. Stop using social media systems to mock and insult out-groups and start showing people what values we desire to strive towards. Assert Malala's education efforts and reforms. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mz25ee/wa_congressional_candidates_husband_a_military/nagib85/
+
+ennc1979 2018-05-15
+
+"Frankly, it’s to a point where the darkness is so thick & deep, I am struggling to keep up clearly. I have vague recall of this or I am confabulating it now that you mention it or it’s just our now, collective trauma causing my mind to wall it off for my own personal mental health."
+
