@@ -849,3 +849,10 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1my92b1/what_else_could_this_po
 
 So is forgiveness important    
 https://youtu.be/Vw1a-5-ZM0w?t=344
+
+&nbsp;
+
+"Was STUPID of Me to COVER This Band Cuz You KNOW Their SINGER Will BLOCK My VIDEO!-Professor of Rock"    
+Don Henley anti-compassion anti-empathy    
+https://youtu.be/W2iP_yS-qdc?t=163
+
