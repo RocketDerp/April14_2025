@@ -732,3 +732,13 @@ Initial_E 2014-10-16
 "The wavering stance of this guy makes me think he actually wants the war to go on endlessly, because reasons."
 
 * :::=== RoundSparrow_Commentary : As spelled out by Russia more than a decade ago in year 2014: ["The underlying aim, Surkov says, **is not to win the war, but to use the conflict to create a constant state of destabilized perception**, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1myg2zb/pentagon_restricts_ukraines_use_of_us_missiles/nac4avm/
+
+JustJubliant 2024-10-15
+
+"How much more evidence do we need to understand that Trump/MAGA is the enemy of the State and U.S. Constitution??? Fuckin hell...."
+
+* :::=== RoundSparrow_Commentary : [The more egoism and *strut* the more Putin and Trump win](https://www.youtube.com/watch?v=iEPTlhBmwRg) since November 7 agreement to create the IRA and deploy Cambridge Analytica payloads into minds. ===:::
