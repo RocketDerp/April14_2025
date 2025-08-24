@@ -40,3 +40,11 @@ https://old.reddit.com/r/law/comments/1myurbp/national_guard_to_be_mobilized_in_
 oldcreaker 2016-01-17
 
 "Troops being deployed everywhere - ramping up concentration camps. They're staging for a crackdown. I'm guessing we'll be waking up one morning to 10's of thousands of homeless (including the working homeless), and anyone protesting,  being rounded up and sent to the camps. The message will be comply or you'll be sent to the camps as well."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1myurbp/national_guard_to_be_mobilized_in_19_states_by/naer5zc/
+
+kingtacticool 2019-05-12
+
+"We're not coming back from this."
