@@ -207,4 +207,12 @@ Stubborn_Amoeba 2021-04-05
 
 "God, they are so incredibly obtuse it’s almost like satire."
 
-* :::=== RoundSparrow_Commentary :  [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md). Falling for the Tony Clifton performances, unable to describe Russian information warfare and how *extreme obvious lies and deception* are the very means to exploiting the human brain. **"it’s almost like satire"** - denial. It IS SATIRE, that's the mind-fucking technique of Russia. We The People *eat it* and declare it is *almost satire* and don't recognize it is toxic poison memes. It is like eating sacarine and saying *this is sweet like sugar, but something is off* and not bothering to research it! ===:::
+* :::=== RoundSparrow_Commentary :  [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md). Falling for the Tony Clifton performances, unable to describe Russian information warfare and how *extreme obvious lies and deception* are the very means to exploiting the human brain. **"it’s almost like satire"** - denial. It IS SATIRE, that's the mind-fucking technique of Russia. We The People *eat it* and declare it is *almost satire* and don't recognize it is toxic poison memes. It is like eating saccharin and saying *this is sweet like sugar, but something is off* and not bothering to research it! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naecjgg/
+
+VERO2020  2019-07-21
+
+"I'd say both liars & stupid. But they have such a huge bubble of media, all telling them these lies are truth, that when you call them out IRL, their little brains break even more."
