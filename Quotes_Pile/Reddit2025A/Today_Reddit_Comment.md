@@ -504,3 +504,11 @@ DenvahGothMom 2022-11-17
 We should be protesting outside every MAGA church and confronting every white evangelical we know, because these are NOT churches, they are violent fascist indoctrination centers."
 
 * :::=== RoundSparrow_Commentary :  Bible teaching without verses: "1 John 3:17", "1 John 4:20", Romans 11:32, "1 John 4:20", Galltians 3:28, Matthew 6:12 and Luke 11:4. Alas, social media society does not want to front-page / trending hashtag Bible literacy lessons and correct the whole world that "1 John 3:17" confronts Elon Musk / Donald Trump / Rupert Murdoch wealth televagelism networks. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/50501/comments/1mz0xqq/pete_kegsbreath_gets_shamed_his_house_of_worship/nag4vqa/
+
+Possible-Vacation685 **2025-08-17 (new account)**
+
+"They hide behind the language of faith, but everything about these institutions is political power and control. Calling them churches just gives cover to an authoritarian project that has nothing to do with actual spirituality or community."
