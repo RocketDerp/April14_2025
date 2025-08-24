@@ -512,3 +512,17 @@ https://old.reddit.com/r/50501/comments/1mz0xqq/pete_kegsbreath_gets_shamed_his_
 Possible-Vacation685 **2025-08-17 (new account)**
 
 "They hide behind the language of faith, but everything about these institutions is political power and control. Calling them churches just gives cover to an authoritarian project that has nothing to do with actual spirituality or community."
+
+&nbsp;
+
+https://old.reddit.com/r/50501/comments/1mz0xqq/pete_kegsbreath_gets_shamed_his_house_of_worship/nag2nkx/
+
+Faebit 2016-02-25
+
+"My one leading feeling about modern american christianity is that, they better hope they're wrong. They had better hope that the afterlife is nothing but a void. They ignore everything their christ has commanded them to do and then declared their actions having been in christ's name. They are all idolitors, worshiping money, power, and men.
+
+I'm not a believer, but I was raised in the catholic church and confirmation at our parrish required a lot of study. I can count on one hand how many times in my adult life I've heard a christian talk about their beliefs and been like "yeah, they actually follow scripture".
+
+In the wildy unlikely case that they are onto something, I'm betting my heathen afterlife is gonna look a whole lot better than theirs."
+
+* :::=== RoundSparrow_Commentary : We The People need to be making a Wikipedia style system of morality lessons and teaching of morals. Open source / public domain. A World Wide Reformation of teaching and coomprehension of best practices / rituals / values. Stop using social media systems to mock and insult out-groups and start showing people what values we desire to strive towards. Assert Malala's education efforts and reforms. ===:::
