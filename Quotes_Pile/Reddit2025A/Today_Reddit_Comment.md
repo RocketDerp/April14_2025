@@ -258,3 +258,15 @@ The problem is something like Epstein creates an urgent need for it to be consta
 The goal, which will be achieved, is to keep them so angry at liberals they no longer give a shit they voted for a grifting, thieving child molester."
 
 * :::=== RoundSparrow_Commentary : a book published **year 2019** about the trade war, LONG BEFORE "Project 2025". 2019: "What Cambridge Analytica observed was that when respondents were **angry**, their *need for complete and rational explanations was also significantly reduced*. In particular, **anger put people in a frame of mind** in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019** ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1myvuqy/imagine_having_that_kind_of_time/naf7pse/
+
+Scrutinizer 2013-09-06
+
+"It matters because Trump rapes kids.
+
+They know if they can keep their audience angry enough for long enough, they'll eventually be GLAD they voted for a kid-raper, if doing so angers those awful, horrible liberals."
+
+* :::=== RoundSparrow_Commentary : a nation of Tony Clifton onion eaters. Mocking away at Tony Clifton act. We The People so addicted to media that for TEN YEARS people have been mocking aay and insulting Donald J. Trump playing NYC Tony Clifton show. ===:::
