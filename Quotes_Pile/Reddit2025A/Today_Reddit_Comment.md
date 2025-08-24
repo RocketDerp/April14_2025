@@ -722,3 +722,17 @@ we_are_sex_bobomb 2011-05-23
 Indoctrination is itself another form of slavery, it’s a prison for the mind. Absolutely detestable what these people are doing."
 
 * :::=== RoundSparrow_Commentary : “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1myz8t5/this_the_new_pbs_viral_kids_cartoon_teaches/nagxx2f/
+
+Polemic-Personified **2025-07-15 (new account)**
+
+"It's insane. I was involved in republican politics until about 20 years ago while I was still young. Family influence as well as active political campaigns in town. There were people who operated on principles. Granted, the principles they operated on are not ones I agree with, but still, there was coherence and I think they truly believed they were making good choices.
+
+For context, this was in NJ, which had historically had a republican party that was not concerned with social conservatism and even had a fairly normal view of environmental protection for the beginning of the century. Then the obvious happened. Once could see that things started shifting around the beginning of the Bush admin. I had left any engagement with their politics around that time, but by the arrival of Obama, things were already completely broken by the 40 years of the "Southern Strategy," which in no way was limited to the South.
+
+Now, the US has a party built on the types of divides that have started revolutions in the past, except their divisions are fictitious or, in my mind, illegitimate and inhumane. We've set ourself up for a continent-wide Cambodia in the name of Supply-Side Jesus. The Republican party, voters included sadly, isn't a political organization any more. It's a nation wide terrorist organization that is waiting for activation."
+
+* :::=== RoundSparrow_Commentary : Everything changed with Donald Trump and Kremlin agreement November 7, 2012 and the launch of the IRA in Q2 2013. We The People changed: Mindsets changed, thinking changed, attitudes change. Russia bragged about manipulating minds openly in February 2019 before the pandemic: https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793 ===:::
