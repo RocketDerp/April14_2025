@@ -59,3 +59,12 @@ SwishSwishDeath 2012-06-26
 
 You want to kick start the new bloodiest conflict in American history, go spark it yourself. Everyone else seems to be relying on and exhausting all other options before taking an action that can never be taken back."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1myurbp/national_guard_to_be_mobilized_in_19_states_by/naey9ru/
+
+JanelleVypr 2025-04-01 (Apirl fools day, new this year)
+
+"Im real. I say rip off the bandaid. Luigi was the pot beginning to boil over the edge . It will accelerate into the middle east if we dont all pick a time an place to start marching"
+
+* :::=== RoundSparrow_Commentary : Luigi is a gun-worship symbol of December 4, 2024. Gun stroking gun worship USA symbolism. Anti-intelelctual, sneak, liar, manipualtor from a real estate golf course family values. TRUE ripping off the bandaid would be social media addicts facing up to Trump being an addict to Truth Social memes and Fox News HDTV. Media addiction confrontation of a whole nation. ===:::
