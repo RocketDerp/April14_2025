@@ -628,3 +628,11 @@ shanx3 2015-12-31 (NYE)
 "I have never felt physically exhausted from absorbing so much nonstop information until this term.
 
 It’s their goal to flood the zone."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_election_this_tuesday_in_iowa/nagnc4u/
+
+Terrible_Patience935 2025-01-14 (new this year)
+
+"I’ve given up on talking anything real with sibs and friends. It’s so depressing and I’ve never seen one of them give an inch on any of the insanity."
