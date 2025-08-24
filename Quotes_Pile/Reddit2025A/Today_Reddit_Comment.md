@@ -25,6 +25,17 @@ There is no compromise with a monster like Putin."
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1myurbp/national_guard_to_be_mobilized_in_19_states_by/naend5s/
+
+NerdOfTheMonth 2024-01-24
+
+"Cults don’t think."
+
+* :::=== RoundSparrow_Commentary : Extreme twitter-length thinking. This very message illustrates cult behavior of 3 word lenth thinking to complex issues. Cults follow patterns of conditioned thinking, avoidng *free thinking*, further even if people are borrowing thinking from books and Twitter and Reddit and other media - a cult is often followers of only very specific books and not open to the entire public library. We need to be teaching comparative mythology in the face of what many people describe as widespread cults of Fox News media, etc. Somplistic statements like "they are in a cult" does not in any way rescue people or call for cult deprogramming. Why are mental health professions all across the world not using World Wide Web / social media to describe the proble and people on Reddit linking entire article instead of 3-word chanting (in the anti-MAGA media cults)? ===:::
+
+&nbsp;
+
+
 
 # Saturday August 22, 2025
 
