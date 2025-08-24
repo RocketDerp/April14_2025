@@ -346,3 +346,28 @@ https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_n
 4x420 2016-04-05
 
 "The Republican party is in lock step with Russia, even if Trump was gone, they will still continue the same practices. They want isolationism for America so they can become the oligarchic authoritarians in control like Putin in Russia. It will still be the billionaire, project 2025 agenda."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_need_us_permission_to/nafbmub/
+
+SenorPinchy 2014-06-10
+
+"It's amazing the people I'm reading chest thumping about Ukraine. No one seriously thinks Ukraine is going to independently hold the line. Zelensky is in a politically precarious position with US support. If they started losing ground even just 10% faster the government will collapse. Imagining Ukraine won't be hat in hand at the White House any time soon is fantasy."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_need_us_permission_to/naf3ypg/
+
+Anothermindlessanon 2024-07-31
+
+"Honestly, that's the tea. And seeing people actually fighting for their future and even standing up to their leader when he does something they don't like (see Ukrainian protests against the new law for anti corruption control independency which was killed because of the protests), causes MAGA a great deal of a cognitive dissonance, because deep down they know what they should be doing, but are too chicken and racist to do it."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_need_us_permission_to/naftb6f/
+
+Oh__FIddlesticks 2025-06-24 (new account)
+
+"Absolutely him and so many of these types of people. I feel for the innocents in all the countries who are just trying to live their lives with the power hungry, egotistical, narcissistic, (mostly old men) destroying lives all around them and those lives mean absolutely nothing to them."
+
