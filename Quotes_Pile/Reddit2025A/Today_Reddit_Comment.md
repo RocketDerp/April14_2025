@@ -98,3 +98,15 @@ https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_
 jljboucher  2016-12-18
 
 "When I was 8 my mom met this guy who took over everything after we moved in with him. He would have on every tv in the house and every radio and it would be Fox News or some political show where they all yelled at each other and the radio was always right wing bullshit. 1) it was boring and obnoxious, 2) it was annoying, and 3) their arguments never made sense! “This Old House” was a reprieve since I wasn’t allowed to watch cartoons very often."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naeqmf1/
+
+DisMFer 2022-11-03
+
+"Because they don't consider their interests to be what you consider their interests. They're not looking for better healthcare or good educations or futures. They live in places that have long since given up any hope. None of them have any dreams that the future will be brighter or that any policy will materially improve their lives.
+
+All they want is to hurt the people they view as "the problem." They don't care that they're stuck in hell, as long as "the other" gets stuck in a worse hell."
+
+* :::=== RoundSparrow_Commentary : Skywalker Ranch California lessons for Star Wars Audiences published in 1988 book Power of Myth: "Now brotherhood in most of the myths I know of is confined to a bounded community. In bounded communities, aggression is projected outward. For example, the ten commandments say, “Thou shalt not kill.” Then the next chapter says, “Go into Canaan and kill everybody in it.” That is a bounded field. The myths of **participation and love pertain only to the in-group, and the out-group is totally other**. This is the sense of the word “gentile”—the person is not of the same order." - see also "infidel" word. ===:::
