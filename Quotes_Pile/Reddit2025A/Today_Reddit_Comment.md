@@ -434,3 +434,17 @@ rotervogel1231 2025-05-12 (new this year)
 Therefore, nobody committing war crimes today will ever be held responsible. They'll be long dead before that ever happens.
 
 Given the Current Environment, I don't trust the military anymore than I do cops. The overwhelming majority of current military are GQP loyalists. They're not loyal to the Constitution, and they certainly aren't loyal to civilians. They're loyal to the regime, and they'll do anything the regime commands them to."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1myvrrd/trump_is_at_war_with_all_independent_sources_of/
+
+Trump Is At War With All Independent Sources Of Knowledge, From Unbiased Government Statisticians To The Free Press: “Universities are a threat to the MAGA agenda because they produce knowledge that contradicts Donald Trump’s lies.”
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1myvrrd/trump_is_at_war_with_all_independent_sources_of/naf6xwq/
+
+EuenovAyabayya 2025-02-09 (new this year)
+
+"It isn't just Trump. It's MAGA, the Heritage Foundation, and the entire party. If Trump evaporated today, Vance and Johnson would pick right up where he left off, and with even greeter fervor for having succeeded to office."
