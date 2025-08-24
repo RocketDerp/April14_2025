@@ -565,3 +565,56 @@ lakefrontlover 2025-04-13 (new this year)
 
 * :::=== RoundSparrow_Commentary : Adults are not sleeping. People are caressing touch screen devices and react-commenting at the Tony Clifton performance of the White House. Insulting, mocking, messaging *hate harder* for OVER TEN YEARS to Russian information warfare patterns. A society entirely addicted to messages of dehumanization and hate, unwilling to face Kremlin psychological warfare since March 2013. People are compulsively self-harming the USA as directed by the Russian mental manipulation. Faith in hate abounds. Faith in mocking and addiction to total mockery. Fiction addiction, repulsed by nonfiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1myyr6f/marjorie_taylor_greene_issues_scathing_rebuke_of/nag93v5/
+
+thepencilsnapper 2014-04-16
+
+"Yeah I was confused why she was saying this then I remembered she was the one that blamed wildfires on jewish space lasers, so probably antisemitism is the main reason she is going against the israeli regime here. Supporting a free and independent Palestine isn't antisemitic in itself but MTG's motivations probably are."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1myyr6f/marjorie_taylor_greene_issues_scathing_rebuke_of/nagd6q3/
+
+Responsible-Sound253 2025-02-22 (new this year)
+
+"This is the old song and dance of the internet, every time there is a disagreement between two groups, both try super hard to deny that the worst exponent of their side exists.
+
+I've seen so many people twist themselves into a pretzel trying to pretend there isn't antisemitism in the pro palestine movement.
+
+When it would be much easier and effective to say yeah of course a movement in opposition to israel will inevitably attract antisemitic opportunists, there is nothing that can be done to combat this other than disavowing them, but that shouldn't distract you from the fact that the Israeli government is trying to ethnically cleanse Gaza.
+
+It's funny how no matter what it is, from as low and unserious as gamerbros to as serious as people voicing their disdain for ethnic cleansing, everybody makes the same stupid mistake on the internet."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1myyr6f/marjorie_taylor_greene_issues_scathing_rebuke_of/nafwvxk/
+
+TheNerdWonder 2016-02-27
+
+"Because there’s a lot more antisemitism on the Right from far more influential voices atp who uh, tend to support Israel as a shield and because they hate Muslims. That’s why it gets handwaved away. It’s not as prevalent on the pro Palestine side as it is on the side that regularly espouses support for Israel. To say they are remotely the same is giving undeserved credibility to orgs like the ADL who are less concerned with Jewish safety and more concerned with peddling in hasbara, Islamophobic and anti-Palestinian racism. It’s why they never condemn any bigoted antisemitism from Trump, Musk, et al.
+
+Heck, Israel’s own diaspora minister went to a whole conference of far right and antisemitic political parties in Europe about a year ago."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1myyr6f/marjorie_taylor_greene_issues_scathing_rebuke_of/naggpnf/
+
+whilst 2010-10-26
+
+"Movements are scary.
+
+Once you involve everybody, a cause can easily come to be defined by what brought people to the cause, instead of the core idea.
+
+Josh Johnson had a really good bit about this effect in the "Men's Rights" movement, how it had started as fathers united by their struggle to see their children in custody disputes, but because of the name they'd settled on they rapidly attracted angry men who were bitter they weren't getting dates. And then that's what the movement was, because of who it had attracted, and the original core idea was lost in the noise.
+
+When you invite the people on board with your idea, it's so important to be careful how you do it, because your idea *will* be replaced by whatever unifies the crowd it attracts. Which is how "PLEASE let's stop killing people" becomes "YEAH, let's kill DIFFERENT people"."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1myyr6f/marjorie_taylor_greene_issues_scathing_rebuke_of/nafjng1/
+
+BreakableKnight 2019-03-29 (March 25, Jesus inception)
+
+"I find it kinda funny that I’m legitimately considering this is a PSYOP by republicans to make pro Palestine supporters look bad because she is so goddamn stupid. I am pro Palestine, just to be clear."
