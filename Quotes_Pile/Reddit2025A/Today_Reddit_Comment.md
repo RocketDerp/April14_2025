@@ -161,3 +161,8 @@ jasegro 2022-02-17
 
 "Because they’re more than happy to reject reality and substitute it with their own fantasy world"
 
+"The one thing that's stood out to me a lot recently is that there was a whole movement where they kept claiming that Obama was the Anti-Christ. And every accusation is a confession, of course.
+
+I'm not religious, but if ever there were an Anti-Christ, Trump sounds an awful lot like him."
+
+* :::=== RoundSparrow_Commentary : Bible literacy crisis. If people can't interpert the 2,000 year old Bible science fiction storybook, what hope do USA people have interpreting Star Wars 1977 or Reddit messages / Bluesky messages? We are not addressing the Bible literacy crisis. Why aren't the clergy repeating and repeat verse "1 John 3:17" as it applies to Elon Musk, Donald Trump family? Why isn't "1 John 3:17" a household name / known verse since 2015 when Trump started to run for POTUS? Why isn't Matthew 6:5 being repeated and repeating from Christian Clergy all over the world about the Donald Trump $59.99 Bible selling and [famous posing in front of a Church](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church)? If people can't read this 2,000 year old world famous book - what chance do they have with a Donald Trump message on Truth Social in August 2025? Am I repeating myself ennough? ===:::
