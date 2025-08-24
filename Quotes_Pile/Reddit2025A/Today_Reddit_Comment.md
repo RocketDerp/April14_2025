@@ -310,3 +310,16 @@ https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_n
 theclansman22 2009-08-03
 
 "No god damn way they’re relying on US intel after Trump brought multiple Russian ministers to the White House and told them classified intel. That was *eight* years ago yet the dumb fuck American electorate elected that traitorous pedophile again."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_need_us_permission_to/nafgs5x/
+
+DrFeargood 2011-02-10
+
+"Yeah, America's reputation as an intelligence powerhouse has probably been irreparably tarnished. I wouldn't be surprised if Five Eyes ceases to be as reliable as our closest allies are likely unwilling to share at the level they have been before, given the threats made by POTUS specifically against some of those countries, let alone all of the other absolutely insane intelligence breaches perpetrated by administration insiders over the last decade.
+
+Intel not only wins wars, it prevents them. This shortsightedness by the Trump administration will be felt indirectly for decades across the globe."
+
+&nbsp;
+
