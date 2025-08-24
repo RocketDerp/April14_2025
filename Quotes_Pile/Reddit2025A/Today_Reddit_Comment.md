@@ -13,6 +13,19 @@ Bloaf 2008-05-17
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1myu6h9/ukraine_will_never_be_forced_into_compromise_we/nael7qa/
+
+PleaseMayIHaveAnothr 2025-02-20 (new this year)
+
+"It's so sad how the USA has destroyed itself since Biden left office...
+
+I really hope that the EU will keep building it's own defenses, while providing Ukraine the means to defend itself, because, in the end, what other choice do we have?
+
+There is no compromise with a monster like Putin."
+
+&nbsp;
+
+
 # Saturday August 22, 2025
 
 &nbsp;
