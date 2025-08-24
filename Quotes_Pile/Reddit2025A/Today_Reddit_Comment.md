@@ -216,3 +216,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_
 VERO2020  2019-07-21
 
 "I'd say both liars & stupid. But they have such a huge bubble of media, all telling them these lies are truth, that when you call them out IRL, their little brains break even more."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naebmpu/
+
+Par_Lapides 2024-10-10
+
+"This is the benefit of ascribing to a world view not based on reality. Conservatives can just say whatever the hell they want and it becomes their truth. After all, it has exactly as much reasoning as anything else they believe."
+
+* :::=== RoundSparrow_Commentary : You see comments like this declaring the problem, but offering no solutions. They don't want to "Wake" people up to science reality. Too busy mocking and insulting *the out-group* as dumb stupid idiots. Instead of rescuing the United States of America from Russian information warfare, all people want to do is react-comment to the situation on social machines. Russia won, Surkov won, since March 2013. ===:::
