@@ -685,6 +685,30 @@ https://old.reddit.com/r/worldnews/comments/1myg2zb/pentagon_restricts_ukraines_
 
 GuyF1eri 2016-02-01
 
-"He is so fucking inconsistent it's mind boggling'
+"He is so fucking inconsistent it's mind boggling"
 
 * :::=== RoundSparrow_Commentary :  BBC, OVER TEN YEARS AGO, 2014: ["It sums up the strange mood of our time, where nothing really makes any coherent sense. We live with a constant vaudeville of contradictory stories that makes it impossible for any real opposition to emerge, because they can't counter it with any coherent narrative of their own.'](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) - year 2014 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1myg2zb/pentagon_restricts_ukraines_use_of_us_missiles/nac5lc9/
+
+MyBonsaiAccount 2016-06-12
+
+"Unfortunately America is now a vassal state controlled by Russia.
+
+Only took 6 months for Russia to be in full control of the American military witjout having to fire a single bullet.
+
+Absolutely terrifying as a Canadian.
+
+I was dumb enough to think we'd never have to worry anout the US considering our partnership and good will for decades and decades.
+
+For the first time in my life I'm genuinely worried that we Canadians don't have a more secure border against the fascism in America.
+
+For all the Americans that didn't vote out of "principle" for Gaza, you're the cause of this. Gaza is now unprotected and your historically greatest ally wants nothing to do with you.
+
+I hope you understand the damage you did. MAGA is doing damage but you idiots enabled it.
+
+For those that are fighting hard against fascism, I will say us Canadians are still here with love and support.
+
+The rest can eat a bag of dicks"
