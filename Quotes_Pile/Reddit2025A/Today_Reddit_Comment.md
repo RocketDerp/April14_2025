@@ -90,3 +90,11 @@ https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_
 ElectricSliderz 2025-03-15 (new this year)
 
 "It’s right wing media. That 1st person’s viewpoint is what they’ve been fed by that brainwashing machine. They’re convinced of conspiracies about the “great replacement” coming from the outside by the “southern invasion” and from the inside by BLM, DEI and “woke”."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naeqprg/
+
+jljboucher  2016-12-18
+
+"When I was 8 my mom met this guy who took over everything after we moved in with him. He would have on every tv in the house and every radio and it would be Fox News or some political show where they all yelled at each other and the radio was always right wing bullshit. 1) it was boring and obnoxious, 2) it was annoying, and 3) their arguments never made sense! “This Old House” was a reprieve since I wasn’t allowed to watch cartoons very often."
