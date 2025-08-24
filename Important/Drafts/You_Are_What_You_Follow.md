@@ -22,3 +22,20 @@ When everyone starts following and adopting Internet Researh Agency and Cambridg
 
 When everyone ***avoids following*** Malala from Swat Valley Pakistan since October 8, 2013...
 
+&nbsp;
+
+&nbsp;
+
+### Past the places *you used to learn...*
+
+Past the palces you *used to follow and learn from*, the media you consumed.
+
+Lyrics:    
+"Somewhere, there's speaking, it's already coming in...   
+Oh, and it's rising at the back of your mind!    
+You never could get it unless you were fed it..   
+Now you're here and you don't know why...   
+But under skinned knees and the skid marks   
+**Past the places where you used to learn**..."   
+
+https://www.youtube.com/watch?v=Wxx_2q409oY
