@@ -236,3 +236,25 @@ Select-Ask-4622 **2025-07-12 (new account)**
 "I don't understand what was so **fucking painful** about living under Obama and Biden that it spawns this epic revenge quest from Republicans. This flagrant sociopathic disregard for even bothering to hear out what Democrats say. All this sneering and boasting and bullying and gaslighting. What did Democrats do to them to deserve this treatment?"
 
 * :::=== RoundSparrow_Commentary : Egomania vs. scientific rality of the whole Earth is painful. Russian information warfare is painful. Hate is painful, hate is self-harm. Being constantly duped and tricked by Russia and Rupert Murdoch is painful. Constantly being gamed and tricked by billionaires and their media networks. Being tricked and gamed by toxic clergy into thinking The Bible is nonficiton is egoism / painful. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1myvuqy/imagine_having_that_kind_of_time/naevdr2/
+
+Malidan 2022-05-10
+
+"These people always act like their life was actually ruined in some way. Feels exhausting just thinking about living that way."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1myvuqy/imagine_having_that_kind_of_time/naeyut2/
+
+Scrutinizer 2013-09-06
+
+"Their media isn't there to inform them, it's there to regulate them emotionally. They manufacture outrage and anger which is perpetually aimed in the direction of liberals.
+
+The problem is something like Epstein creates an urgent need for it to be constant, so everything gets pumped up even louder than usual.
+
+The goal, which will be achieved, is to keep them so angry at liberals they no longer give a shit they voted for a grifting, thieving child molester."
+
+* :::=== RoundSparrow_Commentary : a book published **year 2019** about the trade war, LONG BEFORE "Project 2025". 2019: "What Cambridge Analytica observed was that when respondents were **angry**, their *need for complete and rational explanations was also significantly reduced*. In particular, **anger put people in a frame of mind** in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019** ===:::
