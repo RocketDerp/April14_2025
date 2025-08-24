@@ -554,3 +554,14 @@ MalcolmLinair 2019-01-12
 No one is safe.
 
 No one."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mz25ee/wa_congressional_candidates_husband_a_military/nag79r0/
+
+lakefrontlover 2025-04-13 (new this year)
+
+"A new american revolution has started and the adults are asleep at the wheel."
+
+* :::=== RoundSparrow_Commentary : Adults are not sleeping. People are caressing touch screen devices and react-commenting at the Tony Clifton performance of the White House. Insulting, mocking, messaging *hate harder* for OVER TEN YEARS to Russian information warfare patterns. A society entirely addicted to messages of dehumanization and hate, unwilling to face Kremlin psychological warfare since March 2013. People are compulsively self-harming the USA as directed by the Russian mental manipulation. Faith in hate abounds. Faith in mocking and addiction to total mockery. Fiction addiction, repulsed by nonfiction. ===:::
+
