@@ -687,7 +687,7 @@ GuyF1eri 2016-02-01
 
 "He is so fucking inconsistent it's mind boggling"
 
-* :::=== RoundSparrow_Commentary :  BBC, OVER TEN YEARS AGO, 2014: ["It sums up the strange mood of our time, where nothing really makes any coherent sense. We live with a constant vaudeville of contradictory stories that makes it impossible for any real opposition to emerge, because they can't counter it with any coherent narrative of their own.'](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) - year 2014 ===:::
+* :::=== RoundSparrow_Commentary :  BBC, OVER TEN YEARS AGO, 2014: ["It sums up the strange mood of our time, where nothing really makes any coherent sense. We live with a constant vaudeville of contradictory stories that makes it impossible for any real opposition to emerge, because they can't counter it with any coherent narrative of their own."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) - year 2014 ===:::
 
 &nbsp;
 
@@ -712,3 +712,14 @@ I hope you understand the damage you did. MAGA is doing damage but you idiots en
 For those that are fighting hard against fascism, I will say us Canadians are still here with love and support.
 
 The rest can eat a bag of dicks"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1myg2zb/pentagon_restricts_ukraines_use_of_us_missiles/naby4cc/
+
+ThreeCatsAndABroom 2025-06-18 (recent account)
+
+"Same reason we shouldn't rely on Elmo Musk to provide our internet."
+
+* :::=== RoundSparrow_Commentary : [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md) - Starlink ISP. ===:::
+
