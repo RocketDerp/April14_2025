@@ -644,3 +644,11 @@ https://old.reddit.com/r/news/comments/1myaxps/trump_mobilizing_up_to_1700_natio
 weezyverse 2019-07-08
 
 "We're finding out "law" is relative. It exists when it needs to, and doesn't when it's inconvenient."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1myaxps/trump_mobilizing_up_to_1700_national_guard_troops/nab52v0/
+
+Koalachan 2012-06-12
+
+"He flat out said while campaigning vote for him and we would never need to vote again."
