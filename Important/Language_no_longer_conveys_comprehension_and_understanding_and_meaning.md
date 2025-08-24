@@ -66,3 +66,41 @@ Wasteland without spirit, spirtual values abandoned. Woodstock 1969 was spirtual
 
 https://old.reddit.com/r/europe/comments/1mypl9x/mario_draghi_europe_no_longer_has_any_weight_in/
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+##### Unedited dump A   
+
+The world of human affairs does not work without love and compassion. Hate thy enemy, hate thy neighbor makes for a shit social media society that makes Donald Trump on Twitter / Truth Social /  Fox News a role model for children and leadership. 
+
+For the record: Karl Marx in Germany in 1848 did not invent what is clearly stated in the Levant Bible 2,000 years ago in verse "1 John 3:17"
+
+If people are attracted to Putin and Trump and the messages of the Internet Research Agency since year 2013 - if that is the signal people follow, that is the world we created. 
+
+All the 1960's music revolutions of abandoning classic religion, complete religion deconstructions in the spirit of James Joyce's Star Wars Force Day 1939 publication of Finnegans Wake and 1969 The Who Tommy album... have been thrown into wealth-collecting music cartels / copyright cartels. 
+
+#### Unedited dump B 
+
+The world of human affairs does not work without love and compassion. Hate thy enemy, hate thy neighbor makes for a shit social media society that makes Donald Trump on Twitter / Truth Social /  Fox News a role model for children and leadership. 
+
+For the record: Karl Marx in Germany in 1848 did not invent what is clearly stated in the Levant Bible 2,000 years ago in verse "1 John 3:17"
+
+If people are attracted to Putin and Trump and the messages of the Internet Research Agency since year 2013 - if that is the signal people follow, that is the world we created. 
+
+Social media society had a choice starting in October 2013 with the public rise of Malala Yousafzai and her ideas of changing the world.
+
+*  **“If one man can destroy everything, why can't one girl change it?”** ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. 
+
+Malala Yousafzai did a book tour in October 2013, she was covered in the global press. And social media society didn't bother retweeting her and making her words a sustained topic of assertion.
+
+One month later, November 9, 2013. Miss Universe 2013 was the 62nd Miss Universe pageant, held at the Crocus City Hall in Krasnogorsk, Moscow, Russia, on 9 November 2013. Hosted by status symbol Donald J. Trump.
+
+October 8, 2013 Malala's book on liberation of women globally.       
+November 9, 2013 Putin and Trump's Moscow sex show of women globally.   
+
+We The People of the social meme societies, the audience, spoke every day since October 8, 2013 in our avoidance. The free time and spare time spent  in service to the discussing Donald J. Trump poop diapers, orange skin, golf course outings and private jet sex trips could have been spare social media time name-dropping and retweeting Malala's ideas.
