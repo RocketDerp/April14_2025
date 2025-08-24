@@ -659,3 +659,10 @@ neegis666 2025-01-07 (new this year)
 
 I know nobody who "refused to vote for Kamala" because she was too conservative."
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_election_this_tuesday_in_iowa/nagbnyr/
+
+famous__shoes 2019-02-20
+
+"New hobby: find every single random local election I can, then make a post on Reddit about how much the DNC sucks for not rallying the national Democratic party to support it. I'll be drowning in karma"
