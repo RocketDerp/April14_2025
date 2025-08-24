@@ -338,3 +338,11 @@ https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_n
 Oil_slick941611 2015-12-25 (Christmas day)
 
 "for intents and purposes though.Trump is the USA right now. he represents the USA. My comfort in the ability of the US population to stop anything is completely gone after the activations of the National guard on american streets. Your will, or opinion mean nothing to the outside while the Jackboot of the American GI is controlled by Trump and merry band of fascists."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_need_us_permission_to/nafhcsw/
+
+4x420 2016-04-05
+
+"The Republican party is in lock step with Russia, even if Trump was gone, they will still continue the same practices. They want isolationism for America so they can become the oligarchic authoritarians in control like Putin in Russia. It will still be the billionaire, project 2025 agenda."
