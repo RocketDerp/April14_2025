@@ -66,5 +66,3 @@ Wasteland without spirit, spirtual values abandoned. Woodstock 1969 was spirtual
 
 https://old.reddit.com/r/europe/comments/1mypl9x/mario_draghi_europe_no_longer_has_any_weight_in/
 
-
-https://old.reddit.com/r/europe/comments/1mypl9x/mario_draghi_europe_no_longer_has_any_weight_in/
