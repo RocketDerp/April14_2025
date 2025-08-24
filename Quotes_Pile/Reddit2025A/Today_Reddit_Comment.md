@@ -788,3 +788,12 @@ Choice_Volume_2903 2024-06-07
 "It's not intelligence, it's poor education (particularly civic education) and the loss of social cohesion. The average American fundamentally doesn't understand or appreciate democracy."
 
 * :::=== RoundSparrow_Commentary : Since March 2013, Russia has been attacking people using the most sophisticated information warfare divsed by humanity. Denial abounds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mz5a8g/exactly_true/nahhmzl/
+
+ImAVillianUnforgiven 2024-07-09
+
+"Not only that, the people don't want to be told what's good for them. Wear a mask during a worldwide pandemic? Don't tell me what to do! Respect others' individuality? I'm not being a bully, I'm just expressing my own! Immigrants just want a better life. They're stealing MY jobs (the jobs I won't do), MY healthcare (the overpriced, privatized, capitalized kind that puts you in life-long debt), and MY social security (that immigrants can only collect after they've paid into it like everyone else)!"
+
