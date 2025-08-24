@@ -110,3 +110,17 @@ DisMFer 2022-11-03
 All they want is to hurt the people they view as "the problem." They don't care that they're stuck in hell, as long as "the other" gets stuck in a worse hell."
 
 * :::=== RoundSparrow_Commentary : Skywalker Ranch California lessons for Star Wars Audiences published in 1988 book Power of Myth: "Now brotherhood in most of the myths I know of is confined to a bounded community. In bounded communities, aggression is projected outward. For example, the ten commandments say, “Thou shalt not kill.” Then the next chapter says, “Go into Canaan and kill everybody in it.” That is a bounded field. The myths of **participation and love pertain only to the in-group, and the out-group is totally other**. This is the sense of the word “gentile”—the person is not of the same order." - see also "infidel" word. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naeha19/
+
+MjrLeeStoned 2017-12-05
+
+"Reduce it down even further than that.
+
+They worship a diaper-wearing, industrial-spanx armored, shoe lift needing, face painted 80 year old spoiled brat bitch baby of two of the nastiest cousin kissing degenerate gamblers who injected the plight of their lessers directly into their veins.
+
+Being a billionaire is nothing. They're not special anymore. Which means they like everything else. The moment they open their mouths to try to justify liking an orange, greasy, 80 year old spoiled brat white child, they're lying. They like having a dirty idiot grandpa tell them what to do. It's their kink."
+
+* :::=== RoundSparrow_Commentary : Texan Rick Roderick: ["It seems to me that young Douglas is going to go to his mum and dad, and they’ll talk to him about it and explain how it fits and so on, and then will come that shattering night when you are about sixteen, and you find out mum and dad are afraid to die too… or maybe fourteen. And on a Freudian account, **it’s not accidental that that’s the time you reach out for large and invisible fathers to protect you**… and mothers. And you know what, that’s elegant suspicion. It is not an argument; it’s an elegant suspicion. In fact when you look at the iconic significance of churches, you know the Father, the Son, the Holy Ghost, the family values stuff, you know… I mean, I hate to sound cynical, but as Freud says, they whole thing is so patently infantile. So obviously infantile, that **to anyone with the love of humanity it’s just sad to think that most people will never rise above this view of life**. Well, when you have had a snotty German talk to you that way, you begin to suspect that he may be right, and this is one of the masters of suspicion."](https://rickroderick.org/301-paul-ricoeur-the-masters-of-suspicion-1993/) ===:::
