@@ -678,3 +678,13 @@ KinkyPaddling 2023-12-04
 "This is exactly the problem. We can point fingers at Democrats not fighting hard enough, or single issue voters staying home, or the media not pointing out all of his lies. All of this can be true. But the root issue is that over 70 million Americans endured the shit show of 2016-2020, listened to his stuffed-nose voice lie incessantly for 10 years, and watched (and continue to watch) as he acts as an autocrat, and they **still think that it’s great**. Trump supporters are the core of the problem. It’s not an issue of politics or policy - it’s one of culture."
 
 * :::=== RoundSparrow_Commentary : It is a cultural problen of fiction addiciton. Trump and Putin provide fiction storytelling. Constant simulating entertainment. Americans have not faced up to the Russian information warfare since March 2013. People are willing to die for *line delivery*, the way Fox News / RT Kremlin / Donald Trump / Joe Rogan *present media*. Fiction media. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1myg2zb/pentagon_restricts_ukraines_use_of_us_missiles/nabvy24/
+
+GuyF1eri 2016-02-01
+
+"He is so fucking inconsistent it's mind boggling'
+
+* :::=== RoundSparrow_Commentary :  BBC, OVER TEN YEARS AGO, 2014: ["It sums up the strange mood of our time, where nothing really makes any coherent sense. We live with a constant vaudeville of contradictory stories that makes it impossible for any real opposition to emerge, because they can't counter it with any coherent narrative of their own.'](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) - year 2014 ===:::
