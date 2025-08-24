@@ -226,3 +226,13 @@ Par_Lapides 2024-10-10
 "This is the benefit of ascribing to a world view not based on reality. Conservatives can just say whatever the hell they want and it becomes their truth. After all, it has exactly as much reasoning as anything else they believe."
 
 * :::=== RoundSparrow_Commentary : You see comments like this declaring the problem, but offering no solutions. They don't want to "Wake" people up to science reality. Too busy mocking and insulting *the out-group* as dumb stupid idiots. Instead of rescuing the United States of America from Russian information warfare, all people want to do is react-comment to the situation on social machines. Russia won, Surkov won, since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naet2bd/
+
+Select-Ask-4622 **2025-07-12 (new account)**
+
+"I don't understand what was so **fucking painful** about living under Obama and Biden that it spawns this epic revenge quest from Republicans. This flagrant sociopathic disregard for even bothering to hear out what Democrats say. All this sneering and boasting and bullying and gaslighting. What did Democrats do to them to deserve this treatment?"
+
+* :::=== RoundSparrow_Commentary : Egomania vs. scientific rality of the whole Earth is painful. Russian information warfare is painful. Hate is painful, hate is self-harm. Being constantly duped and tricked by Russia and Rupert Murdoch is painful. Constantly being gamed and tricked by billionaires and their media networks. Being tricked and gamed by toxic clergy into thinking The Bible is nonficiton is egoism / painful. ===:::
