@@ -2,6 +2,13 @@ James Joyce is a great author at drawing circles around this crisis of metaphor 
 
 "The Fiction NonFictiono Equation" of Joseph Campbell    
 
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor     
+* CAMPBELL: Well, you find an awful lot of laws in the Old Testament.
+  MOYERS: But that’s the transformation of religion to theology. Religion begins with the sense of wonder and awe and the attempt to tell stories that will connect us to God. Then it becomes a set of theological works in which everything is reduced to a code, to a creed.
+  CAMPBELL: That’s the reduction of mythology to theology. Mythology is very fluid. Most of the myths are self-contradictory. You may even find four or five myths in a given culture, all giving different versions of the same mystery. Then theology comes along and says it has got to be just this way. Mythology is poetry, and the poetic language is very flexible. Religion turns poetry into prose. God is literally up there, and this is literally what he thinks, and this is the way you’ve got to behave to get into proper relationship with that god up there.  - Joseph Campbell, Power of Myth
+
+&nbsp;
+
 Language no longer conveys meaning.   
 Language no longer conveys understanding.    
 Language no longer conveys comprehension.   
