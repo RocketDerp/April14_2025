@@ -666,3 +666,15 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_elect
 famous__shoes 2019-02-20
 
 "New hobby: find every single random local election I can, then make a post on Reddit about how much the DNC sucks for not rallying the national Democratic party to support it. I'll be drowning in karma"
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_election_this_tuesday_in_iowa/nagb74c/
+
+Calvin_Ball_86 2024-11-30
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_election_this_tuesday_in_iowa/nagb74c/
+
+"People attacking the dnc are trumpers, plain and simple. I'm not sure why folks still think anonymous accounts that only attack democrats are progressive."
+
+* :::=== RoundSparrow_Commentary : thought-terminating phrase, "plain and simple" twitter-length thinking, as if the Russian information warfare has gone away on Reddit in August 2025. And China and Iran and other hostile nations haven't see the huge success of Putin's social media manipulation since March 2013 and haven't adopted the techniques. ===:::
