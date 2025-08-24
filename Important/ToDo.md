@@ -890,3 +890,8 @@ https://old.reddit.com/r/TikTokCringe/comments/1mz0dxq/sidewalk_etiquette/
 
 Putin vs. NATO and Trump    
 https://old.reddit.com/r/europe/comments/1mywtyd/when_puppetry_replaces_policy_war_replaces_peace/
+
+&nbsp;
+
+pizzacake     
+https://old.reddit.com/r/comics/comments/1myzjee/_/
