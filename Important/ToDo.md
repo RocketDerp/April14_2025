@@ -857,3 +857,7 @@ Don Henley anti-compassion anti-empathy
 Kill all the lawyers lyrics, yet music copyright lawyers use this song to prevent sharing.    
 https://youtu.be/W2iP_yS-qdc?t=163
 
+&nbsp;
+
+Concealed camera allows male gaze in public to be noted    
+https://old.reddit.com/r/TikTokCringe/comments/1myi7w0/pov_youre_a_woman_in_a_public_place/
