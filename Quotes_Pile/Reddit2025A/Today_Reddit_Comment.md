@@ -270,3 +270,25 @@ Scrutinizer 2013-09-06
 They know if they can keep their audience angry enough for long enough, they'll eventually be GLAD they voted for a kid-raper, if doing so angers those awful, horrible liberals."
 
 * :::=== RoundSparrow_Commentary : a nation of Tony Clifton onion eaters. Mocking away at Tony Clifton act. We The People so addicted to media that for TEN YEARS people have been mocking aay and insulting Donald J. Trump playing NYC Tony Clifton show. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1myvuqy/imagine_having_that_kind_of_time/naf9rvx/
+
+elbenji 2011-12-19
+
+<img width="1132" height="1578" alt="image" src="https://github.com/user-attachments/assets/be363d8f-bc57-44ec-bf7b-51469d409b63" />
+
+&nbsp;
+
+"Oh I got that part. But like, where do you logic that to cracker barrel? Like is this a skit? Are we punk'd. It's literally a generic corpo logo. Wouldn't everyone be mad about it getting Toys R' Us'd instead? It's not making anyone happy"
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1myvuqy/imagine_having_that_kind_of_time/nafgnvc/
+
+elbenji 2011-12-19
+
+"Because it lets you understand what the next bullshit is"
