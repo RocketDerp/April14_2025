@@ -152,3 +152,12 @@ https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_
 GallwayGirl 2021-07-03
 
 "I heard more people say the most disgusting things about Obama and his family, especially Michelle …. they couldn’t shut up about them. It was gross"
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naefng1/
+
+jasegro 2022-02-17
+
+"Because they’re more than happy to reject reality and substitute it with their own fantasy world"
+
