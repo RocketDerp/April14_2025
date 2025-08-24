@@ -323,3 +323,10 @@ Intel not only wins wars, it prevents them. This shortsightedness by the Trump a
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1mywqbq/zelenskyy_ukraine_does_not_need_us_permission_to/nafgoqg/
+
+amanwithoutaname001 2024-02-16
+
+"You're right and it's so incredibly embarrassing that we've elected a man so blatantly beholden to a mass murdering trafficker of children in Putin.
+
+There was a time in a truly great America where we would stand up to such bullying but now we have a corrupt bully-in-chief rolling out the red carpet for a global pariah while terrorizing American cities with his own personal gestapo."
