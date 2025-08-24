@@ -495,3 +495,12 @@ QueenInYellowLace 2021-10-18
 
 &nbsp;
 
+https://old.reddit.com/r/50501/comments/1mz0xqq/pete_kegsbreath_gets_shamed_his_house_of_worship/nafxzgh/
+
+DenvahGothMom 2022-11-17
+
+"His so-called "house of worship" is run by a pedophile cult leader who wants to take away women's right to vote and divorce abusers and run the entire country and world. Google Doug Wilson.
+
+We should be protesting outside every MAGA church and confronting every white evangelical we know, because these are NOT churches, they are violent fascist indoctrination centers."
+
+* :::=== RoundSparrow_Commentary :  Bible teaching without verses: "1 John 3:17", "1 John 4:20", Romans 11:32, "1 John 4:20", Galltians 3:28, Matthew 6:12 and Luke 11:4. Alas, social media society does not want to front-page / trending hashtag Bible literacy lessons and correct the whole world that "1 John 3:17" confronts Elon Musk / Donald Trump / Rupert Murdoch wealth televagelism networks. ===:::
