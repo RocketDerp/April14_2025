@@ -198,3 +198,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_
 funsl1ng3r 2018-05-11
 
 "The brainwashing done by far right media is almost impossible to fix. It's sad and maddening."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/nae6s7e/
+
+Stubborn_Amoeba 2021-04-05
+
+"God, they are so incredibly obtuse it’s almost like satire."
+
+* :::=== RoundSparrow_Commentary :  [Ate the Surkovian onions. Simplistic Twitter-length reaction commenting](Surkovian_Onion_Eating.md). Falling for the Tony Clifton performances, unable to describe Russian information warfare and how *extreme obvious lies and deception* are the very means to exploiting the human brain. **"it’s almost like satire"** - denial. It IS SATIRE, that's the mind-fucking technique of Russia. We The People *eat it* and declare it is *almost satire* and don't recognize it is toxic poison memes. It is like eating sacarine and saying *this is sweet like sugar, but something is off* and not bothering to research it! ===:::
