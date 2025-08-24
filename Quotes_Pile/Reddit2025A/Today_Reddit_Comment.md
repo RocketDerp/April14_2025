@@ -448,3 +448,11 @@ https://old.reddit.com/r/NoShitSherlock/comments/1myvrrd/trump_is_at_war_with_al
 EuenovAyabayya 2025-02-09 (new this year)
 
 "It isn't just Trump. It's MAGA, the Heritage Foundation, and the entire party. If Trump evaporated today, Vance and Johnson would pick right up where he left off, and with even greeter fervor for having succeeded to office."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1myvrrd/trump_is_at_war_with_all_independent_sources_of/nafxt8y/
+
+exbaddeathgod 2012-03-29
+
+"Let's be clear. If people paid attention to the humanities, we wouldn't have elected Trump..."
