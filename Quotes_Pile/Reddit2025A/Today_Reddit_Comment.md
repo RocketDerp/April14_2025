@@ -371,3 +371,30 @@ Oh__FIddlesticks 2025-06-24 (new account)
 
 "Absolutely him and so many of these types of people. I feel for the innocents in all the countries who are just trying to live their lives with the power hungry, egotistical, narcissistic, (mostly old men) destroying lives all around them and those lives mean absolutely nothing to them."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1myww2l/trump_desperately_hides_hand_on_camera_after/naf6vex/
+
+MadRaymer 2012-08-20
+
+"So while Trump is obviously ignorant of a great many things, one thing he's pretty tuned into is the perceptions of his base. He has an almost unique insight into what they want to see and hear and like a weathervane is able to align himself in that direction. He also quickly corrects when the wind changes - remember how he got booed for taking credit for the vaccine? He never tried that again.
+
+I'm saying all this to point out: for his base, sounding like a crazy person isn't a dealbreaker. It's actually part of his appeal. When they turn on the TV and hear a loud ignorant man ranting and raving about stuff he doesn't understand, they point at the TV and shout, "He's just like me!"
+
+This is why he was so quick to stage that photo op on his assassination attempt. We can debate whether he was really struck by a bullet or just debris, but it doesn't matter because his base cares more about appearances than reality, and Trump understands that. It's why they voted for a TV star that played a successful businessman, not an actual successful businessman. So looking tough is more important than being tough.
+
+If you're still with me after all this, I promise I'm getting to my point now. The reason Trump is so quick to cover his hand or any sign of infirmity is that he knows his base will follow him across almost any bridge... *except* if he starts looking weak. MAGA cannot abide weakness. As soon as he has a serious issue in public that he can't cover up, the spell will break on a lot of them. Not all of them of course, but a lot of them won't tolerate a weak Trump. They truly believe he's this strong virile male specimen. Hell, I suspect some of them even think he's actually hiding Rambo-era Stallone's body under those ill-fitting suits."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1myww2l/trump_desperately_hides_hand_on_camera_after/nafdhaw/
+
+SavageJeph 2008-05-27
+
+"That's always been an interesting part of fascism to me, how much illusion is required to get it off the ground.
+
+Like some hideous goose stepping bumblebee.
+
+They do not mind seeing the emperors naked body under his magic invisible clothes because he has special magic clothes - he has something special or unique and that means he's allowed.
+
+But once they know he's not special, he isn't wearing magic clothes, that he's going to pass away just like grandpa, then he becomes just another overweight old man in America."
