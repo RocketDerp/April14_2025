@@ -292,3 +292,13 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1myvuqy/imagine_having_that
 elbenji 2011-12-19
 
 "Because it lets you understand what the next bullshit is"
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1myvuqy/imagine_having_that_kind_of_time/naez2sg/
+
+dalgeek 2011-01-19
+
+"Conservatives need something new to be angry about all the time. The logo was changed purely as a business decision by a private equity firm. It wasn't done to remove some perceived racist or cultural issue, but conservatives will claim it was due to woke cancel culture just so they have something to be angry about. It must be exhausting to be angry about everything all the time."
+
+* :::=== RoundSparrow_Commentary : logo addiction, symbol addiciton, media addiciton, meme-think, branding-thinking has ruined the USA. Gumbo soup of brand / logo / memes / symbols / icons beinb blended by Trump and Putin since the November 7, 2012 IRA agreement. ===:::
