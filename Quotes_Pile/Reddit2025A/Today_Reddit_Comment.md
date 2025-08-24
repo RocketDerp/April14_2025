@@ -704,3 +704,9 @@ acepiloto 2008-11-05
 * :::=== RoundSparrow_Commentary :  I assert that the Kremlin war against Reality was described back in **Steptember 9, 2014** (the first year of the Ukraine hot war). [Russia and the **Menace of Unreality**. How Vladimir Putin is revolutionizing information warfare. By Peter Pomerantsev](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). Peter Pomerantsev titled the second book in his series "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries"...  ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1myz8t5/this_the_new_pbs_viral_kids_cartoon_teaches/nag0tm4/
+
+Prior_Coyote_4376 2023-10-17
+
+"Media literacy doesn’t align with the agenda of media manipulators"
