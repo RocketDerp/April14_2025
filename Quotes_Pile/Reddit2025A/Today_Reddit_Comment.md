@@ -190,3 +190,11 @@ https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_
 Low-Possibility-7060 2024-06-10
 
 "And as always, numbers say the opposite. Both had incredible records in terms of jobs, economy and wages. Their feelings however are so hurt for reasons they don’t understand."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/nae7mc2/
+
+funsl1ng3r 2018-05-11
+
+"The brainwashing done by far right media is almost impossible to fix. It's sad and maddening."
