@@ -68,3 +68,17 @@ JanelleVypr 2025-04-01 (Apirl fools day, new this year)
 "Im real. I say rip off the bandaid. Luigi was the pot beginning to boil over the edge . It will accelerate into the middle east if we dont all pick a time an place to start marching"
 
 * :::=== RoundSparrow_Commentary : Luigi is a gun-worship symbol of December 4, 2024. Gun stroking gun worship USA symbolism. Anti-intelelctual, sneak, liar, manipualtor from a real estate golf course family values. TRUE ripping off the bandaid would be social media addicts facing up to Trump being an addict to Truth Social memes and Fox News HDTV. Media addiction confrontation of a whole nation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/nae50n5/
+
+Casual_hex_ 2020-12-24 (Christmas Eve)
+
+"Blue collar stiffs, worshipping a billionaire whose sole policy is to enrich the 1% and screw over the working class. And they elected him twice.
+
+Maga doesn’t even have basic pattern recognition skills, let alone critical thinking skills."
+
+* :::=== RoundSparrow_Commentary : MAGA party within the USA, the MAGA social movement of year 2013 onward is the product of the Russian Internet Research Agency / Donald Trump / Cambridge Analytica all working together since November 7, 2012 agreement by Trump with Kremlin.
+https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ "как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года."
+The IRA started ramping up in March 2013 with Cambridge Analytica and Kremlin Surkov students home-grown mind-fucking anti-reality information warfare payloads. ===:::
