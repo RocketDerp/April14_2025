@@ -134,3 +134,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_
 "They aren't goggles, that's just their face. I'm slowly becoming convinced that most day to day conservatives are too ignorant to even understand why they do what they do, and they don't want to learn.
 
 I'm not saying this from a position of superiority either, I'm also a moron. It's just depressing."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/nae5v0r/
+
+VOevolution 2018-05-23
+
+"They can't even remember the pandemic started during the Trump administration, as did the lockdowns."
+
+* :::=== RoundSparrow_Commentary : Recency bias abounds. All sense of perspective before year 2013 is lost. Many people in August 2025 are behaving as if this is Donald Trump's first term in office. We The People also seem to have lost sense that Trump was voted out of office for four years and addressing the Cambridge Analytica aftermath and media addiciton (descrbed by Neil Postman in his 1985 book "Amusing Ourselves To Death") hasn't taken over society thinking and behaviors. ===:::
