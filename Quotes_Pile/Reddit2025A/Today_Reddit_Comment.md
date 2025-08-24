@@ -124,3 +124,13 @@ They worship a diaper-wearing, industrial-spanx armored, shoe lift needing, face
 Being a billionaire is nothing. They're not special anymore. Which means they like everything else. The moment they open their mouths to try to justify liking an orange, greasy, 80 year old spoiled brat white child, they're lying. They like having a dirty idiot grandpa tell them what to do. It's their kink."
 
 * :::=== RoundSparrow_Commentary : Texan Rick Roderick: ["It seems to me that young Douglas is going to go to his mum and dad, and they’ll talk to him about it and explain how it fits and so on, and then will come that shattering night when you are about sixteen, and you find out mum and dad are afraid to die too… or maybe fourteen. And on a Freudian account, **it’s not accidental that that’s the time you reach out for large and invisible fathers to protect you**… and mothers. And you know what, that’s elegant suspicion. It is not an argument; it’s an elegant suspicion. In fact when you look at the iconic significance of churches, you know the Father, the Son, the Holy Ghost, the family values stuff, you know… I mean, I hate to sound cynical, but as Freud says, they whole thing is so patently infantile. So obviously infantile, that **to anyone with the love of humanity it’s just sad to think that most people will never rise above this view of life**. Well, when you have had a snotty German talk to you that way, you begin to suspect that he may be right, and this is one of the masters of suspicion."](https://rickroderick.org/301-paul-ricoeur-the-masters-of-suspicion-1993/) ===:::
+
+&nbsp;
+
+I_TRY_TO_BE_POSITIVE 2015-05-24
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naetyur/
+
+"They aren't goggles, that's just their face. I'm slowly becoming convinced that most day to day conservatives are too ignorant to even understand why they do what they do, and they don't want to learn.
+
+I'm not saying this from a position of superiority either, I'm also a moron. It's just depressing."
