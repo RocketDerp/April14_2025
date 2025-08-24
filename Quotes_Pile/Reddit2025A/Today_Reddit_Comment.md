@@ -618,3 +618,13 @@ https://old.reddit.com/r/nottheonion/comments/1myyr6f/marjorie_taylor_greene_iss
 BreakableKnight 2019-03-29 (March 25, Jesus inception)
 
 "I find it kinda funny that I’m legitimately considering this is a PSYOP by republicans to make pro Palestine supporters look bad because she is so goddamn stupid. I am pro Palestine, just to be clear."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_election_this_tuesday_in_iowa/nagf2x1/
+
+shanx3 2015-12-31 (NYE)
+
+"I have never felt physically exhausted from absorbing so much nonstop information until this term.
+
+It’s their goal to flood the zone."
