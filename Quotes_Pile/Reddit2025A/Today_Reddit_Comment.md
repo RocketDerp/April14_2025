@@ -778,3 +778,13 @@ TimeToBond 2017-12-20
 "Keep it up DEMs. Troll him nonstop. Plus Americans don’t care about issues anymore. They like reality TV show-style drama."
 
 * :::=== RoundSparrow_Commentary : Media addicts want more Tony Clifton show. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mz5a8g/exactly_true/nah533a/
+
+Choice_Volume_2903 2024-06-07
+
+"It's not intelligence, it's poor education (particularly civic education) and the loss of social cohesion. The average American fundamentally doesn't understand or appreciate democracy."
+
+* :::=== RoundSparrow_Commentary : Since March 2013, Russia has been attacking people using the most sophisticated information warfare divsed by humanity. Denial abounds. ===:::
