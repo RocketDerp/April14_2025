@@ -875,3 +875,8 @@ Media addiciton behaviors
 Treating *popularity* as a warning sign and symptom of addiction     
 Neil Postman Technopoly 1992 themes     
 https://old.reddit.com/r/mildlyinfuriating/comments/1myvwyf/always_baffles_me_there_are_people_just_browsing/
+
+&nbsp;
+
+Year 1908 writing of "HP"    
+https://old.reddit.com/r/CuratedTumblr/comments/1mz0wxi/hp/
