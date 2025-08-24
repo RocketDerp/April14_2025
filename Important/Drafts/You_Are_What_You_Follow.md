@@ -28,7 +28,7 @@ When everyone ***avoids following*** Malala from Swat Valley Pakistan since Octo
 
 ### Past the places *you used to learn...*
 
-Past the palces you *used to follow and learn from*, the media you consumed.
+Past the places you *used to follow and learn from*, the media you consumed.
 
 Lyrics:    
 "Somewhere, there's speaking, it's already coming in...   
