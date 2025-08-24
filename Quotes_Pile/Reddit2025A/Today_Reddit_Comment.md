@@ -647,4 +647,15 @@ Important-Ability-56 2020-08-16
 
 How did Joe Biden support or benefit from the “oligarchy”? History actually happened. It’s not just a series of vibes."
 
-* :::=== RoundSparrow_Commentary : I'll keep repeating: Democracy (anyway on Earth) does not work if people do not love one another or have compassion for strangers. You strip *goodness itself* from society [in machine love / machine lust - and you wreck society](https://www.youtube.com/watch?v=J7GY1Xg6X20). It is not in The Constitution to *love one another*, but society does not function when *hate harder* is adopted from Russian information warfare since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : I'll keep repeating: Democracy (anywhere on Earth) does not work if people do not love one another or have compassion for strangers. You strip *goodness itself* from society [in machine love / machine lust - and you wreck society](https://www.youtube.com/watch?v=J7GY1Xg6X20). It is not in The Constitution to *love one another*, but society does not function when *hate harder* is adopted from Russian information warfare since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_election_this_tuesday_in_iowa/nagcaeg/
+
+neegis666 2025-01-07 (new this year)
+
+"if you know of such people talk to them.
+
+I know nobody who "refused to vote for Kamala" because she was too conservative."
+
