@@ -723,3 +723,12 @@ ThreeCatsAndABroom 2025-06-18 (recent account)
 
 * :::=== RoundSparrow_Commentary : [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md) - Starlink ISP. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1myg2zb/pentagon_restricts_ukraines_use_of_us_missiles/nabwvwk/
+
+Initial_E 2014-10-16
+
+"The wavering stance of this guy makes me think he actually wants the war to go on endlessly, because reasons."
+
+* :::=== RoundSparrow_Commentary : As spelled out by Russia more than a decade ago in year 2014: ["The underlying aim, Surkov says, **is not to win the war, but to use the conflict to create a constant state of destabilized perception**, in order to manage and control."](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) ===:::
