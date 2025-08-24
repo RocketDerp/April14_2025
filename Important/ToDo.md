@@ -880,3 +880,8 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1myvwyf/always_baffles_me_th
 
 Year 1908 writing of "HP"    
 https://old.reddit.com/r/CuratedTumblr/comments/1mz0wxi/hp/
+
+&nbsp;
+
+Media ecology of the medium of sidewalk / pavers / shared roads and paths.    
+https://old.reddit.com/r/TikTokCringe/comments/1mz0dxq/sidewalk_etiquette/
