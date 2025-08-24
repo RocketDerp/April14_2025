@@ -636,3 +636,15 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_elect
 Terrible_Patience935 2025-01-14 (new this year)
 
 "I’ve given up on talking anything real with sibs and friends. It’s so depressing and I’ve never seen one of them give an inch on any of the insanity."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mz25om/there_is_a_special_election_this_tuesday_in_iowa/nagkjtk/
+
+Important-Ability-56 2020-08-16
+
+"If the DNC is so bad they can’t even be an *ally*, we’re probably purity testing ourselves into oblivion anyway, so what’s the point?
+
+How did Joe Biden support or benefit from the “oligarchy”? History actually happened. It’s not just a series of vibes."
+
+* :::=== RoundSparrow_Commentary : I'll keep repeating: Democracy (anyway on Earth) does not work if people do not love one another or have compassion for strangers. You strip *goodness itself* from society [in machine love / machine lust - and you wreck society](https://www.youtube.com/watch?v=J7GY1Xg6X20). It is not in The Constitution to *love one another*, but society does not function when *hate harder* is adopted from Russian information warfare since March 2013. ===:::
