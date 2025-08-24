@@ -710,3 +710,15 @@ https://old.reddit.com/r/technology/comments/1myz8t5/this_the_new_pbs_viral_kids
 Prior_Coyote_4376 2023-10-17
 
 "Media literacy doesn’t align with the agenda of media manipulators"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1myz8t5/this_the_new_pbs_viral_kids_cartoon_teaches/nafuqpn/
+
+we_are_sex_bobomb 2011-05-23
+
+"I remember as a kid my parents dragged me to all these young earth creationism seminars and the whole time even at 9-10 years old it all reeked of bullshit. But it still took until midway through college for me to finally feel like I was allowed to say it out loud and break free from that kind of thinking.
+
+Indoctrination is itself another form of slavery, it’s a prison for the mind. Absolutely detestable what these people are doing."
+
+* :::=== RoundSparrow_Commentary : “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. ===:::
