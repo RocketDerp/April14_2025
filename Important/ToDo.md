@@ -885,3 +885,8 @@ https://old.reddit.com/r/CuratedTumblr/comments/1mz0wxi/hp/
 
 Media ecology of the medium of sidewalk / pavers / shared roads and paths.    
 https://old.reddit.com/r/TikTokCringe/comments/1mz0dxq/sidewalk_etiquette/
+
+&nbsp;
+
+Putin vs. NATO and Trump    
+https://old.reddit.com/r/europe/comments/1mywtyd/when_puppetry_replaces_policy_war_replaces_peace/
