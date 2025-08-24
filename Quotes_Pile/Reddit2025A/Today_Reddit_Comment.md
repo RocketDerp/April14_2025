@@ -166,3 +166,19 @@ jasegro 2022-02-17
 I'm not religious, but if ever there were an Anti-Christ, Trump sounds an awful lot like him."
 
 * :::=== RoundSparrow_Commentary : Bible literacy crisis. If people can't interpert the 2,000 year old Bible science fiction storybook, what hope do USA people have interpreting Star Wars 1977 or Reddit messages / Bluesky messages? We are not addressing the Bible literacy crisis. Why aren't the clergy repeating and repeat verse "1 John 3:17" as it applies to Elon Musk, Donald Trump family? Why isn't "1 John 3:17" a household name / known verse since 2015 when Trump started to run for POTUS? Why isn't Matthew 6:5 being repeated and repeating from Christian Clergy all over the world about the Donald Trump $59.99 Bible selling and [famous posing in front of a Church](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church)? If people can't read this 2,000 year old world famous book - what chance do they have with a Donald Trump message on Truth Social in August 2025? Am I repeating myself ennough? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1mys682/every_accusation_is_a_confession/naf0l08/
+
+LordIndica 2017-06-17
+
+"Have you ever watched Fox "News"?
+
+It is genuinely batshit insane, unfiltered propaganda. Like always sensationalist, often utterly divorced from reality, and highly curated to increase outrage and a faux sense of self-righteousness alongside a very discrete set of marching orders for viewers to follow. It is genuinely hard for me to watch because it is so obviously manipulative, from the loaded framing of rhetorical questions and statements, the headlines/ticker reels they use being outlandishly inflammatory and unfactual, and the blatent lack of any sort of journalistic integrity amidst their elaborate editorialization. Just an entertainment channel masquerading as news that people erroneously consider a reliable source. 
+
+It is on EVERYWHERE in the south and midwest. It is just playing, by default, in most any public space that has a television. It is on in restaurants and bars and diners. In hotel lobbies. They leave it on in their homes, playing on the TV endlessly. Just constant background noise. My aunt left it on and playing in the other room during Thanksgiving dinner. It is ALWAYS on. In the car there is Fox News Radio. A 24 "news" cycle, like a weird mental pacifier that leaves them the opposite of pacified, that they seek out like addictive bubblegum for their brain to passively chew while a fox host feeds them digested bits of filtered information and how best to "interpret" it. 
+
+That is the problem. Genuinely, it's just Fox News. They have cut the legs out from under the 4th Estate. They are just the personal PR platform for a political Party that subverts the integrity of journalism and lies and misrepresents information CONSTANTLY in order to keep people that seek out no other source of information thinking that they are the only choice worth voting for, despite the obvious and repeated damage it does to them."
+
+* :::=== RoundSparrow_Commentary : Why hasn't social media stayed *focused and sustained* on this topic? Why isn't there a daily posting on the front page of Reddit and trending hashtags on Twitter / Bluesky promoting [Jen Senko's year 2015 film? Why haven't we made Jen Senko a household name?](https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad) A *baby boomer* stood up to Fox News - why are we not using her leadership to rally around? Why can't we on social media repeat and keep repeating: Stand Up For Little Guy? Instead, we flock to The Big Guy crushing The Little Guy... Rupert Murdoch and Trump and Musk media systems. Again, why hasn't social media made Jen Senko a household name? THINK ABOUT IT! ===:::
