@@ -535,3 +535,10 @@ ennc1979 2018-05-15
 
 "Frankly, it’s to a point where the darkness is so thick & deep, I am struggling to keep up clearly. I have vague recall of this or I am confabulating it now that you mention it or it’s just our now, collective trauma causing my mind to wall it off for my own personal mental health."
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mz25ee/wa_congressional_candidates_husband_a_military/nag4ze7/
+
+weezyverse 2019-07-08
+
+"I believe this is in chapter 4 of the "Guide for Fascists" volume 3. Foreword written by Putin with annotations by Medvedev and Netanyahu."
