@@ -735,4 +735,22 @@ For context, this was in NJ, which had historically had a republican party that 
 
 Now, the US has a party built on the types of divides that have started revolutions in the past, except their divisions are fictitious or, in my mind, illegitimate and inhumane. We've set ourself up for a continent-wide Cambodia in the name of Supply-Side Jesus. The Republican party, voters included sadly, isn't a political organization any more. It's a nation wide terrorist organization that is waiting for activation."
 
-* :::=== RoundSparrow_Commentary : Everything changed with Donald Trump and Kremlin agreement November 7, 2012 and the launch of the IRA in Q2 2013. We The People changed: Mindsets changed, thinking changed, attitudes change. Russia bragged about manipulating minds openly in February 2019 before the pandemic: https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793 ===:::
+* :::=== RoundSparrow_Commentary : Everything changed with Donald Trump and Kremlin agreement November 7, 2012 and the launch of the IRA in Q2 2013. "как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." We The People changed: Mindsets changed, thinking changed, attitudes change. Russia bragged about manipulating minds openly in February 2019 before the pandemic: https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1myz8t5/this_the_new_pbs_viral_kids_cartoon_teaches/nafp92t/
+
+im-ba 2023-12-20
+
+"Facts and logical reasoning are unimportant to them and have been for decades. The anti-intellectualist movement started spreading all over the rural US in the 1980's and nobody bothered to shut it down. Now the cancer has spread to every layer of society, and no amount of reasoning with them will help because they scorn intelligence and critical thinking and those who possess it."
+
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. Addiction to fiction has taken over USA society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mz4dc8/trump_79_melts_down_at_being_challenged_to_a_walk/nagp9ag/
+
+MajorMorelock 2021-04-12
+
+"These times will be remembered as the most embarrassing moments of our republic."
