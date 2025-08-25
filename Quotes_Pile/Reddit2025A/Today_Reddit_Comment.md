@@ -287,3 +287,12 @@ pheonix198 2016-06-06
 
 * :::=== RoundSparrow_Commentary : Media addicts with Twitter-length Tweet-thinking messages expressing cravings for more MAGA values of nicknames and shit-talk. Anti-intellectual, swiming in the Internet Research Agency information warfare without self-awareness. Addicton to Total Mockery on media machines. [Neil Postman in 1985 published a book titled "Amusing Ourselves To Death" that describes the USA media ecology crisis](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) in August 2025. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mzroqj/the_sight_of_people_breaks_them/nam6ba5/
+
+pithynotpithy 2019-09-22
+
+"Its getting harder and harder to hide Trump's complete failures and contempt for the American people, so they have to fire up the outrage machine to distract from his shitty policies, the Files, and inflation."
+
+* :::=== RoundSparrow_Commentary : Media addicts with Twitter-length Tweet-thinking messages expressing that **Trump is hiding the self-harm of USA for Putin**. It is in our face every hour of every day that Trump is wrecking the future of the United States of America. Hiding is the EXACT OPPOSITE of what is going on. It is non-stop media coverage on every media machine available. DONALD J. TRUMP COULD NOT BE MORE OBVIOUS IN BROADCASTING HATE AND SELF-HARM AND ANTI-HUMANISM! ===:::
