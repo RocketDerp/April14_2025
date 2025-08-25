@@ -806,3 +806,15 @@ xternocleidomastoide 2025-03-29 (new this year)
 "Don't forget the endless lyrics he has put out through the years with overt misogyny, glamorization of drugs and gang violence, and that stint in the 90s where he almost went to prison for murder.
 
 But yeah, showing a loving lesbian relationship in passing... is just taking it too far for Snoop."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mz4t51/ghislaine_maxwells_testimony_says_a_lot_about_our/nagpzlh/
+
+NorthenFreeman 2024-09-28
+
+"Reddit, something puzzle me. Since 2016, we always had tons of comments from our MAGA fans in this subreddit. Now, they seem totally silent. Do you think they start to realize that their dear leader is a criminal and a liar? Do you think they just feel better in the Conservatives subreddits? What happened to them?
+
+This article title is so straight to the point and hard to deny, but where are the MAGA cult dudes?
+
+Why they stopped to praise their fraudster felon and child rapist?"
