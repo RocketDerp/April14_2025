@@ -16,7 +16,7 @@ Serious-Fact-4441 2023-10-18
 
 "Why lie about every issue? Being in favor of crime is demented, let’s see how that ages."
 
-* :::=== RoundSparrow_Commentary : Twitter-think Bluesky-length thinking. Politicians who are dishonest and manipulate We The People is a crime. "Demented" plauing on "Dementia Donnie" topic. "like about every issue", constant deception claim. Perfect 100% falsehoods is impossible, nobody can be perfect correct or perfectl false. What one can be is perfectly banal. Short tiny comment messages that manipulate the mind into perfection of always bieng shallow and superficial. But you can't always be correct 100% or always be wrong 100%. ===:::
+* :::=== RoundSparrow_Commentary : Twitter-think Bluesky-length thinking. Politicians who are dishonest and manipulate We The People is a crime. "Demented" machine message plauing on "Dementia Donnie" topic popularity. "like about every issue", constant deception claim. Perfect 100% falsehoods is impossible, nobody can be perfect correct or perfectly false. Binary thinking. What one can be is nearly perfectly banal. Short tiny comment messages that manipulate the mind into perfection of always bieng shallow and superficial. But you can't always be correct 100% or always be wrong 100%. ===:::
 
 &nbsp;
 
