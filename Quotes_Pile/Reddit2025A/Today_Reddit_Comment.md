@@ -62,6 +62,13 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1mzotdp/this_is_the_right_a
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mzozwd/kilmar_abrego_garcia_taken_into_ice_custody_at/nako7gl/
+
+Kixdapv 2024-07-30
+
+"To me one of the most chilling parts of 1984, and one that to me explains a lot of the conservative/authoritarian mindset, is when O'Brien explains to Smith that making someone else suffer is the only way to make sure you have power over them: after all, how can you know you are imposing your will on someone else if they just comply? For all you know they are just faking compliance. But if you make them suffer and break them, O'Brien explains, then you know you are imposing your will on them and exert power over them. That is the point of cruelty for its own sake as weaponized by conservatives ans authoritarians."
+
+&nbsp;
 
 # Sunday August 24, 2025
 
