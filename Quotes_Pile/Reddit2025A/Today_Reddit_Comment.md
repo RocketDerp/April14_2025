@@ -414,3 +414,11 @@ HauntedJackInTheBox 2016-05-09
 
 "Honestly watching the fascist encounter with Hasan elucidated a lot to me. They literally do NOT care about any sense of rules being fair. They know what they want, they want to fuck over the people they despise, and they have zero problems creating laws that are 100% unfair and hypocritical. The expectation that laws should be fair is just not in their brain."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n00ni9/president_trump_demands_roger_clemens_be/nan26k6/
+
+transcriptoin_error 2010-05-30
+
+"Another meaningless controversy to distract from important things, like the dismantling of democracy."
+
