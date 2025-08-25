@@ -296,3 +296,13 @@ pithynotpithy 2019-09-22
 "Its getting harder and harder to hide Trump's complete failures and contempt for the American people, so they have to fire up the outrage machine to distract from his shitty policies, the Files, and inflation."
 
 * :::=== RoundSparrow_Commentary : Media addicts with Twitter-length Tweet-thinking messages expressing that **Trump is hiding the self-harm of USA for Putin**. It is in our face every hour of every day that Trump is wrecking the future of the United States of America. Hiding is the EXACT OPPOSITE of what is going on. It is non-stop media coverage on every media machine available. DONALD J. TRUMP COULD NOT BE MORE OBVIOUS IN BROADCASTING HATE AND SELF-HARM AND ANTI-HUMANISM! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mzroqj/the_sight_of_people_breaks_them/namdotu/
+
+blarfenugen 2023-03-17
+
+"Because if they're not consistently outraged by something ; or they aren't united in their hatred against it - they don't have any idea what to do."
+
+* :::=== RoundSparrow_Commentary : The foundation of IRA payloads since March 2013. Over 5,000 patterns of out-group hate. Every channel *hate harder* messaging. This is how Surkov and Putin won the information war and manipulated the USA into self-harm. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." https://www.facebook.com/konstantin.rykov/posts/10210643558675446 - Reddit and Bluesky addicts are constantly outraged at MAGA and Tony Clifton performance of Trump White House / Putin Kremlin. :::===
