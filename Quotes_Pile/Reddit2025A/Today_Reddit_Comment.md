@@ -163,5 +163,14 @@ PM_DOLPHIN_PICS 2017-07-31
 
 "Biden was an idiot and a clown, and so were his advisors. Nominating a Republican AG because he was slighted by congress over the SCOTUS role is something only a staffer whose whole worldview is informed by the West Wing would come up with."
 
-* :::=== RoundSparrow_Commentary : Americans mock Americans, Americans calling other Americans idiot and clown all the time in August 2025 total mockery. Russian IRA did not just attack MAGA and Republicans, it was TOTAL SOCIEETY, INCLUDING Democrats, including Biden himself. USA population is in mass psychosis. Total psycologicla denial, unable to face **yea 1985 nonfiction book** by Neil Postman and others that describe addiction to media systems. Russia won, Putin won, Surkov won since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : Americans mock Americans, Americans calling other Americans idiot and clown all the time in August 2025 total mockery. Russian IRA did not just attack MAGA and Republicans, it was TOTAL SOCIEETY, INCLUDING Democrats, including Biden himself. USA population is in mass psychosis. Total psycologicla denial, unable to face **year 1985 nonfiction book** by Neil Postman and others that describe addiction to media systems. Russia won, Putin won, Surkov won since March 2013. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mzs998/failed_ag_who_had_zero_will_to_fight_and_let/nalhgeb/
+
+PM_DOLPHIN_PICS 2017-07-31
+
+"Agree with the first part, disagree with the second. This wasn’t Biden sundowning. This is the action of some extremely online Twitter liberal staffers who post that sipping tea gif in response to stuff like “Donald Drumpf isn’t actually a billionaire”. It’s the type of move that someone who thinks AG Garland would make a good scene in a movie would choose. Someone else convinced an already decaying Biden that this move would unite both sides of the aisle and then everyone would clap and dance together."
+
+* :::=== RoundSparrow_Commentary : yes. Focus on the media consumption and Twitter-thinking. ===:::
