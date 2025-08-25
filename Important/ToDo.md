@@ -907,3 +907,9 @@ https://old.reddit.com/r/politics/comments/1mywdpu/we_need_a_new_theory_of_democ
 
 Trump trusts Putin    
 https://old.reddit.com/r/politics/comments/1mzbz2b/trump_is_astonishingly_deluded_about_putin/
+
+&nbsp;
+
+Deport-happy MAGA values    
+"Trump Rapes Kids, Taxes the Poor and Middle Class, and MAGAts Applaud. Nothing Short of Deporting All Traitor MAGAts Will Save This Country."   
+https://old.reddit.com/r/inflation/comments/1mzcnps/trump_rapes_kids_taxes_the_poor_and_middle_class/
