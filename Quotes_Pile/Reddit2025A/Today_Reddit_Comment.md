@@ -226,3 +226,12 @@ https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_af
 2nd2last 2013-12-29
 
 "Equally, mainstream America adopted him and looked past murder, porn, pimp stuff, Trump support and embraced him. But him being a shitty homophobe is a bridge too far?"
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_after_weird/nalkdbs/
+
+canadian-user 2016-09-15
+
+"I feel like the standard for tech billionaires being evil has just shifted dramatically. Like Bill Gates is just an evil businessman, and maybe back then that was the worst of the worst, but these days the worst tech billionaires might as well be supervillains. These days the tech billionaires want to build company towns to virtually enslave their workers, create a surveillance state, fire as many workers as possible and replace them with AI, etc. which in comparison makes Gates look very run of the mill."
+
