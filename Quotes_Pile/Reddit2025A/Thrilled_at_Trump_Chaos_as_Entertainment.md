@@ -590,3 +590,14 @@ LSOreli 2018-01-02
 "Its hilarious "yea its gonna be 1 year jail guaranteed with no early release possible" like he has the power to enact a mandatory sentence with no regard for a PSI or any additional information on the specifics of the case. This is, of course, before considering the fact that flag burning is a constitutionally protected right. He's also probably not aware that burning the flag is considered the respectful way to dispose of an unserviceable flag and that, in theory, he's also ordering that anyone actually following the flag code should be imprisoned."
 
 Humor is the best mind-fuck. People so addicted to mocking Trump, people entirely engaged in insulting and hating Donald Trump for his Tony Clifton behaviors and mannerisms. The Tony Clifton style and antics compulsively draws audience in again and again declaring it is funny, amusing, hilarious. Just as Neil Postman warned us all in 1985 with his book "Amusing Ourselves To Death".  1985 publication was when Ronald Reagan *entertainer President* was second term.
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n00ni9/president_trump_demands_roger_clemens_be/nan5yaj/
+
+literallytwisted 2018-01-05
+
+"He's just out there in dementia land like some kind of malignant Grandpa Simpson! Maybe we get a movement started to get him to demand Homer is put in the hall of fame for his time playing for the Isotopes."
+
+Media addicts begging for more antics politics. Entirely thrilled with the outcomes of the Russian informationw war win. Clamoring for more nonsense and fiction content, more Tony Clifton performances. Eating the Surkovian onions an begging to be bamboozled more.
+
