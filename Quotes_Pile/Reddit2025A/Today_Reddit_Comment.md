@@ -121,4 +121,28 @@ They're dangerously incompetent.
 
 Everyone who knows what they're doing has left the building."
 
-* :::=== RoundSparrow_Commentary :  [Another meme addeled eater of Surkovian onions who claims this is "incompetent" application of Surkov Kremlin technqiues](Surkovian_Onion_Eating.md). Doesn't comprehend that "everyone who knows what they're doing has left the building" - is a win for Putin and the intended outcome of Russian informaiton warfare. Another social media meme addict who can't be bothered to read books that have sitting on the shelf for over a decade on how modern Russia operates. ===:::
+* :::=== RoundSparrow_Commentary :  [Another meme addeled eater of Surkovian onions who claims this is "incompetent" application of Surkov Kremlin technqiues](Surkovian_Onion_Eating.md). Doesn't comprehend that "everyone who knows what they're doing has left the building" - is a win for Putin and the intended outcome of Russian informaiton warfare. Another social media meme addict who can't be bothered to read books that have been sitting on the shelf for over a decade on how modern Russia operates. Conditioned reaction. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mzozwd/kilmar_abrego_garcia_taken_into_ice_custody_at/nakq63f/
+
+WkndCake 2021-07-28
+
+<img width="1104" height="1436" alt="image" src="https://github.com/user-attachments/assets/538b6717-3d8c-4495-8d24-6f28f5e280ef" />
+
+&nbsp;
+
+"They're treating a pedo like Ghislane Maxwell better than this poor guy. Seems like most Americans voted on entertainment value instead of actual policy for their country.
+
+Americans, are you entertained?"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mzozwd/kilmar_abrego_garcia_taken_into_ice_custody_at/nal74on/
+
+Numerous_Photograph9 2021-01-29
+
+"Thats exactly what it is. People are attracted to he spectacle of reality TV melodrama. Unfortunately, now, its been used as a political tool to strip people of their rights, and circumvent the constitution, but the people who love this stuff think its all good drama with the bad people getting their due."
