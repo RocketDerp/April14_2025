@@ -28,6 +28,14 @@ Ormyr 2015-06-05
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mzmnrl/first_amendment_anyone/nakjqkr/
+
+oldbastardbob 2017-01-28
+
+"I am constantly surprised that so many of my fellow Americans so admire a blow-hard bully who constantly whines about everything and seems to be so thin skinned that he flips out about any questioning of his motives or pointing out the ignorant cluelessness of so many of his actions."
+
+&nbsp;
+
 
 # Sunday August 24, 2025
 
