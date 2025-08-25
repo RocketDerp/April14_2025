@@ -933,3 +933,9 @@ https://www.youtube.com/post/UgkxsadqpI3kC2TIx4XIe70qA1U-vspYziKw
 
 FranLab on Input / Output of speech at same time as thinking    
 https://www.youtube.com/watch?v=-pjEH8QJGes
+
+&nbsp;
+
+Virgin marriage experiences    
+Choice marriage honesty    
+https://old.reddit.com/r/StandUpComedy/comments/1mzvhq7/body_count_joke/
