@@ -70,6 +70,19 @@ Kixdapv 2024-07-30
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1mzozwd/kilmar_abrego_garcia_taken_into_ice_custody_at/naktapz/
+
+IAMA_Printer_AMA 2014-04-18
+
+"
+> How is this not immediate grounds for impeachment?
+
+The clown show will continue until such time as the audience demands their money back."
+
+* :::=== RoundSparrow_Commentary : USA people are spending all their spare time and free time commenting and discussing the Tony Clifton performance. The addiction to the Clifton show and techniques is so extreme that even after 10 years people keep craving and calling for more. "Sleepy Joe Biden" was way too boring performance for meme addeled media addiction nation. ===:::
+
+&nbsp;
+
 # Sunday August 24, 2025
 
 &nbsp;
