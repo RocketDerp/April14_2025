@@ -422,3 +422,12 @@ transcriptoin_error 2010-05-30
 
 "Another meaningless controversy to distract from important things, like the dismantling of democracy."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mzv69v/donald_trump_pete_hegseth_ready_to_change_defense/nam83gc/
+
+reilmb 2010-09-09
+
+"I was tired from 2016-2020 and then it kept fucking going and going and going and the media just wouldnt quit covering this piece of shit."
+
+* :::=== RoundSparrow_Commentary : Social media is *the media*, Reddit has been online for over 20 years. Meme addiction runs the Donald Trump playing Tony Clifton nation. ===:::
