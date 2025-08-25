@@ -394,5 +394,14 @@ https://old.reddit.com/r/BlueskySkeets/comments/1mztm4d/there_is_no_plan_to_fix_
 
 "There is no plan to fix anything since the plan has always been to destroy everything"
 
-* :::=== RoundSparrow_Commentary : Yes, **the plan, the plot to break America** was spelled out in a 2019 book, way back in year 2019: “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+* :::=== RoundSparrow_Commentary : Yes, **the plan, the plot to break America** was spelled out in a 2019 book, way back in year 2019:
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
 ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, page 85. **year 2019** ... alas, social meme addicts can't be bothered to stay focused on a printed book on paper and instead revel in the never-ending mockery of Donald Trump playing Tony Clifton. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mzv4tl/gop_doesnt_care_about_free_speech/nalxyy7/
+
+Wood_Land_Witch 2025-01-29 (new this year)
+
+"The GOP is a fascist party and they are in every political level. I’m sure putrid Putin is laughing his head off."
