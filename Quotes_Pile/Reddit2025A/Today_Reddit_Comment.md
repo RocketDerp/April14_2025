@@ -184,3 +184,11 @@ Ancient_Confusion237 2023-09-24
 "He took women on leashes and made them crawl to the MTV music awards, but he cares about the impact on kids. Sure Jan."
 
 * :::=== RoundSparrow_Commentary : Media values society. As Donald Trump famously said: When you are a rock star, they let you grab them by the pussy. When you have media power, no rules apply, if you can wave around the Quran in Saudi Arabia and run the Mecca science fiction theme park - anything goes. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_after_weird/nalk01w/
+
+Recovering_g8keeper 2024-02-17
+
+"I know. I don’t understand how people are just realizing this now. But I’m glad they finally are so I don’t have to hear about his stupid capitalist ass anymore."
