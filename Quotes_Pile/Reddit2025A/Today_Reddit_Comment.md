@@ -192,3 +192,11 @@ https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_af
 Recovering_g8keeper 2024-02-17
 
 "I know. I don’t understand how people are just realizing this now. But I’m glad they finally are so I don’t have to hear about his stupid capitalist ass anymore."
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_after_weird/nal77a4/
+
+oh_please_god_no 2017-10-01
+
+"Like Louis CK (I know I know…) said: “Someone always says ‘How am I supposed to explain to my child that two men are married?’ I dunno it’s your shitty kid, you fuckin tell him. You mean to tell me that two grown people are in love and they can’t get married because you don’t wanna talk to your shitty kid for five fucking minutes??”"
