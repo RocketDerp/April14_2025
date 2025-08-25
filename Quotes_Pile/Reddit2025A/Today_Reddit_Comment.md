@@ -270,3 +270,20 @@ https://old.reddit.com/r/law/comments/1mzty2n/trump_signs_executive_order_to_mak
 fuck_jan6ers 2025-04-25 (new this year)
 
 "They hate Trump and this entire admin. But they are also seriously delusional to how bad things currently are."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mzty2n/trump_signs_executive_order_to_make_burning_the/nalv5va/
+
+pheonix198 2016-06-06
+
+<img width="1112" height="864" alt="image" src="https://github.com/user-attachments/assets/3e1b3836-9fa0-4f6b-b49d-8ba8b0a01de3" />
+
+&nbsp;
+
+"The media really needs to push that "Dementia Don" title in everything they post, just like they tried that shit with "Sleepy Joe Biden." But, no, all of us here know the media is complicit with this fascist regime."
+
+* :::=== RoundSparrow_Commentary : Media addicts with Twitter-length Tweet-thinking messages expressing cravings for more MAGA values of nicknames and shit-talk. Anti-intellectual, swiming in the Internet Research Agency information warfare without self-awareness. Addicton to Total Mockery on media machines. [Neil Postman in 1985 published a book titled "Amusing Ourselves To Death" that describes the USA media ecology crisis](https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley) in August 2025. ===:::
+
