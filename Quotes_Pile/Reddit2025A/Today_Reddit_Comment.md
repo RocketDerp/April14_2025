@@ -109,3 +109,16 @@ https://old.reddit.com/r/news/comments/1mzozwd/kilmar_abrego_garcia_taken_into_i
 “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to **instill chaos through society** so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, page 85. **year 2019** ... ... ... 
 "This administration believes how they've" created content for Reddit users to mock and call Tony Clifton act dumb idiot fools. Putin and Trump are running circles around the ENTIRE USA population who can't cite  Christopher Wylie and others (Neil Postman, etc). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mzozwd/kilmar_abrego_garcia_taken_into_ice_custody_at/naks6cs/
+
+thedracle 2012-09-14
+
+"To anyone paying attention, putting buffoons in charge that send ongoing live military and actions to reporters in accident should have demonstrated everything we need to know about this administration.
+
+They're dangerously incompetent.
+
+Everyone who knows what they're doing has left the building."
+
+* :::=== RoundSparrow_Commentary :  [Another meme addeled eater of Surkovian onions who claims this is "incompetent" application of Surkov Kremlin technqiues](Surkovian_Onion_Eating.md). Doesn't comprehend that "everyone who knows what they're doing has left the building" - is a win for Putin and the intended outcome of Russian informaiton warfare. Another social media meme addict who can't be bothered to read books that have sitting on the shelf for over a decade on how modern Russia operates. ===:::
