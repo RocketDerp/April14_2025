@@ -48,7 +48,7 @@ Gold_Doughnut_9050 2022-08-29
 
 "No. He has a 38% approval rating. 60% disapproval."
 
-* :::=== RoundSparrow_Commentary : When dealing with Tony Clifton performances, you add these two numbers together. Total engagement is what matters. 38% + 60% = 98%. People booing and mocking Tony Clifton are still glued to the show. This has been gong on FOR OVER TEN FUCKING YEARS. [The Sum of All Mockery](../../Important/Drafts/The_Sum_of_All_Mockery.md) ===:::
+* :::=== RoundSparrow_Commentary : When dealing with Tony Clifton performances, you add these two numbers together. Total engagement is what matters. 38% + 60% = 98%. People booing and mocking Tony Clifton are still glued to the show. This has been going on FOR OVER TEN FUCKING YEARS. [The Sum of All Mockery](../../Important/Drafts/The_Sum_of_All_Mockery.md) ===:::
 
 &nbsp;
 
