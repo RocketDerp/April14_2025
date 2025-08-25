@@ -913,3 +913,8 @@ https://old.reddit.com/r/politics/comments/1mzbz2b/trump_is_astonishingly_delude
 Deport-happy MAGA values    
 "Trump Rapes Kids, Taxes the Poor and Middle Class, and MAGAts Applaud. Nothing Short of Deporting All Traitor MAGAts Will Save This Country."   
 https://old.reddit.com/r/inflation/comments/1mzcnps/trump_rapes_kids_taxes_the_poor_and_middle_class/
+
+&nbsp;
+
+Bill Gates and Paul Allen out of school. My own apprenticeship at ae 16 with Telos Federal Systems, my own book publishing leading to not needing university degree to work for SAP, Paul Allen Group, Software Spectrum.   
+https://old.reddit.com/r/meme/comments/1mzr9hr/why/
