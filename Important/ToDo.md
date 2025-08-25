@@ -928,3 +928,8 @@ The will to self-harm, the willingness to self-destruct the Earth in hate of nat
 
 Bully topic of systemic bullying / USA society hazing.    
 https://www.youtube.com/post/UgkxsadqpI3kC2TIx4XIe70qA1U-vspYziKw
+
+&nbsp;
+
+FranLab on Input / Output of speech at same time as thinking    
+https://www.youtube.com/watch?v=-pjEH8QJGes
