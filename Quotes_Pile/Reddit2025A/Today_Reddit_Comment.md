@@ -431,3 +431,28 @@ reilmb 2010-09-09
 "I was tired from 2016-2020 and then it kept fucking going and going and going and the media just wouldnt quit covering this piece of shit."
 
 * :::=== RoundSparrow_Commentary : Social media is *the media*, Reddit has been online for over 20 years. Meme addiction runs the Donald Trump playing Tony Clifton nation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mzv69v/donald_trump_pete_hegseth_ready_to_change_defense/nalx2oa/
+
+PostMerryDM 2021-07-21
+
+"They are more embarrassing than their worst critics think they are.
+
+At this point there’s only two types of people who still support them: the disgustingly greedy who looks down on them but find them useful to make more money, and the absolute ignorants."
+
+* :::=== RoundSparrow_Commentary :  [Another eater of Surkovian onions who can't escape the mockery and study and learn how Putin has been in power for 25 years using Surkov antics technqiues](Surkovian_Onion_Eating.md). USA population can not resist absurd and surreal always believes it is accidental or don't grasp why toilet humor draws an audience. Implies that other people are ignorant, but can't describe this as Kremlin information warfare. ===::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mzv69v/donald_trump_pete_hegseth_ready_to_change_defense/namh9wx/
+
+Hellogiraffe 2012-09-24
+
+"His entire career should have been the end of any political aspirations. As difficult as it is, try to ignore everything political he has done and continues to do, including the Obama birther bullshit. Hell, try to ignore anything from this millennium and even the pedophilia. If ANYONE can honestly look at his pre-2000 career, his scandals/crimes, and his overall attitude towards anyone but himself, he’s still an absolutely awful candidate and just an awful person with zero connection to the working man. How the fuck is our president someone who I genuinely couldn’t vote for even when I ignore 95% of his scandals/stupidity?"
+
+* :::=== RoundSparrow_Commentary : The ANSWER: Since March 2013 the Internet Research Agency alterted the minds of We The People to be attracted to self-harm, addiction to fiction, and flock to total mockery and insutling of *the others, the out groups*. 5,000 patterns of mind-fuck deployed. Compuslive addiction to hate / mockery / dehumanization of Americans. **Mocking MAGA is not resisting the Russian information warfare**, only teaching about information warfare itself and educating about cults is actually resisting.  ===:::
+
+&nbsp;
+
