@@ -173,4 +173,14 @@ PM_DOLPHIN_PICS 2017-07-31
 
 "Agree with the first part, disagree with the second. This wasn’t Biden sundowning. This is the action of some extremely online Twitter liberal staffers who post that sipping tea gif in response to stuff like “Donald Drumpf isn’t actually a billionaire”. It’s the type of move that someone who thinks AG Garland would make a good scene in a movie would choose. Someone else convinced an already decaying Biden that this move would unite both sides of the aisle and then everyone would clap and dance together."
 
-* :::=== RoundSparrow_Commentary : yes. Focus on the media consumption and Twitter-thinking. ===:::
+* :::=== RoundSparrow_Commentary : yes. Focus on the media consumption and Twitter-thinking. We The People can't even face up to the Fox News crisis and be serious, let alone every social media platform full of shit reaction messaging. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_after_weird/nal26xo/
+
+Ancient_Confusion237 2023-09-24
+
+"He took women on leashes and made them crawl to the MTV music awards, but he cares about the impact on kids. Sure Jan."
+
+* :::=== RoundSparrow_Commentary : Media values society. As Donald Trump famously said: When you are a rock star, they let you grab them by the pussy. When you have media power, no rules apply, if you can wave around the Quran in Saudi Arabia and run the Mecca science fiction theme park - anything goes. ===:::
