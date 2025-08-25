@@ -210,3 +210,11 @@ Steve_Jobed 2024-11-25
 "People somehow twisted themselves into knots that he and entertainers are progressive because they talk about sex and drugs, but no they don't talk about any of that in a positive way. He's long made deeply misogynistic music. The fact that a guy who has been that bad towards women also is a bigot towards gay people is not shocking.
 
 And it turns out that a lot of conservative men of all stripes have harmful views of both women and gay people."
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_after_weird/nal3596/
+
+al_ien5000 2012-06-10
+
+"You joke, but somehow we allowed this same person to release a children's album and be the face of fortnite for four months. So he really did try and corner the children's media market for a bit."
