@@ -357,3 +357,14 @@ Then they turned us against ourselves made our dream into a lie and then sold it
 https://old.reddit.com/r/Fauxmoi/comments/1mzvo5b/tim_walz_on_kamala_harris_we_wouldnt_wake_up/
 
 Tim Walz on Kamala Harris: “We wouldn't wake up every day to a bunch of shit on TV & a bunch of nonsense. We would wake up to an adult with compassion & dignity & vision & leadership doing the work. Not a manchild crying about whatever is wrong with him. May his fat ankles find something today.“
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mzz11g/trump_on_militarized_cities_a_lot_of_people_are/namsi1x/
+
+ChiefFun 2021-01-29
+
+"Trump isn’t even denying the dictator label anymore. He is leaning into it. If you’re cheering this on, you’re not supporting safety, but you are simply handing over democracy. Here is to hoping I am overreacting."
+
+* :::=== RoundSparrow_Commentary : Comment reacting without calling out that this is Surkov governing, NATO defeated by Russian information warfare since March 2013, is underreacting. Just commenting in response to every Donald Trump move and shake is underreacting. Not seeing that this is a war on nonfiction and that it is **beyond time to have intellectual teaching to all adults with social media, halting entertainment and junk memes** is underreacting. The public library is full of books about cult deprogramming, but meme addicts of social machines only want to use spare time and free time insulting in the total mockery. Serious nonifction education about how cults behave and how information warfare works is standing up for intelligence and comprehension. ===:::
+
