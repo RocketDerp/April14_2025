@@ -80,3 +80,23 @@ IAMA_Printer_AMA 2014-04-18
 The clown show will continue until such time as the audience demands their money back."
 
 * :::=== RoundSparrow_Commentary : USA people are spending all their spare time and free time commenting and discussing the Tony Clifton performance. The addiction to the Clifton show and techniques is so extreme that even after 10 years people keep craving and calling for more. "Sleepy Joe Biden" was way too boring performance for meme addeled media addiction nation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mzozwd/kilmar_abrego_garcia_taken_into_ice_custody_at/nakopq6/
+
+HousingThrowAway1092 2022-08-18
+
+"This regime won’t lose a single supporter over this. Talking heads for billionaire oligarchs clutched their pearls when Hillary called Trump’s supporter’s deplorable but she was right.
+
+Anyone still supporting Trump at this point is a bad person. Cruelty is the point and this is exactly what they voted for."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1mzozwd/kilmar_abrego_garcia_taken_into_ice_custody_at/nakrtzw/
+
+\-notapony\- 2016-10-07 (October 7: Putin's Birthday, Fox News media birthday)
+
+"The media long ago decided that you can’t accurately describe Republicans’ beliefs and actions without sounding terribly biased, so they chose not to do that."
+
+* :::=== RoundSparrow_Commentary : This was a core focus of the Russian IRA: [Gatov, who is the former head of Russia's state newswire's media analytics laboratory, told BuzzFeed the documents were part of long-term Kremlin plans to swamp the internet with comments. "Armies of bots were ready to participate in media wars, and the question was only how to think their work through," he said. "Someone sold the thought that Western media, which specifically have to align their interests with their audience, won't be able to ignore saturated pro-Russian campaigns and will have to change the tone of their Russia coverage to placate their angry readers."](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america) - same goes for social media users. Get people addicted to fiction. This problem is not in any wqy unique to the Republican party and United States of America - it is a human brain issue globally. Fiction outsells nonfiction. "The media" includes Reddit, memes and tarsh content, Bluesky trash content. Neil Postman in 1985 published a book titled "Amusing Ourselves To Death' that discusses *the media* problem of audiences being amused all the time, LOL hilarious to Donald Trump and others playing Tony Clifton acts. ===:::
