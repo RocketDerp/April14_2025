@@ -154,3 +154,14 @@ https://old.reddit.com/r/pics/comments/1mzs998/failed_ag_who_had_zero_will_to_fi
 Alexexy 2016-03-12
 
 "The dems ran a shit campaign but the voters failed. Trump ran a campaign on hating on your neighbors and dismantling democracy and the voting public loved that shit. Its not like Trump's relationship with Epstein or his predatory behavior towards young women/underaged girls were a secret either. All of that shit was outted during his first term and voters were able to overlook all of that."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mzs998/failed_ag_who_had_zero_will_to_fight_and_let/nalcnkt/
+
+PM_DOLPHIN_PICS 2017-07-31
+
+"Biden was an idiot and a clown, and so were his advisors. Nominating a Republican AG because he was slighted by congress over the SCOTUS role is something only a staffer whose whole worldview is informed by the West Wing would come up with."
+
+* :::=== RoundSparrow_Commentary : Americans mock Americans, Americans calling other Americans idiot and clown all the time in August 2025 total mockery. Russian IRA did not just attack MAGA and Republicans, it was TOTAL SOCIEETY, INCLUDING Democrats, including Biden himself. USA population is in mass psychosis. Total psycologicla denial, unable to face **yea 1985 nonfiction book** by Neil Postman and others that describe addiction to media systems. Russia won, Putin won, Surkov won since March 2013. ===:::
+
