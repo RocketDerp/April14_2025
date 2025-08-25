@@ -351,3 +351,9 @@ But then we convinced ourselves we won history, became complacent and started fe
 Then they turned us against ourselves made our dream into a lie and then sold it back to us with a stupid red hat and an empty hole who puts his name on everything. They’re empty and he’s the emptiness so he must be just like them."
 
 * :::=== RoundSparrow_Commentary : Russian informaiton warfare since March 2013 has created 5,000 patterns of self-harm dreams, self-destruction of USA. *Hate harder* payloads. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1mzvo5b/tim_walz_on_kamala_harris_we_wouldnt_wake_up/
+
+Tim Walz on Kamala Harris: “We wouldn't wake up every day to a bunch of shit on TV & a bunch of nonsense. We would wake up to an adult with compassion & dignity & vision & leadership doing the work. Not a manchild crying about whatever is wrong with him. May his fat ankles find something today.“
