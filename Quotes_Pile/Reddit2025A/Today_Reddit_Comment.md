@@ -368,3 +368,23 @@ ChiefFun 2021-01-29
 
 * :::=== RoundSparrow_Commentary : Comment reacting without calling out that this is Surkov governing, NATO defeated by Russian information warfare since March 2013, is underreacting. Just commenting in response to every Donald Trump move and shake is underreacting. Not seeing that this is a war on nonfiction and that it is **beyond time to have intellectual teaching to all adults with social media, halting entertainment and junk memes** is underreacting. The public library is full of books about cult deprogramming, but meme addicts of social machines only want to use spare time and free time insulting in the total mockery. Serious nonifction education about how cults behave and how information warfare works is standing up for intelligence and comprehension. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mzz11g/trump_on_militarized_cities_a_lot_of_people_are/namv2my/
+
+Your_World_Leader 2022-03-13
+
+"Nobody but his fucking bootlicking idiots, and the fantasy land inside his head, is saying we want a dictator.
+
+IF YOU WANT A DICTATOR THEN YOU AINT AMERICAN."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mzz11g/trump_on_militarized_cities_a_lot_of_people_are/namsp3j/
+
+fastautomation 2023-04-04
+
+"Agree... I was being sarcastic in a response to him personally. What makes him think that a dictator would only agree with him? What if a dictator's entire strategy was to do things he hates."
+
+* :::=== RoundSparrow_Commentary : Exploiting out-group hate in the human minds. Doing things that people hate as a form of information warfare. Doing things Tony Clifton style. "What if a dictator's entire strategy was to do things he hates", "I was being sarcastic" - exactly how Surkov governing / Russian informaition warfare has won since March 2013. Hate motivated reactionary thinking, absurd surreal sarcasm on industrial military scale. Exploiting the mob mentality, [The 1954 Equation](../Martin_Luther_King_Jr_quotes0.md) ===:::
+
