@@ -218,3 +218,11 @@ https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_af
 al_ien5000 2012-06-10
 
 "You joke, but somehow we allowed this same person to release a children's album and be the face of fortnite for four months. So he really did try and corner the children's media market for a bit."
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_after_weird/nal24l2/
+
+2nd2last 2013-12-29
+
+"Equally, mainstream America adopted him and looked past murder, porn, pimp stuff, Trump support and embraced him. But him being a shitty homophobe is a bridge too far?"
