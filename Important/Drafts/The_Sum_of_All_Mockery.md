@@ -49,3 +49,25 @@ https://old.reddit.com/r/NoShitSherlock/comments/1mzn7ve/preelection_video_trump
 When you are dealing with Tony Clifton performers on multiple stages with overlapping (live and rerun / repost) performances, you add together the 60% + 38% to get 98%. People mocking and insulting Tony Clifton are *engaged*, the Tony Clifton act isn't about goodness. The audience booing and ranting how dumb an idiot Tony Clifton performers are is all part of the the total audience capture.
 
 For over 10 years, the entire USA population has been glued to their touch screens, caressing reaction comments to every move and shake of Donald Trump. The entire nation has gone to Hell. Media addiction is all that matters to every single person in the USA. A society so driven by attraction to trash Tony Clifton acting that the future has been wrecked. People are entirely in meme stupors, so addled by the never-ending mockery and name-calling. The entire world watches in horror as the United States of America has drowned itself in addiction to a Reality TV star they can't resist mimicking and mocking.
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+#### The Sum of All Media Systems Addictions
+
+[***The Sum of All Fears** is a political thriller novel, written by Tom Clancy and released on August 14, 1991, as the sequel to Clear and Present Danger (1989). Main character Jack Ryan, who is now the Deputy Director of Central Intelligence, tries to stop a crisis concerning the Middle East peace process wherein Palestinian and former East German terrorists conspire to bring the United States and Soviet Union into nuclear war.](https://en.wikipedia.org/wiki/The_Sum_of_All_Fears)
+
+&nbsp;
+
+#### The Sum of All Sucking 
+
+"been sucked into" - Texan Rick Roderick, 1993
+
+"I mean that’s the deficit of experience that hasn’t **been sucked into this system of images** and so on. Now this sounds extreme but think of how we are socialised – all of us – continually bombarded with images from magazines, TVs, newspapers, videotapes. I am not unaware of where I am (*crowd laughter*), I am in the circuit too now." - Duke University, 1993 - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
