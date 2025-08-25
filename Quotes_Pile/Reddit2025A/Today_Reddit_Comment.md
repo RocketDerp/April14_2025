@@ -818,3 +818,11 @@ NorthenFreeman 2024-09-28
 This article title is so straight to the point and hard to deny, but where are the MAGA cult dudes?
 
 Why they stopped to praise their fraudster felon and child rapist?"
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mz9qib/so_sad_misinformation_is_being_normalised/naie92e/
+
+colganc 2016-05-08
+
+"This is your "so sad misinformation is being normalized"? Trump and MAGA have been doing this for a decade. Ya, it's dumb if someone is making this up, but this has been "normalized" for a decade now."
