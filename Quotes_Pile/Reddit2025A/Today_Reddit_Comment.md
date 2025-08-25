@@ -54,6 +54,14 @@ Gold_Doughnut_9050 2022-08-29
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mzotdp/this_is_the_right_answer/
+
+* :::=== RoundSparrow_Commentary : Media addicts crave and message "right answer" to have more OnlyFans and suffering of Americans. Americans hate Americans. People believe that suffering is goodness. Entirely brainwashed by Russian IRA meme warfare since March 2013 to self-harm the USA using social machine messaging systems. ===:::
+
+&nbsp;
+
+&nbsp;
+
 
 # Sunday August 24, 2025
 
