@@ -235,3 +235,10 @@ canadian-user 2016-09-15
 
 "I feel like the standard for tech billionaires being evil has just shifted dramatically. Like Bill Gates is just an evil businessman, and maybe back then that was the worst of the worst, but these days the worst tech billionaires might as well be supervillains. These days the tech billionaires want to build company towns to virtually enslave their workers, create a surveillance state, fire as many workers as possible and replace them with AI, etc. which in comparison makes Gates look very run of the mill."
 
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_after_weird/nalfl6h/
+
+FeloniousReverend 2016-02-14
+
+"Is it weird that it is for me? Like the Trump shit is annoying but hating people for who they are is a real POS stance. It was his bodyguard who actually killed someone, and if he's to be believed he didn't even take any money as a pimp, it was just him using his clout and stature to play out a role he had idolized as a kid."
