@@ -337,3 +337,17 @@ K0SSICK 2014-12-27
 
 * :::=== RoundSparrow_Commentary : Yes, they did imagine it. They imagined new religions and new cults taking over democracy. That's why the art symbolism education of the Great Seal of the United States of America is critical. We have failed in our learning of media ecology lessons fromthe Founding Fathers in year 1776. The Great Seal USA is a public library cherry-picking tool of self-awareness of how the human mind operates in regards to sybolism and art work. Putin and Trump have exploited the society with art, fiction addiction abounds.
 "He came originally **from the avant-garde art world**, and those who have studied his career, say that what Surkov has done, is to **import ideas from conceptual art into the very heart of politics**. His aim is to undermine peoples' perceptions of the world, so they never know what is really happening." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1mzuh7g/and_there_it_is_folks/nam3t34/
+
+CapnArrrgyle 2015-07-24
+
+"It was always a dream. I’ve had that feeling you describe for more than 30 years. That didn’t mean it was a lie.
+
+But then we convinced ourselves we won history, became complacent and started feeling that were we’re entitled to the dream becoming real.
+
+Then they turned us against ourselves made our dream into a lie and then sold it back to us with a stupid red hat and an empty hole who puts his name on everything. They’re empty and he’s the emptiness so he must be just like them."
+
+* :::=== RoundSparrow_Commentary : Russian informaiton warfare since March 2013 has created 5,000 patterns of self-harm dreams, self-destruction of USA. *Hate harder* payloads. ===:::
