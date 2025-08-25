@@ -254,3 +254,12 @@ Not_Bears 2023-09-26
 Snoop would slap around some migrants with ICE if it guaranteed generational wealth for his family.
 
 He does not give a fuck."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mzty2n/trump_signs_executive_order_to_make_burning_the/naloqgt/
+
+UntimelyXenomorph 2017-01-25
+
+"Literally a written directive to seek criminal charges in retaliation for protected speech. And it should be a much bigger deal that Trump plainly has no idea what “his” executive orders actually say. If you can endure listening to him in this video, he seems to think that he’s actually creating a new criminal statute unilaterally; even if the goal wasn’t to punish protected speech, that is effing nuts."
+
