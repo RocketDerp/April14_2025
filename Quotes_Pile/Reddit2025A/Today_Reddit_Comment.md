@@ -263,3 +263,10 @@ UntimelyXenomorph 2017-01-25
 
 "Literally a written directive to seek criminal charges in retaliation for protected speech. And it should be a much bigger deal that Trump plainly has no idea what “his” executive orders actually say. If you can endure listening to him in this video, he seems to think that he’s actually creating a new criminal statute unilaterally; even if the goal wasn’t to punish protected speech, that is effing nuts."
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1mzty2n/trump_signs_executive_order_to_make_burning_the/nam3cw0/
+
+fuck_jan6ers 2025-04-25 (new this year)
+
+"They hate Trump and this entire admin. But they are also seriously delusional to how bad things currently are."
