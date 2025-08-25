@@ -242,3 +242,15 @@ https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_af
 FeloniousReverend 2016-02-14
 
 "Is it weird that it is for me? Like the Trump shit is annoying but hating people for who they are is a real POS stance. It was his bodyguard who actually killed someone, and if he's to be believed he didn't even take any money as a pimp, it was just him using his clout and stature to play out a role he had idolized as a kid."
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_after_weird/nalar1k/
+
+Not_Bears 2023-09-26
+
+"When are people going to realize a huge bulk of entertainers are shameless grifters who do and say whatever's popular, knowing full well most people are too stupid to notice how inconsistent they are.
+
+Snoop would slap around some migrants with ICE if it guaranteed generational wealth for his family.
+
+He does not give a fuck."
