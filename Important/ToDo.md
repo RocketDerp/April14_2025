@@ -923,3 +923,8 @@ https://old.reddit.com/r/meme/comments/1mzr9hr/why/
 
 "The will to fight", "willingness to fight"    
 The will to self-harm, the willingness to self-destruct the Earth in hate of nature, hate of humanism, hate of future children. The will to harm the enviornment and harm compassion and love.  The will to self-harm humanity.   
+
+&nbsp;
+
+Bully topic of systemic bullying / USA society hazing.    
+https://www.youtube.com/post/UgkxsadqpI3kC2TIx4XIe70qA1U-vspYziKw
