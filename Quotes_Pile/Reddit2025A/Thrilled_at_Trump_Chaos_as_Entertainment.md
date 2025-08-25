@@ -577,6 +577,16 @@ But yunno, Biden kissed his granddaughter in a slightly less-weird way than how 
 
 Fetishment of rich men's sexual power and wealth power to be a super-star and *grab women by the pussy* and manpipulate the society. It is so hillarious and funny and god-damned entertaining to meme addicts on Reddit who react-comment and joke and are constantly amused at mocking Trump, insutling Doanld Trump, eating the Tony Clifton act Trump does on the world stage of history FOR TEN FUCKING YEARS. Over and over the meme addicts of USA society can't get enough of Donald Trump to mock, the Tony Clifton act of contradictions and nonsense draws a Reddit and Bluesky and Twitter crowd every hour of every day. "It's even more hilarious that Trump's political allies are pedophiles as well." - sometimes a cigar statement is a Freudin slip of attraction to the power of wealth lords / sex lords. The story is in HOW LONG people go on and on and on for year after year declaring that Donald Trump is absurd, surreal, ironic, Tony Clifton [without being able to describe Russian information warfare techniques](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) and call for (CALL TO INTELLECTUAL ARMS) society-wide teaching about Surkov and Putin techniques in defense of NATO.
 
+&nbsp;
 
+# Monday August 25, 2025
 
+&nbsp;
 
+https://old.reddit.com/r/law/comments/1mzty2n/trump_signs_executive_order_to_make_burning_the/nalv256/
+
+LSOreli 2018-01-02
+
+"Its hilarious "yea its gonna be 1 year jail guaranteed with no early release possible" like he has the power to enact a mandatory sentence with no regard for a PSI or any additional information on the specifics of the case. This is, of course, before considering the fact that flag burning is a constitutionally protected right. He's also probably not aware that burning the flag is considered the respectful way to dispose of an unserviceable flag and that, in theory, he's also ordering that anyone actually following the flag code should be imprisoned."
+
+Humor is the best mind-fuck. People so addicted to mocking Trump, people entirely engaged in insulting and hating Donald Trump for his Tony Clifton behaviors and mannerisms. The Tony Clifton style and antics compulsively draws audience in again and again declaring it is funny, amusing, hilarious. Just as Neil Postman warned us all in 1985 with his book "Amusing Ourselves To Death".  1985 publication was when Ronald Reagan *entertainer President* was second term.
