@@ -902,3 +902,8 @@ Democracy has failed
 without love thy neighbor, love one another...  Church abandoned since 1945 and Rupert Murdoch became wealth televagelism religion    
 Great Seal USA artwork / information warfare failure     
 https://old.reddit.com/r/politics/comments/1mywdpu/we_need_a_new_theory_of_democracy_because_this/
+
+&nbsp;
+
+Trump trusts Putin    
+https://old.reddit.com/r/politics/comments/1mzbz2b/trump_is_astonishingly_deluded_about_putin/
