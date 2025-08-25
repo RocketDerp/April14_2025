@@ -405,3 +405,12 @@ https://old.reddit.com/r/agedlikemilk/comments/1mzv4tl/gop_doesnt_care_about_fre
 Wood_Land_Witch 2025-01-29 (new this year)
 
 "The GOP is a fascist party and they are in every political level. I’m sure putrid Putin is laughing his head off."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1mzv4tl/gop_doesnt_care_about_free_speech/nalyn7y/
+
+HauntedJackInTheBox 2016-05-09
+
+"Honestly watching the fascist encounter with Hasan elucidated a lot to me. They literally do NOT care about any sense of rules being fair. They know what they want, they want to fuck over the people they despise, and they have zero problems creating laws that are 100% unfair and hypocritical. The expectation that laws should be fair is just not in their brain."
+
