@@ -36,6 +36,16 @@ oldbastardbob 2017-01-28
 
 &nbsp;
 
+https://old.reddit.com/r/NoShitSherlock/comments/1mzn7ve/preelection_video_trump_says_hed_deploy_the/nakc9mj/
+
+Gold_Doughnut_9050 2022-08-29
+
+"No. He has a 38% approval rating. 60% disapproval."
+
+* :::=== RoundSparrow_Commentary : When dealing with Tony Clifton performances, you add these two numbers together. Total engagement is what matters. 38% + 60% = 98%. People booing and mocking Tony Clifton are still glued to the show. This has been gong on FOR OVER TEN FUCKING YEARS. ===:::
+
+&nbsp;
+
 
 # Sunday August 24, 2025
 
