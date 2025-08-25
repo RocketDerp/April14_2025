@@ -388,3 +388,11 @@ fastautomation 2023-04-04
 
 * :::=== RoundSparrow_Commentary : Exploiting out-group hate in the human minds. Doing things that people hate as a form of information warfare. Doing things Tony Clifton style. "What if a dictator's entire strategy was to do things he hates", "I was being sarcastic" - exactly how Surkov governing / Russian informaition warfare has won since March 2013. Hate motivated reactionary thinking, absurd surreal sarcasm on industrial military scale. Exploiting the mob mentality, [The 1954 Equation](../Martin_Luther_King_Jr_quotes0.md) ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1mztm4d/there_is_no_plan_to_fix_anything_since_the_plan/
+
+"There is no plan to fix anything since the plan has always been to destroy everything"
+
+* :::=== RoundSparrow_Commentary : Yes, **the plan, the plot to break America** was spelled out in a 2019 book, way back in year 2019: “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, page 85. **year 2019** ... alas, social meme addicts can't be bothered to stay focused on a printed book on paper and instead revel in the never-ending mockery of Donald Trump playing Tony Clifton. ===:::
