@@ -20,6 +20,14 @@ Serious-Fact-4441 2023-10-18
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1mzmnrl/first_amendment_anyone/nakfz9k/
+
+Ormyr 2015-06-05
+
+"He's not dumb. He's telling them he wants his cut. Or else."
+
+&nbsp;
+
 
 # Sunday August 24, 2025
 
@@ -849,3 +857,14 @@ https://old.reddit.com/r/agedlikemilk/comments/1mz9qib/so_sad_misinformation_is_
 colganc 2016-05-08
 
 "This is your "so sad misinformation is being normalized"? Trump and MAGA have been doing this for a decade. Ya, it's dumb if someone is making this up, but this has been "normalized" for a decade now."
+
+&nbsp;
+
+https://old.reddit.com/r/reactiongifs/comments/1mzeiqu/mrw_i_watch_the_video_that_trump_has_68_months_to/naitxii/
+
+iwantawinnebago 2025-06-16 (recent account)
+
+"But how much did he construct himself, and how much of that was manufactured by GOP and Russian troll army. I'm a bit creeped out how many MAGA hats took Russian money https://www.bbc.com/news/articles/crrlv7jdnq8o It shows Russia is working on a lot of people, not just Trump. So it's not impossible they'd manufacture another bullshit icon.
+
+Dems can't count on whoever follows Trump to be a dork. They are going to need Jon Stewart grade candidate for the next election :T And as much as I'd like it to be someone AoC or Kamala, there's way too much misogyny in the middle. It's going to take a generational shift before the candidate being a woman stops being an issue."
+
