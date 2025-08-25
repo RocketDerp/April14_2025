@@ -61,7 +61,7 @@ For over 10 years, the entire USA population has been glued to their touch scree
 
 #### The Sum of All Media Systems Addictions
 
-[***The Sum of All Fears** is a political thriller novel, written by Tom Clancy and released on August 14, 1991, as the sequel to Clear and Present Danger (1989). Main character Jack Ryan, who is now the Deputy Director of Central Intelligence, tries to stop a crisis concerning the Middle East peace process wherein Palestinian and former East German terrorists conspire to bring the United States and Soviet Union into nuclear war.](https://en.wikipedia.org/wiki/The_Sum_of_All_Fears)
+[***The Sum of All Fears*** is a political thriller novel, written by Tom Clancy and released on August 14, 1991, as the sequel to Clear and Present Danger (1989). Main character Jack Ryan, who is now the Deputy Director of Central Intelligence, tries to stop a crisis concerning the Middle East peace process wherein Palestinian and former East German terrorists conspire to bring the United States and Soviet Union into nuclear war.](https://en.wikipedia.org/wiki/The_Sum_of_All_Fears)
 
 &nbsp;
 
