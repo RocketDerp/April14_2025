@@ -918,3 +918,8 @@ https://old.reddit.com/r/inflation/comments/1mzcnps/trump_rapes_kids_taxes_the_p
 
 Bill Gates and Paul Allen out of school. My own apprenticeship at ae 16 with Telos Federal Systems, my own book publishing leading to not needing university degree to work for SAP, Paul Allen Group, Software Spectrum.   
 https://old.reddit.com/r/meme/comments/1mzr9hr/why/
+
+&nbsp;
+
+"The will to fight", "willingness to fight"    
+The will to self-harm, the willingness to self-destruct the Earth in hate of nature, hate of humanism, hate of future children. The will to harm the enviornment and harm compassion and love.  The will to self-harm humanity.   
