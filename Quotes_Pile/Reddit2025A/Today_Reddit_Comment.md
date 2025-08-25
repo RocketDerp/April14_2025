@@ -146,3 +146,11 @@ https://old.reddit.com/r/news/comments/1mzozwd/kilmar_abrego_garcia_taken_into_i
 Numerous_Photograph9 2021-01-29
 
 "Thats exactly what it is. People are attracted to he spectacle of reality TV melodrama. Unfortunately, now, its been used as a political tool to strip people of their rights, and circumvent the constitution, but the people who love this stuff think its all good drama with the bad people getting their due."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1mzs998/failed_ag_who_had_zero_will_to_fight_and_let/naleiii/
+
+Alexexy 2016-03-12
+
+"The dems ran a shit campaign but the voters failed. Trump ran a campaign on hating on your neighbors and dismantling democracy and the voting public loved that shit. Its not like Trump's relationship with Epstein or his predatory behavior towards young women/underaged girls were a secret either. All of that shit was outted during his first term and voters were able to overlook all of that."
