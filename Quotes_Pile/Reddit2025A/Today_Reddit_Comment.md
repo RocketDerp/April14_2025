@@ -306,3 +306,11 @@ blarfenugen 2023-03-17
 "Because if they're not consistently outraged by something ; or they aren't united in their hatred against it - they don't have any idea what to do."
 
 * :::=== RoundSparrow_Commentary : The foundation of IRA payloads since March 2013. Over 5,000 patterns of out-group hate. Every channel *hate harder* messaging. This is how Surkov and Putin won the information war and manipulated the USA into self-harm. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." https://www.facebook.com/konstantin.rykov/posts/10210643558675446 - Reddit and Bluesky addicts are constantly outraged at MAGA and Tony Clifton performance of Trump White House / Putin Kremlin. :::===
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1mzroqj/the_sight_of_people_breaks_them/nalgv1q/
+
+Ok_Jicama_Ok **2025-08-16 (new account)**
+
+"At this point, their comments read like a cringe anthropology field study."
