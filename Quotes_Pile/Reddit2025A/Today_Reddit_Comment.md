@@ -200,3 +200,13 @@ https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_af
 oh_please_god_no 2017-10-01
 
 "Like Louis CK (I know I know…) said: “Someone always says ‘How am I supposed to explain to my child that two men are married?’ I dunno it’s your shitty kid, you fuckin tell him. You mean to tell me that two grown people are in love and they can’t get married because you don’t wanna talk to your shitty kid for five fucking minutes??”"
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1mzqwee/snoop_dogg_branded_homophobic_after_weird/nalkb6d/
+
+Steve_Jobed 2024-11-25
+
+"People somehow twisted themselves into knots that he and entertainers are progressive because they talk about sex and drugs, but no they don't talk about any of that in a positive way. He's long made deeply misogynistic music. The fact that a guy who has been that bad towards women also is a bigot towards gay people is not shocking.
+
+And it turns out that a lot of conservative men of all stripes have harmful views of both women and gay people."
