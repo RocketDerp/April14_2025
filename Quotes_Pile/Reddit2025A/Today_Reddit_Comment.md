@@ -452,7 +452,14 @@ Hellogiraffe 2012-09-24
 
 "His entire career should have been the end of any political aspirations. As difficult as it is, try to ignore everything political he has done and continues to do, including the Obama birther bullshit. Hell, try to ignore anything from this millennium and even the pedophilia. If ANYONE can honestly look at his pre-2000 career, his scandals/crimes, and his overall attitude towards anyone but himself, he’s still an absolutely awful candidate and just an awful person with zero connection to the working man. How the fuck is our president someone who I genuinely couldn’t vote for even when I ignore 95% of his scandals/stupidity?"
 
-* :::=== RoundSparrow_Commentary : The ANSWER: Since March 2013 the Internet Research Agency alterted the minds of We The People to be attracted to self-harm, addiction to fiction, and flock to total mockery and insutling of *the others, the out groups*. 5,000 patterns of mind-fuck deployed. Compuslive addiction to hate / mockery / dehumanization of Americans. **Mocking MAGA is not resisting the Russian information warfare**, only teaching about information warfare itself and educating about cults is actually resisting.  ===:::
+* :::=== RoundSparrow_Commentary : The ANSWER: Since March 2013 the Internet Research Agency alterted the minds of We The People to be attracted to self-harm, addiction to fiction, and flock to total mockery and insutling of *the others, the out groups*. 5,000 patterns of mind-fuck deployed. Compuslive addiction to hate / mockery / dehumanization of Americans. **Mocking MAGA is not resisting the Russian information warfare**, only teaching about information warfare itself and educating about cults is actually resisting. Hating Trump supporters is hating Americans, it is not resisting the Russian mental conditioning to hate upon MAGA every day for 10 years. ===:::
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mzv69v/donald_trump_pete_hegseth_ready_to_change_defense/nam0na9/
+
+transcriptoin_error 2010-05-30
+
+"It totally makes sense. They’re no longer defending the United States; they’re declaring war on it."
+
+* :::=== RoundSparrow_Commentary : Mocking Tony Clifton peformances is not resisting Tony Clifton performances. Mocking Trump White House is not resisting. It's eating out of the hands of Kremlin techniques. Mocking a total mockery is joining the mockery. Mob mentality is joining in with the shit show. One-line reaction comments is joing in with the anti-intellectualism that Putin seeded since March 2013 invaison of the World Wide Web social networks. ===:::
