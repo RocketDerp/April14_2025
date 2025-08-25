@@ -895,3 +895,10 @@ https://old.reddit.com/r/europe/comments/1mywtyd/when_puppetry_replaces_policy_w
 
 pizzacake     
 https://old.reddit.com/r/comics/comments/1myzjee/_/
+
+&nbsp;
+
+Democracy has failed    
+without love thy neighbor, love one another...  Church abandoned since 1945 and Rupert Murdoch became wealth televagelism religion    
+Great Seal USA artwork / information warfare failure     
+https://old.reddit.com/r/politics/comments/1mywdpu/we_need_a_new_theory_of_democracy_because_this/
