@@ -476,3 +476,16 @@ FauxReal 2006-10-02 (long time account)
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1mzpyv7/white_houses_hassett_says_government_likely_to/nalb8ty/
+
+TheCaptainDamnIt 2012-08-21
+
+"It's clear there has been a generational misunderstanding of what ‘conservatism’ is, and it’s because conservatives have been allowed to define themselves with this bait and switch where they have convinced people ‘real’ conservatism is about fiscal responsibility, constitutional reverence, free markets or ‘being cautious’. Nope, those were always just a means to the end, once those stop working conservatives will adapt other means.
+
+Conservatism is about preserving past social orders. **It’s not so much a ‘principled stand on government or economic mechanisms’ but a stand on who controls the social order**. That's what they are trying to conserve. If they think they can no longer keep the ‘proper societal hierarchy’ though those means, if ‘those lower than them’ get out of place they have no problem changing the means. Their only ‘principle’ is a society with the ‘right people’ on top and everything else is fungible to that goal.
+
+They like democracy when democracy produces a society where the ‘right’ people are on top, they like ’free markets’ when that market produces a society where the ‘right’ people are on top, they like 'judicial restraint' when it fails to protect those not on the top, but when that changes conservatives have no problem dropping democracy/unregulated capitalism or judicial precedent to keep the social order. Once you understand this all their bullshit makes sense."
+
+* :::=== RoundSparrow_Commentary : I like long-form Reddit comments with some thinking. Alas, it completely ignores that we are living in a society of insane antics, mass psychosis behaviors, cults, detachment from reality, crazy media addiction driven behaviors. Russia won an information war since March 2013, what psychologists from Cambridge Analytica did was wreck thinking and communications between people to a point that it has to be addressed directly. We have widespread brain damage now, and we need to rehabilitate our thinking. The Great Seal of the USA prescribes *non-instrumental reason thinking* of The Enlightenment project, not Levant thinking from 2,000 years ago about Allah and Yahweh. ===:::
+
+
