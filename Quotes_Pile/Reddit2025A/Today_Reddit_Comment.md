@@ -42,6 +42,14 @@ https://old.reddit.com/r/nottheonion/comments/1n0ipef/benjamin_netanyahu_reacts_
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1n0ocr4/maga_candidate_torches_the_quran_in_deranged/narz0aj/
+
+Hazer_123 2023-01-01 (New Year, self-declared foreinger)
+
+"This Colombian immigrant, born in Colombia, runs a massive anti-immigrant, anti-Islam campaign."
+
+&nbsp;
+
 &nbsp;
 
 # Monday August 25, 2025
