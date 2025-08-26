@@ -519,3 +519,13 @@ VeeDubBug 2014-08-27
 "Because their dictator will make the *others* suffer. They've been attacked for just being good god-fearing patriots, forced to be subjected to \*checks notes\* the WOKE liberals, and their "agendas".
 
 I know for a fact if I were to post this one to Facebook, I'd probably have a couple of extended family members make disgusting comments on how funny it all is, even though back then they were bitching about Obama's Djion mustard, and whining about "Sleepy Joe Biden 😪". I'm so sick and tired of the faux rage and victimhood of the MAGA reight while they actively spread their hate and try to ruin the lives of people just trying to exist."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mzv280/trump_a_lot_of_people_are_saying_maybe_wed_like_a/nanzfkr/
+
+PoliticalNerdMa 2019-09-30
+
+"I can’t even fathom how the entire media industry left to right isn’t just screaming in agreement that this is just terrifying"
+
+* :::=== RoundSparrow_Commentary : Nonfiction reality about how We The People are addicted to trash media doesn't sell. ===:::
