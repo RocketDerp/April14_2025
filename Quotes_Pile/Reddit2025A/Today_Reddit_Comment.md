@@ -34,6 +34,14 @@ BoingBoingBooty 2023-02-27
 
 &nbsp;
 
+https://old.reddit.com/r/nottheonion/comments/1n0ipef/benjamin_netanyahu_reacts_to_israeli_strike_on/naqrq2c/
+
+"And yet another oopsie doopsie. We're so terribly sorry (that we got caught). It certainly won't happen again (for at least a couple of hours)."
+
+* :::=== RoundSparrow_Commentary : And yet another Twitter-length Tweet-thinking Bluesky-length message on scial machines with no solution to the media addictions to fiction problems. Torah is fiction. Quran is fiction. Palestine vs. Israel is fiction vs fiction information system battle. Reddit meme consumers mock awya in total mockery: "yet another oopsie doopsie" - feeding their reaction-commenting media addiction to the most sophisticated media machines ever created by humanity, cloud computing instant meme delivery systems. "yet another oopsie doopsie" thinking. AN ENTIRE SOCIETY: Sarcasm, mockery, total mockery society. AN ENTIRE SOCITY: Unabel to discuss Israel author Eva Berger January 2022 book about **media ecology**. https://www.amazon.com/Context-Blindness-Technology-Evolution-Understanding/dp/1433186136 "Dr. Eva Berger. Eva holds a BA in Film and Television from Tel Aviv University, and an M.A. and Ph.D. in Media Ecology from New York University (NYU)." ... (NYU is Neil Postman's university, the 1985 book "Amusing Ourselves To Death") ===:::
+
+&nbsp;
+
 &nbsp;
 
 # Monday August 25, 2025
