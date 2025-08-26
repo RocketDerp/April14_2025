@@ -350,3 +350,11 @@ Revolutionary-Yak-47 2020-06-10
 "Yeah, I'm out of sympathy for people who thought it would be "funny" to vote for him. Or who were dumb enough to fall for TikTok propaganda.  Enjoy your student loans kids, you'll be stuck with them for life."
 
 * :::=== RoundSparrow_Commentary :  Americans hate Americans. The Russian Internet Research Agency since March 2013 has convinced the USA population that the problem is local and to ignore multiple NATO nations reporting evidence all over the world of ongoing informationw warfare. "Protecting the 2025 Bundestag elections from hybrid threats and disinformation - How the Federal Ministry of the Interior and Community and Germany’s security authorities are protecting the 2025 elections" - https://www.bmi.bund.de/SharedDocs/schwerpunkte/EN/disinformation/article-disinformation-hybrid-threat.html ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/narypys/
+
+PixelatedFrogDotGif 2021-11-12
+
+"It wasnt softness that did this it was a massive propaganda machine that soaked up alienated young men who were buying into hardcore manosphere horseshit."
