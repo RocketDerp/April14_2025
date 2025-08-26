@@ -674,3 +674,13 @@ talligan 2017-01-16
 "That's the danger of satire. The better it is, the less likely the people being satirised will understand it."
 
 * :::=== RoundSparrow_Commentary : That is how Surkov won! Surkov students since March 2013 waged a war of weaponized satire. https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0jj89/fox_host_melts_down_at_newsom_for_selling_his_own/nar4kmz/
+
+AlDente 2007-04-12 (long time account, self-described as being from UK)
+
+"It’s amazing it’s taken Democrats this long to learn how to rankle the most egotistical narcissist in politics. Nearly ten years! This was always the way."
+
+* :::=== RoundSparrow_Commentary : Social media addicts, people addicted to memes, always crave more and ore and more memes and junk tarsh media. Always cheering on creation of more trash content and not wanting to face nonfiction about media addiction and information warfare. Surkov won, Russia won, since March 2013. More than 10 years. ===:::
