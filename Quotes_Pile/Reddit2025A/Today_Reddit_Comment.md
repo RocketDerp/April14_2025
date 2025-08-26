@@ -94,5 +94,15 @@ Anothermindlessanon 2024-07-31
 
 "I am asking myself this exact question every time I read the news. How and why?"
 
-* :::=== RoundSparrow_Commentary : **How:** the Internet Research agency since year 2013. **Why:** 14 months before the Ukraine war went hot in February 2014. Denial abounds, the USA and NATO have had their asses kicked in an information war.
+* :::=== RoundSparrow_Commentary : **How:** the Internet Research agency since year 2013. **Why:** 14 months before the Ukraine war went hot in February 2014. "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года."  Denial abounds, the USA and NATO have had their asses kicked in an information war.
 "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" (Conservatives) - https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1n0o0tc/swiss_4channer_farright_politician_thibaut/nasb4eu/
+
+ZyzyxZag 2022-12-29
+
+"Also all of the European subs are being bombarded with nationalist propaganda accounts - notice how many of them are <12 months old and are in the form word-word-number"
+
+* :::=== RoundSparrow_Commentary : Social media addicts commenting about the social media ecology crisis that abounds. Alas, not offering any solutio, just Twiter-length descriptions over and over every day without any call to address the meme indotrination camps that (ultra far-right, ultra dehumanizing) Russia has initated since March 2013 as lead-up to the Ukraine hot war of February 2014 onward. ===:::
