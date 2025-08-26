@@ -216,3 +216,11 @@ https://old.reddit.com/r/Funnymemes/comments/1n0pdho/good_question/naskr7c/
 vita10gy 2010-11-29
 
 "Yeah, I don't even know if the premise here is valid. A LOT of "outrage culture" is because we have 3029 media outlets that have to talk about something, anything, so "interesting thing maybe brewing on the internet" gets articles, then articles about the articles, then talk about how easily offended everyone is, and if any where along the line people were to trace it back it's like 24 people *maybe* upset by it and 80 people that said something like "lol, gross" and forgot about whatever the topic was 20 seconds later."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nas7ydh/
+
+cduga 2016-08-07
+
+"It’s been fascinating to watch as a lot of the actions he’s taken already would have tanked the stock market at any other point in history. We’re currently working in a “vibes” economy and it’s prompting folks to ignore some of the biggest warning signs. False confidence with these types of conditions is taking us straight off a cliff. Just gotta wonder when the vibes change."
