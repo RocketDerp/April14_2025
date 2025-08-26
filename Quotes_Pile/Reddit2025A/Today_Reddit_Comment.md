@@ -22,6 +22,18 @@ From what they are doing now Israel will lose a bunch of global support, possibl
 
 From that even with ethics and humanitarian reasons aside, this has been a horrible decision by Netanyahu, They get a little more land but the people will always be on the other side of the fence and now their global support will shrink."
 
+* :::=== RoundSparrow_Commentary : I think media addicts are entertained by horror films, wars footage, video of suffering, photographs of others suffering and being terrorized. Content creation is what many people favor over compassion and love. Addicts to media reacting to every event of war, not calling for Malala's **nonfiction** solutions to end war - but instead react-commenting on Reddit and other media platforms and media systems keeps audiences glued to streaming information devices. ==:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n0ipef/benjamin_netanyahu_reacts_to_israeli_strike_on/naqrfrz/
+
+BoingBoingBooty 2023-02-27
+
+"It's absolutely tragic that some of the journalists survived and were able to report what happened."
+
+&nbsp;
+
 &nbsp;
 
 # Monday August 25, 2025
