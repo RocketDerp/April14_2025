@@ -430,4 +430,24 @@ Odd_Reputation_4000 2021-07-14
 
 "Because social media and TV made a low IQ wealthy con man look like some kind of business genius on a reality "show". They made another wealthy nerd who steals ideas and buys inventions look like some kind of great innovator and genius. The people were manipulated and lied to in order for the wealthiest people in the country to gain control. Who were the people behind this brainwashing of the American people? More wealthy elites working to pad their investments and ensure the profits continue to pour in."
 
-* :::=== RoundSparrow_Commentary : "Who were the people behind this brainwashing of the American people?" - viewing this as a unique to USA issue. The same human brain falls for the same games all over the world. Putin in Russia, Saudi Arabia with Quran and Mecca. Fiction storytelling outsells nonfiction science. ===:::
+* :::=== RoundSparrow_Commentary : "Who were the people behind this brainwashing of the American people?" - viewing this as a unique to USA issue. The same human brain falls for the same games all over the world. Putin in Russia, Saudi Arabia with Quran and Mecca. Fiction storytelling outsells nonfiction science. We can euducate *every person* on comaprative mythology. We can teach the global pattern of self-harm faith in fiction. Media ecology is not optional learning. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n0vg83/john_roberts_you_own_this/nau4ejd/
+
+Mr_Mojo_Risin--
+
+"Every time there is a school shooting, MAGAs rush home to hug their guns."
+
+* :::=== RoundSparrow_Commentary : Every time MAGA or Donald Trump has a ***BREAKING NEWS*** notification, media addicts in the United States Of America go home to caress their touchscreen and feel the warmth of the device in their handds as they react-comment how much they hate American people they disagree with. As long as the system keeps deliveirng Trump content. Instead of learning and teaching how Russian information warfare works, twitter-thinking short-idea message addicts create trash social media comment messages with their free time and spare time FOR OVER TEN YEARS AND TWO MONTHS since Donald Trump became the center of all attention every minute of every day. Mocking and insulting and name-calling just like Trump, behaving like Trump, turning the entire nation into a total mockery. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n0vg83/john_roberts_you_own_this/natpqbi/
+
+Spicy_Tac0 2012-08-16
+
+"Most punchable mouth in all the world, right now. Every time it opens, I want to punch it."
+
+* :::=== RoundSparrow_Commentary : Audiences glued to the Tony Clifton performerns screens, glued to their entertainment devices with hate-filled emotions towards every message. GOING ON FOR TEN FUCKING YEARS, never wanting to confront that media addiction is the very force of Putin's information warfare since March 2013. Entirely addicted to the ideas of punching and hittig people stimulaiton from the electronic information devices. Constantly avoiding nonfiction learning and study of mob mentality and why hate as a mtoviation creates a toxicc society in total. United States of Hate. Humanism discarded, education and comprehension trashed in the name of pro-hate pro-violence messaging nonstop. ===:::
