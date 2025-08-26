@@ -258,3 +258,35 @@ https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_
 thetrueuncool 2013-11-12
 
 "Nope. America will be a third world country that is advertised around the world by its own media as the greatest place on earth. Imagine NK on steroids with a shit ton of nukes."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nas3h7x/
+
+chindo 2011-09-12
+
+"I feel like most of them are just edgelords. Or they're stupid and think that spitting bigotry and vitriol is more "manly" than doing the hard thing and sticking up for those who can't do it themselves"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nas4sx6/
+
+TheEPGFiles 2016-07-04 (July 4)
+
+"I've got a theory that some people think being smart is just being contrarian, like just claiming the opposite all the time. I think this might be because they get corrected by smarter people a lot, so that's their perception. To them, being smart isn't about actually being factually correct, it's just saying "nuh uh" and "akschully".
+
+Also, I think there is a lot of past propaganda, like hard decisions have to be made, these few people must die so more can live, etc. But it's all purely reactionary, the thought ending random claim. Like American marketing had convinced the populace that there's always two sides of the truth, but you know, sometimes one side is Nazis and just objectively wrong."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nas8mr3/
+
+ShrimpieAC 2018-04-27
+
+"This is 100% it. And it’s why we’re fucked because they have trained themselves to never agree with anyone, especially people they do not like.
+
+US culture has largely propagated this phenomenon due to how “cool”, “smart” or “manly” characters are portrayed in art and film. They’re usually witty and clever, and will verbally eviscerate anyone that dares challenge their morality or intellect, usually in a flashy or humorous way.
+
+All these idiots are trying to be Deadpool or the Joker but they forget that requires actual charisma, humor, and intelligence. Because if you don’t have those you just come off as an over-confident brainless douche.
+
+I’ve heard a lot of terms for these type of people like “know it alls” or “one-uppers” but I just call them assholes because all they do is spew shit at people and act shitty to everyone. Just shit people all around."
