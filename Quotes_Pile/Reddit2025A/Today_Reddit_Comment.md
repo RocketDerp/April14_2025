@@ -232,3 +232,11 @@ https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_
 saera-targaryen 2025-04-21 (new this year)
 
 "The "Male loneliness epidemic" is and always has been the neoliberal PR spin on what is actually the alienation of labor and mass feeling of nihilism that an oligarchy will always generate, mixed with more gender war bullshit that's meant to continue to divide us."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nasmdcs/
+
+gazebo-fan 2020-02-25
+
+"You can even see that in how people discuss media. Fight Club for example is clearly about alienation in a hyper individualistic capitalist society, but people avoid that uncomfortable topic and put the idea that it’s about masculinity in its entirety (although the topic is touched on, it’s part of the larger discussion)."
