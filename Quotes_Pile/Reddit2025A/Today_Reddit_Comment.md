@@ -509,3 +509,13 @@ Right now Hegseth is replacing top generals with fascist leaders, right now the 
 The window of opportunity for fighting back is right now, and it's closing rapidly. There is zero chance that you will have meaningful midterm elections next year if you let this rotten filth fester any further, Trump or no Trump. There is zero chance that the bubble will burst on its own or that you get saved by a deus ex machina ending. Putting your hopes into the fact that Trump is a demented imbecile with rapidly declining health is a dangerous and ultimately fruitless gamble."
 
 * :::=== RoundSparrow_Commentary :  The Twitter-think addiction to fiction isn't going away just because Donald Trump disappears. The aftermath of Cambridge Analytica psychologists isn't going away without being addressed directly. Goodness isn't going to randomly come up with a change of the season, people have to stop being addicted to enertainment trash and actually do thinking. Whcih at this point,everyone is flocking to artificial intelligence and people will fall for The ELIZA effect and believe nonsense is smarter. Nonsense fiction addiction already rules. I already know people are repulsed by my basic assertions that [democracy does not work without love and compassion being foundation - and MLK Jr's 1954 Equation](Martin_Luther_King_Jr_quotes0.md). Alas, minds are so broken - asserting the most fundamental joys are important. Love is worth fighting for. **Hate is not worth fighting for and handing down hate to children**. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mzv280/trump_a_lot_of_people_are_saying_maybe_wed_like_a/namjpyt/
+
+VeeDubBug 2014-08-27
+
+"Because their dictator will make the *others* suffer. They've been attacked for just being good god-fearing patriots, forced to be subjected to \*checks notes\* the WOKE liberals, and their "agendas".
+
+I know for a fact if I were to post this one to Facebook, I'd probably have a couple of extended family members make disgusting comments on how funny it all is, even though back then they were bitching about Obama's Djion mustard, and whining about "Sleepy Joe Biden 😪". I'm so sick and tired of the faux rage and victimhood of the MAGA reight while they actively spread their hate and try to ruin the lives of people just trying to exist."
