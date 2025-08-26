@@ -625,4 +625,24 @@ liz91 2011-09-24
 
 I knew faux news was bullshit when I was 14! I can’t believe 50 year olds walk around like the people from WallE and can’t think for themselves."
 
-* :::=== RoundSparrow_Commentary :  People in USA do not see it as their civic duty to address the intellectual problems. Adults do not learn in rectangle classrooms. Adults learn from rectangle HDTV screens, Fox News, and rectangle social machines, Reddit and Twitter and Bluesky, etc. In 1985, Neil Postman published a book about Ronald Regan's second term in office - and entertainment-faith President fron Hollywood, California. The book is titled "Amusing Ourselves To Death", and social media society should be putting sustained effort into making the concepts in that book understood and recognize - cultivating self-awareness of the Donald Trump problems of comprehension / understanding being grounded in media ecology. Also, social media has ignored that baby boomer Jen Senko stood up and made a film about Fox News that went into widespread release March 2016 (before the November 2016 election). People on social media are not asserting sustained repeating and focus on critical topics. Social media addicts are complaining aout Fox News addicts and not addressing it with serious sustained alarm bells: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad ===:::
+* :::=== RoundSparrow_Commentary :  People in USA do not see it as their civic duty to address the intellectual problems. Adults do not learn in rectangle classrooms. Adults learn from rectangle HDTV screens, Fox News, and rectangle social machines, Reddit and Twitter and Bluesky, etc. In 1985, Neil Postman published a book about Ronald Regan's second term in office - and entertainment-faith President fron Hollywood, California. The book is titled "Amusing Ourselves To Death", and social media society should be putting sustained effort into making the concepts in that book understood and recognize - cultivating self-awareness of the Donald Trump problems of comprehension / understanding being grounded in media ecology. Also, social media has ignored that baby boomer Jen Senko stood up and made a film about Fox News that went into widespread release March 2016 (before the November 2016 election). People on social media are not asserting sustained repeating and focus on critical topics. Social media addicts are complaining about Fox News addicts and not addressing it with serious sustained alarm bells: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0jj89/fox_host_melts_down_at_newsom_for_selling_his_own/nar8jc4/
+
+Free_Dome_Lover 2012-03-29
+
+"Because you've thought way, way more about your position and are rallied up and ready to defend it with some actual evidence.
+
+These people just don't ever think that much, the important looking guy and blonde woman on the TV tell them what to think and they just run with it. When actually challenged the resort to those tactics to be able to call the talk a "tie".
+
+Watch out because whenever that happens they always come back a day or 2 later after studying Fox and Prager ready to dumps some fresh brain diarrhea on you."
+
+&nbsp;
+
+m1j2p3 2013-10-31 (Halloween)
+
+"Conservatives have trouble comprehending satire. Many of them thought the Colbert Report was legit."
+
+* :::=== RoundSparrow_Commentary : Twitter-length Bluesky-think message. Tiny short decleration of problem without any concern to address it. Why not RESCUE the UNITED STATES OF AMERICA from adults who do not grasp satire by using Reddit and Bluesky to TEACH LESSONS on satire? People are so engaged in the Donald Trump Tony Clifton satire performances, that they don't see any need to address the education and comprehension directly. Civic duty calls for ALL PEOPLE to stand up and RESCUE with teahing. The people with free time and spare time on social machines keep describing the same problems but are not rescuing those manipulated and attacked by the Internet Research Agency since March 2013. Suurkov won. ===:::
