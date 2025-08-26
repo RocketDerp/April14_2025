@@ -944,3 +944,9 @@ https://old.reddit.com/r/StandUpComedy/comments/1mzvhq7/body_count_joke/
 
 Malala age 11 girl USA    
 https://old.reddit.com/r/news/comments/1n058ec/oklahoma_man_arrested_after_11yearold/
+
+&nbsp;
+
+"Co-signed" snark non-descriptive of social media, clickbait trash, explains why.     
+we The people are the media we make. Reddit is over 20 fucking years old.    
+https://old.reddit.com/r/BlueskySkeets/comments/1n0jb8j/cosigned/
