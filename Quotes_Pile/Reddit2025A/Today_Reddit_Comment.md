@@ -358,3 +358,13 @@ https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_
 PixelatedFrogDotGif 2021-11-12
 
 "It wasnt softness that did this it was a massive propaganda machine that soaked up alienated young men who were buying into hardcore manosphere horseshit."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n0s4zs/a_woman_begs_trump_to_protect_her_husband_from/nasttv7/
+
+Civil_Exchange1271 2024-07-20
+
+"she would be all thumbs up and giggles if this was happening to someone else which is exactly what makes everyone of them a horrible person."
+
+* :::=== RoundSparrow_Commentary :  Americans hate Americans. Every person in USA now hates upon other people in USA. Exactly as condttioned by Russia and Cambridge Analytica since March 2013. People who hate Trump suppporters, hate upon MAGA have *adopted* the values of Trump and MAGA. Out-group hate is what Putin and Surkov weaponized. Hate upon Canada, hate upon NATO, etc. There is no condemnation of hate and dehumanization for ALL people, it is about mob mentality of out-group attacking. People in filtr bubbles of media attacking tree clusters without seeing the total NATO forest of Russian information systems warfare. ===:::
