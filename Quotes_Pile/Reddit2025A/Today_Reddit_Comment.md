@@ -74,4 +74,14 @@ groundsgonesour 2021-08-03
 
 "Whenever I think that things can’t get worse and we the people are about to stand up I call my dad, who still lives in a small town in OK, to get a very disheartening reality check. Okies are seeing some of the most negative impacts from Trump and GOP policies and they are still waving their MAGA flags. There are far too many people whose only political agenda is harming those they have been conditioned to hate by rightwing media."
 
-* :::=== RoundSparrow_Commentary :  "whose only political agenda is harming those they have been conditioned to hate by rightwing media" - yes EVERYONe had been conditioned to hate via the Internet Research Agency since March 2013. Putin's rightwing media. And people keep remarking that media caused the hate but don't want to pick up books about media itself (Neil Postman's library) and start addressing the problem. Jen Senko's film rots on the shelf and people make Reddit comments over and over without seeing the forest for the trees of NATO loss of an information war to Russia. ===:::
+* :::=== RoundSparrow_Commentary :  "whose only political agenda is harming those they have been conditioned to hate by rightwing media" - yes EVERYONE had been conditioned to hate via the Internet Research Agency since March 2013. Putin's rightwing media. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." And people keep remarking that media caused the hate but don't want to pick up books about media itself (Neil Postman's library) and start addressing the problem. Jen Senko's film rots on the shelf and people make Reddit comments over and over without seeing the forest for the trees of NATO loss of an information war to Russia. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MadeMeSmile/comments/1n0o1m9/genuinely_made_me_smile_a_reminder_of_a_better/nas0w8m/
+
+Tom67570 2024-06-04
+
+"The culture difference from then to now..... I mean..... what the fuck happened?????????"
+
+* :::=== RoundSparrow_Commentary : What happened is the Internet Research Agency waged war of memes against the United States of America and NATO since March 2013: "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." ===:::
