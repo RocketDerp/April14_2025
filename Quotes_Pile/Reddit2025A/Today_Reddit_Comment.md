@@ -664,3 +664,13 @@ MazzIsNoMore 2017-12-15
 Critical thinking and straight logic should be taught in middle school and high school but the right is actively preventing that except for private schools."
 
 * :::=== RoundSparrow_Commentary : People have been socialized in USA to value these unique one-off comments on Reddit. Millions of them being created constantly, all the time, people creating comments. Original writing, oritinal thinking. Donald Trump communicates constatnly in original ways on social media and electric media systems. But *originality* is overrated. Tony Clifton performances are original in that few politicians are willing to do what Donald Trump is doing adapting Tony Clifton acts to the White House. But what we need more than ever is to face up that the *source* of our information, Fox News / Truth Social / Reddit filter-bubble is the problem. Why are we not all, the entire 8 billion people in the world, focused on a *best practices* of thinking and having a Super Wikipedia system? And when someone has an idea - we link it - until we ALL GET on the SAME PAGES of ideas and stop re-inventing broken wheels? In the aftermath of the March 2013 onward Internet Research Agency addicton to fiction, a focus on nonficiton for everyone - public domain (no fee, no paywall) common set of goodness. We all have a body, why sin't medical knowledge being made public domain and open on the Internet - why are we not trying to drive down cost of medical cost and curing cancer - we all have a common interest in lost people / our neighbors and family - the *incentive* is compassion and love. If we ant a better world, we need to be taking the lessons of Fox News experience and applying it towards the future. We aren't learning from our mistakes. 1985 book by Neil Postman "Amusing Ourselves To Death" is a starting point, only 184 pages, for everyone to focus on the Donald Trump meme addiction crisis. How we hae LOL LOL LOL LMAO at entertainment Reality TV ("The Apprentice") trash learning too much, the Tony Clifton act of Trump and Putin has driven us into bewildered and confused states of minds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0jj89/fox_host_melts_down_at_newsom_for_selling_his_own/nar26j5/
+
+talligan 2017-01-16
+
+"That's the danger of satire. The better it is, the less likely the people being satirised will understand it."
+
+* :::=== RoundSparrow_Commentary : That is how Surkov won! Surkov students since March 2013 waged a war of weaponized satire. https://old.reddit.com/r/WarAll/comments/1msqs1t/war_of_all_against_all_since_march_2013_war/ ===:::
