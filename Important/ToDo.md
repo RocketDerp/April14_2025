@@ -972,3 +972,8 @@ https://old.reddit.com/r/memes/comments/1n0liev/when_the_tea_is_too_hot/
 
 Vote like your children's future is determined by role models you flock to today.   
 Share trash on social media like your future is determined by what you pass to everyone else in society.    https://old.reddit.com/r/comics/comments/1n0ne5i/beep_beep_oc/
+
+&nbsp;
+
+It is living, the people walking around on Earth alive, who are the biggest source of emotional pain. Dead people, Finnegans Wake funeral ritual, are not so much the problem. It is the desire to kill off goodness itself, it is the Putin Kremlin that is the biggest source of pain that pepole do not want to discuss. It is Palestine and Isreal people alive full of hate, it is the Taliban in Swat Valey Pakistan that few people want to discuss and address.    
+https://old.reddit.com/r/sports/comments/1n0lqol/skydiver_jade_damarell_32_made_no_attempt_to_open/
