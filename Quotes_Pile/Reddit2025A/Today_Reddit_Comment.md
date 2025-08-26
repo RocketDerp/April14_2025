@@ -116,3 +116,11 @@ oceansofpiss 2024-11-27
 "the racism against romas and gypsies in switzerland is fucking insane.
 
 some people straight up talk about them like they're animals and if you call em out on it they get extremely mad and start talking about how they have an algerian coworker or some shit"
+
+&nbsp;
+
+https://old.reddit.com/r/videos/comments/1n0l8f2/travel_experts_sounding_the_alarm_about_a/narcetm/
+
+WhenThatBotlinePing 2016-12-25 (Chritmas)
+
+"Up here in Canada we keep getting reports of people being hassled/detained at the border. Doesn't seem worth it. There are plenty of other places to go until things calm down."
