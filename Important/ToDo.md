@@ -992,3 +992,8 @@ It’s funny, I always loved playing volleyball when we were young, but as you g
 
 But my all-time favorite was blocking a person and doing a little “X” with my finger on their side of the court. I got like multiple yellow cards because of it (all in different games). It's so hilariously disrespectful...but honestly it never stopped being funny to me."    
 https://old.reddit.com/r/maybemaybemaybe/comments/1n0kd4z/maybe_maybe_maybe/nasajqp/
+
+&nbsp;
+
+Calling people "little bitch" for broadcast on Internet media. Faith in hate.   
+https://old.reddit.com/r/chaoticgood/comments/1n0n2a2/local_residents_confront_suspected_ice_agents_and/
