@@ -573,3 +573,13 @@ https://old.reddit.com/r/CringeTikToks/comments/1n0brlp/texas_gop_candidate_vale
 Zestyclose-Phrase268 2022-02-02
 
 "Its basicly all fanfics of the same books with different retcons. God is like superman in where it had different writers taking it slightly different ways with the same characters."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n0brlp/texas_gop_candidate_valentina_gomez_just_released/napgi9n/
+
+ConstantReader32 2025-05-05 (new this year)
+
+"She wants to be part of the table she isn't welcomed at, she is desperate"
+
+* :::=== RoundSparrow_Commentary : The tables are all owned and rented out and there isn't seating for people living in the USA, seats have been revoved in the name of addiction to Fox News and other fiction. ===::::
