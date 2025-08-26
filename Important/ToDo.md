@@ -939,3 +939,8 @@ https://www.youtube.com/watch?v=-pjEH8QJGes
 Virgin marriage experiences    
 Choice marriage honesty    
 https://old.reddit.com/r/StandUpComedy/comments/1mzvhq7/body_count_joke/
+
+&nbsp;
+
+Malala age 11 girl USA    
+https://old.reddit.com/r/news/comments/1n058ec/oklahoma_man_arrested_after_11yearold/
