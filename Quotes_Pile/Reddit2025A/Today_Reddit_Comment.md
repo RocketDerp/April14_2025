@@ -224,3 +224,11 @@ https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_
 cduga 2016-08-07
 
 "It’s been fascinating to watch as a lot of the actions he’s taken already would have tanked the stock market at any other point in history. We’re currently working in a “vibes” economy and it’s prompting folks to ignore some of the biggest warning signs. False confidence with these types of conditions is taking us straight off a cliff. Just gotta wonder when the vibes change."
+
+&nbsp.
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nashfvq/
+
+saera-targaryen 2025-04-21 (new this year)
+
+"The "Male loneliness epidemic" is and always has been the neoliberal PR spin on what is actually the alienation of labor and mass feeling of nihilism that an oligarchy will always generate, mixed with more gender war bullshit that's meant to continue to divide us."
