@@ -421,3 +421,13 @@ CheesyPotatoSack 2025-01-21 (new this year)
 
 * :::=== RoundSparrow_Commentary : “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. **The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies**. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from information glut, information without meaning, information without control mechanisms.”
 ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1n0r1qc/this_is_how_you_rig_a_democracy/nat1cfl/
+
+Odd_Reputation_4000 2021-07-14
+
+"Because social media and TV made a low IQ wealthy con man look like some kind of business genius on a reality "show". They made another wealthy nerd who steals ideas and buys inventions look like some kind of great innovator and genius. The people were manipulated and lied to in order for the wealthiest people in the country to gain control. Who were the people behind this brainwashing of the American people? More wealthy elites working to pad their investments and ensure the profits continue to pour in."
+
+* :::=== RoundSparrow_Commentary : "Who were the people behind this brainwashing of the American people?" - viewing this as a unique to USA issue. The same human brain falls for the same games all over the world. Putin in Russia, Saudi Arabia with Quran and Mecca. Fiction storytelling outsells nonfiction science. ===:::
