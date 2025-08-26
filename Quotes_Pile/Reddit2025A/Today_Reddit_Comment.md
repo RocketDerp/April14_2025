@@ -145,4 +145,14 @@ thetrueuncool 2012-11-12
 
 "The cratering of the economy is intentional. When the smaller businesses go belly-up they will be bought out for pennies on the dollar by larger corporations which will charge higher rates for shittier service and then blame woke or DEI for the business failing. But they will simply declare bankruptcy and move on to the next. The US is entering the second Gilded Age. It will be probably 20-30 years before it recovers, if it ever does. Multiple generations will be lost to indentured servitude to corporations. But the leaders will lie and the corporate media will lap at those lies and spread them breathlessly to stay in the good graces of the Führer. Truth is lost. Facts mean nothing."
 
-* :::=== RoundSparrow_Commentary :  People do not desire truth. Fiction outsells nonfiction. Fox News provides fiction. Donald Trump Truth Social provides fiction. ===:::
+* :::=== RoundSparrow_Commentary : People do not desire truth. Fiction outsells nonfiction. Fox News provides fiction. Donald Trump Truth Social provides fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/maybemaybemaybe/comments/1n0kd4z/maybe_maybe_maybe/nasbjtm/
+
+Careless-Elk-2168 2024-09-24
+
+"I feel like this goes beyond volleyball. In the professional work world I’ve seen some insane meanness between female colleagues. Men too, of course, but the vitriol with the former is next level."
+
+* :::=== RoundSparrow_Commentary : Media addicts are attracted to Tony Clifton style performances of humuliation and domination, vitriol leadership signals. ===:::
