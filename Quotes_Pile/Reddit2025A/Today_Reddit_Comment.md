@@ -529,3 +529,11 @@ PoliticalNerdMa 2019-09-30
 "I can’t even fathom how the entire media industry left to right isn’t just screaming in agreement that this is just terrifying"
 
 * :::=== RoundSparrow_Commentary : Nonfiction reality about how We The People are addicted to trash media doesn't sell. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n05x8r/oc_a_portrait_of_president_trump_was_unfurled_at/nao7y2s/
+
+youropinionisrubbish 2023-04-04
+
+"Have you ever seen Mark Hamill's Instagram after he posts something anti-conservative? All these mindless drones trying to explain to him that he's the bad guy."
