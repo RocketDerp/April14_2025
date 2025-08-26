@@ -180,3 +180,13 @@ You simply cannot do it, because you can concuss them. Volleyball can do real da
 It always interests me that this stuff happens in the NBA or Volleyball, and the difference in reactions between men and women is very apparent. I’m assuming it has a lot to do with coaching culture."
 
 * :::=== RoundSparrow_Commentary : military training techniques work on Japanese in 1942, Germans in 1942, Russians in 1942. Military techniques are practiced without educating the population on how they work and operae. Now we live in a world where Russian military an Cambridge Analytica has mind-fucked everyone with bonding techniques of out-group hate. Gender lines of out-group hate, rape and pillage, are part of military practices all over the world in 1940's techniques. The attraction to Putin and Trump is attraction to mass dehumanization and out-group mockery. Meme addicts can't resist the total mockery Putin and Trump created since March 2013 using information systems warfare. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Whatcouldgowrong/comments/1n0lzea/opel_driver_ignores_red_lights_and_railway/nas68ui/
+
+Keegantir 2013-03-24
+
+"I actually don't think it was a suicide attempt (but it could be).
+
+It looks to me like they were distracted, likely texting, and saw the barriers out of the corner of their eye, causing them to slam on the brakes. By the time they had attention on the road, all they could see in front of them was the barrier (that was on the other side of the tracks), and possibly thought they weren't to the tracks yet."
