@@ -967,3 +967,8 @@ Who teaches Morality? Rick Roderic: Super Mario brothers
 Why can't people post a list of ethics and values and say "I follow that list", as Christians sure don't follow thier book (it isn't even possible).  So why can't people declare their valuess? I support Malala's values of education and teaching and nofiction focus over fiction. Malala's concerns for World War Three in her Stewart interview. Etc.    
 media addiction, photograph addiction, often compells people into behavior that otherwise would not have happaned. Humanity needs to face this issue with self-awareness.   
 https://old.reddit.com/r/memes/comments/1n0liev/when_the_tea_is_too_hot/
+
+&nbsp;
+
+Vote like your children's future is determined by role models you flock to today.   
+Share trash on social media like your future is determined by what you pass to everyone else in society.    https://old.reddit.com/r/comics/comments/1n0ne5i/beep_beep_oc/
