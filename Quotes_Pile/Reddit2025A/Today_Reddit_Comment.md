@@ -240,3 +240,13 @@ https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_
 gazebo-fan 2020-02-25
 
 "You can even see that in how people discuss media. Fight Club for example is clearly about alienation in a hyper individualistic capitalist society, but people avoid that uncomfortable topic and put the idea that it’s about masculinity in its entirety (although the topic is touched on, it’s part of the larger discussion)."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nas1bpy/
+
+Sometimesmaybegay 2024-03-01
+
+"I don’t believe this at all. Live amongst these people and you’ll find they’re so brainwashed they can’t point out a single bad thing he’s done. Inflation skyrockets it’s Biden. Gas prices go up it’s still Biden. Food prices rising? Still Biden. Mass layoffs in their job sector? Joe Biden did it. I’ve met small business owners who have had their business ripped apart by tariffs and the fuckers still say this all happened because Biden let everyone take advantage of us. They will not wake up. They will and are continuing to double down. You cannot fix this."
+
+* :::=== RoundSparrow_Commentary : Messages on machines: "you cannot fix this", give up. Just keep commenting about it with free time and spare time on Reddit and other social media platforms but don't try to address media addiction head-on. ===:::
