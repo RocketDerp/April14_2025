@@ -583,3 +583,22 @@ ConstantReader32 2025-05-05 (new this year)
 "She wants to be part of the table she isn't welcomed at, she is desperate"
 
 * :::=== RoundSparrow_Commentary : The tables are all owned and rented out and there isn't seating for people living in the USA, seats have been revoved in the name of addiction to Fox News and other fiction. ===::::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0jj89/fox_host_melts_down_at_newsom_for_selling_his_own/naqz39x/
+
+HumongousBelly 2025-03-25 (new this year, self identifies as European)
+
+"I am fairly confident they don’t think for themselves. None of them. Neither the viewers, nor the hosts. They’re all just meat puppets."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0jj89/fox_host_melts_down_at_newsom_for_selling_his_own/nar0ajc/
+
+IvankaPegsDaddy 2018-03-22
+
+"For real. The amount of hive mind groupthink coming from Faux is insane. These folks literally exist in a different reality."
+
+* :::=== RoundSparrow_Commentary : Bible vs. Torah vs. Quran vs. Subreddit A vs. Subreddit B vs. Fox News vs. Bluesky feed vs. TikTok - every reality based on media consumption and people finding common ground by all watching HDTV Fox News together or reading the same Reddit messages.
+» All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the message. Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments. «  - Marshall McLuhan, March 1967, page 414 ===:::
