@@ -124,3 +124,15 @@ https://old.reddit.com/r/videos/comments/1n0l8f2/travel_experts_sounding_the_ala
 WhenThatBotlinePing 2016-12-25 (Chritmas)
 
 "Up here in Canada we keep getting reports of people being hassled/detained at the border. Doesn't seem worth it. There are plenty of other places to go until things calm down."
+
+&nbsp;
+
+https://old.reddit.com/r/videos/comments/1n0l8f2/travel_experts_sounding_the_alarm_about_a/nasgs74/
+
+ArenSteele 2015-12-20
+
+"They don’t like him, but they LOVE the damage he’s doing. I know people that fall into the “my life sucks and it’s not my lazy ass’s fault” that are giddy about the destruction of America, bringing down all the people they see as successful and undeserving to wallow in the shit and poverty they live in because they can’t keep a job.
+
+Actual crabs in the bucket having a grand ol’ time making everyone as miserable as themselves"
+
+* :::=== RoundSparrow_Commentary : The brain damage of Putin and Trump to audiences, the Kremlin and White House, doing Tony Clifton performances all over every day, day after day, going on and on and on... ===:::
