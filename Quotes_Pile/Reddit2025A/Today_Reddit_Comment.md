@@ -1,3 +1,18 @@
+# Tuesday August 26, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n0ipef/benjamin_netanyahu_reacts_to_israeli_strike_on/nar9jz0/
+
+Mundt 2013-01-30
+
+"No, they are connected to how many people were killed that were working for western organizations. Last time there was an apology was the WCK bombing. Now the journalists that were killed were working for western publications."
+
+* :::=== RoundSparrow_Commentary : Social media users could be organizing sending thousands of inexpensive smartphoens with SD cards to haeve *everyday people* record video of events and have multiple people show what is happening. In an information war - document how people are starving and being bombed. Organize pickup locations for SD cards every 12 hours and a system to publish the videos from Amman Jordan or other neary by Internet stable location. This has been going on since October 2023 and social media society is not organizing to show thousands of indepenent *non-professional* people given a democratic voice in the situation. People are not asserting Malala's excellent ideas about terrorism on social media. Instead, people react to Israel over and over and over, reactionary thinking. Anti-progress thinking. Social media society has all the signs of beig media addicted to the daily news events and not actually haing copassion for EVERYDAY people being given voice like Malala's focus on EVERYDAY people being given voice through education and stable information systems (stable education / learning systems). ===:::
+
+
+&nbsp;
+
 # Monday August 25, 2025
 
 &nbsp;
