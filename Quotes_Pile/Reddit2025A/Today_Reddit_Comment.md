@@ -50,4 +50,10 @@ Hazer_123 2023-01-01 (New Year, self-declared foreinger)
 
 &nbsp;
 
+https://old.reddit.com/r/memes/comments/1n0liev/when_the_tea_is_too_hot/narv2l1/
+
+DigitalMunky 2017-07-02
+
+"My ex did that . She had a thing about watching me with another woman. Wasn’t till after the relationship I realized when her ex slept with her friend, was because it was her idea. She just framed it to where she was a victim"
+
 &nbsp;
