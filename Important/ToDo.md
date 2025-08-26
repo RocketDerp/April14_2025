@@ -977,3 +977,18 @@ Share trash on social media like your future is determined by what you pass to e
 
 It is living, the people walking around on Earth alive, who are the biggest source of emotional pain. Dead people, Finnegans Wake funeral ritual, are not so much the problem. It is the desire to kill off goodness itself, it is the Putin Kremlin that is the biggest source of pain that pepole do not want to discuss. It is Palestine and Isreal people alive full of hate, it is the Taliban in Swat Valey Pakistan that few people want to discuss and address.    
 https://old.reddit.com/r/sports/comments/1n0lqol/skydiver_jade_damarell_32_made_no_attempt_to_open/
+
+&nbsp;
+
+Sports mentality, weaponized hate. How Russia won with the IRA. never stops being funny and hilarious to watch Surkovian governing, Donald Trump playing Tony Clifton over and over for TEN YEARS AND TWO MONTHS.  
+"Because it is.
+Especially the first one. You’re not supposed to hit within first line power strike during warm-up, and you always aim straight and never cross.
+
+This was such a common thing to do against teams we hated, but you could get disqualified for it.
+
+Men’s volleyball is a little bit more strict. You do that to my setter, and you bet your ass someone is getting targeted with full-power spikes.
+
+It’s funny, I always loved playing volleyball when we were young, but as you grow, all these rules kind of ruined the fun of antagonizing the opposite team. You can’t celebrate in front of your opponents, you have to turn your back to them.
+
+But my all-time favorite was blocking a person and doing a little “X” with my finger on their side of the court. I got like multiple yellow cards because of it (all in different games). It's so hilariously disrespectful...but honestly it never stopped being funny to me."    
+https://old.reddit.com/r/maybemaybemaybe/comments/1n0kd4z/maybe_maybe_maybe/nasajqp/
