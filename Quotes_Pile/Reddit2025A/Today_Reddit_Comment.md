@@ -190,3 +190,11 @@ Keegantir 2013-03-24
 "I actually don't think it was a suicide attempt (but it could be).
 
 It looks to me like they were distracted, likely texting, and saw the barriers out of the corner of their eye, causing them to slam on the brakes. By the time they had attention on the road, all they could see in front of them was the barrier (that was on the other side of the tracks), and possibly thought they weren't to the tracks yet."
+
+&nbsp;
+
+https://old.reddit.com/r/Whatcouldgowrong/comments/1n0lzea/opel_driver_ignores_red_lights_and_railway/nasiem9/
+
+Scrubbing_Bubbles 2013-01-21
+
+"Next time you are on the highway or interstate take a look at your fellow drivers around you. A scary amount of them will be on their phones like absolute nonces."
