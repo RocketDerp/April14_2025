@@ -368,3 +368,15 @@ Civil_Exchange1271 2024-07-20
 "she would be all thumbs up and giggles if this was happening to someone else which is exactly what makes everyone of them a horrible person."
 
 * :::=== RoundSparrow_Commentary :  Americans hate Americans. Every person in USA now hates upon other people in USA. Exactly as condttioned by Russia and Cambridge Analytica since March 2013. People who hate Trump suppporters, hate upon MAGA have *adopted* the values of Trump and MAGA. Out-group hate is what Putin and Surkov weaponized. Hate upon Canada, hate upon NATO, etc. There is no condemnation of hate and dehumanization for ALL people, it is about mob mentality of out-group attacking. People in filtr bubbles of media attacking tree clusters without seeing the total NATO forest of Russian information systems warfare. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n0s4zs/a_woman_begs_trump_to_protect_her_husband_from/nastz2l/
+
+AkimahenkaCat 2025-03-31
+
+"You had a choice and chose to give America ass cancer. Don't fucking cry about it. This was all you. Own this shit. The whole country gets fucked because you're an idiot who rejected facts. Why the fuck would anyone have sympathy for you? MAGA made it a point to let half the country know to fuck their feelings. So stop being a snowflake. If you're finally big mad, fucking do something about it. Don't whine like a softie. You know who is fucking you over. You know his name. You know he doesn't give a solitary fuck about we the people or the country he is destroying. Do something about it. Nobody gives a shit about your tears. You made it this way."
+
+* :::=== RoundSparrow_Commentary :  The ever-popular Elon Musk repeating IRA messaging: 1) hate upon Americans, 2) anti-empathy, 3) anti-compassion, 4) anti-education and teaching. The general message of *hate harder*, that will improve the future of the USA. A USA that shows zero mercy, a USA that has no forgiveness, a USA that revels in using pain and suffering to teach poor people a lesson about rich people's needs. Billionares like Elon Musk and Rupert Murdoch fucked-over the minds of USA population to hate, and people revel in the situation of being able to punch down on people who were mind-fucked by Cambridge Analytica.
+"This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy." - https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy
+===:::
