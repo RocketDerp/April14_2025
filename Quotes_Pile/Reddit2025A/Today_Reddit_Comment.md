@@ -10,6 +10,17 @@ Mundt 2013-01-30
 
 * :::=== RoundSparrow_Commentary : Social media users could be organizing sending thousands of inexpensive smartphoens with SD cards to haeve *everyday people* record video of events and have multiple people show what is happening. In an information war - document how people are starving and being bombed. Organize pickup locations for SD cards every 12 hours and a system to publish the videos from Amman Jordan or other neary by Internet stable location. This has been going on since October 2023 and social media society is not organizing to show thousands of indepenent *non-professional* people given a democratic voice in the situation. People are not asserting Malala's excellent ideas about terrorism on social media. Instead, people react to Israel over and over and over, reactionary thinking. Anti-progress thinking. Social media society has all the signs of beig media addicted to the daily news events and not actually haing copassion for EVERYDAY people being given voice like Malala's focus on EVERYDAY people being given voice through education and stable information systems (stable education / learning systems). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n0ipef/benjamin_netanyahu_reacts_to_israeli_strike_on/narjbej/
+
+Gustomaximus 2010-06-07
+
+"The consequences are they lost their moral high ground forever now. Every time going forward there's a 'oh the holocaust' people will parallel it to what Israel is doping in Gaza. People are realising this has been going on, to a lesser extent than today, but for the last 70 years.
+
+From what they are doing now Israel will lose a bunch of global support, possibly even USA over time. While they enjoy a powerful position in ME today, without big brother to arm and defend them things could really change over the longer term.
+
+From that even with ethics and humanitarian reasons aside, this has been a horrible decision by Netanyahu, They get a little more land but the people will always be on the other side of the fence and now their global support will shrink."
 
 &nbsp;
 
