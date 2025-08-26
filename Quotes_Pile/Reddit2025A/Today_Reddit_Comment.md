@@ -290,3 +290,17 @@ US culture has largely propagated this phenomenon due to how “cool”, “smar
 All these idiots are trying to be Deadpool or the Joker but they forget that requires actual charisma, humor, and intelligence. Because if you don’t have those you just come off as an over-confident brainless douche.
 
 I’ve heard a lot of terms for these type of people like “know it alls” or “one-uppers” but I just call them assholes because all they do is spew shit at people and act shitty to everyone. Just shit people all around."
+
+* :::=== RoundSparrow_Commentary : The Bible is fiction. Modern meme addicts adopt fiction like what is cited: Joker, Deadpool just like Muslims adopt Quran fiction / Christian adopt Bible fiction / Jewish adopt Torah fiction. Media addiction, compusive behavior of John 1:1 - *God is memes and only memes, God is poetry and only poetry, fiction content and only fiction content*. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nasds8y/
+
+Future-Guarantee-573 2025-07-05 (new account)
+
+"Yeah, but the other candidate was a woman.  We all know how emotional, and outright whiney they can be.
+
+I mean, could you imagine a president that spends half their time on social media complaining about every perceived slight?  Or threatening to sue everyone who insults them?  Or constantly blames the last administration for everything they're screwing up?"
+
+* :::=== RoundSparrow_Commentary : We The People are attracted to consume fiction content. Fiction outsells nonfiction. President Donald Trump provides constant stimulation via fiction to audience. ===:::
