@@ -537,3 +537,11 @@ https://old.reddit.com/r/pics/comments/1n05x8r/oc_a_portrait_of_president_trump_
 youropinionisrubbish 2023-04-04
 
 "Have you ever seen Mark Hamill's Instagram after he posts something anti-conservative? All these mindless drones trying to explain to him that he's the bad guy."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n05x8r/oc_a_portrait_of_president_trump_was_unfurled_at/naoit7u/
+
+Marshy92 2015-01-31
+
+"Bots and Russian Troll Farms are extremely dangerous to our democracy. I really hope we survive long enough to fix these things. Regulating social media platforms and working to eliminate propaganda accounts online is a crisis"
