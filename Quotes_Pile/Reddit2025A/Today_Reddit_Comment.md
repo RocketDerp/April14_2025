@@ -545,3 +545,13 @@ https://old.reddit.com/r/pics/comments/1n05x8r/oc_a_portrait_of_president_trump_
 Marshy92 2015-01-31
 
 "Bots and Russian Troll Farms are extremely dangerous to our democracy. I really hope we survive long enough to fix these things. Regulating social media platforms and working to eliminate propaganda accounts online is a crisis"
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n05x8r/oc_a_portrait_of_president_trump_was_unfurled_at/naogpoa/
+
+throwaway8u3sH0 2020-08-02
+
+"It helps that he's got an entire media empire dedicated to pushing conspiracy bs. Most of his cult don't actually know anything true about him.
+
+Propaganda works. That's the biggest thing I've learned."
