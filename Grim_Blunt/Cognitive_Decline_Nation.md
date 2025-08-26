@@ -78,7 +78,7 @@ And as we say in yish loen gain let be you should live and be well go and fight 
 And the guy says: "what?", and I said: "do you want me to repeat that?" and he says "no thank you very much". Bam, he hangs up on me. Within an hour USIA calls up and says: tour is off.
 
 4:54   
-And I tell you I was relieved. Being a tough Jew is like being a tough Oriental kid kid in an all black
+And I tell you I was relieved. Being a tough Jew is like being a tough Oriental kid in an all black
 neighborhood. It's like being an Irish kid in a Latino neighborhood. When you're an outsider, you got two choices: you either become a target for people to hit you to bully you and con you... to take advantage of you... and you wind up marrying people you shouldn't... and you wind up in a job you shouldn't have with people who bully you... or you get tough.
 
 5:15   
