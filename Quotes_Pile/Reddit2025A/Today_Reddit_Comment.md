@@ -156,3 +156,27 @@ Careless-Elk-2168 2024-09-24
 "I feel like this goes beyond volleyball. In the professional work world I’ve seen some insane meanness between female colleagues. Men too, of course, but the vitriol with the former is next level."
 
 * :::=== RoundSparrow_Commentary : Media addicts are attracted to Tony Clifton style performances of humuliation and domination, vitriol leadership signals. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/maybemaybemaybe/comments/1n0kd4z/maybe_maybe_maybe/nasf2cr/
+
+GolotasDisciple 2019-12-03
+
+"Ah, it’s hard to know, but yeah, women tend to be very vindictive and often don’t show the same level of comradery as male teams.
+
+For me, I remember that if anything like that happened, you were expected to confront the person as a team, and if there was a scuffle, the whole team had to be involved. That’s how we were trained. Never allow the other team to bully you, but also never be the aggressor.
+
+Antagonizing is appreciated tho... so it's a thin line.
+
+With all that said, intentionally targeting the setter during warm-up is literally the biggest sin you can commit in volleyball, and it usually culminates in scuffles or fights.
+
+You would always get punished for losing your temper, but you would be punished even more if you dont have your teammate's back.
+
+At my level this would likely mean a DQ for the other team or red card for the player who did this.
+
+You simply cannot do it, because you can concuss them. Volleyball can do real damage, and when you strike at average speeds above 100 km/h, you don’t get a chance to react. It feels like a sucker punch and can eliminate you from the game.
+
+It always interests me that this stuff happens in the NBA or Volleyball, and the difference in reactions between men and women is very apparent. I’m assuming it has a lot to do with coaching culture."
+
+* :::=== RoundSparrow_Commentary : military training techniques work on Japanese in 1942, Germans in 1942, Russians in 1942. Military techniques are practiced without educating the population on how they work and operae. Now we live in a world where Russian military an Cambridge Analytica has mind-fucked everyone with bonding techniques of out-group hate. Gender lines of out-group hate, rape and pillage, are part of military practices all over the world in 1940's techniques. The attraction to Putin and Trump is attraction to mass dehumanization and out-group mockery. Meme addicts can't resist the total mockery Putin and Trump created since March 2013 using information systems warfare. ===:::
