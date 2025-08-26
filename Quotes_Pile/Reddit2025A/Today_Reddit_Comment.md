@@ -463,3 +463,16 @@ transcriptoin_error 2010-05-30
 "It totally makes sense. They’re no longer defending the United States; they’re declaring war on it."
 
 * :::=== RoundSparrow_Commentary : Mocking Tony Clifton peformances is not resisting Tony Clifton performances. Mocking Trump White House is not resisting. It's eating out of the hands of Kremlin techniques. Mocking a total mockery is joining the mockery. Mob mentality is joining in with the shit show. One-line reaction comments is joing in with the anti-intellectualism that Putin seeded since March 2013 invaison of the World Wide Web social networks. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1mzvnmn/dnc_chair_democrats_cant_be_the_only_party_that/nanh9uh/
+
+FauxReal 2006-10-02 (long time account)
+
+"The ironic thing is if nobody follows the rules, there are no rules and it's some weird circular justification for never following the rules by anyone."
+
+* :::=== RoundSparrow_Commentary : Nobody wants to resist Russia's information war and rescue people from Kremlin meme cults. People are too busy mocking and attacking Americans to see factual evidence from mutliple NATO nations since March 2013. Even measles is still spreading and nobody on social systems can be bothered to sustain calling out Russia: https://www.bbc.com/news/world-us-canada-45294192 - just want to keep going on with denial year after year like this is purely domestic. ===:::
+
+&nbsp;
+
