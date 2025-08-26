@@ -950,3 +950,11 @@ https://old.reddit.com/r/news/comments/1n058ec/oklahoma_man_arrested_after_11yea
 "Co-signed" snark non-descriptive of social media, clickbait trash, explains why.     
 we The people are the media we make. Reddit is over 20 fucking years old.    
 https://old.reddit.com/r/BlueskySkeets/comments/1n0jb8j/cosigned/
+
+&nbsp;
+
+"Trump Is Sending a Terrifyingly Clear Message       
+The president is going after his enemies and undermining the American system.    
+By David Frum"    
+https://www.theatlantic.com/ideas/archive/2025/08/trump-bolton-sending-message/683997/    
+https://old.reddit.com/r/politics/comments/1n0oqli/trump_is_sending_a_terrifyingly_clear_message/    
