@@ -488,4 +488,10 @@ They like democracy when democracy produces a society where the ‘right’ peop
 
 * :::=== RoundSparrow_Commentary : I like long-form Reddit comments with some thinking. Alas, it completely ignores that we are living in a society of insane antics, mass psychosis behaviors, cults, detachment from reality, crazy media addiction driven behaviors. Russia won an information war since March 2013, what psychologists from Cambridge Analytica did was wreck thinking and communications between people to a point that it has to be addressed directly. We have widespread brain damage now, and we need to rehabilitate our thinking. The Great Seal of the USA prescribes *non-instrumental reason thinking* of The Enlightenment project, not Levant thinking from 2,000 years ago about Allah and Yahweh. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/politics/comments/1mzpyv7/white_houses_hassett_says_government_likely_to/nakulrt/
+
+Global-Panik 2025-07-25 (new acount)
+
+"It actually is stealing from investors. It dilutes the value of their shares instantly. This is all madness."
