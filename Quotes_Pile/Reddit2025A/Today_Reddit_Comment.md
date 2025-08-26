@@ -57,3 +57,14 @@ DigitalMunky 2017-07-02
 "My ex did that . She had a thing about watching me with another woman. Wasn’t till after the relationship I realized when her ex slept with her friend, was because it was her idea. She just framed it to where she was a victim"
 
 &nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1n0mhje/flawless_logic/narts8z/
+
+Fear_of_the_boof **2025-07-04 (new account**, Independence day)
+
+"Americans can’t fight the military but they can go straight to every maga politician’s home, and every home that ever had a maga flag, and just do what is right for the betterment of humanity"
+
+Anti-intellectual gun-stroking gun worship American values. So conditioned that violence solves problems. Domestic violence being encouraged constantly when we are dealing with media addiction problems. Social media users won't do the one thing that addresses Fox News (Rupert Murdoch) addiction problems; Stand up for Jen Senko's film. Stand up and teach nonfiction educaiton about fiction addiction. Addiction to hate, horror, "The Purge" fiction, etc. Social media addicts keep repeating their cravings for horror content, nightmares, violence action films instead of addresing that MAGA is driven by systemic violence (D.O.G.E. dehumanization, USAid removal dehumanization, hate promotion, anti-empahty, anti-compassion). Addicts to media don't want to teach about media ecology and media addiction and address the Russian information warfare since March 2013. Craving for violence and action images abounds. ===:::
+
+&nbsp;
+
