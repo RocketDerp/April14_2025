@@ -536,7 +536,6 @@ Hardcorish 2012-12-29
 
 TEN FUCKING YEARS of social media addict nation mocking and insulting one person, Donald Trump, every hour of every day. Tony Clifton act that people eat up. Addiction to Donald Trump content, Reality TV show, has wrecked the USA. Russian information warfare of Surkov students has turned every aspect of USA life into constant jokes and hilarious Donald Trump stink. My god, do USA people have the worst possible taste in junk memes and trash media consumption to flock to this content creator. People upvote this trash taste on Reddit every hour of every day and can not resist handing power and wealth to Donald Trump in cumpulsive addiciton to the Clifton performance. It is like a wish list for the 11th season of Donald Trump South Park entertainment show: "How hilarious would it be if Trump drew the other half of his droopy face with a Sharpie to make it look 'normal' again".
 
-
 &nbsp;
 
 # Thursday August 24, 2025
@@ -600,4 +599,14 @@ literallytwisted 2018-01-05
 "He's just out there in dementia land like some kind of malignant Grandpa Simpson! Maybe we get a movement started to get him to demand Homer is put in the hall of fame for his time playing for the Isotopes."
 
 Media addicts begging for more antics politics. Entirely thrilled with the outcomes of the Russian informationw war win. Clamoring for more nonsense and fiction content, more Tony Clifton performances. Eating the Surkovian onions an begging to be bamboozled more.
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0jj89/fox_host_melts_down_at_newsom_for_selling_his_own/nar3jfd/
+
+DummyDumDragon 2023-11-13
+
+"I love the implication that selling bibles in trumps main income and that newsom's taking money out of his mouth be introducing a little competition 😂"
+
+Nonstop amusement at Donald Trump society.
 
