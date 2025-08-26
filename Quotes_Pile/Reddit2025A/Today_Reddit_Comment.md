@@ -380,3 +380,13 @@ AkimahenkaCat 2025-03-31
 * :::=== RoundSparrow_Commentary :  The ever-popular Elon Musk repeating IRA messaging: 1) hate upon Americans, 2) anti-empathy, 3) anti-compassion, 4) anti-education and teaching. The general message of *hate harder*, that will improve the future of the USA. A USA that shows zero mercy, a USA that has no forgiveness, a USA that revels in using pain and suffering to teach poor people a lesson about rich people's needs. Billionares like Elon Musk and Rupert Murdoch fucked-over the minds of USA population to hate, and people revel in the situation of being able to punch down on people who were mind-fucked by Cambridge Analytica.
 "This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy." - https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy
 ===:::
+
+&nbsp;
+
+Just_enough76 2022-06-02
+
+"I was talking to my brother about this yesterday. Like, I feel like I would be more understanding if people like my mom and my sister just owned it instead of pretending like this isn’t what they voted for.
+
+I want my mom and my sister and other trump voters to tell me loud and proud “yes we voted for this and we voted to send the national guard into your stupid fucking liberal city!” At least have some fucking conviction and stop playing the fucking victim with all this shit."
+
+* :::=== RoundSparrow_Commentary :  victims abound. Everyone is victim of the Internet Research Agency and Cambridge Analytica since March 2013. None of these people on Reddit mocking and insulting the mind-fucked Americans have lifted a finger to defend against Putin's ongoing information warfare. "Russia has helped amplify and spread false and misleading internet claims about recent hurricanes in the United States and the federal government’s response, part of a wider effort by the Kremlin to manipulate America’s political discourse" - https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57 ===:::
