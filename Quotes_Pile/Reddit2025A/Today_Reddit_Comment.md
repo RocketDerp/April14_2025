@@ -602,3 +602,15 @@ IvankaPegsDaddy 2018-03-22
 
 * :::=== RoundSparrow_Commentary : Bible vs. Torah vs. Quran vs. Subreddit A vs. Subreddit B vs. Fox News vs. Bluesky feed vs. TikTok - every reality based on media consumption and people finding common ground by all watching HDTV Fox News together or reading the same Reddit messages.
 » All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the message. Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments. «  - Marshall McLuhan, March 1967, page 414 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0jj89/fox_host_melts_down_at_newsom_for_selling_his_own/nar31cv/
+
+TacosAreJustice 2013-01-01 (New Years)
+
+"Someone on the conservative sub was saying that Garcia was only in prison in El Salvador because he was an El Salvadoran gang leader.
+
+It’s insane how divorced from reality they are. We need to fundamentally accept that they live in a post truth world. Feelings don’t care about facts over there."
+
+* :::=== RoundSparrow_Commentary : "The war zone, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, **the struggle in the future (fron 1993) may be to maintain the real against the unreal or the hyperreal or the irreal**." - Rick Roderick, **year 1993** https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ ===:::
