@@ -398,3 +398,5 @@ https://old.reddit.com/r/technology/comments/1n0sxyd/trump_opens_door_to_600000_
 HashtagDadWatts 2019-04-19
 
 "The MAGA faithful are truly the dumbest people around. No principles and they’ll soon line up faithfully behind whatever their cult leader tells them to be angry at next."
+
+* :::=== RoundSparrow_Commentary : The meme addicts faithful flock from meme to meme on social machines, constantly streaming content into their minds. Sucking down trash off Reddit, their primary concern and addiction is to fiction and don't care to teach and educate people about **cult deprogramming and information warfare**, they jsut declare anyone they don't grasp or understad to be in a cult and step over the inured that Russia mind-fucked since March 2013. ===:::
