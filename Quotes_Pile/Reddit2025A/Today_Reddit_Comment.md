@@ -390,3 +390,11 @@ Just_enough76 2022-06-02
 I want my mom and my sister and other trump voters to tell me loud and proud “yes we voted for this and we voted to send the national guard into your stupid fucking liberal city!” At least have some fucking conviction and stop playing the fucking victim with all this shit."
 
 * :::=== RoundSparrow_Commentary :  victims abound. Everyone is victim of the Internet Research Agency and Cambridge Analytica since March 2013. None of these people on Reddit mocking and insulting the mind-fucked Americans have lifted a finger to defend against Putin's ongoing information warfare. "Russia has helped amplify and spread false and misleading internet claims about recent hurricanes in the United States and the federal government’s response, part of a wider effort by the Kremlin to manipulate America’s political discourse" - https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1n0sxyd/trump_opens_door_to_600000_chinese_students_amid/naszs50/
+
+HashtagDadWatts 2019-04-19
+
+"The MAGA faithful are truly the dumbest people around. No principles and they’ll soon line up faithfully behind whatever their cult leader tells them to be angry at next."
