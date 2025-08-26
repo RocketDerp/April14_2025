@@ -645,4 +645,14 @@ m1j2p3 2013-10-31 (Halloween)
 
 "Conservatives have trouble comprehending satire. Many of them thought the Colbert Report was legit."
 
-* :::=== RoundSparrow_Commentary : Twitter-length Bluesky-think message. Tiny short decleration of problem without any concern to address it. Why not RESCUE the UNITED STATES OF AMERICA from adults who do not grasp satire by using Reddit and Bluesky to TEACH LESSONS on satire? People are so engaged in the Donald Trump Tony Clifton satire performances, that they don't see any need to address the education and comprehension directly. Civic duty calls for ALL PEOPLE to stand up and RESCUE with teahing. The people with free time and spare time on social machines keep describing the same problems but are not rescuing those manipulated and attacked by the Internet Research Agency since March 2013. Suurkov won. ===:::
+* :::=== RoundSparrow_Commentary : Twitter-length Bluesky-think message. Tiny short deceleration of problem without any concern to address it. Why not RESCUE the UNITED STATES OF AMERICA from adults who do not grasp satire by using Reddit and Bluesky to TEACH LESSONS on satire? People are so engaged in the Donald Trump Tony Clifton satire performances, that they don't see any need to address the education and comprehension directly. Civic duty calls for ALL PEOPLE to stand up and RESCUE with teaching. The people with free time and spare time on social machines keep describing the same problems but are not rescuing those manipulated and attacked by the Internet Research Agency since March 2013. Surkov won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0jj89/fox_host_melts_down_at_newsom_for_selling_his_own/naqz6hj/
+
+MazzIsNoMore 2017-12-15
+
+"Yes. Fox hosts were proven to be systematically lying to their viewers through their own texts and private communications, sometimes at the direction of the producers, and they didn't lose any viewers. It's as if it never even happened."
+
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. Fiction is far more popular than nonfiction. ===:::
