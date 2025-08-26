@@ -958,3 +958,12 @@ The president is going after his enemies and undermining the American system.
 By David Frum"    
 https://www.theatlantic.com/ideas/archive/2025/08/trump-bolton-sending-message/683997/    
 https://old.reddit.com/r/politics/comments/1n0oqli/trump_is_sending_a_terrifyingly_clear_message/    
+
+&nbsp;
+
+Media ecology abounds.   
+Normalizaiton of photographs, how humanity has changed with images from over 8 billion people all over the world being exchanged and traded.  
+Who teaches Morality? Rick Roderic: Super Mario brothers    
+Why can't people post a list of ethics and values and say "I follow that list", as Christians sure don't follow thier book (it isn't even possible).  So why can't people declare their valuess? I support Malala's values of education and teaching and nofiction focus over fiction. Malala's concerns for World War Three in her Stewart interview. Etc.    
+media addiction, photograph addiction, often compells people into behavior that otherwise would not have happaned. Humanity needs to face this issue with self-awareness.   
+https://old.reddit.com/r/memes/comments/1n0liev/when_the_tea_is_too_hot/
