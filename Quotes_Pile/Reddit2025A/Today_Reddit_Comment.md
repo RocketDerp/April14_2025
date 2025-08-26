@@ -304,3 +304,31 @@ Future-Guarantee-573 2025-07-05 (new account)
 I mean, could you imagine a president that spends half their time on social media complaining about every perceived slight?  Or threatening to sue everyone who insults them?  Or constantly blames the last administration for everything they're screwing up?"
 
 * :::=== RoundSparrow_Commentary : We The People are attracted to consume fiction content. Fiction outsells nonfiction. President Donald Trump provides constant stimulation via fiction to audience. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nas2jqf/
+
+halavais 2010-04-22
+
+<img width="1108" height="1564" alt="image" src="https://github.com/user-attachments/assets/f5b78d0a-dcc3-4cc5-a59f-a8353ab31d74" />
+
+&nbsp;
+
+"This trivializes the potential outcome. They have put a monkey in the driver seat of a Mack truck and pointed it at the local fireworks factory. We aren't going to brush this one off"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nas4aud/
+
+tweda4 2017-02-05
+
+"Yeah, the damage from this presidency is going to be permanent, and it's probably going to leave America in a globally worse position... Forever TBH.
+
+Like, the US (probably) isn't going to be permanently collapsed or permanently balkanized or something, but I suspect that other countries will never work as close with the US, never connect their militaries and economies as closely, and all of that adds up.
+
+So I suspect when the US is no longer the largest economy in the world, historians will point to this as the biggest reason."
+
+&nbsp;
