@@ -332,3 +332,14 @@ Like, the US (probably) isn't going to be permanently collapsed or permanently b
 So I suspect when the US is no longer the largest economy in the world, historians will point to this as the biggest reason."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nasfrk6/
+
+come-on-now-please 2014-09-16
+
+"Something that other commentors bring up is that Trump/maga has now been a movement for ~10 years(he started campaigning in 2015, campaigned through 2020 term, elected 2024).
+
+We have people who were 10-15 who are now 18-25 years old for whom trump is now what the model of a conservative is and they have yet to deal with actual consequences as an adult yet. I dont think ita just people voting for him again, its the whole young man rogensphere had 10 years and covid to get young men on their side."
+
+
+&nbsp;
