@@ -105,4 +105,14 @@ ZyzyxZag 2022-12-29
 
 "Also all of the European subs are being bombarded with nationalist propaganda accounts - notice how many of them are <12 months old and are in the form word-word-number"
 
-* :::=== RoundSparrow_Commentary : Social media addicts commenting about the social media ecology crisis that abounds. Alas, not offering any solutio, just Twiter-length descriptions over and over every day without any call to address the meme indotrination camps that (ultra far-right, ultra dehumanizing) Russia has initated since March 2013 as lead-up to the Ukraine hot war of February 2014 onward. ===:::
+* :::=== RoundSparrow_Commentary : Social media addicts commenting about the social media ecology crisis that abounds. Alas, not offering any solution, just Twiter-length descriptions over and over every day without any call to address the meme indotrination camps that (ultra far-right, ultra dehumanizing) Russia has initated since March 2013 as lead-up to the Ukraine hot war of February 2014 onward. There are nonfiction books rotting away in the public library while people spend their free time and spare time reaction-commenting to images on social machines. Anti-educaiton, anti-teaching, anti-Malala values abound. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1n0o0tc/swiss_4channer_farright_politician_thibaut/nas1b8m/
+
+oceansofpiss 2024-11-27
+
+"the racism against romas and gypsies in switzerland is fucking insane.
+
+some people straight up talk about them like they're animals and if you call em out on it they get extremely mad and start talking about how they have an algerian coworker or some shit"
