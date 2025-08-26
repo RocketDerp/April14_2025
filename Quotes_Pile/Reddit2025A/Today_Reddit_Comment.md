@@ -136,3 +136,13 @@ ArenSteele 2015-12-20
 Actual crabs in the bucket having a grand ol’ time making everyone as miserable as themselves"
 
 * :::=== RoundSparrow_Commentary : The brain damage of Putin and Trump to audiences, the Kremlin and White House, doing Tony Clifton performances all over every day, day after day, going on and on and on... ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/videos/comments/1n0l8f2/travel_experts_sounding_the_alarm_about_a/narrr9l/
+
+thetrueuncool 2012-11-12
+
+"The cratering of the economy is intentional. When the smaller businesses go belly-up they will be bought out for pennies on the dollar by larger corporations which will charge higher rates for shittier service and then blame woke or DEI for the business failing. But they will simply declare bankruptcy and move on to the next. The US is entering the second Gilded Age. It will be probably 20-30 years before it recovers, if it ever does. Multiple generations will be lost to indentured servitude to corporations. But the leaders will lie and the corporate media will lap at those lies and spread them breathlessly to stay in the good graces of the Führer. Truth is lost. Facts mean nothing."
+
+* :::=== RoundSparrow_Commentary :  People do not desire truth. Fiction outsells nonfiction. Fox News provides fiction. Donald Trump Truth Social provides fiction. ===:::
