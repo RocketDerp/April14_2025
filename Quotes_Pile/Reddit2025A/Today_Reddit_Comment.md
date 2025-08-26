@@ -84,4 +84,15 @@ Tom67570 2024-06-04
 
 "The culture difference from then to now..... I mean..... what the fuck happened?????????"
 
-* :::=== RoundSparrow_Commentary : What happened is the Internet Research Agency waged war of memes against the United States of America and NATO since March 2013: "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." ===:::
+* :::=== RoundSparrow_Commentary : What happened is the Internet Research Agency waged war of memes against the United States of America and NATO since March 2013: "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." ... "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MadeMeSmile/comments/1n0o1m9/genuinely_made_me_smile_a_reminder_of_a_better/nas1azz/
+
+Anothermindlessanon 2024-07-31
+
+"I am asking myself this exact question every time I read the news. How and why?"
+
+* :::=== RoundSparrow_Commentary : **How:** the Internet Research agency since year 2013. **Why:** 14 months before the Ukraine war went hot in February 2014. Denial abounds, the USA and NATO have had their asses kicked in an information war.
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" (Conservatives) - https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america ===:::
