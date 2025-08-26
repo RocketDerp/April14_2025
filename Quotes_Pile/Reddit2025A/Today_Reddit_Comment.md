@@ -208,3 +208,11 @@ Hefty_Teacher972 2022-10-28
 "James Carville said that the bruises on Trump are from very advanced venerial disease, and that he got VD from all the raping he did in his life, and he is quite sick and may know he is done and so he is completely insane now. Carville said this on his YT vidcast 2 days ago."
 
 * :::=== RoundSparrow_Commentary : TEN YEARS AND TWO MONTHS of nonstop social media engagement about Donald Trump. One man fixation of a nation of media addiction out of control. Internet Research Agency warfare against THE ENITIRE POPULATION explains Trump's power for 10 years, not his personal body and disease diagnoses of a single person at age 79. We have hundreds of millions of people in extreme addiction to media. Neil Postman's 1985 book "Amusing Ourselves To Death" explains ALL OUR BEHAVIOR, Democracy of We The People, fixated on one single person's antics and entertainment. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Funnymemes/comments/1n0pdho/good_question/naskr7c/
+
+vita10gy 2010-11-29
+
+"Yeah, I don't even know if the premise here is valid. A LOT of "outrage culture" is because we have 3029 media outlets that have to talk about something, anything, so "interesting thing maybe brewing on the internet" gets articles, then articles about the articles, then talk about how easily offended everyone is, and if any where along the line people were to trace it back it's like 24 people *maybe* upset by it and 80 people that said something like "lol, gross" and forgot about whatever the topic was 20 seconds later."
