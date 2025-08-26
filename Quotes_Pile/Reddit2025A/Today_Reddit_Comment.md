@@ -614,3 +614,15 @@ TacosAreJustice 2013-01-01 (New Years)
 It’s insane how divorced from reality they are. We need to fundamentally accept that they live in a post truth world. Feelings don’t care about facts over there."
 
 * :::=== RoundSparrow_Commentary : "The war zone, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, **the struggle in the future (fron 1993) may be to maintain the real against the unreal or the hyperreal or the irreal**." - Rick Roderick, **year 1993** https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0jj89/fox_host_melts_down_at_newsom_for_selling_his_own/nar1qe4/
+
+liz91 2011-09-24
+
+"My coworker consumes Fox News. She can’t think. I know it’s redundant. But let me explain, there was an attack on our city by a guy and she said it was “illegal immigrants”, I chimed in and said he was an American and military. Never mind his background, she just repeated Fox News. I even asked WTF does immigration have to do with a military soldier committing an act of violence? He’s American. crickets.
+
+I knew faux news was bullshit when I was 14! I can’t believe 50 year olds walk around like the people from WallE and can’t think for themselves."
+
+* :::=== RoundSparrow_Commentary :  People in USA do not see it as their civic duty to address the intellectual problems. Adults do not learn in rectangle classrooms. Adults learn from rectangle HDTV screens, Fox News, and rectangle social machines, Reddit and Twitter and Bluesky, etc. In 1985, Neil Postman published a book about Ronald Regan's second term in office - and entertainment-faith President fron Hollywood, California. The book is titled "Amusing Ourselves To Death", and social media society should be putting sustained effort into making the concepts in that book understood and recognize - cultivating self-awareness of the Donald Trump problems of comprehension / understanding being grounded in media ecology. Also, social media has ignored that baby boomer Jen Senko stood up and made a film about Fox News that went into widespread release March 2016 (before the November 2016 election). People on social media are not asserting sustained repeating and focus on critical topics. Social media addicts are complaining aout Fox News addicts and not addressing it with serious sustained alarm bells: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad ===:::
