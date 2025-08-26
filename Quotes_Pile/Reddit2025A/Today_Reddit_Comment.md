@@ -250,3 +250,11 @@ Sometimesmaybegay 2024-03-01
 "I don’t believe this at all. Live amongst these people and you’ll find they’re so brainwashed they can’t point out a single bad thing he’s done. Inflation skyrockets it’s Biden. Gas prices go up it’s still Biden. Food prices rising? Still Biden. Mass layoffs in their job sector? Joe Biden did it. I’ve met small business owners who have had their business ripped apart by tariffs and the fuckers still say this all happened because Biden let everyone take advantage of us. They will not wake up. They will and are continuing to double down. You cannot fix this."
 
 * :::=== RoundSparrow_Commentary : Messages on machines: "you cannot fix this", give up. Just keep commenting about it with free time and spare time on Reddit and other social media platforms but don't try to address media addiction head-on. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0ns0j/young_voters_who_swung_right_are_already/nasjjm9/
+
+thetrueuncool 2013-11-12
+
+"Nope. America will be a third world country that is advertised around the world by its own media as the greatest place on earth. Imagine NK on steroids with a shit ton of nukes."
