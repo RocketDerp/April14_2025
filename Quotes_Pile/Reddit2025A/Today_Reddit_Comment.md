@@ -555,3 +555,13 @@ throwaway8u3sH0 2020-08-02
 "It helps that he's got an entire media empire dedicated to pushing conspiracy bs. Most of his cult don't actually know anything true about him.
 
 Propaganda works. That's the biggest thing I've learned."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n0brlp/texas_gop_candidate_valentina_gomez_just_released/napjzel/
+
+terrence0258 2014-01-25
+
+"Americans will see shit like this, they will see these weirdos posing in family Christmas photos with AR-15s, they will see January 6th, and all of the violent rioters get a presidential pardon, they will see the president order active duty military into our streets, they will see Republicans erect a concentration camp and people posing beside an "Alligator Alcatraz" sign, and then call the Democratic Party radical and extreme.
+
+The asymmetry in American politics is insane. Democrats are expected to behave like statesmen, and make no mistakes. Meanwhile, a crazy right-winger literally assassinated high-ranking Democrats in America this year. Another crazy right-winger shot up the CDC, and the president didn't even acknowledge either incident."
