@@ -341,4 +341,25 @@ champeyon 2016-12-04
 
 "How is half the country in a whooosh moment?"
 
-* :::=== RoundSparrow_Commentary :  9 word Twitter-thinking, Tweet-think ***messaging that only HALF of USA is wooshing to The Internet Research Agency since March 2013**. Despite validated verified evidence by Johns Hopkins University and George Washington University ***dating back to year 2014***, people continue to mimic Tweeter-thinking mindsets of 9 word resposnes to the sitaution, unable to seek out nonfiction about reality itself: https://www.bbc.com/news/world-us-canada-45294192 - "whooosh moment", **it is not just MOMENTARY**, that is a major symptom of the meme addeled population, conditioned into thinking it is only momentary in recency bias mindsets. This has been going on since March 2013, perpetual anti-intelligence, anti-coprehension, avoidance of nonfiction. "half the country" fixated on only domestic sitaution, avoidng all the **nonfiction evidence of MULTIPLE NATO NATIONS under siege** of meme warfare from the Kremlin since 2013. https://www.theguardian.com/technology/2020/mar/13/facebook-uncovers-russian-led-troll-network-based-in-west-africa ===:::
+* :::=== RoundSparrow_Commentary :  9 word Twitter-thinking, Tweet-think ***messaging that only HALF of USA is wooshing to The Internet Research Agency since March 2013***. Despite validated verified evidence by Johns Hopkins University and George Washington University ***dating back to year 2014***, people continue to mimic Tweeter-thinking mindsets of 9 word resposnes to the sitaution, unable to seek out nonfiction about reality itself: https://www.bbc.com/news/world-us-canada-45294192 - "whooosh moment", **it is not just MOMENTARY**, that is a major symptom of the meme addeled population, conditioned into thinking it is only momentary in recency bias mindsets. This has been going on since March 2013, perpetual anti-intelligence, anti-coprehension, avoidance of nonfiction. "half the country" fixated on only domestic sitaution, avoidng all the **nonfiction evidence of MULTIPLE NATO NATIONS under siege** of meme warfare from the Kremlin since 2013. https://www.theguardian.com/technology/2020/mar/13/facebook-uncovers-russian-led-troll-network-based-in-west-africa ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxzgi3/
+
+astrotim67 2019-02-05
+
+"I love that it really gives insight to how utterly ignorant these people are...they think he's being truthful because that's how their "dear leader" talks."
+
+* :::=== RoundSparrow_Commentary : Media addicts entirely in love with short-messages of trash thinking, Twitter-length mind patterns. This Reddit message is a **celebration of igorance** in August 2025. "how utterly ignorant these people are"... eletronic content celebrationg how Untied States of America has had mindsets altered by the Russian IRA using CA payloads since March 2013. Celebrating that Russia won hearts and minds into meme stupor, Tweet-thinking patterns.
+“Science is more than a body of knowledge; it is a way of thinking. I have a foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in **the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming**, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nay5ns1/
+
+L3g3ndary-08 2016-04-16
+
+"The magat crowd is so unbelievably stupid. I literally don't understand."
+
+* :::=== RoundSparrow_Commentary : Without study of **nonfiction** learning from Christopher Wylie, Neil Postman, Marshall McLuhan, Joseph Campbell, Carl Sagan, Peter Pomerantsev... people do not grasp or understand how Cambridge Analytica monomyth warfare has impacted the mental attitudes and thinking of Americans since March 2013. Media ecology and conpatative mythology are no longer optional education topics. Every person age 12 to age 120 must be taught to understand modern informationw warfare that the Ukraine war has been buiilt around. Twitter-length messaging is unbeliably destructive to mindsets. ===:::
