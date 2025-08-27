@@ -42,6 +42,19 @@ When you speak to Americans, it seems they are completely unaware about how much
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1n1dobi/maga_is_so_emotionally_unstable/naxl58u/
+
+Lordofthereef 2014-03-29
+
+"
+> I have no idea why so much of the MAGA-sphere thinks you win arguments by being louder.
+
+It's not about winning arguments. They just want to shut down the opposition so they effectively give up. If you look at US politics right now, it seems to work, too. How many times have you rolled your eyes at something the president did or said in the last DAY and just not engaged because you knew exactly how the conversation would go anyway. I won't pretend I haven't been there."
+
+* :::=== RoundSparrow_Commentary : "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and they work." - https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+&nbsp;
+
 &nbsp;
 
 .
