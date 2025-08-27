@@ -585,3 +585,13 @@ https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming
 BreesusTakeTheWheel 2016-07-11
 
 "The thing is prices won’t drop if he drops tariffs. Corporations are using the tariffs as an excuse to increase prices even more than they should, just like they did with covid. We’re all being scammed and abused."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/naytzk5/
+
+DressedSpring1 2014-09-30 (self declared Canadian)
+
+"Not only this, but it seems increasingly like the stock market is in a significant bubble around AI, with 35% of the value of the entire stock market tied up in 7 companies, six of which are balls deep on AI and the 7th being NVIDIA which sells them the chips to invest in AI.
+
+Having that speculative bubble pop at the same time the economy is already going sour is going to be one hell of a thing."
