@@ -625,3 +625,13 @@ The problem is there are no more adults in the room. Trump is starting trade war
 There is a good chance that the US/Trump will lean towards the Turkish economic policy of inflation doesn't exist and if it did it will just balance itself out and that will cause a catastrophic spiral downwards"
 
 * :::=== RoundSparrow_Commentary : There is widespread evidence that hate and dehumanization are core motivations, that this is a self-harm event for the USA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/naz8wyb/
+
+unknownsequitur 2024-12-30 (new this year, self-declared Australian)
+
+"It's about to get so much worse. Several countries including Australia, Japan and Germany have stopped shipping to the US because of tariffs and the uncertainty that creates.
+
+More expensive products + lack of supply is going to create fucking chaos. It'll be like the COVID wars over toilet paper. Except now, it'll be everything."
