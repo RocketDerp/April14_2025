@@ -249,3 +249,11 @@ Lazer726 2013-02-18
 * :::=== RoundSparrow_Commentary :  "In David Foster Wallace's Infinite Jest, the viral "joke" is a mysterious film called "the Entertainment" or **Infinite Jest V that is lethally entertaining**. The film was created by the avant-garde filmmaker James O. Incandenza, and it is so compelling that anyone who watches it loses all interest in everything else and eventually dies." - this is a metaphor for Donald Trump playing Tony Clifton, this is the IRA and CA outcomes since March 2013. As described also in NYU professor Neil Postman's 1985 nonfiction book "Amusing Ourseles To Death" about Reddit and Fox News futures. Runaway meme addictions, United Stats of America driven by media addict behaiors, Trumpism induced by Kremlin information warfare against NATO. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nayf6zr/
+
+Ok_Flow_3065 2022-04-16
+
+"Anything other than “my pronouns are RED BLOODED AMERICAN” is too complicated of a joke for those folks."
+
+* :::=== RoundSparrow_Commentary :  Twitter-length, Bluesky-thinking reactionary condtioned IRA thinking since March 2013. Out-group mockery, endless mocking of the out-groups. ===:::
