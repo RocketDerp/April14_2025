@@ -439,3 +439,21 @@ TheValiantBob 2016-06-09
 
 "Remember a few months ago when they tried (and thankfully failed) to get "Trump Derangement Syndrome" a recognized mental illness? And how a few weeks ago Trump signed an EO to allow them to lock up anyone diagnosed with mental illnesses? It's coming, mark my words."
 
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_reveal_causes_of_autism/nazair4/
+
+desperaterobots 2015-11-30
+
+"It's sort of blowing my mind that there are millions of young people whose minds are just now awakening to the broader world around them, outside of their family and friends and classrooms, and they're being raised in an environment where \*THIS\* is 'normal' 'government'. When I think about the four years from age 12-16, they were so formative. There's a whole generation being raised with an Oval Office that looks like the lobby of the worst casino you've ever been to."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_reveal_causes_of_autism/naz8w2o/
+
+elcucuey 2014-11-06
+
+"How much do you want to bet that are going to say it is caused by being woke?"
+
+* :::=== RoundSparrow_Commentary : Twitter-length mocking Reddit comment. **Media ecology woke, Finnegans Wake by Irish author James Joyce** *woke* / *Wake* of Finnegans since year 1924 onward publication. "Context Blindness: Digital Technology and the Next Stage of Human Evolution (Understanding Media Ecology, 10)"  – January 25, 2022 - by Eva Berger (Author), Lance Strate (Series Editor). https://www.amazon.com/Context-Blindness-Technology-Evolution-Understanding/dp/1433186136  
+"Eva Berger is a senior lecturer at the School of Media Studies of the College of Management Academic Studies (COLMAN), where she also served as Dean (2006-2012). She holds a B.A. from the Department of Film and Television at Tel-Aviv University (1985) and an M.A. (1986) and a Ph.D (1991) in Media Ecology from New York University. Dr. Berger has taught at NYU, Tel Aviv University, the Kibbutzim College of Education and the Sam Spiegel Film School, and has been part of the faculty at COLMAN for close to 30 years. She has served on numerous boards and public service organizations including the Israel Peace Initiative, Israel Press Council, and Institute of General Semantics." ===:::
