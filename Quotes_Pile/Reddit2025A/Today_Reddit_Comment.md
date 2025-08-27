@@ -140,3 +140,26 @@ https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_whi
 Soft-Explanation9889 2022-03-27
 
 "I almost forgot about that - my ex thought he was dead serious, as did a good portion of his family. No amount of explaining that this was a bit on a satire show on the Comedy Central channel ever made it through those very thick skulls…"
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nay0a67/
+
+BurpelsonAFB 2017-10-09
+
+"Stephen Colbert did his schtick for over a decade and they still didn’t catch on to it"
+
+* :::=== RoundSparrow_Commentary : Always more entertainmet, always more amusement, always more satire, always more anti-intellectual jokes and comedy. Donald Trump playing Tony Clifton is a *product* of faith in *always more satire*. A religion that jokes and amusement will *fix* the USA thinking.
+In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us. This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nayaf2j/
+
+Pseudo-Jonathan 2023-09-01
+
+"In my experience as a teacher, one of the biggest red flags that someone is going to have a hard time in life is that they struggle to understand analogies, satire, hypotheticals, thought experiments, etc... They simply do not have the capacity to link concepts in any kind of abstract way, or be able to compare and contrast them. Everything is engaged at the most basic straightforward level without any reflection.
+
+A staggeringly large percentage of society lacks this ability."
+
+* :::=== RoundSparrow_Commentary : Educating every person age 12 to age 120 on Comparative Mythology and basic familiarity with James Joyce's Finnegans Wake is essential. Learning media ecology is no longer optional in a world of 8 billion people bumping into each other with products shipped across oceans and time zones. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966. Every person must be able to distinguis fiction from nonfiction, metaphor from fact. ===:::
