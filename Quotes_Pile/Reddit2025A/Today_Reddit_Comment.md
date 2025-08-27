@@ -569,3 +569,11 @@ thinkards 2019-02-08
 it's our job to remind our friends and families constantly about the horrible choices they have made and the damage it has done to our country and the world. be a dick about it, or don't be a dick about it, but they need to be reminded of what they've done.
 
 because, another day will come and a man even worse than trump, if you can believe it, will come along and they will fawn all over him, too. they will claim he is the actual second coming of jesus christ. and we need to remind them that's what they said about trump, too."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/naz4jxa/
+
+musashisamurai 2016-11-02
+
+"Except it won't just be tariffs causing it. Trump is meddling with the Fed, raising questions about hiw independent the dollar. He's interfering with the regulatory agencies and judicial branch, which means businesses cannot trust America to have a stable legal system. (And stability is what is wanted). He's laid off thousands of federal workers, all over the nation, which not only means workers that will be unemployed BUT also cripples the government's ability to function AND the benefits the public gets from the government. His tariffs have pushed suppliers and nations away from the US who will have little reason to return-again, stability-and now will have worser trade deals. Finally, the increased deficit spending on tax cuts (aka no deal benefit) simply means the US will spend more and more on interest."
