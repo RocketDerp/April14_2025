@@ -715,3 +715,13 @@ MattinglyBaseball 2015-10-10
 &nbsp;
 
 "If he’s the weakest, why hasn’t he been stopped? When a weak thief is robbing you blind, do you stand there and take it? This rhetoric is disingenuous and plainly false. He’s the President, has one of the largest cult followings ever known to man and is willing to do anything to stay in power to avoid consequences for his actions. Suggesting he’s weak and stupid is simply a way to promote inaction. He’s dangerous and if he was weak, you should go stop him right now."
+
+* :::=== RoundSparrow_Commentary : The fantasy in USA (Kremlin mind-fucked USA) that Donald Trump is weak and doing nothing at all but golfing. Repeated over and over, that Trump is weak and harmless and make no effort to remove Trump. Electric messages, repeated over and over, that there is no reason to be alarmed, Trump is weak and thrilling entertainment. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1g777/extrump_official_warns_why_dictator_talk_isnt_a/nay27mr/
+
+sirscooter 2008-02-16
+
+"He thinks cruelty is funny. I really want a paper on how messed up second and third generations because of generational wealth"
