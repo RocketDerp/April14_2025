@@ -625,3 +625,14 @@ RetiredHotBitch 2024-10-16
 I am living for his daily trolling on these buffoons."
 
 An entire nation who can not resist the Tony Clifton performance style, the audience interaction of Tony Clifton hybrid scripted and improv audience table visits. People entirely addicted FOR TEN YEARS AND TWO MONTHS to Donald Trump playing Clifton. Chucklehead USA.
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naybo3f/
+
+psylentj 2017-09-25
+
+"Watching ignorant conservatives lose their mind over the same shit they loved Trump doing and also NOT catching the irony is the kinda entertainment ive been needing."
+
+This is the right-wing mindset of **celebration of igorance, celebration of liberal tears** mockery. Russia won the information war, hearts and minds in the USA engaged in total mockery. Entertainment at Tony Clifton performers centered around Donald Trump and Vlad Putin.
+
