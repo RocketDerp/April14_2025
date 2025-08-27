@@ -8,7 +8,7 @@ casce 2013-03-10
 
 "It's shocking how quickly the US turned into Russia and it's even more shocking how their own people are cheering for it"
 
-* :::=== RoundSparrow_Commentary : The Internet Resarch Agency and Cambridge Analytica deployed mental manipulation starting in March 2013. Several years beofre the November 2016 election wtin by Donald Trump. People do not take sriously the behavior changes in USA population. Terse, flippant, dismissive, avoidant of nonfiction. Donald Trump entertainer is valued above nonfiction sincere leaders. People compusively spend all thier free time and spare time insulting, mocking, name-calling, mimicking Donald Trump. Attracted to the total mockery unlike any other area of life. Donald Trump is bigge than lal the top 10 video games, all the top 10 films, all the top ten sports events COMBINED in how much people can not resist mocking and insulting the Tony Clifton performance of Donald Trump. People do not wantto face up howSaudi Arabia and Mecca operate, how Putin and Surkov use antics politics in Russia, etc. Motivating a population to murder neighbors in Ukraine is no small feat. Being a killer, blood on your hands, is no minor life experience. Russia has been killing people in Ukraine since February 2014 and the people of Russia are so programmed and conditioned that it keeps going on and on. USA people have been more and more attracted to, flocking to, sehf-harm and dehumanization with Trump. The behaviors are in your face.Peoplewill not stop mocking,insutling,name-calling,dehumanizing "the others" in USA. Every day, the same attractions. ====:::
+* :::=== RoundSparrow_Commentary : The Internet Mesarch Agency and Cambridge Analytica deployed mental manipulation starting in March 2013. Several years before the November 2016 election win by Donald Trump. People do not take seriously the behavior changes in USA population. Terse, flippant, dismissive, avoidant of nonfiction. Donald Trump entertainer is valued above nonfiction sincere leaders. People compulsively spend all their free time and spare time insulting, mocking, name-calling, mimicking Donald Trump. Attracted to the total mockery unlike any other area of life. Donald Trump is bigger than all the top 10 video games, all the top 10 films, all the top ten sports events COMBINED in how much people can not resist mocking and insulting the Tony Clifton performance of Donald Trump. People do not want to face up how Saudi Arabia and Mecca operate, how Putin and Surkov use antics politics in Russia, etc. Motivating a population to murder neighbors in Ukraine is no small feat. Being a killer, blood on your hands, is no minor life experience. Russia has been killing people in Ukraine since February 2014 and the people of Russia are so programmed and conditioned that it keeps going on and on. USA people have been more and more attracted to, flocking to, self-harm and dehumanization with Trump. The behaviors are in your face. People will not stop mocking, insulting, name-calling,dehumanizing "the others" in USA. Every day, the same attractions. ====:::
 
 &nbsp;
 
@@ -19,6 +19,16 @@ MathiasSybarit 2013-11-25
 "So coverage here in Denmark, is that DR (danish national media) has uncovered a plot with 3 individuals with close ties to Trump, operating in Greenland trying to create false narratives, that would hurt the Greenlandic relationship with Denmark, with the goal of creating a Greenlandic “independence movement” in support of Trump taking over.
 
 It violates several international laws, and will probably hurt ties between Denmark and the US further, unfortunately."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1b4yi/denmark_demands_us_answers_to_new_greenland/nax7eno/
+
+raptorsthrowaway2 2024-01-01 (New Year)
+
+"The rot is so deep that the premier of Alberta can openly take trips to Mar-a-Lago to get her marching orders. It's no coincidence that she's pushing the idea of Albertan sovereignty with the end goal of becoming the 51st US state."
+
+* :::=== RoundSparrow_Commentary : since March 2013, the IRA with Cambridge Analytica payloads wasn't just targeting USA, but all over. The human brain to self-harm. Even domestic Russia is self-harming. ===:::
 
 &nbsp;
 
