@@ -74,4 +74,24 @@ These chucklefucks though? They're not burdened with facts or reason. They just 
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1n1dobi/maga_is_so_emotionally_unstable/naxhnty/
 
+Dense_Boss_7486 2025-02-02 (new this year)
+
+<img width="1032" height="1176" alt="image" src="https://github.com/user-attachments/assets/7f652004-7406-4ea8-a9f1-0f39304c7fa0" />
+
+&nbsp;
+
+"All they can talk about are the talking points that FOX and Newsmax give them. They can’t expand on any of it, they can’t talk without disagreeing because they don’t listen and when they don’t have an answer, they talk louder and say things like “are you kidding me?!” They are simple minded, manipulated people."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n1dobi/maga_is_so_emotionally_unstable/naxptzk/
+
+SpareWire 2024-06-13
+
+"I'd say that's fair, but lets not pretend like folks here do anything but regurgitate the same talking points."
+
+* :::=== RoundSparrow_Commentary : Original thinking is far overrated. People flock to trending and jump on board bandwagons constantly. The problem is WHAT they flock to. Instead of flocking to authentic goodness values like Malala's reformations of sexual realtions in Pakistan, people flock to Donald Trump's anti-education anti-comprehension anti-empathy anti-goodness. People flock to fiction storytelling of Fox News and Donald Trump, not to science and talking points. Same with ChatGTP and GrokAI - the fiction "halcunations" they produce is incredibly popular with consumers / audiences. People do not see, authentic sharing of factual reality. "Sleep Joe Biden" is not entertaining for audiences, trash Tony Clifton performances by Donald Trump and others ells far more. Sober Neil Postman's 1985 book "Amusing Ourselves To Death" can't be faced by people addicted to antics politics and fiction. People flock to entertainment, amusement, often LOL LOL LOL at the suffering of other people. Death-wishing draw an audience. The what people repeat is unoriginal and hate-filled. ===:::
