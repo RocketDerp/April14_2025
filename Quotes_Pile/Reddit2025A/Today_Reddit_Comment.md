@@ -473,3 +473,11 @@ All of corporate media really downplay how much he if screwing us. Litterally ki
 What we are told are "liberal" corporate news outlets serve only as a feeding tube to guide naratives of more passive news consumers so the conversation doesn't stray to far from what billionaired are comfortable with.
 
 Corporate media is Controlled Opposition"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1n15e37/trump_violating_his_oath_of_office_again_i_have/nawnjim/
+
+tuffthepuff 2024-09-30
+
+"Yet all of our parents love him uncritically. I never thought we'd see such an immense, unbridgeable generational divide in values like this. Hearing them praise Trump's actions and talk about how they "finally feel safe for the first time in their lives" with literal tears in their eyes is just insane to me."
