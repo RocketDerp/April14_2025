@@ -8,7 +8,7 @@ casce 2013-03-10
 
 "It's shocking how quickly the US turned into Russia and it's even more shocking how their own people are cheering for it"
 
-* :::=== RoundSparrow_Commentary : The Internet Mesarch Agency and Cambridge Analytica deployed mental manipulation starting in March 2013. Several years before the November 2016 election win by Donald Trump. People do not take seriously the behavior changes in USA population. Terse, flippant, dismissive, avoidant of nonfiction. Donald Trump entertainer is valued above nonfiction sincere leaders. People compulsively spend all their free time and spare time insulting, mocking, name-calling, mimicking Donald Trump. Attracted to the total mockery unlike any other area of life. Donald Trump is bigger than all the top 10 video games, all the top 10 films, all the top ten sports events COMBINED in how much people can not resist mocking and insulting the Tony Clifton performance of Donald Trump. People do not want to face up how Saudi Arabia and Mecca operate, how Putin and Surkov use antics politics in Russia, etc. Motivating a population to murder neighbors in Ukraine is no small feat. Being a killer, blood on your hands, is no minor life experience. Russia has been killing people in Ukraine since February 2014 and the people of Russia are so programmed and conditioned that it keeps going on and on. USA people have been more and more attracted to, flocking to, self-harm and dehumanization with Trump. The behaviors are in your face. People will not stop mocking, insulting, name-calling,dehumanizing "the others" in USA. Every day, the same attractions. ====:::
+* :::=== RoundSparrow_Commentary : The Internet Resarch Agency and Cambridge Analytica deployed hard-core mental manipulation starting in March 2013. Several years before the November 2016 election win by Donald Trump. People do not take seriously the behavior changes in USA population. Terse, flippant, dismissive, avoidant of nonfiction. Donald Trump entertainer is valued above nonfiction sincere leaders. People compulsively spend all their free time and spare time insulting, mocking, name-calling, mimicking Donald Trump. Attracted to the total mockery unlike any other area of life. Donald Trump is bigger than all the top 10 video games, all the top 10 films, all the top ten sports events COMBINED in how much people can not resist mocking and insulting the Tony Clifton performance of Donald Trump. People do not want to face up how Saudi Arabia and Mecca operate, how Putin and Surkov use antics politics in Russia, etc. Motivating a population to murder neighbors in Ukraine is no small feat. Being a killer, blood on your hands, is no minor life experience. Russia has been killing people in Ukraine since February 2014 and the people of Russia are so programmed and conditioned that it keeps going on and on. USA people have been more and more attracted to, flocking to, self-harm and dehumanization with Trump. The behaviors are in your face. People will not stop mocking, insulting, name-calling,dehumanizing "the others" in USA. Every day, the same attractions. ====:::
 
 &nbsp;
 
@@ -103,3 +103,14 @@ https://old.reddit.com/r/CringeTikToks/comments/1n1dobi/maga_is_so_emotionally_u
 OneRougeRogue 2018-08-20
 
 "Last year I had a co-worker say that the democrats have been pushing awful policies since Clinton, so I asked what Clinton-era policy he didnt like, and the guy just immediately changed the subject to sports."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxo5pb/
+
+fatguydwn15lbs 2020-10-16
+
+"I have to admit that I never anticipated this reaction from MAGA. it's not like he's being subtle about what he's doing. But it is going right over their heads."
+
+* :::=== RoundSparrow_Commentary : Incredible that in late August 2025 people are still saying one-line Twitter-think Tweet-thinking that this is all new. That MAGA and Donald Trump just started this year. Recency bias abounds. People in USA have lost all ability to see the forest for the trees that this all started back in year 2013 when behaviors change in the population. Fragmenting into 5,000 different patterns of manipulated thinking.
+"Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." ===:::
