@@ -1049,3 +1049,8 @@ https://old.reddit.com/r/comics/comments/1n1mi8b/sweet_salty_gator_days/
 
 RFK Jr solving autism cause for 8 billion human people in the world, all the way back to Nazi's in Europe who created Asperger's Syndrome. War on associative thinking.    
 https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_reveal_causes_of_autism/
+
+&nbsp;
+
+Choice Marriage Underground Railroad, pro-Malala    
+https://old.reddit.com/r/whenthe/comments/1n1mcus/and_this_is_when_i_am_a_man_imagine_how_much/
