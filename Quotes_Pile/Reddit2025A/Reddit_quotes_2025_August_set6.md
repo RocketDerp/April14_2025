@@ -1193,3 +1193,21 @@ AlDente 2007-04-12 (long time account, self-described as being from UK)
 "It’s amazing it’s taken Democrats this long to learn how to rankle the most egotistical narcissist in politics. Nearly ten years! This was always the way."
 
 * :::=== RoundSparrow_Commentary : Social media addicts, people addicted to memes, always crave more and ore and more memes and junk tarsh media. Always cheering on creation of more trash content and not wanting to face nonfiction about media addiction and information warfare. Surkov won, Russia won, since March 2013. More than 10 years. People saying this on Reddit in August 2025 don't even recognize that Donald Trump is playing Tony Clifton, the answer of *more satire* to Tony Clifton peformance is a complete failure to grasp the situation at hand (since March 2013). This is Surkov governing that has worked for Putin for 25 years! People can't even recognize it. Mocking is not resisting, mocking Tony Clifton is exactly the intended outcome of the performance. Surkov governing is based on this deepest exploit of the human mind. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_city_to_tanzania_after/naynwi3/
+
+Wealist 2024-09-27
+
+<img width="688" height="416" alt="image" src="https://github.com/user-attachments/assets/a7893ca7-a340-4afc-a816-cdd3323709be" />
+
+&nbsp;
+
+"30% of society basically logs on every morning just to hit ‘Like’ on hating strangers."
+
+* :::=== RoundSparrow_Commentary : Reddit society lives in a filter-bubble ([defined in year 2011 book](https://en.wikipedia.org/wiki/Filter_bubble)) wehre they think Fox News isn't a hate network of liberals, and that Reddit and Bluesky are not hate platforms of hate upon Donald Trump and MAGA groups. Exactly as conditioned by IRA and CA since March 2013. It isn't "30% of society" in USA, it is A hates B, B hates C, C hates A patterns of every variation. The "Leopards Ate My Face" is constantly front-page of Reddit where people who support MAGA and Trump are hated upon, conditioned by the Russian information warfare since March 2013. It is 98% plus of society engaged in message organizations of hate the out-groups, [all avoding repeating and repeat messaging of The !954 Equation about ALL hate in ALL geographyies and ALL time periods](Martin_Luther_King_Jr_quotes0.md). People are unable to see the forest for the trees, thinking "30% of society basically logs on every morning just to hit ‘Like’ on hating" neighbors and *the others*. If it were **only 30%%**, why wouldn't the 70% be using social media machines to teach compassion and love to address the crisis? But nobody is adressing that it is 98% plus... because everyone is too engaged using their free time and spare time to login to social machines to compusively hate the other genders / political parties / religions / wealth class (most often hating upon the poor) / education class (not supporting Malala's liberation of terrorists and women via education expansion) / Androic vs. iPhone / video game platform vs. video game platform / langauge vs. language (Tower of Babel metaphor) / etc / etc. ===:::
+
+&nbsp;
