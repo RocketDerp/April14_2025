@@ -186,4 +186,36 @@ SewAlone 2018-12-20
 "It’s because the right can’t do humor. Their idea of humor is just using a childish nickname. Satire is actually clever and way above their intelligence level."
 
 * :::=== RoundSparrow_Commentary : One-line Twitter-think Tweet-length Bluesky-length thinking systems abound. People can not distinguish **oversaturation of humor from absence of humor**. People can't tell information overload from ignroance. People are saturated with memes and trash, the IRA won the information war since March 2013. When people are swiming in a total toxic ocean of junk and trash, they can't recognize it when they are sorrounded by it. A critical concept of media ecology and mob mentality behaivior / mass psychosis comprehension, Surkovian information warfare exploits this.
-"Now you live in a world of hate and fear, and the people who hate and fear **do not even know it themselves; when everyone is transformed, no one is transformed**. Now you live in a system which rules without responsibility even to God. The system itself could not have intended this in the beginning, but in order to sustain itself it was compelled to go all the way.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45, published 1955. ===:::
+"Now you live in a world of hate and fear, and the people who hate and fear **do not even know it themselves; when everyone is transformed, no one is transformed**. Now you live in a system which rules without responsibility” ― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45, published 1955. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nay31iy/
+
+TehSeksyManz 2018-04-18
+
+"In general, they're pretty bad at anything artistic. Not all, mind you, but most. Just go take a look at the popular right wing white rappers. Fucking embarrassing trashbag people."
+
+* :::=== RoundSparrow_Commentary : Americans hate upon Americans. Democracy will not function when everything is only focused on the voices of the best writers, best speakers, and nobody listens to the common man because *not good enougH* and calls human persons "trashbag". A society of flocking to Donald Trump as the gold standard, Donald Trump as the benchmark of quality entertainment and poetry. Anti-diverse and a perpetual mockery communications society. Surkov won since March 2013, Russia won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxzy7e/
+
+Donkey-Hodey 2018-07-31
+
+"That’s not true - they have that one joke where they say they identify as an attack helicopter."
+
+* :::=== RoundSparrow_Commentary : Note the one-line Twitter-thinking. This is We The People's polical discourse when video game and media addicts of **all ages** (game addicts, Reddit addicts, Bluesky addicts, Twitter addicts, Fox News addicts, TikTok addicts) aren't even self-aware of their own electric media compusive behaviors. A society completely uneducated in media ecology. "Amusing Ourselves To Death" as defined by Neil Postman in his 1985 book, New York University. This is a nation (since year 2014) of media addicts in meme stupors being lead by Donald Trump, media addict.
+"The phrase originated as a copypasta in the online video game Team Fortress 2 and spread to forums such as Reddit and 4chan, where it was used (peaking in 2015) to mock transgender people" - https://en.wikipedia.org/wiki/I_Sexually_Identify_as_an_Attack_Helicopter ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nay6k7r/
+
+porcelain_platypus  2018-11-22
+
+"I mean, mocking someone's speaking style by imitating it is definitely something the right knows. So they don't even have that excuse."
+
+* :::=== RoundSparrow_Commentary : **We The People live in August 2025 Total Mockery nation.*** IRA saturation meme-boming of the population since March 2013 has turned the USA into fiction addicts who constantly mock and are attracted to the Tony Clifton antics of Trumpism.
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
