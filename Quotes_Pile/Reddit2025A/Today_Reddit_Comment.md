@@ -409,3 +409,13 @@ https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_re
 IAmEggnogstic 2020-10-09
 
 "Mark my words, the causes stated will def be bunk but politically convenient. Maybe being "woke" causes autism, maybe it's being Muslim or black or being vegan. What ever they state the causes of autism are it'll be bad news for people with autism and whoever participates in the "causes". We can cure your autism by sending you to a camp and restricting the "causes". If you enjoy/manufacture/participate in the causes you are now a criminal and need to go to a separate camp. This all is bad and no one will have their autism cured."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_reveal_causes_of_autism/nazar16/
+
+Bleezy79 2011-11-09
+
+"This administration is ruining decades of progress in the medical and scientific community"
+
+* :::=== RoundSparrow_Commentary : Since March 2013, the Kremlin information war against NATO has wrecked USA hearts and minds to self-harm the future of children. Addiction to fiction, avoidance of science **nonfiction** is a major synptom of Russian information warfare. ===:::
