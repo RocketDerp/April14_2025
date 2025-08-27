@@ -816,3 +816,13 @@ KingR3aper 2011-06-14
 "Far right conservatives realized how effective the Trump strategy was an immediately applied it in their own countries. The rise in Japan and the insurrection in SK use the exact same slogans. Luckily Koreans actually acted fast."
 
 * :::=== RoundSparrow_Commentary : Donald Trump role model for adult and children alike since year 2015 of success. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_city_to_tanzania_after/nayblfx/
+
+blackkettle 2007-12-04
+
+"I teach my kid to treat all social media and similar content as though it is anime or fiction. There’s no way to “decipher” it and there’s no real reason to try. It’s all fiction and as soon as you subscribe to that notion the danger it presents largely washes away.
+
+It’s the same with all things AI."
