@@ -1040,3 +1040,7 @@ Ideals that USA population in August 2025 does not value:
 
 Trash USA society values;   https://old.reddit.com/r/politics/comments/1n0x2h2/trump_79_flirts_awkwardly_with_bondi_in_3hr_16min/
 
+&nbsp;
+
+Wierd, weirdo, conformity    
+https://old.reddit.com/r/comics/comments/1n1mi8b/sweet_salty_gator_days/
