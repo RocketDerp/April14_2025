@@ -701,3 +701,17 @@ JustLoggedInToSay- 2017-10-01
 "Whenever I feel like my life doesn't amount to much, I remember that at least I'm not Ghislaine Maxwell. Imagine building your entire existence around serving the most disgusting men and harming children - holy shit, what a waste of a life."
 
 * :::=== RoundSparrow_Commentary : Donald Trump has elevated role models who set such a very low bar, people have *settled for* the worst relationships in public. This is the outcome of the Russian information warfare since March 2013, self-harm parenting, self-harm measuring bars for success and accomplhsment. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1g777/extrump_official_warns_why_dictator_talk_isnt_a/nazrf4j/
+
+MattinglyBaseball 2015-10-10
+
+<img width="1082" height="1244" alt="Screenshot from 2025-08-27 13-58-08" src="https://github.com/user-attachments/assets/4363d656-c79f-464b-808d-d642bc244672" />
+
+&nbsp;
+
+"If he’s the weakest, why hasn’t he been stopped? When a weak thief is robbing you blind, do you stand there and take it? This rhetoric is disingenuous and plainly false. He’s the President, has one of the largest cult followings ever known to man and is willing to do anything to stay in power to avoid consequences for his actions. Suggesting he’s weak and stupid is simply a way to promote inaction. He’s dangerous and if he was weak, you should go stop him right now."
