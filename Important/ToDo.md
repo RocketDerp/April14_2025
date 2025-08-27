@@ -1013,3 +1013,10 @@ https://old.reddit.com/r/WorkReform/comments/1n0r1qc/this_is_how_you_rig_a_democ
 
 It isn't just one man playing Surkov governing. The never-ending dementia discussion.    
 https://old.reddit.com/r/NoShitSherlock/comments/1n0v36e/gov_gavin_newsom_asks_grok_if_trump_exhibits/
+
+&nbsp;
+
+&nbsp;
+
+Absurd, surreal, mind-bending Trump antics. Tony Clifton media spectacle.     
+https://old.reddit.com/r/politics/comments/1n136hl/mindbendingly_ridiculous_maga_rages_over_trumps/
