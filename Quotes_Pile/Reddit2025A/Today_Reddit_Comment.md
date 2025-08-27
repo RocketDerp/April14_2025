@@ -635,3 +635,11 @@ unknownsequitur 2024-12-30 (new this year, self-declared Australian)
 "It's about to get so much worse. Several countries including Australia, Japan and Germany have stopped shipping to the US because of tariffs and the uncertainty that creates.
 
 More expensive products + lack of supply is going to create fucking chaos. It'll be like the COVID wars over toilet paper. Except now, it'll be everything."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1nd4c/red_state_declares_emergency_after_hitting/nazepda/
+
+Any_Will_86 2020-11-20
+
+"One undiscussed trend of the last few years is how many physicians, nurses, healthcare workers - especially OB GYNs- are dodging the anti-vax and anti-abortion states. Give it another 3-4 years an it will be exacerbated by fewer young people entering these fields. And us blocking immigrants from a couple of countries that help fill that gap."
