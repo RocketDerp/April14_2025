@@ -55,6 +55,16 @@ It's not about winning arguments. They just want to shut down the opposition so 
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1n1dobi/maga_is_so_emotionally_unstable/naxnt87/
+
+wfsgraplw 2017-02-07
+
+"Do you know what the hardest thing is though? How fucking exhausting it is. If you have a shred of integrity you'll want to provide evidence for your arguments or takedowns. Rebuffing a single talking point can take hours of research, then more time to digest it and form a cohesive argument. So much time and effort, doing their research for them, and it's exhausting.
+
+These chucklefucks though? They're not burdened with facts or reason. They just stroll in, confidently shout a load of bullshit that feels good or feels right to them, some shit they read on Twitter, then just dip. And people eat that shit up. It's not a level playing field, and the more insidious amongst them know it."
+
+&nbsp;
+
 &nbsp;
 
 .
