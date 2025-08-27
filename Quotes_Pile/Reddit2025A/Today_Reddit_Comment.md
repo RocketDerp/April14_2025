@@ -513,3 +513,19 @@ unrulYk 2018-08-07
 "America, where these days they’ll force women to give birth against their will because the sanctity of life, which only extends to the unborn. Once kids are born, no shits are given. The sanctity of the gun trumps all.
 
 America is morally and ethically bankrupt, truly careening its way into the darkest evil."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n1n1ts/not_sure_how_we_save_this_country/nazvci9/
+
+Private_HughMan 2018-06-15
+
+"That actually sounds *very* Catholic.
+
+> If a brother or sister is naked and destitute of daily food, and one of you says to them, “Depart in peace, be warmed and filled,” but you do not give them the things which are needed for the body, what does it profit? Thus also faith by itself, if it does not have works, is dead.
+
+- James 2:15-17
+
+Their prayers are worthless because they chose to pray instead of doing something."
+
+* :::=== RoundSparrow_Commentary : ===::: **Dear United States of America, dear USA:** You are as cold as ice, you never take advice, someday you will pay the price. I've seen it before living in the Middle East during the Arab Spring (doing media ecology analysis), you are closing the door, leaving The World Behind... https://www.youtube.com/watch?v=ySb1f9zWJkQ :::===
