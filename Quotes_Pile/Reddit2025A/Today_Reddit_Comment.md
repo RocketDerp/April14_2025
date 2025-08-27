@@ -577,3 +577,11 @@ https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming
 musashisamurai 2016-11-02
 
 "Except it won't just be tariffs causing it. Trump is meddling with the Fed, raising questions about hiw independent the dollar. He's interfering with the regulatory agencies and judicial branch, which means businesses cannot trust America to have a stable legal system. (And stability is what is wanted). He's laid off thousands of federal workers, all over the nation, which not only means workers that will be unemployed BUT also cripples the government's ability to function AND the benefits the public gets from the government. His tariffs have pushed suppliers and nations away from the US who will have little reason to return-again, stability-and now will have worser trade deals. Finally, the increased deficit spending on tax cuts (aka no deal benefit) simply means the US will spend more and more on interest."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/naz4o40/
+
+BreesusTakeTheWheel 2016-07-11
+
+"The thing is prices won’t drop if he drops tariffs. Corporations are using the tariffs as an excuse to increase prices even more than they should, just like they did with covid. We’re all being scammed and abused."
