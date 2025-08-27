@@ -773,3 +773,19 @@ Duanedoberman 2019-06-03
 "Do you ever feel like you are watching the world collectively decending into madness, fuelled by social media?
 
 I know, stating it on social media, but..."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_city_to_tanzania_after/nayezy4/
+
+Universal_Anomaly 2020-12-04
+
+"The worst part is how easy it is.
+
+Evolution? Literally 1000s of scientific papers later and people will still deny it based on the stupidest of arguments, such as "Why are there no crocodiles turning into dogs?"
+
+Outsiders Bad? "Well, this guy without any credentials said it, and the more people try to prove him wrong the more obvious that they're trying to cover up the truth."
+
+Beyond a certain point we just have to acknowledge the reality that about 30% of any given society wants to be justified in hating everybody who's different from them."
+
+* :::=== RoundSparrow_Commentary :  And you make this a topic of education itself. By teaching: media ecology and comparative mythology to every person. Including lessons for adults. It is a matter of national security, defense, world peace to get everyone on the same page regarding egomania induced by media consumption. ===:::
