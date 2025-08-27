@@ -332,3 +332,13 @@ Woobly_Hixbee 2021-01-06
 "The timing is perfect too - we’ve been in a stretch where the best late night and political comedy/satire are all on summer break for a few weeks and Gavin is really comin through to fill the void and feed our withdrawal 👌"
 
 * :::=== RoundSparrow_Commentary :  Media addicts need to satiate their constant cravings for more fiction trash content. Discussing on Reddit social media their cravings for more seasons of endless total mockery nation. This is the [driving force of the Mass Man of USA society](https://marshalmcluhangutenberg.home.blog/2020/09/08/discarnate-man/) in August 2025. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxvhyz/
+
+champeyon 2016-12-04
+
+"How is half the country in a whooosh moment?"
+
+* :::=== RoundSparrow_Commentary :  9 word Twitter-thinking, Tweet-think ***messaging that only HALF of USA is wooshing to The Internet Research Agency since March 2013**. Despite validated verified evidence by Johns Hopkins University and George Washington University ***dating back to year 2014***, people continue to mimic Tweeter-thinking mindsets of 9 word resposnes to the sitaution, unable to seek out nonfiction about reality itself: https://www.bbc.com/news/world-us-canada-45294192 - "whooosh moment", **it is not just MOMENTARY**, that is a major symptom of the meme addeled population, conditioned into thinking it is only momentary in recency bias mindsets. This has been going on since March 2013, perpetual anti-intelligence, anti-coprehension, avoidance of nonfiction. "half the country" fixated on only domestic sitaution, avoidng all the **nonfiction evidence of MULTIPLE NATO NATIONS under siege** of meme warfare from the Kremlin since 2013. https://www.theguardian.com/technology/2020/mar/13/facebook-uncovers-russian-led-troll-network-based-in-west-africa ===:::
