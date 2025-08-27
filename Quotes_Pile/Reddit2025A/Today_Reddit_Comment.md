@@ -450,4 +450,26 @@ Spicy_Tac0 2012-08-16
 
 "Most punchable mouth in all the world, right now. Every time it opens, I want to punch it."
 
-* :::=== RoundSparrow_Commentary : Audiences glued to the Tony Clifton performerns screens, glued to their entertainment devices with hate-filled emotions towards every message. GOING ON FOR TEN FUCKING YEARS, never wanting to confront that media addiction is the very force of Putin's information warfare since March 2013. Entirely addicted to the ideas of punching and hittig people stimulaiton from the electronic information devices. Constantly avoiding nonfiction learning and study of mob mentality and why hate as a mtoviation creates a toxicc society in total. United States of Hate. Humanism discarded, education and comprehension trashed in the name of pro-hate pro-violence messaging nonstop. ===:::
+* :::=== RoundSparrow_Commentary : Audiences glued to the Tony Clifton performers media end-point screens, glued to their entertainment devices with hate-filled emotions towards every message. GOING ON FOR TEN FUCKING YEARS, never wanting to confront that media addiction is the very force of Putin's information warfare since March 2013. Entirely addicted to the ideas of punching and hitting people stimulation from the electronic information devices. Constantly avoiding nonfiction learning and study of mob mentality and why hate as a motivation creates a toxic society in total. United States of Hate. Humanism discarded, education and comprehension trashed in the name of pro-hate pro-violence messaging nonstop. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n0vg83/john_roberts_you_own_this/natsbin/
+
+Regular_Plankton_530 2020-11-19
+
+"Fox would be on a loop if Biden and Obama would’ve said and done this. MAGA people, who were all faked outraged believing Obama and Biden would’ve done an ounce of what trump is doing now are ok with it…now? Damn, my brain is all discombobulated with all these brain twisters. 🤦‍♀️"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n0lp15/cbs_caved_to_trump_now_hes_seeking_punishments/nasmxk9/
+
+ADhomin_em 2018-10-13
+
+"The thing is, the stories they cover are still framed quite favorable for him, all things considered. Always sanewashing his bullshit and giving the benefit of the doubt. They don't talk at all as much as they should about the plethora of constitutional and rights violations the administration is committing. They aren't showing the true horrors unless the public is already overwhelmingly talking about them. They aren't doing anything to keep the public informed really. The even carefully chose their camera angles to make mass protests seem like little get togethers.together.
+
+All of corporate media really downplay how much he if screwing us. Litterally killing our country, but they all seem to stick to a chosen set of authorized talking points. Corporations want him in office. Yes even the "liberal media" corporations. Corporations don't give a damn about your country, and your constitution and rights are just things that get in their way.
+
+What we are told are "liberal" corporate news outlets serve only as a feeding tube to guide naratives of more passive news consumers so the conversation doesn't stray to far from what billionaired are comfortable with.
+
+Corporate media is Controlled Opposition"
