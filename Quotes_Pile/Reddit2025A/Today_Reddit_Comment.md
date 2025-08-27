@@ -651,3 +651,13 @@ https://old.reddit.com/r/politics/comments/1n1nd4c/red_state_declares_emergency_
 Grandheretic 2023-04-23
 
 "The natural / logical consequence of anti-woman, forced birth policies in a country with horrible maternal healthcare, high infant mortality, class based healthcare access, food scarcity, etc… Where are all the pro- life Christians that demanded this policy? They should solve this issue with their good Christian love and prayers."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1hhz2/trump_baselessly_claims_it_must_be_something/nay5fwo/
+
+Lollipopsaurus 2009-03-05
+
+"It's amazing to me that people cannot comprehend advances in medical sciences leading to increased diagnoses of ALL types of maladies, not just physical ones like cancer that are more visible.
+
+We truly live among the dumbest people."
