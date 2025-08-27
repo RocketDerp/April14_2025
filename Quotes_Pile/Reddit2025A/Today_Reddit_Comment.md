@@ -537,3 +537,11 @@ https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming
 SunnyCali12  2025-01-27 (new this year)
 
 "Which actually worries me more. I feel like we are teetering on the edge of a cliff and haven’t seen shit yet."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/nazcg2t/
+
+Fiernen699 2013-12-16
+
+"Y'all (the US) are gonna tank the whole world's economy. My god am I glad I've already learnt how to live on a shoestring budget... Because sadly that's going to come in handy again. "
