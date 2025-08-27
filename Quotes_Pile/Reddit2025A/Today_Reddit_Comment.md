@@ -826,3 +826,11 @@ blackkettle 2007-12-04
 "I teach my kid to treat all social media and similar content as though it is anime or fiction. There’s no way to “decipher” it and there’s no real reason to try. It’s all fiction and as soon as you subscribe to that notion the danger it presents largely washes away.
 
 It’s the same with all things AI."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_city_to_tanzania_after/naya18l/
+
+invariantspeed 2024-04-07
+
+"Social media is more dangerous to society than r rampant crystal meth usage."
