@@ -1006,3 +1006,10 @@ https://old.reddit.com/r/chaoticgood/comments/1n0n2a2/local_residents_confront_s
 Brian Allen  
 "They worshiped the billionaires robbing them. They slashed their own benefits, gutted their own healthcare and cheered while the rich wrote off private jet"   
 https://old.reddit.com/r/WorkReform/comments/1n0r1qc/this_is_how_you_rig_a_democracy/
+
+&nbsp;
+
+&nbsp;
+
+It isn't just one man playing Surkov governing. The never-ending dementia discussion.    
+https://old.reddit.com/r/NoShitSherlock/comments/1n0v36e/gov_gavin_newsom_asks_grok_if_trump_exhibits/
