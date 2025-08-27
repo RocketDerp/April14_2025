@@ -176,3 +176,14 @@ Side note: I will never stop calling it Twitter, but what even is the new name f
 
 * :::=== RoundSparrow_Commentary : Media specific to a political party, media built around Fox News fiction storytelling, Saturday Night Live "Weekend Update" fiction entertainment patterns is toxic to society in total. Neil Postman in 1985 published a book titled "Amusing Ourselves To Death" about this style of media techniques.
 “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxp98s/
+
+SewAlone 2018-12-20
+
+"It’s because the right can’t do humor. Their idea of humor is just using a childish nickname. Satire is actually clever and way above their intelligence level."
+
+* :::=== RoundSparrow_Commentary : One-line Twitter-think Tweet-length Bluesky-length thinking systems abound. People can not distinguish **oversaturation of humor from absence of humor**. People can't tell information overload from ignroance. People are saturated with memes and trash, the IRA won the information war since March 2013. When people are swiming in a total toxic ocean of junk and trash, they can't recognize it when they are sorrounded by it. A critical concept of media ecology and mob mentality behaivior / mass psychosis comprehension, Surkovian information warfare exploits this.
+"Now you live in a world of hate and fear, and the people who hate and fear **do not even know it themselves; when everyone is transformed, no one is transformed**. Now you live in a system which rules without responsibility even to God. The system itself could not have intended this in the beginning, but in order to sustain itself it was compelled to go all the way.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45, published 1955. ===:::
