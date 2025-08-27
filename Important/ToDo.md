@@ -1020,3 +1020,18 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n0v36e/gov_gavin_newsom_asks_g
 
 Absurd, surreal, mind-bending Trump antics. Tony Clifton media spectacle.     
 https://old.reddit.com/r/politics/comments/1n136hl/mindbendingly_ridiculous_maga_rages_over_trumps/
+
+&nbsp;
+
+&nbsp;
+
+#WhyUSA8 
+
+Ideals that USA population in August 2025 does not value:
+
+1. Compassion for all people
+2. Love for all people
+3. Progress towards world peace
+4. Ending war for all people
+5. Sharing with all people.
+6. Ending competition that is only about domination and "winner takes all"
