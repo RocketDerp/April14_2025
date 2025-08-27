@@ -430,3 +430,12 @@ Heavy_Arm_7060 2021-11-10
 
 * :::=== RoundSparrow_Commentary : Asperger's Children: The Origins of Autism in Nazi Vienna,
 Edith Sheffer. May 1, 2018 https://tec.fsi.stanford.edu/publication/aspergers-children-origins-autism-nazi-vienna ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_reveal_causes_of_autism/nazp3a0/
+
+TheValiantBob 2016-06-09
+
+"Remember a few months ago when they tried (and thankfully failed) to get "Trump Derangement Syndrome" a recognized mental illness? And how a few weeks ago Trump signed an EO to allow them to lock up anyone diagnosed with mental illnesses? It's coming, mark my words."
+
