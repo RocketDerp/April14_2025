@@ -112,5 +112,13 @@ fatguydwn15lbs 2020-10-16
 
 "I have to admit that I never anticipated this reaction from MAGA. it's not like he's being subtle about what he's doing. But it is going right over their heads."
 
-* :::=== RoundSparrow_Commentary : Incredible that in late August 2025 people are still saying one-line Twitter-think Tweet-thinking that this is all new. That MAGA and Donald Trump just started this year. Recency bias abounds. People in USA have lost all ability to see the forest for the trees that this all started back in year 2013 when behaviors change in the population. Fragmenting into 5,000 different patterns of manipulated thinking.
+* :::=== RoundSparrow_Commentary : Incredible that in late August 2025 people are still saying one-line Twitter-think Tweet-thinking that this is all new. That MAGA and Donald Trump just started this year. Recency bias abounds. People in USA have lost all ability to see the forest for the trees that this all started back in year 2013 when behaviors changes started in the population. Fragmenting into 5,000 different patterns of [manipulated anti-reality thinking](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/).
 "Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxtcl2/
+
+zuzg 2019-05-19
+
+"They have zero media literacy, it's the same people that complained about Rage against the machine or Green Day became political, lol."
