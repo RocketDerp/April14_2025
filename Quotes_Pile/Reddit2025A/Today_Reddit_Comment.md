@@ -558,3 +558,14 @@ We’re about to make 2008 look like a trip to the candy shop."
 
 * :::=== RoundSparrow_Commentary : since March 2013, the IRA with Cambridge Analytica payloads has **detached everyday people from reality in favor of fiction addictions. September 9, 2014**: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/nazivlt/
+
+thinkards 2019-02-08
+
+"one day, your family will swear up and down they never supported the things they said they did. they will also say they never voted for trump enthusiastically, or even at all.
+
+it's our job to remind our friends and families constantly about the horrible choices they have made and the damage it has done to our country and the world. be a dick about it, or don't be a dick about it, but they need to be reminded of what they've done.
+
+because, another day will come and a man even worse than trump, if you can believe it, will come along and they will fawn all over him, too. they will claim he is the actual second coming of jesus christ. and we need to remind them that's what they said about trump, too."
