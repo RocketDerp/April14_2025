@@ -219,3 +219,23 @@ porcelain_platypus  2018-11-22
 
 * :::=== RoundSparrow_Commentary : **We The People live in August 2025 Total Mockery nation.*** IRA saturation meme-boming of the population since March 2013 has turned the USA into fiction addicts who constantly mock and are attracted to the Tony Clifton antics of Trumpism.
 “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+
+&nbsp;
+
+<img width="1668" height="1062" alt="image" src="https://github.com/user-attachments/assets/2679f185-fa24-41ed-9cf0-cb59fd92a904" />
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nayglea/
+
+Slavin92 2012-06-01
+
+"One of Trump's first public displays on his 2016 campaign trail was him blatantly mocking a disabled reporter in mannerisms & speech. They all know bullying so well it comes second nature to them.
+
+I believe that's partly to blame for their blinders here - they truly don't believe "the left" would mock & belittle somebody like that, so they take Newsome at face value.
+
+TL;DR - they're illiterate morons with no worldly thoughts beyond "red hat good"."
+
+&nbsp;
+
+&nbsp;
