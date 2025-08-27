@@ -872,3 +872,13 @@ Ferrindel 2019-10-22
 I don't get it. I just don't understand how immigrants, could support this. I cannot wait for the final Big Mac to clog up his system, got a bottle of nice scotch ready and waiting."
 
 * :::=== RoundSparrow_Commentary : Waiting passively for Donald Trump to die of congestive heart failure instead of dealing with the mental problems caused by Cambridge Analytica psycholgoists society-wide. Social machine messages to sit back and do nothing to deal with the brainrot / information warfare outcomes and defend against the next waves of enemy information war. Describes how people have lost heart and minds "They proudly voted for the cheetoh" - but does not want to addresss Russian cause. Party planning for the "win" of Trump's death with Scotch bottle set aside, which does nothing to address the mass psychosis of the entire population. Fiction addiction rules, Surkov won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Seattle/comments/1n1mux9/ice_picked_up_my_coworker/nazgfkh/
+
+Due-Craft6332 2021-06-11
+
+"It’s only going to get worse once the Cheeto king is gone. You think he’s the mastermind? Worse, significantly more intelligent people are waiting in the wings to take every single right away."
+
+* :::=== RoundSparrow_Commentary : Recency bias abounds. People have lost all sense that Trump was in fact removed from office and replaced by Joe Biden, and that things keep heading into dehumanization and hate values. The Cambridge Analytica psycological aftermath continues, along with other hostile nations adopting the highly successful inforation warfare techiques. It is open season on the meme addeled USA population who is unwilling to face nonfiction learning about mind-fuck techniques. ===:::
