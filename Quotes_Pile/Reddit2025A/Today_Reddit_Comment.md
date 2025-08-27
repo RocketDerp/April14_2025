@@ -545,3 +545,16 @@ https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming
 Fiernen699 2013-12-16
 
 "Y'all (the US) are gonna tank the whole world's economy. My god am I glad I've already learnt how to live on a shoestring budget... Because sadly that's going to come in handy again. "
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/nayi3sw/
+
+eindocTV 2020-08-01
+
+"I’m still baffled at how this incredibly obvious outcome eluded so many. Even with the constant media sanewashing. “Well shooting someone in the face has historically been shown to kill people, but maybe Trump has a secret method of- ope, he’s dead.”
+
+We’re about to make 2008 look like a trip to the candy shop."
+
+* :::=== RoundSparrow_Commentary : since March 2013, the IRA with Cambridge Analytica payloads has **detached everyday people from reality in favor of fiction addictions. September 9, 2014**: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
