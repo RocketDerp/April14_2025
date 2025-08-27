@@ -481,3 +481,5 @@ https://old.reddit.com/r/law/comments/1n15e37/trump_violating_his_oath_of_office
 tuffthepuff 2024-09-30
 
 "Yet all of our parents love him uncritically. I never thought we'd see such an immense, unbridgeable generational divide in values like this. Hearing them praise Trump's actions and talk about how they "finally feel safe for the first time in their lives" with literal tears in their eyes is just insane to me."
+
+* :::=== RoundSparrow_Commentary : Social media society can't seem to relate this to the experience of people in love with sports stars, famous music stars.A true fan of a telvision show or sports plyer who behaves more seriously about the sports star than their own children. I've known people like that my whole life. Absolutely enamored with the beauty and mannerisms of a public performer of acting or sports. ===:::
