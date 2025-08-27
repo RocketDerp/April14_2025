@@ -36,3 +36,13 @@ End of year 1977, holiday season gushing after the film was a social sensation. 
 
 https://www.youtube.com/watch?v=6gtQck24Nf8
 
+&nbsp;
+
+&nbsp;
+
+### Not explaining shocking events
+
+Serial publication of Finnegans Wake from 1924 to Star Wars Day 1939.
+
+Shocking events told in a first release of a video game or film or TV season that are not explained until next seasons. Don't even try. Just show footage of events / like found footage / document the event but don't provide context. Mr. Robot does this at times?
+
