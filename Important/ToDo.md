@@ -1054,3 +1054,9 @@ https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_re
 
 Choice Marriage Underground Railroad, pro-Malala    
 https://old.reddit.com/r/whenthe/comments/1n1mcus/and_this_is_when_i_am_a_man_imagine_how_much/
+
+&nbsp;
+
+Ban-happy block-happy society. Machine dehumanization.    
+"KARRA invested over $100,000 of her own money to create her debut album "Beauty & The Boss". After being released for 1.5 years and accumulating 1.2 million streams, Spotify flagged her album for artificial streams. This resulted in Spotify and Distrokid removing her entire album off of all music streaming platforms"     
+https://www.youtube.com/watch?v=L_qvmAXFCOg
