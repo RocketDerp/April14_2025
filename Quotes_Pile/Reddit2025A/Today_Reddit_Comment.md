@@ -473,3 +473,11 @@ https://old.reddit.com/r/law/comments/1n1nase/trump_orders_hegseth_to_form_natio
 charcoalist 2010-03-10
 
 "Even Putin still holds "elections." They will be held, but trump is going to use the apparatus of the state to guarantee the GOP "wins." "
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1n1nase/trump_orders_hegseth_to_form_national_guard_unit/nazttoa/
+
+Kind-Pop-7205 2024-01-03
+
+"He loves Putin because of how Putin runs elections. It's no coincidence that every time he meets with Putin, he talks more about how he's going to disenfranchise people."
