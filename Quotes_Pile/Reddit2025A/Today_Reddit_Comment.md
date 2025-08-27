@@ -239,3 +239,13 @@ TL;DR - they're illiterate morons with no worldly thoughts beyond "red hat good"
 &nbsp;
 
 &nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naychwy/
+
+Lazer726 2013-02-18
+
+"A decent chunk of the humor is slurs and various -isms. There's a reason that the right wing comedians are the ones that bitch they're being silenced and that comedy is *illegal* now. Naw, turns out that if you just make a funny gay joke that isn't "Wow how about these slurs, huh?" you get laughs from people that grew up past a grade school level of humor where the only thing you needed to do to get a laugh was say a slur"
+
+* :::=== RoundSparrow_Commentary :  "In David Foster Wallace's Infinite Jest, the viral "joke" is a mysterious film called "the Entertainment" or **Infinite Jest V that is lethally entertaining**. The film was created by the avant-garde filmmaker James O. Incandenza, and it is so compelling that anyone who watches it loses all interest in everything else and eventually dies." - this is a metaphor for Donald Trump playing Tony Clifton, this is the IRA and CA outcomes since March 2013. As described also in NYU professor Neil Postman's 1985 nonfiction book "Amusing Ourseles To Death" about Reddit and Fox News futures. Runaway meme addictions, United Stats of America driven by media addict behaiors, Trumpism induced by Kremlin information warfare against NATO. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
