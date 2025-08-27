@@ -606,3 +606,22 @@ Mastiiffmom 2018-05-01
 
 Same with fruits & vegetables. Those are rotting in the fields because the workers have been deported."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/naz2zdx/
+
+DataDude00 2024-07-03
+
+"I am just an armchair economist watching things unfold and I think this recession could be the big one, possibly so damaging and prolonged that it actually upends the US as the global economic leader and hands the mantle to China.
+
+Everyone knows there is a recession every 10-15 years. Companies get too greedy, lie to inflate valuations, they cut jobs and expenses too much and the whole thing collapses.
+
+This has become a fairly accepted cycle in the business world and on Wall St.
+
+Whenever this would happen the adults would step in, create some regulations and let things slowly rebuild.
+
+The problem is there are no more adults in the room. Trump is starting trade wars with historic allies and driving up the costs of all products for seemingly no gains. They have fired the stats people from the labor board because they didn't like the numbers (and would prefer to publish fake ones that make things seem great). They are beginning a wholesale assault on the Fed, the last bastion of sanity and hope for an economic recovery and will do eventually replace JPow with some talking head from TV that Trump likes but has no idea what they are doing.
+
+There is a good chance that the US/Trump will lean towards the Turkish economic policy of inflation doesn't exist and if it did it will just balance itself out and that will cause a catastrophic spiral downwards"
+
+* :::=== RoundSparrow_Commentary : There is widespread evidence that hate and dehumanization are core motivations, that this is a self-harm event for the USA. ===:::
