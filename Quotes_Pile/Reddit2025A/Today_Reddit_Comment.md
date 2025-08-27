@@ -494,6 +494,12 @@ bolenballr 2020-06-04
 
 "Thanks to the current president, everyone thinks it's just fine to be a toxic and disgusting human being. When you put your politics in front of someone else's life, I don't know how anyone can be saved. What a sad country this place has become! But hey, at least it's "great again", right? RIGHT?? smdh"
 
-* :::=== RoundSparrow_Commentary : ===::: **Dear United States of America, dear USA:** You are as cold as ice, you never take advice, someday you will pay the price. I've seen it before living in the Middle East, you are closing the door, leaving The World Behind... *We The People Love* - You Want Paradise...https://www.youtube.com/watch?v=ySb1f9zWJkQ :::===
+* :::=== RoundSparrow_Commentary : ===::: **Dear United States of America, dear USA:** You are as cold as ice, you never take advice, someday you will pay the price. I've seen it before living in the Middle East, you are closing the door, leaving The World Behind... *We The People Love* - You Want Paradise.. https://www.youtube.com/watch?v=ySb1f9zWJkQ :::===
 
 &nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n1n1ts/not_sure_how_we_save_this_country/nazm9hc/
+
+Matt_Netherlands 2022-04-26
+
+"C.J. Pearson is a complete dumbass Uncle Tom who is held up by the right as one of these “intellectuals” like Charlie Kirk and Ben Shapiro when in actuality he’s just a total dipshit who also got annihilated by Luke Beasley on Piers Morgan previously. So much so that you had Piers actually taking the side of the left winger for once."
