@@ -751,3 +751,15 @@ I don't ever want to hear about freedom again. I have to suppress a gag reflex e
 Fuck these fake ass patriots and their fake ass king."
 
 * :::=== RoundSparrow_Commentary : As conditioned by the Kremlin messages since year 2013, ***Americans HATE Americans*** and do not study [nonfiction books and learning about Russian information warfare](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1g777/extrump_official_warns_why_dictator_talk_isnt_a/nay67bb/
+
+Sudden_General628 2021-07-26
+
+"Trump doesn’t have a sense of humor or a sense or morality. His brain only processes whether he can get away with it. If he receives pushback, it’s a joke. But only until people are normalized to it. Then it’s reality.
+
+At best, he can roast and be a mean girl. Cruelty buoyed by the surprise and audacity of it can make people laugh."
+
+* :::=== RoundSparrow_Commentary :  Donald Trump plays an excellent Tony Clifton show, the audience (We The People) an not resist the mocking and insulting. ===:::
