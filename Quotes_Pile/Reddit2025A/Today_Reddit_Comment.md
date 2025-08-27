@@ -32,6 +32,16 @@ raptorsthrowaway2 2024-01-01 (New Year)
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n1b4yi/denmark_demands_us_answers_to_new_greenland/nax6ci9/
+
+Jozoz 2012-01-14
+
+"I am not sure Americans are aware of how much the relations to their allies are suffering.
+
+When you speak to Americans, it seems they are completely unaware about how much the relationship to e.g. Canada and Denmark has changed just in the past 6 months."
+
+&nbsp;
+
 &nbsp;
 
 .
