@@ -492,3 +492,13 @@ Spezisaspastic 2023-09-23
 
 "Well, the problem is: He is right.    
 Nobody fucking questions or stops him, he just pisses all over laws and the consitution. No consquences in sight. He wanted to topple the government, no consequences."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1b4yi/denmark_demands_us_answers_to_new_greenland/nax3f0s/
+
+2015-06-15
+
+"Greenland may know of specific individuals in their country currently, but foreign agents don’t need to be physically present to use propaganda in an effort to destabilize a country.
+
+With the Internet and software, one foreign agent may pretend to be hundreds to thousands of local citizens, using stolen or AI-generated images to make you believe they are local people. All they need to do is support all side of any controversial issue."
