@@ -661,3 +661,6 @@ Lollipopsaurus 2009-03-05
 "It's amazing to me that people cannot comprehend advances in medical sciences leading to increased diagnoses of ALL types of maladies, not just physical ones like cancer that are more visible.
 
 We truly live among the dumbest people."
+
+* :::=== RoundSparrow_Commentary : We (humanity) created sophisticated information systems without teaching **information ecology** to end-users or authors alike. People were not educated on how to distinguish fiction from nonfiction, and compuslive addiction to fiction symptoms. ===:::
+
