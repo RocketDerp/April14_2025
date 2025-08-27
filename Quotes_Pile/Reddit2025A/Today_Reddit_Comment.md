@@ -735,3 +735,19 @@ Habber_Dasher 2012-06-19
 "One of the many many bizzarro world things about Trump is "it was just a joke bro" is even a defense. When else in all of U.S. history would it not be wildly inappropriate for the leader of the free world to "joke" about being a dictator?"
 
 * :::=== RoundSparrow_Commentary : A nation joking ourselves to death. In 1985, a book titled "Amusing Ourselves To Death" was publsihed about electric media systems, Reddit / Twitter / Bluesky / Fox News HDTV / TikTok / YouTube / etc. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1g777/extrump_official_warns_why_dictator_talk_isnt_a/naxzcgh/
+
+HotDogFingers01 2020-01-11
+
+"Of course it's not a joke. All this guy craves is power, money, and attention. He craves it like oxygen. You think this MFer cares about leadership? The Constitution? Consent? HELL NO.
+
+My only question is how the freedom-loving, "don't tread on me" flag waving, "we the people" truck sticker having rubes are falling over themselves to kiss the ring of a wanna be dictator? Ask them how they'd feel if that dictator were someone, say, like Barack Obama? Would they suddenly change their tune when it's not one of theirs?
+
+I don't ever want to hear about freedom again. I have to suppress a gag reflex every time there's a national anthem at a sporting event. I laugh out loud every time I see an eagle painted over an American flag on the back of some slap dick's truck window, like an angry chicken staring at me.
+
+Fuck these fake ass patriots and their fake ass king."
+
+* :::=== RoundSparrow_Commentary : As conditioned by the Kremlin messages since year 2013, ***Americans HATE Americans*** and do not study [nonfiction books and learning about Russian information warfare](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). ===:::
