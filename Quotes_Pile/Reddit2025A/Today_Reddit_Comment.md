@@ -643,3 +643,11 @@ https://old.reddit.com/r/politics/comments/1n1nd4c/red_state_declares_emergency_
 Any_Will_86 2020-11-20
 
 "One undiscussed trend of the last few years is how many physicians, nurses, healthcare workers - especially OB GYNs- are dodging the anti-vax and anti-abortion states. Give it another 3-4 years an it will be exacerbated by fewer young people entering these fields. And us blocking immigrants from a couple of countries that help fill that gap."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1nd4c/red_state_declares_emergency_after_hitting/nazj20i/
+
+Grandheretic 2023-04-23
+
+"The natural / logical consequence of anti-woman, forced birth policies in a country with horrible maternal healthcare, high infant mortality, class based healthcare access, food scarcity, etc… Where are all the pro- life Christians that demanded this policy? They should solve this issue with their good Christian love and prayers."
