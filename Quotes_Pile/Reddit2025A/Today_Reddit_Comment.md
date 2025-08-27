@@ -302,3 +302,13 @@ therealbobthewaffle 2018-11-11
 
 * :::=== RoundSparrow_Commentary :  OVER TEN YEARS AND TWO MONTHS of faster and faster feedback loops, A vs. B, B vs. C, C vs. A, endlessly mocking back and forth in a circle-jerk of trash memes and IRA conditioned mockery.
 “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments"” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxug8e/
+
+PrimaryMuscle1306 2022-01-21
+
+"Fox can spin all they want. There’s no helping the average Faux News watcher anyways."
+
+* :::=== RoundSparrow_Commentary : Meme addicts to one-line Twitter-thinking messages want you message constantly that learning media ecology will not address media addiction. Meme heads want more and more fiction trash one-line jokes and memes. Unwilling to face their own deep meme addiction patterns same as Fox News audience, Reddit addicts dismiss that education and learning from Neil Postman's 1985 book "Amusing Ourselves To Death" describes the Donald Trump society driven by Tony Clifton mockery entertainment amusement. The payload message is **give up on education, America can not be saved**, "There’s no helping"...  Jen Senko's 2015 / 2016 **nonfiction** film avoided: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad ===:::
