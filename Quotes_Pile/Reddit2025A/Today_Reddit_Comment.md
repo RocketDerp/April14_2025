@@ -363,3 +363,15 @@ L3g3ndary-08 2016-04-16
 "The magat crowd is so unbelievably stupid. I literally don't understand."
 
 * :::=== RoundSparrow_Commentary : Without study of **nonfiction** learning from Christopher Wylie, Neil Postman, Marshall McLuhan, Joseph Campbell, Carl Sagan, Peter Pomerantsev... people do not grasp or understand how Cambridge Analytica monomyth warfare has impacted the mental attitudes and thinking of Americans since March 2013. Media ecology and conpatative mythology are no longer optional education topics. Every person age 12 to age 120 must be taught to understand modern informationw warfare that the Ukraine war has been buiilt around. Twitter-length messaging is unbeliably destructive to mindsets. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naymivt/
+
+NumerousTaste 2020-12-05
+
+"They aren't smart enough to get it. It's why the voted for an orange old pedophile criminal. So dumb, they can't even see the real con man they voted for. Too stupid to look at his finances since he took office. Can't see the cover up over epstein. Idiots!"
+
+&nbsp;
+
+* :::=== RoundSparrow_Commentary :  We The People, the population (pratcially everyone), unable to engage **nonfiction paper books from Christopher Wylie and Peter Pomerantsev published in year 2014 and year 2019** about Cambridge Analytica aleration of intelligence and behaviors. Russia won hearts and minds to *avoid nonfiction*. ===:::
