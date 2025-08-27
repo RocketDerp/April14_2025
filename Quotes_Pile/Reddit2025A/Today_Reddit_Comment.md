@@ -162,4 +162,17 @@ Pseudo-Jonathan 2023-09-01
 
 A staggeringly large percentage of society lacks this ability."
 
-* :::=== RoundSparrow_Commentary : Educating every person age 12 to age 120 on Comparative Mythology and basic familiarity with James Joyce's Finnegans Wake is essential. Learning media ecology is no longer optional in a world of 8 billion people bumping into each other with products shipped across oceans and time zones. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966. Every person must be able to distinguis fiction from nonfiction, metaphor from fact. ===:::
+* :::=== RoundSparrow_Commentary : Educating every person age 12 to age 120 on Comparative Mythology and basic familiarity with James Joyce's Finnegans Wake is essential. Learning media ecology is no longer optional in a world of 8 billion people bumping into each other with products shipped across oceans and time zones. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966. Every person must be able to distinguis fiction from nonfiction, metaphor from fact. ChatGPT / GrokAI and other LLM systems will spin creative fiction that peole will treat as nonfiction... The ELIZA effect on a massive society scale. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nayag5w/
+
+LongKnight115 2015-06-28
+
+"Well you also gotta remember how much sanewashing conservative media does of Trump. Most of these folks have never seen anything except curated excerpts of his speeches, or screenshots of his "good" (ie: less insane) Tweets on Facebook. Hopefully this actually has people not just look at themselves, but actually look at Trump outside of the small bubble that's been constructed around them.
+
+Side note: I will never stop calling it Twitter, but what even is the new name for a "Tweet" if the channel is branded as "X"? "X posts"? "X'es"?"
+
+* :::=== RoundSparrow_Commentary : Media specific to a political party, media built around Fox News fiction storytelling, Saturday Night Live "Weekend Update" fiction entertainment patterns is toxic to society in total. Neil Postman in 1985 published a book titled "Amusing Ourselves To Death" about this style of media techniques.
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
