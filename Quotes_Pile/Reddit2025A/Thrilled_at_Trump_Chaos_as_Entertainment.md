@@ -610,3 +610,18 @@ DummyDumDragon 2023-11-13
 
 Nonstop amusement at Donald Trump society.
 
+&nbsp;
+
+# Wednesday August 27, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxqpl0/
+
+RetiredHotBitch 2024-10-16
+
+"Gavin and his social media team have hit pay dirt with this. Everyone on the left should be doing this.
+
+I am living for his daily trolling on these buffoons."
+
+An entire nation who can not resist the Tony Clifton performance style, the audience interaction of Tony Clifton hybrid scripted and improv audience table visits. People entirely addicted FOR TEN YEARS AND TWO MONTHS to Donald Trump playing Clifton. Chucklehead USA.
