@@ -503,3 +503,13 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n1n1ts/not_sure_how_we_sav
 Matt_Netherlands 2022-04-26
 
 "C.J. Pearson is a complete dumbass Uncle Tom who is held up by the right as one of these “intellectuals” like Charlie Kirk and Ben Shapiro when in actuality he’s just a total dipshit who also got annihilated by Luke Beasley on Piers Morgan previously. So much so that you had Piers actually taking the side of the left winger for once."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n1n1ts/not_sure_how_we_save_this_country/nazq8ti/
+
+unrulYk 2018-08-07
+
+"America, where these days they’ll force women to give birth against their will because the sanctity of life, which only extends to the unborn. Once kids are born, no shits are given. The sanctity of the gun trumps all.
+
+America is morally and ethically bankrupt, truly careening its way into the darkest evil."
