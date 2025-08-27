@@ -671,3 +671,15 @@ https://old.reddit.com/r/politics/comments/1n1hhz2/trump_baselessly_claims_it_mu
 52beansyesmaam 2023-09-17
 
 "They also reclassified stuff like Asperger’s as a form of autism, so it effectively no longer exists and all those people formerly diagnosed with it are basically seen as “new” cases of autism from a really shitty statistical perspective. Obviously this makes it look like there’s some explosion in autism rates that there really isn’t."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1ow6u/maga_election_denier_gets_top_job_monitoring/nb0i610/
+
+sqrtsqr 2023-09-12
+
+"My favorite is all the people who are like "wow, the 2026/2028 election is our last chance to stop this madness"
+
+Like, no, 2024 was. Sorry, you're too late, we lost.
+
+And before some dipshit comes in and calls me a Doomer, no, not at all. I believe we can win but I'm a realist about how that can be achieved and the unfortunate reality is that we no longer have fair elections and we need to acknowledge that."
