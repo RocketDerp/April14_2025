@@ -465,3 +465,11 @@ https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_re
 ProfessorElk 2024-11-06
 
 "Before the nightmare term is over, they’re probably going to try and outlaw procreation for anyone with autism or certain other mental health issues. These people are so Nazi adjacent I’m surprised they don’t all have little mustaches."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1n1nase/trump_orders_hegseth_to_form_national_guard_unit/nazm3wl/
+
+charcoalist 2010-03-10
+
+"Even Putin still holds "elections." They will be held, but trump is going to use the apparatus of the state to guarantee the GOP "wins." "
