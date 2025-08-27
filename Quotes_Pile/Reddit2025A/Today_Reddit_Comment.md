@@ -95,3 +95,11 @@ SpareWire 2024-06-13
 "I'd say that's fair, but lets not pretend like folks here do anything but regurgitate the same talking points."
 
 * :::=== RoundSparrow_Commentary : Original thinking is far overrated. People flock to trending and jump on board bandwagons constantly. The problem is WHAT they flock to. Instead of flocking to authentic goodness values like Malala's reformations of sexual realtions in Pakistan, people flock to Donald Trump's anti-education anti-comprehension anti-empathy anti-goodness. People flock to fiction storytelling of Fox News and Donald Trump, not to science and talking points. Same with ChatGTP and GrokAI - the fiction "halcunations" they produce is incredibly popular with consumers / audiences. People do not see, authentic sharing of factual reality. "Sleep Joe Biden" is not entertaining for audiences, trash Tony Clifton performances by Donald Trump and others ells far more. Sober Neil Postman's 1985 book "Amusing Ourselves To Death" can't be faced by people addicted to antics politics and fiction. People flock to entertainment, amusement, often LOL LOL LOL at the suffering of other people. Death-wishing draw an audience. The what people repeat is unoriginal and hate-filled. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n1dobi/maga_is_so_emotionally_unstable/nay5hr1/
+
+OneRougeRogue 2018-08-20
+
+"Last year I had a co-worker say that the democrats have been pushing awful policies since Clinton, so I asked what Clinton-era policy he didnt like, and the guy just immediately changed the subject to sports."
