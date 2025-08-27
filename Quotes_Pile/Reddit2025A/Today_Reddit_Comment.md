@@ -852,3 +852,11 @@ https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_cit
 chilli_chocolate 2020-08-19
 
 "At this point, surely the governments of all countries and their intelligence agencies, can look into these misinformation / disinformation / bot farms and shut them down?"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_city_to_tanzania_after/nb08jpz/
+
+ZechsyAndIKnowIt 2025-01-23 (new this year)
+
+"Oh, is it time for the rest of the world to stop pretending that only America has people stupid enough to fall for this shit?"
