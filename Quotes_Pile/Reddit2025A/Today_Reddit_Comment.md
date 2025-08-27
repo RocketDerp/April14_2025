@@ -691,3 +691,13 @@ https://old.reddit.com/r/politics/comments/1n1fx4q/ghislaine_maxwell_serves_trum
 Rambaz_69 2020-12-20
 
 "The MAGA people will also accept Trump's amnesty for Maxwell; they are certainly foolish enough to do so. Trump will continue to be praised by Maxwell for months to come as the best and fairest man she has ever met. And the MAGA people will say, we knew Trump was such a great guy."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1fx4q/ghislaine_maxwell_serves_trump_like_she_served/nay4fpr/
+
+JustLoggedInToSay- 2017-10-01
+
+"Whenever I feel like my life doesn't amount to much, I remember that at least I'm not Ghislaine Maxwell. Imagine building your entire existence around serving the most disgusting men and harming children - holy shit, what a waste of a life."
+
+* :::=== RoundSparrow_Commentary : Donald Trump has elevated role models who set such a very low bar, people have *settled for* the worst relationships in public. This is the outcome of the Russian information warfare since March 2013, self-harm parenting, self-harm measuring bars for success and accomplhsment. ===:::
