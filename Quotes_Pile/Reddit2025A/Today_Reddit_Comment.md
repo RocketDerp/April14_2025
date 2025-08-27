@@ -860,3 +860,15 @@ https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_cit
 ZechsyAndIKnowIt 2025-01-23 (new this year)
 
 "Oh, is it time for the rest of the world to stop pretending that only America has people stupid enough to fall for this shit?"
+
+&nbsp;
+
+https://old.reddit.com/r/Seattle/comments/1n1mux9/ice_picked_up_my_coworker/nazdvs4/
+
+Ferrindel 2019-10-22
+
+"I have friends whose child is in ours' class at school who emigrated to the US. Wonderful people. For some reason the other day we were hanging out and they brought up politics - right up there with religion and feelings about Coldplay in terms of the most pleasant discussion topics ever. They proudly voted for the cheetoh.
+
+I don't get it. I just don't understand how immigrants, could support this. I cannot wait for the final Big Mac to clog up his system, got a bottle of nice scotch ready and waiting."
+
+* :::=== RoundSparrow_Commentary : Waiting passively for Donald Trump to die of congestive heart failure instead of dealing with the mental problems caused by Cambridge Analytica psycholgoists society-wide. Social machine messages to sit back and do nothing to deal with the brainrot / information warfare outcomes and defend against the next waves of enemy information war. Describes how people have lost heart and minds "They proudly voted for the cheetoh" - but does not want to addresss Russian cause. Party planning for the "win" of Trump's death with Scotch bottle set aside, which does nothing to address the mass psychosis of the entire population. Fiction addiction rules, Surkov won. ===:::
