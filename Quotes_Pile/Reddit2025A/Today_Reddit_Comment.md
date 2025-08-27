@@ -257,3 +257,15 @@ Ok_Flow_3065 2022-04-16
 "Anything other than “my pronouns are RED BLOODED AMERICAN” is too complicated of a joke for those folks."
 
 * :::=== RoundSparrow_Commentary :  Twitter-length, Bluesky-thinking reactionary condtioned IRA thinking since March 2013. Out-group mockery, endless mocking of the out-groups. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxppit/
+
+kon--- 2021-06-25
+
+"The don't get that they don't get it. And of course, being only capable of doubling down, will insist they do get it but that it's stupid which is them revealing their lack of self-awareness and their inability to detect the irony they're providing."
+
+* :::=== RoundSparrow_Commentary : Meme addicts USA **detect irony from anywhere in the world and flock to irony shit smell**. Detecting statire and irony and consuming it non-stop, a total die of meme trash. Avoidant of learning Russian information warfare, avoidant of nonfiction. All of North America reeks of Donald Trump playing Tonly Clifton irony / satire / absurd surreal IRA meme patterns since year 2013. ===:::
+
+&nbsp;
