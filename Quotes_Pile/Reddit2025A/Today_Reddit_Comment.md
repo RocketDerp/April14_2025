@@ -725,3 +725,13 @@ https://old.reddit.com/r/politics/comments/1n1g777/extrump_official_warns_why_di
 sirscooter 2008-02-16
 
 "He thinks cruelty is funny. I really want a paper on how messed up second and third generations because of generational wealth"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1g777/extrump_official_warns_why_dictator_talk_isnt_a/naxyreo/
+
+Habber_Dasher 2012-06-19
+
+"One of the many many bizzarro world things about Trump is "it was just a joke bro" is even a defense. When else in all of U.S. history would it not be wildly inappropriate for the leader of the free world to "joke" about being a dictator?"
+
+* :::=== RoundSparrow_Commentary : A nation joking ourselves to death. In 1985, a book titled "Amusing Ourselves To Death" was publsihed about electric media systems, Reddit / Twitter / Bluesky / Fox News HDTV / TikTok / YouTube / etc. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley ===:::
