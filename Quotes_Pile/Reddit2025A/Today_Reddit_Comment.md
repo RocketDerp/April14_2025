@@ -664,3 +664,10 @@ We truly live among the dumbest people."
 
 * :::=== RoundSparrow_Commentary : We (humanity) created sophisticated information systems without teaching **information ecology** to end-users or authors alike. People were not educated on how to distinguish fiction from nonfiction, and compuslive addiction to fiction symptoms. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1hhz2/trump_baselessly_claims_it_must_be_something/nayarkg/
+
+52beansyesmaam 2023-09-17
+
+"They also reclassified stuff like Asperger’s as a form of autism, so it effectively no longer exists and all those people formerly diagnosed with it are basically seen as “new” cases of autism from a really shitty statistical perspective. Obviously this makes it look like there’s some explosion in autism rates that there really isn’t."
