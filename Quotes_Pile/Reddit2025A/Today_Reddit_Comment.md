@@ -595,3 +595,14 @@ DressedSpring1 2014-09-30 (self declared Canadian)
 "Not only this, but it seems increasingly like the stock market is in a significant bubble around AI, with 35% of the value of the entire stock market tied up in 7 companies, six of which are balls deep on AI and the 7th being NVIDIA which sells them the chips to invest in AI.
 
 Having that speculative bubble pop at the same time the economy is already going sour is going to be one hell of a thing."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/nayyz5p/
+
+Mastiiffmom 2018-05-01
+
+"Part of that price increase is because of the ICE raids in the beef packing houses across the country. They have come in and basically shut the plants down because the workers have all been deported. The ones who have been able to continue operations are limping along with skeleton crews. These plants are now facing implementing automation. Or hiring American workers rather than immigrant employees. This will cost these plants more than double what they paid immigrant workers. That’s if they can even hire Americans to work in these places.
+
+Same with fruits & vegetables. Those are rotting in the fields because the workers have been deported."
+
