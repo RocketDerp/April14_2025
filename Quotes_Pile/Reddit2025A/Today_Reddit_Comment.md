@@ -387,3 +387,17 @@ Morpho_99 2021-02-01
 All they have to do is keep up the most basic narrative and they'll go back to fucking their cousins while blaming California for whatever ails them."
 
 * :::=== RoundSparrow_Commentary : “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_reveal_causes_of_autism/nazdwie/
+
+S420J 2015-06-08
+
+"Right lol. 
+
+Like this is apparently one of the deepest and most malicious conspiracies that have ever been concocted in human history, and we’re 100% sure of it enough to make this statement for months. 
+
+But also it’s not so important that it needs to be released immediately. 
+
+Deeply unserious things happening in our health department."
