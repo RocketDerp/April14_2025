@@ -331,4 +331,4 @@ Woobly_Hixbee 2021-01-06
 
 "The timing is perfect too - we’ve been in a stretch where the best late night and political comedy/satire are all on summer break for a few weeks and Gavin is really comin through to fill the void and feed our withdrawal 👌"
 
-* :::=== RoundSparrow_Commentary :  Media addicts need to satiate their constant cravings for more fiction trash content. Discussing on Reddit social media their cravings for more seasons of endless total mockery nation. ===:::
+* :::=== RoundSparrow_Commentary :  Media addicts need to satiate their constant cravings for more fiction trash content. Discussing on Reddit social media their cravings for more seasons of endless total mockery nation. This is the [driving force of the Mass Man of USA society](https://marshalmcluhangutenberg.home.blog/2020/09/08/discarnate-man/) in August 2025. ===:::
