@@ -763,3 +763,13 @@ Sudden_General628 2021-07-26
 At best, he can roast and be a mean girl. Cruelty buoyed by the surprise and audacity of it can make people laugh."
 
 * :::=== RoundSparrow_Commentary :  Donald Trump plays an excellent Tony Clifton show, the audience (We The People) an not resist the mocking and insulting. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_city_to_tanzania_after/nay49ya/
+
+Duanedoberman 2019-06-03
+
+"Do you ever feel like you are watching the world collectively decending into madness, fuelled by social media?
+
+I know, stating it on social media, but..."
