@@ -808,3 +808,11 @@ Wealist 2024-09-27
 * :::=== RoundSparrow_Commentary : Reddit society lives in a filter-bubble ([defined in year 2011 book](https://en.wikipedia.org/wiki/Filter_bubble)) wehre they think Fox News isn't a hate network of liberals, and that Reddit and Bluesky are not hate platforms of hate upon Donald Trump and MAGA groups. Exactly as conditioned by IRA and CA since March 2013. It isn't "30% of society" in USA, it is A hates B, B hates C, C hates A patterns of every variation. The "Leopards Ate My Face" is constantly front-page of Reddit where people who support MAGA and Trump are hated upon, conditioned by the Russian information warfare since March 2013. It is 98% plus of society engaged in message organizations of hate the out-groups, [all avoding repeating and repeat messaging of The !954 Equation about ALL hate in ALL geographyies and ALL time periods](Martin_Luther_King_Jr_quotes0.md). People are unable to see the forest for the trees, thinking "30% of society basically logs on every morning just to hit ‘Like’ on hating" neighbors and *the others*. If it were **only 30%%**, why wouldn't the 70% be using social media machines to teach compassion and love to address the crisis? But nobody is adressing that it is 98% plus... because everyone is too engaged using their free time and spare time to login to social machines to compusively hate the other genders / political parties / religions / wealth class (most often hating upon the poor) / education class (not supporting Malala's liberation of terrorists and women via education expansion) / Androic vs. iPhone / video game platform vs. video game platform / langauge vs. language (Tower of Babel metaphor) / etc / etc. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_city_to_tanzania_after/nb0n41i/
+
+KingR3aper 2011-06-14
+
+"Far right conservatives realized how effective the Trump strategy was an immediately applied it in their own countries. The rise in Japan and the insurrection in SK use the exact same slogans. Luckily Koreans actually acted fast."
+
+* :::=== RoundSparrow_Commentary : Donald Trump role model for adult and children alike since year 2015 of success. ===:::
