@@ -312,3 +312,13 @@ PrimaryMuscle1306 2022-01-21
 "Fox can spin all they want. There’s no helping the average Faux News watcher anyways."
 
 * :::=== RoundSparrow_Commentary : Meme addicts to one-line Twitter-thinking messages want you message constantly that learning media ecology will not address media addiction. Meme heads want more and more fiction trash one-line jokes and memes. Unwilling to face their own deep meme addiction patterns same as Fox News audience, Reddit addicts dismiss that education and learning from Neil Postman's 1985 book "Amusing Ourselves To Death" describes the Donald Trump society driven by Tony Clifton mockery entertainment amusement. The payload message is **give up on education, America can not be saved**, "There’s no helping"...  Jen Senko's 2015 / 2016 **nonfiction** film avoided: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxt41p/
+
+THEBIGHUNGERDC 2018-11-21
+
+"I remember when I was a kid and the massing of dumb kids all repeating the dumb thing like it was truth. It was painful to watch then and know they were wrong and would drown in that particular stupidity (they did). Same here."
+
+* :::=== RoundSparrow_Commentary :  The United States of America repeating IRA memes and messages since March 2013. Putin won, Russia won, Surkov won. "Следующим шагом необходимо было разработать систему передачи задач и информации, чтобы никакая гэбуха и АНБ не смогли её спалить." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446 ===:::
