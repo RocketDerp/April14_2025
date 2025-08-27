@@ -481,3 +481,19 @@ https://old.reddit.com/r/law/comments/1n1nase/trump_orders_hegseth_to_form_natio
 Kind-Pop-7205 2024-01-03
 
 "He loves Putin because of how Putin runs elections. It's no coincidence that every time he meets with Putin, he talks more about how he's going to disenfranchise people."
+
+&nbsp;
+
+&nbps;
+
+bolenballr 2020-06-04
+
+<img width="1208" height="790" alt="Screenshot from 2025-08-27 12-32-34" src="https://github.com/user-attachments/assets/8636bd51-6afa-4023-95a6-902e74f03d86" />
+
+&nbsp;
+
+"Thanks to the current president, everyone thinks it's just fine to be a toxic and disgusting human being. When you put your politics in front of someone else's life, I don't know how anyone can be saved. What a sad country this place has become! But hey, at least it's "great again", right? RIGHT?? smdh"
+
+* :::=== RoundSparrow_Commentary : ===::: **Dear United States of America, dear USA:** You are as cold as ice, you never take advice, someday you will pay the price. I've seen it before living in the Middle East, you are closing the door, leaving The World Behind... *We The People Love* - You Want Paradise...https://www.youtube.com/watch?v=ySb1f9zWJkQ :::===
+
+&nbsp;
