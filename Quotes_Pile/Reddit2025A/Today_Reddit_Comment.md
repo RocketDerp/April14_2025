@@ -291,3 +291,14 @@ Allisonk98 2021-10-13
 "All of MAGA is still communicating with each other to find 2 brain cells to rub together. Give it time, they will discover a.i. or something that brings the IQ up to 8 or 9."
 
 * :::=== RoundSparrow_Commentary : IQ is a frequent IRA meme talking point / mind virus / viral meme since year 2013. Constantly repeated by MAGA society USA. This is a anti-intelligence talking point. Mass mind / mass man topic avoidance, anti-eduction, anti-Malala, anti-teaching, anti inderpendence comprehension. "Trump's tactic to attack black people and women: insult their intelligence" - August 10, 2018 https://www.theguardian.com/us-news/2018/aug/10/trump-attacks-twitter-black-people-women ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxrv5c/
+
+therealbobthewaffle 2018-11-11
+
+"Are we sure these posts from Newsom aren't going to bite us in the ass later on? The Fox entertainment propaganda machine is powerful. Remember that wholesome clip of Joe Biden swapping hats with the elderly Trump supporter? The were able to spin the shit out of that."
+
+* :::=== RoundSparrow_Commentary :  OVER TEN YEARS AND TWO MONTHS of faster and faster feedback loops, A vs. B, B vs. C, C vs. A, endlessly mocking back and forth in a circle-jerk of trash memes and IRA conditioned mockery.
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments"” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
