@@ -266,6 +266,28 @@ kon--- 2021-06-25
 
 "The don't get that they don't get it. And of course, being only capable of doubling down, will insist they do get it but that it's stupid which is them revealing their lack of self-awareness and their inability to detect the irony they're providing."
 
-* :::=== RoundSparrow_Commentary : Meme addicts USA **detect irony from anywhere in the world and flock to irony shit smell**. Detecting statire and irony and consuming it non-stop, a total die of meme trash. Avoidant of learning Russian information warfare, avoidant of nonfiction. All of North America reeks of Donald Trump playing Tonly Clifton irony / satire / absurd surreal IRA meme patterns since year 2013. ===:::
+* :::=== RoundSparrow_Commentary : Meme addicts USA **detect irony from anywhere in the world and flock to irony shit smell**. Detecting statire and irony and consuming it non-stop, a total diet of meme trash. Avoidant of learning Russian information warfare, avoidant of nonfiction. All of North America reeks of Donald Trump playing Tonly Clifton irony / satire / absurd surreal IRA meme patterns since year 2013. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxqt2b/
+
+TheEPGFiles 2016-07-04 (July 4)
+
+"This is why accelerationism is the only thing that works. The stupids can't or won't believe in reality, so we basically have to do it their way so hard that everyone notices and agrees that it had always been stupid.
+
+Would be nice if no one got hurt, but that's why Germans have the proverb, who won't listen, will feel.
+
+If they didn't want pain, they could had just believed people warning them from history and also history itself, but it was more important for them to feel like the smartest person in the room."
+
+* :::=== RoundSparrow_Commentary : **Meme addicts always want more** fiction junk. Always begging for more anti-reality content in the face of **Putin's War Against Reality since March 2013**. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - a big outcome of Russia's war against Relaity is egomania: "it was more important for them to feel like the smartest person in the room" - Americans believing they have outsmarted the Kremlin without being able to cite any public library content of nonfiction about Russian information warfare. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxnsak/
+
+Allisonk98 2021-10-13
+
+"All of MAGA is still communicating with each other to find 2 brain cells to rub together. Give it time, they will discover a.i. or something that brings the IQ up to 8 or 9."
+
+* :::=== RoundSparrow_Commentary : IQ is a frequent IRA meme talking point / mind virus / viral meme since year 2013. Constantly repeated by MAGA society USA. This is a anti-intelligence talking point. Mass mind / mass man topic avoidance, anti-eduction, anti-Malala, anti-teaching, anti inderpendence comprehension. "Trump's tactic to attack black people and women: insult their intelligence" - August 10, 2018 https://www.theguardian.com/us-news/2018/aug/10/trump-attacks-twitter-black-people-women ===:::
