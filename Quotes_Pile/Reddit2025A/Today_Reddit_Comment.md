@@ -401,3 +401,11 @@ Like this is apparently one of the deepest and most malicious conspiracies that 
 But also it’s not so important that it needs to be released immediately. 
 
 Deeply unserious things happening in our health department."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_reveal_causes_of_autism/nazoclc/
+
+IAmEggnogstic 2020-10-09
+
+"Mark my words, the causes stated will def be bunk but politically convenient. Maybe being "woke" causes autism, maybe it's being Muslim or black or being vegan. What ever they state the causes of autism are it'll be bad news for people with autism and whoever participates in the "causes". We can cure your autism by sending you to a camp and restricting the "causes". If you enjoy/manufacture/participate in the causes you are now a criminal and need to go to a separate camp. This all is bad and no one will have their autism cured."
