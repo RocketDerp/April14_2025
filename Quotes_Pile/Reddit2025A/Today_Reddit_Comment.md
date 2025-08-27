@@ -844,3 +844,11 @@ Spiritual-Pumpkin473 2025-02-22 (new this year)
 "Since 2016, Trump’s election. Everything is crazy now."
 
 * :::=== RoundSparrow_Commentary : Since March 2013, the Russian Internet Research agency working with Cambridge Analytica manipulated World Wide Web users. This was lead up to the February 2014 invaion of Ukraine by Russia.  https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1gi81/japan_denies_giving_away_city_to_tanzania_after/nay61za/
+
+chilli_chocolate 2020-08-19
+
+"At this point, surely the governments of all countries and their intelligence agencies, can look into these misinformation / disinformation / bot farms and shut them down?"
