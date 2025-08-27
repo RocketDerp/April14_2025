@@ -322,3 +322,13 @@ THEBIGHUNGERDC 2018-11-21
 "I remember when I was a kid and the massing of dumb kids all repeating the dumb thing like it was truth. It was painful to watch then and know they were wrong and would drown in that particular stupidity (they did). Same here."
 
 * :::=== RoundSparrow_Commentary :  The United States of America repeating IRA memes and messages since March 2013. Putin won, Russia won, Surkov won. "Следующим шагом необходимо было разработать систему передачи задач и информации, чтобы никакая гэбуха и АНБ не смогли её спалить." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/naxu35r/
+
+Woobly_Hixbee 2021-01-06
+
+"The timing is perfect too - we’ve been in a stretch where the best late night and political comedy/satire are all on summer break for a few weeks and Gavin is really comin through to fill the void and feed our withdrawal 👌"
+
+* :::=== RoundSparrow_Commentary :  Media addicts need to satiate their constant cravings for more fiction trash content. Discussing on Reddit social media their cravings for more seasons of endless total mockery nation. ===:::
