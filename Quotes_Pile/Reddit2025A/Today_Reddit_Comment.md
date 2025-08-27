@@ -683,3 +683,11 @@ sqrtsqr 2023-09-12
 Like, no, 2024 was. Sorry, you're too late, we lost.
 
 And before some dipshit comes in and calls me a Doomer, no, not at all. I believe we can win but I'm a realist about how that can be achieved and the unfortunate reality is that we no longer have fair elections and we need to acknowledge that."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1fx4q/ghislaine_maxwell_serves_trump_like_she_served/naxudar/
+
+Rambaz_69 2020-12-20
+
+"The MAGA people will also accept Trump's amnesty for Maxwell; they are certainly foolish enough to do so. Trump will continue to be praised by Maxwell for months to come as the best and fairest man she has ever met. And the MAGA people will say, we knew Trump was such a great guy."
