@@ -1035,3 +1035,8 @@ Ideals that USA population in August 2025 does not value:
 4. Ending war for all people
 5. Sharing with all people.
 6. Ending competition that is only about domination and "winner takes all"
+
+&nbsp;
+
+Trash USA society values;   https://old.reddit.com/r/politics/comments/1n0x2h2/trump_79_flirts_awkwardly_with_bondi_in_3hr_16min/
+
