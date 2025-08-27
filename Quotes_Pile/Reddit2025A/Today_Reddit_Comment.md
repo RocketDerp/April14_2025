@@ -122,3 +122,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_whi
 zuzg 2019-05-19
 
 "They have zero media literacy, it's the same people that complained about Rage against the machine or Green Day became political, lol."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nayac86/
+
+William_Dowling  2017-06-01
+
+"Just call them what they are - fucking morons. They can't tell this is parody because they, everyone they know, and their President, communicate in exactly this way on a daily basis."
+
+* :::=== RoundSparrow_Commentary : The entire world, world stage, is calling USA morons. Americans, "fucking morons". We The People are primarily concerned with the name-calling and which name is trending right now. Instead of addressing the Internet Research Agency media invasion by Russia since March 2013, people just want to give one-line Twitter-length reactions about the situation. No communication of desire to turn the situation around. No gong to the public library to learn Neil Postman's big pile of books on the subject and how we can return to comprehension and understanding instead of just name-calling and one-line Bluesky-length reaction commenting on every social machine. ===:::
