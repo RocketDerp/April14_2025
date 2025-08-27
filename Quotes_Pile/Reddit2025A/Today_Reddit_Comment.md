@@ -529,3 +529,11 @@ Private_HughMan 2018-06-15
 Their prayers are worthless because they chose to pray instead of doing something."
 
 * :::=== RoundSparrow_Commentary : ===::: **Dear United States of America, dear USA:** You are as cold as ice, you never take advice, someday you will pay the price. I've seen it before living in the Middle East during the Arab Spring (doing media ecology analysis), you are closing the door, leaving The World Behind... https://www.youtube.com/watch?v=ySb1f9zWJkQ :::===
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n1i9fc/the_trump_recession_is_coming/nayv7po/
+
+SunnyCali12  2025-01-27 (new this year)
+
+"Which actually worries me more. I feel like we are teetering on the edge of a cliff and haven’t seen shit yet."
