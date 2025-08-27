@@ -374,4 +374,16 @@ NumerousTaste 2020-12-05
 
 &nbsp;
 
-* :::=== RoundSparrow_Commentary :  We The People, the population (pratcially everyone), unable to engage **nonfiction paper books from Christopher Wylie and Peter Pomerantsev published in year 2014 and year 2019** about Cambridge Analytica aleration of intelligence and behaviors. Russia won hearts and minds to *avoid nonfiction*. ===:::
+* :::=== RoundSparrow_Commentary :  We The People, the population (pratcially everyone), unable to engage **nonfiction paper books from Christopher Wylie and Peter Pomerantsev published in year 2014 and year 2019** about Cambridge Analytica + Kremlin alteration of intelligence and behaviors. Russia won hearts and minds to *avoid nonfiction*. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n1f0cv/this_is_gonna_be_a_while_and_im_here_for_it/nayu7xd/
+
+Morpho_99 2021-02-01
+
+"I think they get it, but few people understand just how incapable of critical thinking rural corn corn field state inhabitants can be.
+
+All they have to do is keep up the most basic narrative and they'll go back to fucking their cousins while blaming California for whatever ails them."
+
+* :::=== RoundSparrow_Commentary : “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
