@@ -419,3 +419,14 @@ Bleezy79 2011-11-09
 "This administration is ruining decades of progress in the medical and scientific community"
 
 * :::=== RoundSparrow_Commentary : Since March 2013, the Kremlin information war against NATO has wrecked USA hearts and minds to self-harm the future of children. Addiction to fiction, avoidance of science **nonfiction** is a major synptom of Russian information warfare. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n1mn9r/rfk_jr_says_agency_will_reveal_causes_of_autism/naz946v/
+
+Heavy_Arm_7060 2021-11-10
+
+"What else can we expect from a eugenicist..."
+
+* :::=== RoundSparrow_Commentary : Asperger's Children: The Origins of Autism in Nazi Vienna,
+Edith Sheffer. May 1, 2018 https://tec.fsi.stanford.edu/publication/aspergers-children-origins-autism-nazi-vienna ===:::
