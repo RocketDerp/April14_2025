@@ -1,3 +1,22 @@
+# Wednesday August 27, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n1b4yi/denmark_demands_us_answers_to_new_greenland/nax6gzy/
+
+casce 2013-03-10
+
+"It's shocking how quickly the US turned into Russia and it's even more shocking how their own people are cheering for it"
+
+* :::=== RoundSparrow_Commentary : The Internet Resarch Agency and Cambridge Analytica deployed mental manipulation starting in March 2013. Several years beofre the November 2016 election wtin by Donald Trump. People do not take sriously the behavior changes in USA population. Terse, flippant, dismissive, avoidant of nonfiction. Donald Trump entertainer is valued above nonfiction sincere leaders. People compusively spend all thier free time and spare time insulting, mocking, name-calling, mimicking Donald Trump. Attracted to the total mockery unlike any other area of life. Donald Trump is bigge than lal the top 10 video games, all the top 10 films, all the top ten sports events COMBINED in how much people can not resist mocking and insulting the Tony Clifton performance of Donald Trump. People do not wantto face up howSaudi Arabia and Mecca operate, how Putin and Surkov use antics politics in Russia, etc. Motivating a population to murder neighbors in Ukraine is no small feat. Being a killer, blood on your hands, is no minor life experience. Russia has been killing people in Ukraine since February 2014 and the people of Russia are so programmed and conditioned that it keeps going on and on. USA people have been more and more attracted to, flocking to, sehf-harm and dehumanization with Trump. The behaviors are in your face.Peoplewill not stop mocking,insutling,name-calling,dehumanizing "the others" in USA. Every day, the same attractions. ====:::
+
+
+&nbsp;
+
+&nbsp;
+
+.
+
 # Tuesday August 26, 2025
 
 &nbsp;
