@@ -882,3 +882,13 @@ Due-Craft6332 2021-06-11
 "It’s only going to get worse once the Cheeto king is gone. You think he’s the mastermind? Worse, significantly more intelligent people are waiting in the wings to take every single right away."
 
 * :::=== RoundSparrow_Commentary : Recency bias abounds. People have lost all sense that Trump was in fact removed from office and replaced by Joe Biden, and that things keep heading into dehumanization and hate values. The Cambridge Analytica psycological aftermath continues, along with other hostile nations adopting the highly successful inforation warfare techiques. It is open season on the meme addeled USA population who is unwilling to face nonfiction learning about mind-fuck techniques. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n1vxsg/cdc_director_pushed_out_flood_of_top_resignations/nb1dtpp/
+
+YesterShill 2017-07-28
+
+"Trump is single handedly causing the greatest brain drain America has ever seen.
+
+Trump's gift to the world will be other countries gaining priceless scientific, medical and technological knowledge and talent."
