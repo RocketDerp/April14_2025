@@ -129,7 +129,7 @@ Threedawg 2009-11-30
 
 To many americans a liar can still be a strong leader, but someone who is stupid can't."
 
-* :::=== RoundSparrow_Commentary : People *care deeply* about fiction storytelling. Fox News Wealth Television fiction is gospel. Donald Trump playing Tony Clifton is compelling entertainment. It is a completely failire to understand media ecology to think that people do not care that Trump lies and deceives, fiction far outsells nonfiction on every medium / media system (Reddit inclusive). Fiction addicts can not see their own meme addiciton in front of their face. "No one cares if he lies. He always lies." ***CORRECTION OF MAJOR MISUNDERSTADNGING: American We The People care SO MUCH about lies and fiction that we welcomed Russian media invasion since March 2013 and have embraced Donald Trump as a nonstop fiction content creator.*** ===:::
+* :::=== RoundSparrow_Commentary : People *care deeply* about fiction storytelling. Fox News / Newsmax / OANN Wealth Televangelism fiction storytelling is *gospel*. Donald Trump playing Tony Clifton is compelling entertainment. It is a completely failire to understand media ecology to think that people do not care that Trump lies and deceives, fiction far outsells nonfiction on every medium / media system (Reddit inclusive). Fiction addicts can not see their own meme addiciton in front of their face. "No one cares if he lies. He always lies." ***CORRECTION OF MAJOR MISUNDERSTADNGING: American We The People care SO MUCH about lies and fiction that we welcomed Russian media invasion since March 2013 and have embraced Donald Trump as a nonstop fiction content creator.*** ===:::
 
 &nbsp;
 
@@ -138,3 +138,13 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n2bfp8/literally_caught_on_tap
 NoPain4551 2025-06-03 (recent account)
 
 "They’re whitewashing everything in the fear of getting axed by the White House. F-CK their lack of spines and balls."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n2bfp8/literally_caught_on_tape_cnn_drops_trumps_actual/nb5dodb/
+
+\_jump_yossarian 2023-02-02
+
+"If they're complicit why do they keep calling out his lies and bullshit?"
+
+* :::=== RoundSparrow_Commentary : That's what you do in a Tony Clifton performance. Donald Trump goes on media stage and says: "I am the greatest ever seen!" loudly. Then the audience *corrects* Tony Clifton for being terrible and bad. This has been driving the USA for over 10 years. ===:::
