@@ -12,6 +12,14 @@ Stefan_Vanderhoof 2025-04-01 (April fools, new this year)
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1n29ytg/please_stop_sane_washing_what_domestic_terrorists/nb48ccc/
+
+Technicoler 2017-01-30
+
+"It’s like 100 years of insanity has happened in less than 10"
+
+&nbsp;
+
 # Wednesday August 27, 2025
 
 &nbsp;
