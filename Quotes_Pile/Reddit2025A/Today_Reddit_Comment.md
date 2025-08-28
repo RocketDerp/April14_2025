@@ -445,3 +445,13 @@ Frequent-Valuable-39 2021-01-04
 "Trump is addicted to money. The more you have, the more important. Putin is the richest man on the planet. Trump looks up to him. Good chance Mr. Trump sex fetish with beautiful girls and women, was satisfied by the Russian state and is documented by the same. Maybe this is why the little private meetings take place between the two, off mic and camera. Trump needs to be reminded he has a daddy"
 
 * :::=== RoundSparrow_Commentary : Donald Trump is addicted to egoism. He is a magnet for egomania. Trump is entirely addicted to television and has been his entire lifetime, since childhood. Trump went into casinos for the entertainment side of the business, not for profit, but to learn how to manipulate crowds with entertainment addiction. Donald Trump playing NYC Tony Clifton performances blended with Surkov screenplays https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/ is his life dream. He gets constant attention while everyone eats the Clifton act. He barely sleeps, can't wait to start staging his next Clifton performance, Trump works incredibly hard as an entertainer on constant tour. Social media eats right out of Putin and Trump's hands. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n2hotb/portugals_president_calls_trump_out_as_a_russian/nb63vzu/
+
+ConfusionBubbles 2023-08-22
+
+"Imagine that the President of the United States can be canceled at any moment by the President of Russia
+
+That's the state of America"
