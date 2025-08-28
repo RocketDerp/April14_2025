@@ -185,3 +185,13 @@ https://old.reddit.com/r/pics/comments/1n2dvpn/national_guard_soldiers_on_patrol
 dcoy158 2014-09-01
 
 "The subliminal messaging on the Trump banner is pretty sly. Hide the American workers portion but plaster your face above the word first so people connect putting Trump first."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n2dvpn/national_guard_soldiers_on_patrol_in_washington_dc/nb5kdmb/
+
+Poglosaurus 2012-06-01
+
+"No need to reference fiction. There are historical example that are much more pertinent. This image is reminiscent of fascism and totalitarianism."
+
+* :::=== RoundSparrow_Commentary : We The People are compusively attracted to compelling fiction storytelling. Fiction mindsets abound. ===:::
