@@ -1067,12 +1067,26 @@ yersinia_p3st1s 2021-06-22
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb34y2l/
 
 xiaopewpew 2015-04-05
+
+<img width="1072" height="838" alt="image" src="https://github.com/user-attachments/assets/39e4f8f4-a52c-4661-919e-a346c237c492" />
+
+&nbsp;
 
 "The positive development is our experience shitposting on reddit has finally become relevant and we can use the qualification to apply for a diplomat job.
 
 "calm down", "lmao", "i was just memeing" "
 
 * :::=== RoundSparrow_Commentary :  [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb3nc40/
+
+mdr4k3 2023-11-03
+
+"Something similar already happened in Crimea when the “little green men” landed there and Russia kept saying “we’re not there”, only to end up annexing the peninsula."
