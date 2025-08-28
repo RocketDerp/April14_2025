@@ -320,3 +320,11 @@ And now, since he says “I told the FBI about him”, so one congressman said �
 Bullshit. He WAS the FBI for the first term, and never thought to say he turned in Epstein himself?"
 
 * :::=== RoundSparrow_Commentary : "Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - Adam Curtis, BBC.. **December 21, 2014 - YEARS before Trump** took office. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n29m2o/trump_says_obama_and_biden_fabricated_epstein/nb49kqr/
+
+buoy13 2021-09-24
+
+"Fox and Newsmax only report Trumps dialog. Fox is the most viewed out of the legacy media networks. Fox in first quarter of 2025, the network averaged 2.633 million total primetime views."
