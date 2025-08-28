@@ -72,3 +72,15 @@ RphAnonymous 2022-10-22
 
 * :::=== RoundSparrow_Commentary : It isn't accidental.  It is a plot to enslave the meme addict population into constant high-speed reactions to leaders / wealth lords. All [the technology companies in USA are converging with the White House](https://www.lemonde.fr/en/economy/article/2025/03/25/many-silicon-valley-figures-saw-donald-trump-s-election-as-an-opportunity_6739484_19.html) / Kremlin leadership.
 “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to exploit evolutionary flaws in our cognition? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n2a718/disturbing_video_shows_lawmaker_stuffing_ballots/nb4xam3/
+
+Paradigmnoia 2025-01-27 (new this year)
+
+"Gross generalization:
+
+This is why MAGA thinks everyone needs super strong laws and policing for everything. They personally lack self control and will selfishly do illegal things anytime, anywhere, as long as they think they won’t get caught. Therefore they think everyone else secretly thinks just like them."
+
+* :::=== RoundSparrow_Commentary : Not unqiue to MAGA / USA. Dog eat dog thinking values. Anti-compassion, anti-empathy, outsmart others. Every area of life is competition to manipulate and trick other people out of their wealth and power. "People living in competitition" https://www.youtube.com/watch?v=edwk-8KJ1Js ===:::
