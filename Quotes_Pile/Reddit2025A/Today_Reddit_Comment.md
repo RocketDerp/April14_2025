@@ -148,3 +148,22 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n2bfp8/literally_caught_on_tap
 "If they're complicit why do they keep calling out his lies and bullshit?"
 
 * :::=== RoundSparrow_Commentary : That's what you do in a Tony Clifton performance. Donald Trump goes on media stage and says: "I am the greatest ever seen!" loudly. Then the audience *corrects* Tony Clifton for being terrible and bad. This has been driving the USA for over 10 years. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n2bfp8/literally_caught_on_tape_cnn_drops_trumps_actual/nb5ewpu/
+
+TurloIsOK 2015-06-21
+
+<img width="914" height="614" alt="image" src="https://github.com/user-attachments/assets/d7a18c90-4d3f-44ab-b1c0-7130c501b077" />
+
+&nbsp;
+
+"The implication of dementia is so thin, you have to paint it yourself.
+
+What is clearer is trump's delusion that everyone praises him. That's not new, not dementia, but still shows he's severely mentally challenged."
+
+* :::=== RoundSparrow_Commentary : Elon Musk does not have dementia. Tucker Carlson does not have dementia. The entire cast of Fox News fiction, Saturday Night Live "Weekend Update", Putin and Surkov, do not have dementia. Denial abounds that USA has lost an information war since March 2013.   
+"At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, **creating mass hallucinations** that then translate into political action." - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
