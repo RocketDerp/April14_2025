@@ -475,3 +475,22 @@ Wild_Harvest 2013-11-28
 "They want Leave it to Beaver, not reality."
 
 * :::=== RoundSparrow_Commentary : Fiction television show. Ficiton outsells nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n2nbi5/massive_cdc_walkout_erupts_amid_internal_chaos/nb77a4k/
+
+Tainted_Bruh 2014-10-01
+
+"Russia poppin bottles right now. Least costly war they’ve ever won."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n2nbi5/massive_cdc_walkout_erupts_amid_internal_chaos/nb7w1t6/
+
+16yearswasted 2025-04-14 (new this year)
+
+"Putin is the most expert, most accomplished, most successful intelligence operative of all time.
+
+Fucker is dismantling the USA while in a ruinous war with an economy in shambles. He has every single Russian citizen by the metaphorical balls and they love it. He even has a whole mess of Americans by the short and curlies and they are begging for more."
+
