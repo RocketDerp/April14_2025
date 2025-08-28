@@ -417,3 +417,21 @@ Like the romans they had influence around the world but once they fractured and 
 Bye bye America as number one in cultural export, they are no longer number one in anything and most of Amerika fell below most third world countrys in almost all statistics (already has)."
 
 * :::=== RoundSparrow_Commentary : Russia won, the IRA won since March 2013, Surkov students won. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n2hotb/portugals_president_calls_trump_out_as_a_russian/nb5w6yo/
+
+GeneriComplaint 2025-06-28 (recent account)
+
+"Now more world leaders need to say it publicly. Destroy the cult with facts"
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n2hotb/portugals_president_calls_trump_out_as_a_russian/nb61jex/
+
+epicredditdude1 2019-11-17
+
+"I feel like he's saying what a lot of world leaders already believe, but are leaving unsaid.
+
+The only people that are failing to see Trump's obvious kowtowing to Russian interests are brainwashed MAGAs."
