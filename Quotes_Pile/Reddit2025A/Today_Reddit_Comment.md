@@ -272,3 +272,15 @@ They get off on causing suffering and pain, and the weaker the victim, the bette
 Is every MAGA a pedo? Well, every MAGA believes pedophilia isn't a deal-breaker, so..."
 
 * :::=== RoundSparrow_Commentary : If you care about young girls being abused by elders, Malala started a global movement in year 2013 back when Trump was going to Moscow for a sex show in November 2013. Malala has consistently been giving young girls their own voice to stand up to elder men who want to rule and dicate to girls and women. Instead of listening to girls and women, social media meme addicts keep repeating what elder men say (Trump family, etc). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n29m2o/trump_says_obama_and_biden_fabricated_epstein/nb4pmjc/
+
+tomdarch 2012-01-14
+
+"Not that his brain isn’t clearly declining - it is. But “everything that is bad for me is fake” is a long running theme from this bizarre narcissist. It is the basic operating tenet of MAGA. Lost the election? It was rigged! Economic data is bad for me? It’s fake! Evidence points to me being close with a con man child rapist? It’s fake!
+
+One of the many things that needs to be pointed out about this political insanity is that MAGA is detached from reality."
+
+* :::=== RoundSparrow_Commentary : Surkov won the war against reality since March 2013. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
