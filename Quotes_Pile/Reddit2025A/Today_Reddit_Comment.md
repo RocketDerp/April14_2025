@@ -94,3 +94,12 @@ CandyCreecher 2025-06-02 (recent account)
 "It’s amazing how badly these people want to stay in power. How badly they want people to work harder to earn so little and so the people from up top can stay in their ivory tower. How much they’re willing to risk so no one knows about how little they truly care for their own country and her people. I’m glad this is coming up and I’m glad this information is being spread so we all know that their shit stinks"
 
 * :::=== RoundSparrow_Commentary : Fiction addiction can rule populations. Nonfiction science is considered boring, Donald Trump provides fiction. Fox News provides fiction. Bible story of science fiction. Far more motivationg and popular. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n2a718/disturbing_video_shows_lawmaker_stuffing_ballots/nb4r284/
+
+703B34N5 **2025-07-20 (new account)**
+
+"you are 100% going to end up an authoritarian country. Democrats in opposition are pathetic and the apathy that is prevalent in american voters to not cast a vote given the state of the country is staggering. you are fucked absolutely fucked."
+
