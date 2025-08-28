@@ -373,3 +373,15 @@ Not_Bears 2021-09-26
 Like I'm pretty sure a lot of them actually think like that."
 
 * :::=== RoundSparrow_Commentary : “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. Pretty much like podcast consumers of Joe Rogan, Fox News concumers, Russian IRA consumers. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1n2e0vs/majority_of_women_under_30_find_it_a_turn_off_if/nb5apk4/
+
+Y0___0Y 2024-09-19
+
+"There are two guys who have a relatively new podcast called the “Know Rogan” podcast where they play clips from his show and fact check him and his guests. It’s insane the stuff that is said on that show of his. He had a holocaust denier on the show who told Joe it was actually Churchill and the British who started WWII. He had on an anti-vax doctor who he asked if there are any safe vaccines and the doctor said no.
+
+He’s just poisoning people’s minds."
+
+* :::=== RoundSparrow_Commentary : Podcast media, radio media... "I Am Malala Chapter 9: Radio Mullah Summary & Analysis" https://www.litcharts.com/lit/i-am-malala/chapter-9-radio-mullah ===:::
