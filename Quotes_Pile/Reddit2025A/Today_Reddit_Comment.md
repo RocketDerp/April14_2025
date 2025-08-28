@@ -83,4 +83,14 @@ Paradigmnoia 2025-01-27 (new this year)
 
 This is why MAGA thinks everyone needs super strong laws and policing for everything. They personally lack self control and will selfishly do illegal things anytime, anywhere, as long as they think they won’t get caught. Therefore they think everyone else secretly thinks just like them."
 
-* :::=== RoundSparrow_Commentary : Not unqiue to MAGA / USA. Dog eat dog thinking values. Anti-compassion, anti-empathy, outsmart others. Every area of life is competition to manipulate and trick other people out of their wealth and power. "People living in competitition" https://www.youtube.com/watch?v=edwk-8KJ1Js ===:::
+* :::=== RoundSparrow_Commentary : Not unqiue to MAGA / USA. Dog eat dog thinking values. Anti-compassion, anti-empathy, outsmart others. Every area of life is competition to manipulate and trick other people out of their wealth and power. "People living in competitition", "take a look ahead!" https://www.youtube.com/watch?v=edwk-8KJ1Js ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n2a718/disturbing_video_shows_lawmaker_stuffing_ballots/nb4pxl2/
+
+CandyCreecher 2025-06-02 (recent account)
+
+"It’s amazing how badly these people want to stay in power. How badly they want people to work harder to earn so little and so the people from up top can stay in their ivory tower. How much they’re willing to risk so no one knows about how little they truly care for their own country and her people. I’m glad this is coming up and I’m glad this information is being spread so we all know that their shit stinks"
+
+* :::=== RoundSparrow_Commentary : Fiction addiction can rule populations. Nonfiction science is considered boring, Donald Trump provides fiction. Fox News provides fiction. Bible story of science fiction. Far more motivationg and popular. ===:::
