@@ -234,3 +234,11 @@ BeckBristow89 2012-12-16
 "Do American workers really think he’s working for them? Sales abroad going down costs going up, people go to the grocery store and don’t see their costs going up? Are they closing their eyes and going through life like that?"
 
 * :::=== RoundSparrow_Commentary : We The People are compusively attracted to compelling fiction storytelling. Fiction mindsets abound. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n2dvpn/national_guard_soldiers_on_patrol_in_washington_dc/nb599xb/
+
+PotterOneHalf 2011-05-05
+
+"It doesn't matter, they will still believe Trump when he says it was Biden that made prices high in the first place. I work with regular people all day every day and the average American doesn't realize how many barely functional adults are out there just bumblefucking their way through life."
