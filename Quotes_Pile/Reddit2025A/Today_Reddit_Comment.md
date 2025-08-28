@@ -894,3 +894,11 @@ YesterShill 2017-07-28
 Trump's gift to the world will be other countries gaining priceless scientific, medical and technological knowledge and talent."
 
 * :::=== RoundSparrow_Commentary : [Another eater of Surkovian onions who thinks this is only Trump, without Putin and Russia plan since November 7, 2012](Surkovian_Onion_Eating.md). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n1vxsg/cdc_director_pushed_out_flood_of_top_resignations/nb1c5yu/
+
+TripleSecretSquirrel  2017-08-13
+
+"RFK jr says they’re going to announce the cause of autism next month lol maybe it has something to do with that"
