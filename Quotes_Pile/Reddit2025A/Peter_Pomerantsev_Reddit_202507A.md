@@ -1620,9 +1620,15 @@ https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_preside
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/technology/comments/1n2bbzn/maga_puts_wikipedia_in_its_crosshairs_prominent/nb4kib6/
 
 AlbionPCJ 2018-08-18
+
+<img width="1496" height="1202" alt="Screenshot from 2025-08-28 08-27-49" src="https://github.com/user-attachments/assets/74e4a5a0-5940-4825-b9de-d5be03d4642b" />
+
+&nbsp;
 
 "It's reality warfare. They're trying to override the world as it exists with one that automatically validates their beliefs despite the fact that they keep being contradicted by real life at every turn. That they're doing this while they hold actual power is even sadder- they can't just be in charge, reality itself must be constantly bending over backwards to justify them at every turn
 
