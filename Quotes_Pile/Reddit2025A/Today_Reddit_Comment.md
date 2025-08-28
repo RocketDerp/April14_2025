@@ -338,3 +338,23 @@ smoofus724 2021-01-27
 "There was a time where I thought people that listened to Joe Rogan were mostly harmless dorks. That was several years ago. At this point, people that are STILL listening to Joe Rogan have signaled that they are okay with all of this and that means we have fundamental incompatibilities in how we view the world."
 
 * :::=== RoundSparrow_Commentary : But consuming Reddit gor yeras without recoginzing what years of Reddit consumption does is OK. "mostly harmless dorks. That was several years ago. At this point, people that are STILL" not facing up that Neil Postman was correct in year 1985 are in extremely deep psycologial denial of the mass psychosis problem in USA society. Before podcasts, before Reddit. "Our politics are unhinged. He saw it coming 40 years ago." - https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1n2e0vs/majority_of_women_under_30_find_it_a_turn_off_if/nb5g6zp/
+
+Not_Bears 2021-09-26
+
+"My other straight male friends just cannot wrap their heads around the fact that women actually like them less for being into macho dude stuff and lacking basic empathy.
+
+I love them but, but it's almost comical.
+
+I literally tell them all the time: You're doing all this shit to impress other dudes. Women don't care about 98% of the shit Rogan talks about...
+
+They legit can't see it. They can't grasp how their weird opinions and "big tough guy" persona are major red flags...
+
+And they're weirdly offended when I point out that this is all a performance to show dudes at work and the bars they go to that they're big, tough, and should be respected.
+
+But it comes off as immature and gross, and they're almost fucking 40."
+
+* :::=== RoundSparrow_Commentary :  "But it comes off as immature and gross, and they're almost fucking 40" - you have had almost ELEVEN FULL YEARS to study how Russian informtion warfare works, and nobody wants to call it out. September 9, 2014 - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - your nation has had 250 years to grasp the improtance of art symbolism and media messages of the Quran / Bible / Torah / Upanishads / etc. - dnd NOBODY IN USA knows the meaning of the Founding Fathers Great Seal of the United States of America from year 1776. Instead, predatory billionares from all over the world sell media content to an ingorant audience who never studied media ecology or art symbolism. ===:::
