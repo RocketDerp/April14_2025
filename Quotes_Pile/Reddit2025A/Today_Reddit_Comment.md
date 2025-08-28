@@ -944,3 +944,15 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n1u6cz/trumps_staff_thanking_h
 Prestigious-Run-5103 2021-09-30
 
 "Yeah, that sure as hell ain't normal. Imagine holding the office of the President, and being so insecure that you need this level of attention. That's the most pathetic thing I've ever seen."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n1u6cz/trumps_staff_thanking_him_for_all_he_has_done_for/nb17w1l/
+
+Antique_Loss_1168 2021-08-20
+
+"You people act like you've never seen a politburo meeting before....
+
+Just realised how old I am....
+
+Woo this is the ghost of cold War past, this is very fucking bad...."
