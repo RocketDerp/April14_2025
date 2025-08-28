@@ -655,3 +655,25 @@ Ghostman_Jack 2024-11-27
 "It’s kind of funny. When this story first broke out right wingers were screaming and shouting how this is “more proof” how the Dems are cheating cause this guy was caught and he has a foreign name. Then it comes out he’s a trumper and crickets."
 
 Crowds flocking, people chasing after the fiction story. Absurd comedy, surreal humor, "kind of funny", entertinment addiction. Information machines driving people with attraction to fiction and fantasy.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1n2jj4z/john_fogerty_says_its_hilarious_trump_still/
+
+This is the entire situation. People think it is hilarious what Donald Trump ddoes. Irony poisioning, satire poisoning of an entire nation. People can not stop mocking the Tony Cliftion performances of Putin and Trump and supporting casts of Kremlin and White House. The more they use absurd and surreal comedy, the more the audience can't stop handing over wealth and power. That's what Surkov governing does, that is what Surkov students have mastered. As Joseph Campbell said in summer of 1987 at age 83, "die for a metaphor", in our case the fiction metaphor is Donald Trump being able to say:
+
+1. Bruce Springsteen https://economictimes.indiatimes.com/news/international/us/donald-trump-sues-bruce-springsteen-for-defamation-over-explosive-onstage-comments/articleshow/122116950.cms?from=mdr
+
+2. Rosie O'Donnell https://www.usatoday.com/story/entertainment/celebrities/2025/07/16/rosie-odonnell-donald-trump-feud-escalates/85240130007/
+
+3. South Park  https://variety.com/2025/tv/news/white-house-slams-south-park-donald-trump-parody-1236468583/
+
+4. Taylor Swift https://time.com/7312578/trump-reacts-taylor-swift-travis-kelce-engaged-celebrity-comments-timeline/
+
+What we are living under in August 2025, is what Neil Postman wrote about and described in 1985: “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+And Neil Postman wasn't even describing it as information warfare, he saw it happening as a natural product of electric media consumption, he was clear on this: "In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result." - 1985
+
+What Surkov has done with Putin / Kremlin since year 2000 was *intential*, weaponzied, and exported with Cambridge Analytia since Q2 2013.
