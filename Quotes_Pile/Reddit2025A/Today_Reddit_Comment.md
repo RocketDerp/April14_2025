@@ -926,3 +926,13 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n1u6cz/trumps_staff_thanking_h
 tobogganhill 2019-08-28
 
 "Pardon my profanity, but this is fucked. I'm Canadian 🇨🇦, watching this with trepidation. I sincerely hope that the USA can reverse course, and get back to some semblance of reality."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n1u6cz/trumps_staff_thanking_him_for_all_he_has_done_for/nb0y6rb/
+
+Terry-Shark **2025-08-19 (new account)**
+
+"Sorry, but that is the real word. It is happening here and now. To pretend otherwise is to ignore it"
+
+* :::=== RoundSparrow_Commentary : People are living in denail of reality of USA. ===:::
