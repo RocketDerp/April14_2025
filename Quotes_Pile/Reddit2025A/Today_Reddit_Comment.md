@@ -403,3 +403,17 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1n2e0vs/majority_of_women_unde
 winthroprd 2016-04-14
 
 "That's exactly the danger with people like Joe Rogan. They represent themselves as ideologically neutral and openminded to different points of view, and the dumb fucks who listen think that the kooks they platform have an equally valid views as actual subject matter experts. I know someone who went down a right wing rabbit hole because she listened to shows like Rogan and Bill Maher looking for a "balanced" view."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1n28lmg/the_clown_king_and_his_jester/nb6jodo/
+
+majscorn 2020-06-26
+
+"Watching the fall of the Rome (USA) has been an interesting sight, they labeled their pretorian guard after the most disgusting part of the Nazi regime (SS). They sold their liberty to their enemies gladly for money (like the Greeks who sold out for byzantine emperors). It has been interesting watching how they turned from liberty for all to all hail the emperor, they got nothing in exchange but they stilled applauded.
+
+Like the romans they had influence around the world but once they fractured and turned their focus on interior squabbles, it disappeard. As it almost entirely made up stuff to grab power one quote resonates in my mind. A quote from John Milton "I rather rule in hell than serve in heaven". But as the roman empire did, the American followed. They both fell inevitable into disparity and disrepair.
+
+Bye bye America as number one in cultural export, they are no longer number one in anything and most of Amerika fell below most third world countrys in almost all statistics (already has)."
+
+* :::=== RoundSparrow_Commentary : Russia won, the IRA won since March 2013, Surkov students won. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." ===:::
