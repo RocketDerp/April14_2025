@@ -1008,3 +1008,11 @@ DuctTapeDisaster 2017-08-16
 "Ah... This explains the various anti Dane and Greenland vs. Denmark stories that were suddenly recommended to me yesterday on Reddit from subreddits I've never heard of before, where comment trees sometimes felt like well woven storylines.
 
 It's scary how clear the influence campaigns are."
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb3ca0k/
+
+FrozenHuE 2017-10-05
+
+"becasue is not cooperation, is vassalage, just because the overlord treats that group of vassals better than others (latin america for example) it doesn't mean partnership or an alliance of equals."
