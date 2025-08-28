@@ -195,3 +195,11 @@ Poglosaurus 2012-06-01
 "No need to reference fiction. There are historical example that are much more pertinent. This image is reminiscent of fascism and totalitarianism."
 
 * :::=== RoundSparrow_Commentary : We The People are compusively attracted to compelling fiction storytelling. Fiction mindsets abound. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n2dvpn/national_guard_soldiers_on_patrol_in_washington_dc/nb596x3/
+
+OriginalChildBomb 2022-01-26
+
+"This looks like a screenshot of a video game where you're playing in a future dystopia lol"
