@@ -292,3 +292,15 @@ https://old.reddit.com/r/NoFilterNews/comments/1n29m2o/trump_says_obama_and_bide
 Downvote_Comforter 2012-05-18
 
 "Yup. "Fake news" was arguably the most prominent term of his 2016 campaign and then the first couple years of his 1st term. His mental decline and the administration's massive sprint towards authoritarianism has made hus cries of "fake news" incredibly more obvious and absurd, but his denial of reality that doesn’t suit him isn't remotely new."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n29m2o/trump_says_obama_and_biden_fabricated_epstein/nb4frf9/
+
+boofaceleemz 2018-11-24
+
+"Buying the lie is not about being a moron, it’s about the lie being a power move. Most of Trump’s appeal is that he’s strong, so he can say any lie he wants. The more blatant the lie is the better, because accepting a blatant lie just further proves how strong he is. And if you don’t accept it then you’re outed as not being a true conservative.
+
+It can be really hard from the outside to understand the conservative mindset, because it looks like conservatives are simultaneously believing contradictory things, sometimes within the same sentence. We throw around terms like cognitive dissonance, but no matter how much they’ve drunk the cool-aid for that to be cognitive dissonance would be wild.
+
+But it’s not cognitive dissonance because it’s not about belief, just like with everything else with conservatives it’s about posturing and hierarchy. The lies aren’t actually lies, they’re power moves. And repeating them isn’t about believing them, it’s about solidifying your place in the hierarchy. It’s communication, but it’s not about communicating ideology, it’s a pack of dogs posturing submissiveness to the alpha."
