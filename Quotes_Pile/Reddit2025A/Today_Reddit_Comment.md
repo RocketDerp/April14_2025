@@ -1036,3 +1036,13 @@ Fluffy-Republic8610 2024-09-11 (famous terrorism September 11)
 "Yes, it comes off the same way as Russia. It's a hyper male type of voice that sees other countries as either whining bimbos or rivals or bros."
 
 * :::=== RoundSparrow_Commentary : Anti-Malala. Anti-reformation. The rise of Malala on the world stage in year 2012 and her October 8, 2013 book publication is right beofre the hyper-masculine Moscow sex show leadership in November by Donald Trump. You can track the social media engagement of Malala vs. Trump from October 8, 2013 onward when Malala did her book tour. https://www.youtube.com/watch?v=gjGL6YY6oMs - people (social media fiction addicts) ReTweet, repeat, repost fiction Trump and Putin since year 2013 constantly - and avoid the nonfiction Malala messages. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb3436s/
+
+gwentlarry 2022-07-23
+
+"As though the US would "calm down" if foreigners were wandering around the US telling people Trump was incompetent with a government of synchophants.
+
+They'd be grabbed off the streets by masked gunmen, "disappeared" to an ICE prison and after some weeks, or months, be deported. With luck, back to their home country but perhaps to El Salvador."
