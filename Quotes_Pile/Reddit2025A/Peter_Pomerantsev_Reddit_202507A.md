@@ -1614,3 +1614,16 @@ I don't even know where to begin on describing this public statement. It's pure 
 "Disrespectful to President Putin - so much for America first."   
 https://old.reddit.com/r/BlueskySkeets/comments/1muiq7p/disrespectful_to_president_putin_so_much_for/
 
+&nbsp;
+
+# Thursday August 28, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1n2bbzn/maga_puts_wikipedia_in_its_crosshairs_prominent/nb4kib6/
+
+AlbionPCJ 2018-08-18
+
+"It's reality warfare. They're trying to override the world as it exists with one that automatically validates their beliefs despite the fact that they keep being contradicted by real life at every turn. That they're doing this while they hold actual power is even sadder- they can't just be in charge, reality itself must be constantly bending over backwards to justify them at every turn
+
+Edit: For any wrestling fans out there, it's a sort of "hyper-kayfabe". It is not only not enough to believe and buy into the false reality for your narrative to make sense in spite of the contradictions, you must roll that constructed universe back onto itself to force the real world to become a mirror of the fake one to try and destroy the contradictions entirely"
