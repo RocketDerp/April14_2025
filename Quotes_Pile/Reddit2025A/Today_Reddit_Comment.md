@@ -956,3 +956,15 @@ Antique_Loss_1168 2021-08-20
 Just realised how old I am....
 
 Woo this is the ghost of cold War past, this is very fucking bad...."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1n20x7a/the_last_man_rules_the_world/nb3gguo/
+
+Beanyurza 2012-03-13
+
+"You mean the last person who flattered him. 
+
+He's easy to influence, just give him a bunch of empty praise and he'll say and do anything you want. That's why he falls for Putin's schtick everytime they meet."
+
+* :::=== RoundSparrow_Commentary : Media addiction, television addiction, meme addiction describes much of the USA behavior. Hypereality of images and video and televised content. Being starstruck, influencers, etc ===:::
