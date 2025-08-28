@@ -103,3 +103,10 @@ https://old.reddit.com/r/NoFilterNews/comments/1n2a718/disturbing_video_shows_la
 
 "you are 100% going to end up an authoritarian country. Democrats in opposition are pathetic and the apathy that is prevalent in american voters to not cast a vote given the state of the country is staggering. you are fucked absolutely fucked."
 
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n2a718/disturbing_video_shows_lawmaker_stuffing_ballots/nb4t8b1/
+
+Rauldukeoh 2013-01-04
+
+"This sub, and the linked article are obvious Russian agitprop"
