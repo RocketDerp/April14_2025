@@ -892,3 +892,5 @@ YesterShill 2017-07-28
 "Trump is single handedly causing the greatest brain drain America has ever seen.
 
 Trump's gift to the world will be other countries gaining priceless scientific, medical and technological knowledge and talent."
+
+* :::=== RoundSparrow_Commentary : [Another eater of Surkovian onions who thinks this is only Trump, without Putin and Russia plan since November 7, 2012](Surkovian_Onion_Eating.md). ===:::
