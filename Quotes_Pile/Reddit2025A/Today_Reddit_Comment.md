@@ -328,3 +328,13 @@ https://old.reddit.com/r/NoFilterNews/comments/1n29m2o/trump_says_obama_and_bide
 buoy13 2021-09-24
 
 "Fox and Newsmax only report Trumps dialog. Fox is the most viewed out of the legacy media networks. Fox in first quarter of 2025, the network averaged 2.633 million total primetime views."
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1n2e0vs/majority_of_women_under_30_find_it_a_turn_off_if/nb5j24w/
+
+smoofus724 2021-01-27
+
+"There was a time where I thought people that listened to Joe Rogan were mostly harmless dorks. That was several years ago. At this point, people that are STILL listening to Joe Rogan have signaled that they are okay with all of this and that means we have fundamental incompatibilities in how we view the world."
+
+* :::=== RoundSparrow_Commentary : But consuming Reddit gor yeras without recoginzing what years of Reddit consumption does is OK. "mostly harmless dorks. That was several years ago. At this point, people that are STILL" not facing up that Neil Postman was correct in year 1985 are in extremely deep psycologial denial of the mass psychosis problem in USA society. Before podcasts, before Reddit. "Our politics are unhinged. He saw it coming 40 years ago." - https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
