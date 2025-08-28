@@ -224,3 +224,13 @@ koshgeo 2013-09-01
 "Yes, but the only reason Roosevelt is there is so they can claim it wasn't done purely to stroke Trump's ego. It's a weak argument because it's comparing a historical president who can't politically benefit from the display of a message to a present one that can.
 
 Normally political leaders in a democracy opt out of that kind of outlandish glorification at government expense while in office. It looks too much like North Korea or something. The most they usually get is a small official portrait hung in government offices."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n2dvpn/national_guard_soldiers_on_patrol_in_washington_dc/nb54j61/
+
+BeckBristow89 2012-12-16
+
+"Do American workers really think he’s working for them? Sales abroad going down costs going up, people go to the grocery store and don’t see their costs going up? Are they closing their eyes and going through life like that?"
+
+* :::=== RoundSparrow_Commentary : We The People are compusively attracted to compelling fiction storytelling. Fiction mindsets abound. ===:::
