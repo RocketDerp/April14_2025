@@ -1067,3 +1067,8 @@ What Putin and Trump weaponzied with Surkov techniques, Tony Clifton audience im
 Second-hand cringe, induced compassion overload via media systems and witnessing.    
 https://old.reddit.com/r/todayilearned/comments/1n1rrmi/til_that_people_who_experience_vicarioius/
 
+&bsp;
+
+Android root, side-loading apps, YouTube adblock     
+https://old.reddit.com/r/Piracy/comments/1n2610i/using_a_rooted_device_in_2015_was_on_another_level/
+
