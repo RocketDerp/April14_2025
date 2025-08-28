@@ -43,3 +43,13 @@ This isn’t an argument, it is objectively, 100% sped up. Multiple things make 
 * :::=== RoundSparrow_Commentary : Meme addicts to hyper reality and entertainment content can not distinguish reality itself. They are avoidiant of nonfiction reality, not attracted to analyzing and learning about relevant society reality of media addiction behaviors (the car driver is a hyperreal media addict too, like the Reddit audience members aboidant of reality). ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/LoveTrash/comments/1n2arjo/distracted_driving_is_bad/nb4p8kz/
+
+weirdoeggplant 2025-06-25 (recent account)
+
+"LOL I had no problem admitting I was wrong. I need evidence, though, which I wasn’t getting.
+
+And right now I have 40 redditors pissed off over…. Nothing lol. It’s a lot more fun to watch them wrap themselves in knots and turn purple trying to tell me I’m wrong and it is *very* enjoyable watching them get even angrier when I simply refuse to do what they want me to do over something so low stakes lmfao."
+
+* :::=== RoundSparrow_Commentary : Donald Trump society role model playing Tony Clifton enjoying the audience interaction. "LOL" opening of message, "lmfao" closing.  The very posting on Reddit is a media addict, and an audience media addict wants "very enjoyable" to be preadatory on media addicts. A culture driven by media addiction, society of Donald Trump media addicts, who can't get enough of supporting that Donald Trump provides constant topic of insulting and attacking. MAGA values, media addiction, nation. Fox News is fiction, Donald Trump provides fiction, a society driven by fiction vs. fiction conflicts. ===:::
