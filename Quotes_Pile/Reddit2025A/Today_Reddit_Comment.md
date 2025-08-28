@@ -32,6 +32,18 @@ That-Foot8669 2025-06-29 (new account)
 
 &nbsp;
 
+https://old.reddit.com/r/LoveTrash/comments/1n2arjo/distracted_driving_is_bad/nb4ii1y/
+
+Twerksoncoffeetables 2019-12-31 (NYE)
+
+"It is absolutely sped up for the first part of the video until she is close to going off the road. How can you not tell this is sped up just by looking at her head movement? Her head looks like it is being fast forwarded, because it is. You can also look at the time in the bottom right corner, the seconds are going up much faster all the way until 22:10 where it then goes to normal speed because she’s about to go off road.
+
+This isn’t an argument, it is objectively, 100% sped up. Multiple things make that very obvious."
+
+* :::=== RoundSparrow_Commentary : Meme addicts to hyper reality and entertainment content can not distinguish reality itself. They are avoidiant of nonfiction reality, not attracted to analyzing and learning about relevant society reality of media addiction behaviors (the car driver is a hyperreal media addict too, like the Reddit audience members aboidant of reality). ===:::
+
+&nbsp;
+
 
 # Wednesday August 27, 2025
 
