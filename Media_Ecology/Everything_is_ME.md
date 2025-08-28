@@ -1,15 +1,3 @@
-# Thursday August 28, 2025
-
-&nbsp;
-
-https://old.reddit.com/r/BlueskySkeets/comments/1n29ytg/please_stop_sane_washing_what_domestic_terrorists/nb484mm/
-
-Stefan_Vanderhoof 2025-04-01 (April fools, new this year)
-
-"Suicide by cult. She’s not the first, nor will she be the last."
-
-Cults of memes, cults of anti-science, cults of fiction stories. Those who die for Quran and Mecca and Mosque, Islamic Terrorists, are suicide by science fiction storytelling cult. That is what Putin and Trump and Cambridge Analytica mastered since March 2013. And we must educate every person age 12 to age 120 in the entire world on media ecology and comparative mythology (science fiction history, monomyth vs. monomyth story patterns in human mind) to defend against the self-destruction. 5,000 patterns of science fiction alternate reality were deployed by Russia: "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446 ===:::
-
 # Everything Is ME (Media Ecology)
 
 Everything is Media Ecology...
