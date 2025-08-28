@@ -176,4 +176,12 @@ thecommonkind 2012-10-29
 
 "This is straight out of V for Vendetta, and many other “fictional” films and shows."
 
-* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. Mythological Trump outsells nonfiction sincerity, honesty, earnest goodness. Study Mecca theme park for Quran science fiction storytelling. ===:::
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. Mythological Trump outsells nonfiction sincerity, honesty, earnest goodness. Study Mecca theme park for Quran science fiction storytelling and population governing. Surkov won. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n2dvpn/national_guard_soldiers_on_patrol_in_washington_dc/nb531tf/
+
+dcoy158 2014-09-01
+
+"The subliminal messaging on the Trump banner is pretty sly. Hide the American workers portion but plaster your face above the word first so people connect putting Trump first."
