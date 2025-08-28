@@ -167,3 +167,13 @@ What is clearer is trump's delusion that everyone praises him. That's not new, n
 
 * :::=== RoundSparrow_Commentary : Elon Musk does not have dementia. Tucker Carlson does not have dementia. The entire cast of Fox News fiction, Saturday Night Live "Weekend Update", Putin and Surkov, do not have dementia. Denial abounds that USA has lost an information war since March 2013.   
 "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, **creating mass hallucinations** that then translate into political action." - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n2dvpn/national_guard_soldiers_on_patrol_in_washington_dc/nb526f0/
+
+thecommonkind 2012-10-29
+
+"This is straight out of V for Vendetta, and many other “fictional” films and shows."
+
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. Mythological Trump outsells nonfiction sincerity, honesty, earnest goodness. Study Mecca theme park for Quran science fiction storytelling. ===:::
