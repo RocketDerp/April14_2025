@@ -494,3 +494,10 @@ https://old.reddit.com/r/politics/comments/1n2nbi5/massive_cdc_walkout_erupts_am
 
 Fucker is dismantling the USA while in a ruinous war with an economy in shambles. He has every single Russian citizen by the metaphorical balls and they love it. He even has a whole mess of Americans by the short and curlies and they are begging for more."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n2nbi5/massive_cdc_walkout_erupts_amid_internal_chaos/nb7pa7t/
+
+westernmooneastrnsun 2025-01-25 (new this year)
+
+"No, the US is done. There won't be a time republicans and conservatives admit what they've done to our nation. They will continue to live in loony world. The rest of the world will move on and isolate the failed nation of the USA. Europeans have stopped parcel shipments to the US. The rest of the world is recruiting top US scientists. There isn't going to be a time where US regains sanity because it would take the right to admit they fucked up. They will not."
