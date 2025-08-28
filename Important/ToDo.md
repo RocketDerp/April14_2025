@@ -1081,3 +1081,8 @@ https://old.reddit.com/r/science/comments/1n28hb5/a_study_of_the_2024_attempted_
 
 Egomania. Nina Paley: "THis Land is mine!" video. Love of machines and love of ownership of land and hate of human persons.    
 https://old.reddit.com/r/nextfuckinglevel/comments/1n2ev4s/farmer_flips_car_that_was_parked_on_his_land/
+
+&nbsp;
+
+Choice marriage honesty.     
+https://old.reddit.com/r/SipsTea/comments/1n2dw76/thoughts/
