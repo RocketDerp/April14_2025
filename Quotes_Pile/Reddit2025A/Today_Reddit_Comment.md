@@ -394,4 +394,12 @@ Electronic_Stop_9493 2021-02-18
 
 "Yeah it’s trickery anti vaxxers use because technically you can get an injury from the needle alone in any vaccine so technically you can’t say any are 100% safe but it doesn’t mean they are unsafe"
 
-* :::=== RoundSparrow_Commentary : *Sometimes a cigar is just a cigar*. Fear of phalic intrusions into the body by over-masculine mails like RFK Jr and Joe Rogan is a suboncious topic you do not hear discussed. Cambridge Analytica and Russia mind-fucked people: https://www.bbc.com/news/world-us-canada-45294192 over needle fears and other subconsious brain exploits. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." Surkov students won since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : *Sometimes a cigar is just a cigar*. Fear of phallic (cigar) intrusions into the body by over-masculine mails like RFK Jr and Joe Rogan is a subconscious topic you do not hear discussed. Cambridge Analytica and Russia mind-fucked people: https://www.bbc.com/news/world-us-canada-45294192 over needle fears and other subconscious brain exploits. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." Surkov students won since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1n2e0vs/majority_of_women_under_30_find_it_a_turn_off_if/nb58x31/
+
+winthroprd 2016-04-14
+
+"That's exactly the danger with people like Joe Rogan. They represent themselves as ideologically neutral and openminded to different points of view, and the dumb fucks who listen think that the kooks they platform have an equally valid views as actual subject matter experts. I know someone who went down a right wing rabbit hole because she listened to shows like Rogan and Bill Maher looking for a "balanced" view."
