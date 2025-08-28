@@ -455,3 +455,14 @@ ConfusionBubbles 2023-08-22
 "Imagine that the President of the United States can be canceled at any moment by the President of Russia
 
 That's the state of America"
+
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n2nbi5/massive_cdc_walkout_erupts_amid_internal_chaos/nb75dnm/
+
+ChiefFun 2021-01-29
+
+"RFK Jr.'s influence has prompted firings, resignations, and the gutting of vaccine policy. The agency is being dismantled. Americans are getting screwed."
+
+* :::=== RoundSparrow_Commentary : Russia has been playing mind games against the USA since the IRA went online: 1) August 24,2018 https://www.bbc.com/news/world-us-canada-45294192 2) April 9, 2019 https://foreignpolicy.com/2019/04/09/in-the-united-states-russian-trolls-are-peddling-measles-disinformation-on-twitter/ on and on and on. People are in total denial that Trump / RFK Jr are bamboozed by Putin. This is self-harm of the USA directed by Russian information warfare. ===:::
