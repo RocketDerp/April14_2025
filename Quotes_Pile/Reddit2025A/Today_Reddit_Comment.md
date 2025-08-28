@@ -213,4 +213,14 @@ dcoy158 2014-09-01
 "Because this picture, without zoom, is pretty much the same perspective that someone at street level passing by would make out of that banner. All they’re gonna remember isTrump first. They’re never even gonna notice the American workers portion."
 
 * :::=== RoundSparrow_Commentary : We did not teach the population, We The People, were not educated on art symbolism and symbolic meanings of the founding fathers.
-"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. 1:14:50 All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, 1987 ===:::
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that **all of this has been virtually totally forgotten by our days**. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that **we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible** this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, 1987 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n2dvpn/national_guard_soldiers_on_patrol_in_washington_dc/nb5ppb6/
+
+koshgeo 2013-09-01
+
+"Yes, but the only reason Roosevelt is there is so they can claim it wasn't done purely to stroke Trump's ego. It's a weak argument because it's comparing a historical president who can't politically benefit from the display of a message to a present one that can.
+
+Normally political leaders in a democracy opt out of that kind of outlandish glorification at government expense while in office. It looks too much like North Korea or something. The most they usually get is a small official portrait hung in government offices."
