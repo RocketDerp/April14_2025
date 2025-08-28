@@ -501,3 +501,17 @@ https://old.reddit.com/r/politics/comments/1n2nbi5/massive_cdc_walkout_erupts_am
 westernmooneastrnsun 2025-01-25 (new this year)
 
 "No, the US is done. There won't be a time republicans and conservatives admit what they've done to our nation. They will continue to live in loony world. The rest of the world will move on and isolate the failed nation of the USA. Europeans have stopped parcel shipments to the US. The rest of the world is recruiting top US scientists. There isn't going to be a time where US regains sanity because it would take the right to admit they fucked up. They will not."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n2nbi5/massive_cdc_walkout_erupts_amid_internal_chaos/nb7uruj/
+
+jmnugent 2008-12-08
+
+"The problem we have now is they're breaking shit everywhere at every level. While it would be nice to oust the ones in government,.. That may take a decade or more to fully re-set (back to staff at various levels who have any ethics and actually follow laws)
+
+But then what. We've still got groups like Proud Boys and 3 percenters and even just unaffiliated individuals who have hateful beliefs. You know the guy in the big lifted pickup truck that feels emboldened to "roll coal" and drive dangerously. How do we fix that ?
+
+You know that old adage about how "A lie makes it around the world before the Truth even gets its boots on". This is basally the physical manifestation of that. People can tear things down faster than good ethical people can build things up. How do you get back to a society that values the hard sweaty work of "building things up" and "lifting others".
+
+The currently popular ideology seems to be "tear things down and be cruel and selfish"."
