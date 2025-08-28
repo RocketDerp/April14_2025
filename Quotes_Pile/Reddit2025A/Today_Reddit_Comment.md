@@ -256,3 +256,19 @@ You have to be special kind of moron to believe anything that comes out of this 
 This actually could not have worked out better, had Biden or his DOJ released the files, Trump would have called them fabricated, fake news or election interference and his base would have believed him and that would have been the end of it."
 
 * :::=== RoundSparrow_Commentary : Trump family / Donald Trump Jr. and others around Trump promoted this wildcard topic, mystery box fiction, to USA QAnon and other fiction addicted audiences. https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n29m2o/trump_says_obama_and_biden_fabricated_epstein/nb5gigm/
+
+Veil-of-Fire 2025-01-07 (new this year)
+
+"They already believe raping children is cool. The only reason they *ever* cared was because it was allegedly Democrats doing it.
+
+They're the ones in favor of child marriage, lowering the age of consent, keeping "troubled teen" facilities legal (which are a hotbed of csa), supporting the Southern Baptist Convention and the Catholic church (who keep secret lists of pedos to better protect them by moving them around regularly), and now are fine with hiding the identities of even liberal pedos.
+
+They get off on causing suffering and pain, and the weaker the victim, the better. So of course they're going to be pedos.
+
+Is every MAGA a pedo? Well, every MAGA believes pedophilia isn't a deal-breaker, so..."
+
+* :::=== RoundSparrow_Commentary : If you care about young girls being abused by elders, Malala started a global movement in year 2013 back when Trump was going to Moscow for a sex show in November 2013. Malala has consistently been giving young girls their own voice to stand up to elder men who want to rule and dicate to girls and women. Instead of listening to girls and women, social media meme addicts keep repeating what elder men say (Trump family, etc). ===:::
