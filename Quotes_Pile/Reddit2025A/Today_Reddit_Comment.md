@@ -1064,3 +1064,15 @@ yersinia_p3st1s 2021-06-22
 "They're not even trying to pretend to care, it's so out in the open that it's astonishing."
 
 * :::=== RoundSparrow_Commentary : Year 2014: "the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb34y2l/
+
+xiaopewpew 2015-04-05
+
+"The positive development is our experience shitposting on reddit has finally become relevant and we can use the qualification to apply for a diplomat job.
+
+"calm down", "lmao", "i was just memeing" "
+
+* :::=== RoundSparrow_Commentary :  [Everything is Media Ecology](../../Media_Ecology/Everything_is_ME.md) ===:::
