@@ -902,3 +902,20 @@ https://old.reddit.com/r/news/comments/1n1vxsg/cdc_director_pushed_out_flood_of_
 TripleSecretSquirrel  2017-08-13
 
 "RFK jr says they’re going to announce the cause of autism next month lol maybe it has something to do with that"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n1vxsg/cdc_director_pushed_out_flood_of_top_resignations/nb1mh5o/
+
+TheRadBaron 2011-08-09
+
+<img width="920" height="568" alt="image" src="https://github.com/user-attachments/assets/87d6b0a5-34fa-4a6b-98fe-7c30a283dc50" />
+
+&nbsp;
+
+"They are! There are quotes from them right in the article.
+
+It's the waves of social media comments like your that drown out the reality of what is happening, and dismiss all resistance to Trump."
+
