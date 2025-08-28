@@ -645,3 +645,13 @@ wynnduffyisking 2018-05-13
 "God, i love that they just took the Saddam character and put Trump’s face on it."
 
 Thrilled taht the world uses democracy and meme systems / Reddit and Twitter entertainment systems to keep having world leaders like Putin, Trump, Sadam Hussian. Using spare time and free time on social machines to cheer with one-line Twitter thinking messages that God, diety, thank you that we have Doald Trump leading us with entertainment content creation. Enitrely addicted to the fiction created by and around Donald Trump's leadership. Runaway media addiction, runaway simulacra society. Just like Mecca and Saudi Arabaa and Quran fanfiction. South Park is fanfiction for Trump. ***Anything to avoid nonfiction learning of Kremlin information warfare based on fiction*** https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - because that's more than Bluesky-length Tweet-thinking reactions to Trump addiction. Meme thinking. ""God, i love" Trump fiction content.
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n2a718/disturbing_video_shows_lawmaker_stuffing_ballots/nb4s3et/
+
+Ghostman_Jack 2024-11-27
+
+"It’s kind of funny. When this story first broke out right wingers were screaming and shouting how this is “more proof” how the Dems are cheating cause this guy was caught and he has a foreign name. Then it comes out he’s a trumper and crickets."
+
+Crowds flocking, people chasing after the fiction story. Absurd comedy, surreal humor, "kind of funny", entertinment addiction. Information machines driving people with attraction to fiction and fantasy.
