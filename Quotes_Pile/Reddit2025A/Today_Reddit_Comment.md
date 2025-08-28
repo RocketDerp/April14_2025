@@ -242,3 +242,17 @@ https://old.reddit.com/r/pics/comments/1n2dvpn/national_guard_soldiers_on_patrol
 PotterOneHalf 2011-05-05
 
 "It doesn't matter, they will still believe Trump when he says it was Biden that made prices high in the first place. I work with regular people all day every day and the average American doesn't realize how many barely functional adults are out there just bumblefucking their way through life."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n29m2o/trump_says_obama_and_biden_fabricated_epstein/nb473b8/
+
+Berserker76 2011-11-21
+
+"So Obama and Biden fabricated the Epstein files to hurt Trump, but never utilized them?
+
+You have to be special kind of moron to believe anything that comes out of this guys mouth.
+
+This actually could not have worked out better, had Biden or his DOJ released the files, Trump would have called them fabricated, fake news or election interference and his base would have believed him and that would have been the end of it."
+
+* :::=== RoundSparrow_Commentary : Trump family / Donald Trump Jr. and others around Trump promoted this wildcard topic, mystery box fiction, to USA QAnon and other fiction addicted audiences. https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html ===:::
