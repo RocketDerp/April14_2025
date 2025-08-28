@@ -919,3 +919,10 @@ TheRadBaron 2011-08-09
 
 It's the waves of social media comments like your that drown out the reality of what is happening, and dismiss all resistance to Trump."
 
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n1u6cz/trumps_staff_thanking_him_for_all_he_has_done_for/nb15yhe/
+
+tobogganhill 2019-08-28
+
+"Pardon my profanity, but this is fucked. I'm Canadian 🇨🇦, watching this with trepidation. I sincerely hope that the USA can reverse course, and get back to some semblance of reality."
