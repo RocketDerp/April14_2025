@@ -385,3 +385,13 @@ Y0___0Y 2024-09-19
 He’s just poisoning people’s minds."
 
 * :::=== RoundSparrow_Commentary : Podcast media, radio media... "I Am Malala Chapter 9: Radio Mullah Summary & Analysis" https://www.litcharts.com/lit/i-am-malala/chapter-9-radio-mullah ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1n2e0vs/majority_of_women_under_30_find_it_a_turn_off_if/nb5mc2p/
+
+Electronic_Stop_9493 2021-02-18
+
+"Yeah it’s trickery anti vaxxers use because technically you can get an injury from the needle alone in any vaccine so technically you can’t say any are 100% safe but it doesn’t mean they are unsafe"
+
+* :::=== RoundSparrow_Commentary : *Sometimes a cigar is just a cigar*. Fear of phalic intrusions into the body by over-masculine mails like RFK Jr and Joe Rogan is a suboncious topic you do not hear discussed. Cambridge Analytica and Russia mind-fucked people: https://www.bbc.com/news/world-us-canada-45294192 over needle fears and other subconsious brain exploits. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." Surkov students won since March 2013. ===:::
