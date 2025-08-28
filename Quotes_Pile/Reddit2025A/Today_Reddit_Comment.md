@@ -998,3 +998,13 @@ TheoryOfDevolution 2014-08-02
 "It's not covert operation, it's overt operation."
 
 * :::=== RoundSparrow_Commentary : ["It reinvents reality, creating mass hallucinations that then translate into political action. Take Novorossiya, the name Vladimir Putin has given to the huge wedge of southeastern Ukraine he might, or might not, consider annexing. The term is plucked from tsarist history, when it represented a different geographical space. Nobody who lives in that part of the world today ever thought of themselves as living in Novorossiya and bearing allegiance to it—at least until several months ago. Now, Novorossiya is being imagined into being"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb3acru/
+
+DuctTapeDisaster 2017-08-16
+
+"Ah... This explains the various anti Dane and Greenland vs. Denmark stories that were suddenly recommended to me yesterday on Reddit from subreddits I've never heard of before, where comment trees sometimes felt like well woven storylines.
+
+It's scary how clear the influence campaigns are."
