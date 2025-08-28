@@ -110,3 +110,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1n2a718/disturbing_video_shows_la
 Rauldukeoh 2013-01-04
 
 "This sub, and the linked article are obvious Russian agitprop"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n2a718/disturbing_video_shows_lawmaker_stuffing_ballots/nb4x0a0/
+
+sudoSancho 2016-03-22
+
+"6-month old account posting election disinformation"
