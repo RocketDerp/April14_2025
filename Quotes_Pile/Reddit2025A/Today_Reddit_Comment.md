@@ -284,3 +284,11 @@ tomdarch 2012-01-14
 One of the many things that needs to be pointed out about this political insanity is that MAGA is detached from reality."
 
 * :::=== RoundSparrow_Commentary : Surkov won the war against reality since March 2013. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n29m2o/trump_says_obama_and_biden_fabricated_epstein/nb5dg20/
+
+Downvote_Comforter 2012-05-18
+
+"Yup. "Fake news" was arguably the most prominent term of his 2016 campaign and then the first couple years of his 1st term. His mental decline and the administration's massive sprint towards authoritarianism has made hus cries of "fake news" incredibly more obvious and absurd, but his denial of reality that doesn’t suit him isn't remotely new."
