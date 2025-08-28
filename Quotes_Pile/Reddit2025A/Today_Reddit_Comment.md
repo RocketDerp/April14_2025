@@ -1054,3 +1054,13 @@ https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm
 Telochim 2021-09-18
 
 "Straight out of the russian foreign affairs ministry playbook: downplay, obfuscate, call the counterparty "irrational", and still low-key confirm one's intentions."
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb3fc1y/
+
+yersinia_p3st1s 2021-06-22
+
+"They're not even trying to pretend to care, it's so out in the open that it's astonishing."
+
+* :::=== RoundSparrow_Commentary : Year 2014: "the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
