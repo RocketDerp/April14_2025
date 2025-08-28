@@ -304,3 +304,19 @@ boofaceleemz 2018-11-24
 It can be really hard from the outside to understand the conservative mindset, because it looks like conservatives are simultaneously believing contradictory things, sometimes within the same sentence. We throw around terms like cognitive dissonance, but no matter how much they’ve drunk the cool-aid for that to be cognitive dissonance would be wild.
 
 But it’s not cognitive dissonance because it’s not about belief, just like with everything else with conservatives it’s about posturing and hierarchy. The lies aren’t actually lies, they’re power moves. And repeating them isn’t about believing them, it’s about solidifying your place in the hierarchy. It’s communication, but it’s not about communicating ideology, it’s a pack of dogs posturing submissiveness to the alpha."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n29m2o/trump_says_obama_and_biden_fabricated_epstein/nb4b0j2/
+
+11CRT 2021-04-06
+
+"Why did they get convicted and disappeared during Trump’s first term, and then Trump kept hinting for four years of all the people in those files at every rally.
+
+You would think from the first term, he’d know what was in the files, and NOT talk about them.
+
+And now, since he says “I told the FBI about him”, so one congressman said “yes, he’s in the files, because he tipped off the FBI.
+
+Bullshit. He WAS the FBI for the first term, and never thought to say he turned in Epstein himself?"
+
+* :::=== RoundSparrow_Commentary : "Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - Adam Curtis, BBC.. **December 21, 2014 - YEARS before Trump** took office. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
