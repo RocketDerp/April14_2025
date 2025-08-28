@@ -636,3 +636,12 @@ psylentj 2017-09-25
 
 This is the right-wing mindset of **celebration of igorance, celebration of liberal tears** mockery. Russia won the information war, hearts and minds in the USA engaged in total mockery. Entertainment at Tony Clifton performers centered around Donald Trump and Vlad Putin.
 
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb3hhe9/
+
+wynnduffyisking 2018-05-13
+
+"God, i love that they just took the Saddam character and put Trump’s face on it."
+
+Thrilled taht the world uses democracy and meme systems / Reddit and Twitter entertainment systems to keep having world leaders like Putin, Trump, Sadam Hussian. Using spare time and free time on social machines to cheer with one-line Twitter thinking messages that God, diety, thank you that we have Doald Trump leading us with entertainment content creation. Enitrely addicted to the fiction created by and around Donald Trump's leadership. Runaway media addiction, runaway simulacra society. Just like Mecca and Saudi Arabaa and Quran fanfiction. South Park is fanfiction for Trump. ***Anything to avoid nonfiction learning of Kremlin information warfare based on fiction*** https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - because that's more than Bluesky-length Tweet-thinking reactions to Trump addiction. Meme thinking. ""God, i love" Trump fiction content.
