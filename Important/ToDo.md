@@ -1072,3 +1072,7 @@ https://old.reddit.com/r/todayilearned/comments/1n1rrmi/til_that_people_who_expe
 Android root, side-loading apps, YouTube adblock     
 https://old.reddit.com/r/Piracy/comments/1n2610i/using_a_rooted_device_in_2015_was_on_another_level/
 
+&nbsp;
+
+Surkovian Trump. Fiction vs. fiction. Monomyth vs. monomyth.    
+https://old.reddit.com/r/science/comments/1n28hb5/a_study_of_the_2024_attempted_assassination_of/
