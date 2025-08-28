@@ -357,4 +357,19 @@ And they're weirdly offended when I point out that this is all a performance to 
 
 But it comes off as immature and gross, and they're almost fucking 40."
 
-* :::=== RoundSparrow_Commentary :  "But it comes off as immature and gross, and they're almost fucking 40" - you have had almost ELEVEN FULL YEARS to study how Russian informtion warfare works, and nobody wants to call it out. September 9, 2014 - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - your nation has had 250 years to grasp the improtance of art symbolism and media messages of the Quran / Bible / Torah / Upanishads / etc. - dnd NOBODY IN USA knows the meaning of the Founding Fathers Great Seal of the United States of America from year 1776. Instead, predatory billionares from all over the world sell media content to an ingorant audience who never studied media ecology or art symbolism. ===:::
+* :::=== RoundSparrow_Commentary :  "But it comes off as immature and gross, and they're almost fucking 40" - you have had almost ELEVEN FULL YEARS to study how Russian informtion warfare works, and nobody wants to call it out. September 9, 2014 - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - your nation has had 250 years to grasp the improtance of art symbolism and media messages of the Quran / Bible / Torah / Upanishads / etc. - But NOBODY IN USA knows the meaning of the Founding Fathers Great Seal of the United States of America from year 1776. Instead, predatory billionares from all over the world sell media content to an ingorant audience who never studied media ecology or art symbolism. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1n2e0vs/majority_of_women_under_30_find_it_a_turn_off_if/nb5mfov/
+
+Not_Bears 2021-09-26
+
+
+"I think the problem is, a lot of these dudes have been taught only men's opinions actually matter.
+
+"Girls are weird and confusing so who cares what they think, just impress other dudes so you're not seen as "gay" and "weak" and then everyone will be impressed with you and women will flock to you."
+
+Like I'm pretty sure a lot of them actually think like that."
+
+* :::=== RoundSparrow_Commentary : “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. Pretty much like podcast consumers of Joe Rogan, Fox News concumers, Russian IRA consumers. ===:::
