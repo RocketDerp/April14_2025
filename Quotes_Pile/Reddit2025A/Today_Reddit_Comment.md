@@ -1016,3 +1016,13 @@ https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm
 FrozenHuE 2017-10-05
 
 "becasue is not cooperation, is vassalage, just because the overlord treats that group of vassals better than others (latin america for example) it doesn't mean partnership or an alliance of equals."
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb33vfi/
+
+Practical-Pea-1205 2022-03-01
+
+"Just like Russia. It's never the invader's fault, it's always the victim that's aggresissive by responding."
+
+* :::=== RoundSparrow_Commentary : Surkov governing. Surkovian governing. ===:::
