@@ -1046,3 +1046,11 @@ gwentlarry 2022-07-23
 "As though the US would "calm down" if foreigners were wandering around the US telling people Trump was incompetent with a government of synchophants.
 
 They'd be grabbed off the streets by masked gunmen, "disappeared" to an ICE prison and after some weeks, or months, be deported. With luck, back to their home country but perhaps to El Salvador."
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb3494i/
+
+Telochim 2021-09-18
+
+"Straight out of the russian foreign affairs ministry playbook: downplay, obfuscate, call the counterparty "irrational", and still low-key confirm one's intentions."
