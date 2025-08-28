@@ -988,3 +988,13 @@ ikindapoopedmypants 2022-09-27
 " "violence is never the answer" is a statement only uttered by cowards and predators."
 
 * :::=== RoundSparrow_Commentary : By that simplistic Twitter-thinking logic messaging, Putin is not a predator because violence is a frequent answer. Willing to ide for violence, human tradition. Willing to die for terrorism, the new human technology way. School shootings, Islamic (newest of the Levant big religions, 600 years newer thatn Christianity, newer than Hindu) jihad choice. Just a matter of time until technology invents even easier ways for one person to murder and kill others in mass. Keep passing down to over 8 billion people that violence is good. Simplstic thinking. May as well stop investigating airplaine crashes and making cars safer, because if you don't deal with the pscyological problems of human brains and artifical intelligence finding that violence is the answer - terrorism will become the outcome from human beings who already terrorize the air / water / animals of the Earth. Humans in USA already think spreading biological weapons, meaasles and COVID-19 is thrilling gleeful fun. Violence via disease is welcomed with the education passed around. https://www.bbc.com/news/world-us-canada-45294192 Don't defend against biologicla weapons, "is a statement only uttered by cowards and predators" pretzel logic. Because war, terrorism, murder, suicide bombers, starvation, disease spreding - ***all human traditions** - and people value those violent traditions. Children parented to value violence, artificial itenlligence trained to value violence. Technology of spreading death in a crowded Earth still likes this one-line Twitter-logic of kill or be killed (sucide and take some with you, murder suicide paring). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1n24a3g/the_us_has_told_denmark_to_calm_down_after_the/nb330wf/
+
+TheoryOfDevolution 2014-08-02
+
+"It's not covert operation, it's overt operation."
+
+* :::=== RoundSparrow_Commentary : ["It reinvents reality, creating mass hallucinations that then translate into political action. Take Novorossiya, the name Vladimir Putin has given to the huge wedge of southeastern Ukraine he might, or might not, consider annexing. The term is plucked from tsarist history, when it represented a different geographical space. Nobody who lives in that part of the world today ever thought of themselves as living in Novorossiya and bearing allegiance to it—at least until several months ago. Now, Novorossiya is being imagined into being"](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) ===:::
