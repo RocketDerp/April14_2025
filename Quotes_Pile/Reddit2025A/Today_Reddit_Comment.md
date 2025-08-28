@@ -118,3 +118,15 @@ https://old.reddit.com/r/NoFilterNews/comments/1n2a718/disturbing_video_shows_la
 sudoSancho 2016-03-22
 
 "6-month old account posting election disinformation"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n2bfp8/literally_caught_on_tape_cnn_drops_trumps_actual/nb585i4/
+
+Threedawg 2009-11-30
+
+"No one cares if he lies. He always lies. People might care if he has dementia and stupid, which is what the word "remembers" implies here.
+
+To many americans a liar can still be a strong leader, but someone who is stupid can't."
+
+* :::=== RoundSparrow_Commentary : People *care deeply* about fiction storytelling. Fox News Wealth Television fiction is gospel. Donald Trump playing Tony Clifton is compelling entertainment. It is a completely failire to understand media ecology to think that people do not care that Trump lies and deceives, fiction far outsells nonfiction on every medium / media system (Reddit inclusive). Fiction addicts can not see their own meme addiciton in front of their face. ""No one cares if he lies. He always lies." + ***CORRECTION OF MAJOR MISUNDERSTADNGING: American We The People care SO MUCH about lies and fiction that we welcomed Russian media invasion since March 2013 and have embraced Donald Trump as a nonstop fiction content creator.*** ===:::
