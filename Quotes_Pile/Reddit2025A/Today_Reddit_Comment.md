@@ -936,3 +936,11 @@ Terry-Shark **2025-08-19 (new account)**
 "Sorry, but that is the real word. It is happening here and now. To pretend otherwise is to ignore it"
 
 * :::=== RoundSparrow_Commentary : People are living in denail of reality of USA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n1u6cz/trumps_staff_thanking_him_for_all_he_has_done_for/nb17yu3/
+
+Prestigious-Run-5103 2021-09-30
+
+"Yeah, that sure as hell ain't normal. Imagine holding the office of the President, and being so insecure that you need this level of attention. That's the most pathetic thing I've ever seen."
