@@ -155,6 +155,8 @@ calmdownmyguy 2022-09-05
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbbbsg4/
 
+DeadAnarchistPhil 2018-02-02
+
 "And yet they call people on the left “snowflakes”. 
 
 I’ve been over there and seen the circlekerking they do, it’s laughable. “The left don’t like reality and facts!” and “Anything they don’t agree with, they lose their shit!” It’s like they’re completely lacking any self-awareness. 
@@ -165,7 +167,17 @@ So any dissenting voices must be secret liberals, just like the Conservative pol
 
 Utterly fucking bizarre and bereft of any self-awareness or intelligence."
 
-* :::=== RoundSparrow_Commentary : The mental wasteland aftermath of the Internet Research Agency working with Cambridge Analytica since March 2013. Minds programmed to *hate upon Americans* and **do everything they can to avoid nonficiton learning about Russian information warfare at any cost** to the USA future. Social media filter-bubble chambers, meme addicts, drunk on meme content that they repeat over and over in patterns. A meme addeled population, wrecked by CA and IRA, compusively mocking and insutling American people.
+* :::=== RoundSparrow_Commentary : The mental wasteland aftermath of the Internet Research Agency working with Cambridge Analytica since March 2013. Minds programmed to *hate upon Americans* and **do everything they can to avoid nonficiton learning about Russian information warfare at any cost** to the USA future. Social media filter-bubble chambers, meme addicts, drunk on meme content that they repeat over and over in patterns. A meme addeled population, wrecked by CA and IRA, compusively mocking and insutling American people with thier free time / spare time on social machines.
 “It’s June 2018, and I’m in Washington to testify to the U.S. Congress about Cambridge Analytica, a military contractor and psychological warfare firm where I used to work, and a complex web involving Facebook, Russia, WikiLeaks, the Trump campaign, and the Brexit referendum.”
 ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019
 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbbnqj2/
+
+athenaprime 2010-07-09
+
+"He made the classical mistake of voting for an in-group and an out-group society, but believing he was gonna be the in-group. "There IS a Club, and you ain't in it," as George Carlin said.
+
+People who want boot-on-the-neck always think they're gonna be the boot right up until the moment they feel the treads on their own necks."
