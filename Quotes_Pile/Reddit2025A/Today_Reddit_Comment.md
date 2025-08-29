@@ -273,3 +273,13 @@ blewnote1 2009-02-04
 I don't know where we go from here. Seeing a picture of soldiers in front of a giant portrait of the leader of our country hanging on a building, a la Mussolini/Kim Jong Un/Putin/Stalin/etc is crazy (and that's just one of the 1000's of things that have happened, it's just what I saw most recently). Shit's fucked up."
 
 * :::=== RoundSparrow_Commentary : No ability to articulate Cambridge Analytica or Internet Research Agency influence on USA society since year 2013. Mutliple nations have reported the IRA crisis, it isn't just domestic USA: https://www.theguardian.com/technology/2020/mar/13/facebook-uncovers-russian-led-troll-network-based-in-west-africa ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcgzz5/
+
+Majestic_Jackass  2013-08-23
+
+"People pointed out America first is an isolationist mindset. We are in the find out stage of FAFO.
+
+I don’t know when it’ll happen but we’re on a trajectory where eventually we’ll leave NATO or they’ll kick us out. There’s a future NWO where we aren’t at the top. Without being active members in the global economy, Americans of this future will have to be fully self reliant."
