@@ -38,3 +38,11 @@ D50 2009-04-30
 It’s a nice thought."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3547m/trump_cancels_kamala_harris_secret_service_detail/nbb63l0/
+
+yorapissa 2024-09-08 (joined at election 2024)
+
+"There is also the historic example of Hitler, Mussolini or Kadafi. Unfortunate that they dragged a lot of people to the grave before them. Let’s see if America truly is the special country we claim we are and how far we will be dragged before it’s gets stopped in its tracks. I remember, a long time ago, in high school history classes thinking “ how did the German people let that happen?”. It’s becoming a haunting thought now when I can see how easily it’s happening here and how meaningless the word “American” can become with so much un-American activity being condoned by supposedly very self declared American Patriots."
+
+&nbsp;
