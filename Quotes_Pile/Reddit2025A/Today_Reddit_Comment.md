@@ -87,3 +87,10 @@ Master-Piccolo-4588 2020-10-03
 
 "Russia aimed for decades for this current state while Istael, while taking a different path, came to the same result."
 
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbbg26a/
+
+Subject_Impress 2020-04-01
+
+"This is another example of TDS making liberals dumb. If anything the EU and all of their leaders are Russian assets. They are continuing to help fund Russia's invasion of Ukraine with their purchases of Russian oil and gas. How much is the US buying? None"
