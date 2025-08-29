@@ -571,3 +571,11 @@ https://old.reddit.com/r/wallstreetbets/comments/1n3k79q/most_trump_tariffs_rule
 EnterBruges 2013-07-27
 
 "Part of me is hopeful that you will take this opportunity to reflect upon how your chosen media "algorithms" slant and distort the truth to portray a certain narrative catered specifically to your worldview, but I presume that to be wishful thinking. Have a nice day"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3c38q/maga_hunger_games_taking_place_as_trump_health/nbdw2bz/
+
+julianriv 2018-07-25
+
+"All of Peter Thiel's money is not going to make Vance likable. The blind loyalty of millions of supporters is what gives Trump his clout to bend other elected representatives to his will. I don't see Vance ever getting there. When/if Trump dies about 1/2 of his loyal followers will spend the first several years denying that he is dead. Not jumping on the Vance band wagon."
