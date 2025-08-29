@@ -543,3 +543,13 @@ It's a commonly held belief that Obama wrecked the American economy. Nevermind t
 California is controlled by Democrats. So its economy simply *must* be terrible."
 
 * :::=== RoundSparrow_Commentary : I also observe that the people who live in USA who criticize USA, are entirely unable to describe the economy and conditions of Russia. They can't describe Moscow or Saint Pete or living conditions in Russia. But they are harshly critical of USA. They also can't describe Canada or Australia. Just certain that California is terrible. Not able to cite one single thing wrong with Moscow as a city for living, as if it is absolutely perfect in their mind. There are now USA Democrat poltiical party in Moscow, so it must be better? They can't explain. https://www.youtube.com/watch?v=h3h--K5928M ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcrky2/
+
+technanonymous 2023-10-15
+
+"Newsom needs to publish stats on red states every day. He should be talking about the “market correction” of real estate in some area of Texas like Austin as people and companies move away. Austin is getting hammered with falling prices and increasing inventories. He needs to list poverty numbers, infant mortality, teen pregnancy, etc., along with crime numbers. The south east is a disaster."
+
+* :::=== RoundSparrow_Commentary : Here is a social media user calling for a father, a daddy like person, to do it for them. Why can't Reddit post these every 4 hours? Why can't social media users stop using their spare time and free time to call for others to do it and organize We The People into shifts to sustain postings for months and months on important topics? Why is the idea of using social media to sustain and organize important USA rescue topics so absent from their minds? Has the Internet Reserch Agency and Cambridge Analytica conditioned social media users to NOT do this with the systems they are commenting on? They recognize it is for the greater good the nation, but they can't escape the idea of a male leader Donald Trump doing it for them or a male leader Newsom dong it for them. So programmed to not work peer to peer on social media in asserting the most important society rescue efforts. ===:::
