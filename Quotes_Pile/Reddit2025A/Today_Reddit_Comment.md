@@ -29,6 +29,15 @@ MaceNow 2019-03-03
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1n3547m/trump_cancels_kamala_harris_secret_service_detail/nbb8u2l/
+
+D50 2009-04-30
+
+"I’m not an expert but I believe the concept of Karma would suggest that Trump will suffer in a future life, not that he would face punishment in this one.
+
+It’s a nice thought."
+
+&nbsp;
 
 .
 
