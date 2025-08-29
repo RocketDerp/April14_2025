@@ -105,3 +105,13 @@ Frustrated_Nerd  2014-08-14
 
 I'm also not sure how true it is that they'd be posting about this for months. Their social media got taken down before their name was public."
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n36y9l/they_are_too_busy_chasing_down_farmers_and/nbbg3ap/
+
+Stodles 2022-02-27
+
+"This only further confirms my theory - with foreknowledge of the attack, the FBI had plenty of time to create a fake paper trail for the name change and a fake manifesto... Then they allow the attack to happen and spin the narrative that he was trans..."
+
+&nbsp;
+
