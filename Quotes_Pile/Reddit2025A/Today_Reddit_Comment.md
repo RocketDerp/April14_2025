@@ -132,3 +132,14 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnan
 secondtaunting 2021-02-03
 
 "What’s with the traditional family values bullshit? I’ve heard that a bunch. It’s so stupid."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbbhsot/
+
+Minion_of_Cthulhu 2015-05-18
+
+"I'm sure he'll handle his confusion like his type always does, by lashing out at some completely unrelated issue that Fox News tells him is an existential threat."
+
+&nbsp;
+
