@@ -149,4 +149,23 @@ calmdownmyguy 2022-09-05
 
 "In their defense, people bring facts, statistics, and sources fucks up their circle jerk."
 
-* :::=== RoundSparrow_Commentary : Middle East imported tradition for thousands of years: Circle jerk Torah vs. Circle Jerk Quran fiction vs. Cirlce Jerk Bible fiction. All 3 fiction. Reddit /r/Conservative community fiction vs. /r/LeopardsAtMAGAFaces community ficiton. Bluesky fiction vs. Fox News fiction. Nobody supporting Malala's reformations efforts of pro-science comrpehension of nonfiction. Fiction addiction rules.  ===:::
+* :::=== RoundSparrow_Commentary : Middle East imported tradition for thousands of years: Circle jerk Torah vs. Circle Jerk Quran fiction vs. Cirlce Jerk Bible fiction. All 3 fiction. Reddit /r/Conservative community fiction vs. /r/LeopardsAteMAGAFaces community ficiton. Bluesky fiction vs. Fox News fiction. Nobody supporting Malala's reformations efforts of pro-science comrpehension of nonfiction. Fiction addiction rules. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbbbsg4/
+
+"And yet they call people on the left “snowflakes”. 
+
+I’ve been over there and seen the circlekerking they do, it’s laughable. “The left don’t like reality and facts!” and “Anything they don’t agree with, they lose their shit!” It’s like they’re completely lacking any self-awareness. 
+
+Obviously not all of them are like that, some actually question Trump and the Government’s actions, those people then get accused of being “Brigaders”. 
+
+So any dissenting voices must be secret liberals, just like the Conservative politicians who came out against Trump during the election. All this time, they were secretly Liberal plants. 
+
+Utterly fucking bizarre and bereft of any self-awareness or intelligence."
+
+* :::=== RoundSparrow_Commentary : The mental wasteland aftermath of the Internet Research Agency working with Cambridge Analytica since March 2013. Minds programmed to *hate upon Americans* and **do everything they can to avoid nonficiton learning about Russian information warfare at any cost** to the USA future. Social media filter-bubble chambers, meme addicts, drunk on meme content that they repeat over and over in patterns. A meme addeled population, wrecked by CA and IRA, compusively mocking and insutling American people.
+“It’s June 2018, and I’m in Washington to testify to the U.S. Congress about Cambridge Analytica, a military contractor and psychological warfare firm where I used to work, and a complex web involving Facebook, Russia, WikiLeaks, the Trump campaign, and the Brexit referendum.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019
+===:::
