@@ -239,7 +239,7 @@ Gregory_Appleseed 2019-08-16
 
 "Oh no! Trade wars have consequences? What? That's so surprising! You mean to tell me, that punishing our trading partners for selling stuff and buying stuff is a bad thing? No way! I'm shocked! Shocked!"
 
-* :::=== RoundSparrow_Commentary : Tony Clifton audience, We The People, enjoy mocking how terrible and bad Donald Trump (Tony Clifton) act is. This antics poitics (Tony Clifton style) so engages the audience that people compusively react. Reactionary thinking abounds. People entirely unable to organize nonfiction solutions to the crisis: such as teaching Neil Postman's 1985 book "Amusing Ourselves To Death" or one of the hundreds of books about cult deprogramming in the public library. Instead, the population is so addicted to the Tony Clifton (Trump / Kremlin / White House) antics that they are glued with all free time and spare time to social machiens for the hour by hour mockery. Surkov won, Russia won, since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : Tony Clifton audience, We The People, enjoy mocking how terrible and bad Donald Trump (Tony Clifton) act is. This antics poitics (Tony Clifton style) so engages the audience that people compusively react. Reactionary thinking abounds. People entirely unable to organize nonfiction solutions to the crisis: such as teaching Neil Postman's 1985 book "Amusing Ourselves To Death" or one of the hundreds of books about cult deprogramming in the public library. Or, [Robert Bernard Reich is an American professor, author, lawyer, and political commentator. He worked in the administrations of presidents Gerald Ford and Jimmy Carter](https://en.wikipedia.org/wiki/Robert_Reich) is active on Bluesky and YouTube and other social media, and could be repeated and asserted every 4 hours on Reddit. **Instead, the meme addeled population is so addicted to the Tony Clifton** (Trump / Kremlin / White House) antics that they are glued with all free time and spare time to social machiens for the hour by hour mockery. Surkov won, Russia won, since March 2013. ===:::
 
 &nbsp;
 
@@ -261,3 +261,15 @@ BlingBomBom **2025-08-03 (new account)**
 "Amerisharts wanted this. The few who didn't are outnumbered and outgunned by those who do, and they will also be blamed for everything that goes wrong.
 
 A superpower sleptwalk straight into fascism. It gets what it deserves."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcuw5j/
+
+blewnote1 2009-02-04
+
+"I think there's a portion of my country that is straight up evil, but I think there's also just a lot of incredibly stupid people. They were pissed about the price of eggs and whatever else so they pulled the lever for a guy who said ok national TV that immigrants were eating dogs and cats out of their neighbors backyards because they were too dumb to realize that when he said he could fix their problems he obviously could not.
+
+I don't know where we go from here. Seeing a picture of soldiers in front of a giant portrait of the leader of our country hanging on a building, a la Mussolini/Kim Jong Un/Putin/Stalin/etc is crazy (and that's just one of the 1000's of things that have happened, it's just what I saw most recently). Shit's fucked up."
+
+* :::=== RoundSparrow_Commentary : No ability to articulate Cambridge Analytica or Internet Research Agency influence on USA society since year 2013. Mutliple nations have reported the IRA crisis, it isn't just domestic USA: https://www.theguardian.com/technology/2020/mar/13/facebook-uncovers-russian-led-troll-network-based-in-west-africa ===:::
