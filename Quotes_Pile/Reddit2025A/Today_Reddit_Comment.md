@@ -71,3 +71,10 @@ Subject-Historian11 2025-03-23 (new this year)
 
 "No doubt about it. Whether intentional or not the whole MAGAt cult is Russian assets"
 
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbbez2t/
+
+attrezzarturo 2017-05-08
+
+"The final plan is US+Russia vs Europe, and it's working great"
