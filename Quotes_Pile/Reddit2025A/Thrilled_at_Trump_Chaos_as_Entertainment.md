@@ -702,3 +702,15 @@ Front page of Reddit. People feeding fiction electric messages to Americans for 
 &nbsp;
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3b1bf/this_trolling_is_so_entertaining/
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/wallstreetbets/comments/1n3k79q/most_trump_tariffs_ruled_illegal_in_blow_to_white/nbe4b12/
+
+SmokedLimburger 2024-11-17
+
+"It will get overturned but I’m happy that Mr orangecicle will be ranting about it for days."
+
+Happy that Donald Trump provides constant entertainment. Addiction to Donald Trump antics media.
