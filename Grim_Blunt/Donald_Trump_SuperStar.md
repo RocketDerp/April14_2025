@@ -61,9 +61,9 @@ P.S. I was there in Bellevue Washington when the [Museum of Pop Culture](https:/
 
 .
 
-# Trump Superstar Charm
+### Trump Superstar Charm, Starstruck
 
-As Trump says, when you are *a star*, the rules change. Starstruck audience.
+As Trump says, when you are *a star*, the rules of human behavior change. Starstruck audience. (As became world famous on Putin's birthday, October 7: https://en.wikipedia.org/wiki/Donald_Trump_Access_Hollywood_tape )
 
 &nbsp;
 
