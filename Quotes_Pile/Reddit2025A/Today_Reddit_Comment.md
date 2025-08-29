@@ -423,3 +423,11 @@ https://old.reddit.com/r/politics/comments/1n34g5q/cdc_leader_drops_bombshell_rf
 pUmKinBoM 2011-07-06
 
 "And seemingly so do a lot of Americans. It's crazy how much American's hate children of all backgrounds."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n34g5q/cdc_leader_drops_bombshell_rfk_jr_admission/nbawmzk/
+
+No_Celery_5373 2025-06-11 (recent account)
+
+"I'm not saying we need a full wall here, but maybe us Canadians need to think about building a big sneeze guard."
