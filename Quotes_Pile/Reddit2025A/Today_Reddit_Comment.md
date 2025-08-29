@@ -366,4 +366,12 @@ At the end of the day, they’ll get behind Vance as long as he proves himself t
 
 * :::=== RoundSparrow_Commentary : An important concept to understand about fiction believers who are avoidant of nonfiction. Allah / God in The Bible is a horrible monster who kills everyone who disagrees with him (Noah's Ark)... yet people still praise and bow down to Allah / God. We do not teach this monomyth pattern in schools, we do not teach comparative mythology, **fiction exploitations of the human brain** for thousands of years... in our schools. Donald Trump is Mythological and frequently described as Jesus / God by Americans. The *attraciton to fiction* is a problem of Fox News HDTV fiction, Reddit messages fiction, Twitter fiction, Facebook fiction, Church fiction, etc. Parents indoctrinate their own children into these abusive fiction stories: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Octoer 8, 2013. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be_president_if_trumps/nbcdedh/
+
+digiorno 2010-05-12
+
+"They’re also sheep. Once Fox News starts saying he’s amazing for the economy and the second coming of Trump, then they’ll all line up to suck him off."
+
+* :::=== RoundSparrow_Commentary : It is important to distingusih a cult of *messages*, of *fictoin storytelling cults*, from cult of individual people. L Ron Hubbard is dead, but his science fiction storytelling pattern can be reworked and adapted by leaders of Scientology fiction empire. Rupert Murdoch ficiton media empire is wealth televagelism networks. ===:::
