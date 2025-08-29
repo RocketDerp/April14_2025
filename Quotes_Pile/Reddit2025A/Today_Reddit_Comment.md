@@ -431,3 +431,16 @@ https://old.reddit.com/r/politics/comments/1n34g5q/cdc_leader_drops_bombshell_rf
 No_Celery_5373 2025-06-11 (recent account)
 
 "I'm not saying we need a full wall here, but maybe us Canadians need to think about building a big sneeze guard."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n3dmol/detainees_report_alleged_uprising_at_alligator/nbcwz4k/
+
+james-HIMself 2018-10-02
+
+"Reads like an Onion article. I can’t believe this place even exists hypothetically. Even people that are in the US illegally deserve some level of compassion. Locking them in cages like animals without proper necessities. Sounds like a human rights nightmare. Gross"
+
+* :::=== RoundSparrow_Commentary :  The Onion is absurd humor and surreal comedy. Donald Trump and Putin and cast are playing Tony Clifton acts on the population. Nobdy has found any defense against this information warfare tactic.
+"But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+"The brilliance of this new type of authoritarianism is that **instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd**." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, 2014 ===:::
+
