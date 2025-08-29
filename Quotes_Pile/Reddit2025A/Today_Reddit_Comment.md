@@ -453,3 +453,15 @@ BobbaBlep 2023-07-28
 "Name the next facility "Pedophile Pond" and throw all the GOP in there."
 
 * :::=== RoundSparrow_Commentary : Twitter-think short messaging on Reddit saying everyone in an entire politcal party ("GOP") should be put into a facility. That's become a repeated normal in USA society discourse, imprison or deport to Africa or Central America anyone you disagree with or that you don't comprehend or understand. MAGA values adopted deeper and deeper into mindsets. Short message and nicknames like "Pedophile Pond" are a form of ritual chanting. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n3dmol/detainees_report_alleged_uprising_at_alligator/nbdgdtv/
+
+blightsteel101 2016-10-17
+
+"Interesting how we're only getting the reports from the guards and politicians that want this camp set up.
+
+So are Republicans gonna stick to mass graves, or do yall think they'll jump straight to ovens?"
+
+* :::=== RoundSparrow_Commentary : Fiction addicts are treating the situation like it is a weekly TV fiction series with a new episode coming next week, speculating on what will happen next (mass graves?) as they are trilled (often citing popcorn consumption on Reddit) at the *action* happening. Detached from compassion and humanism, in love with the (Reddit, social device) media machines delivering the stimulating content. Don't confuse this Reddit messsaging with comedy or satire, this has been ongoing for over TEN FULL YEARS, the engagement (addiction) to Donald Trump antics and anti-reality. This is REALLY what is happening, media addicts feeding a media-centered leadership that has adopted Russian Surkov techniques. No other politicans have been able to satiate so many information system addictions. It is a very sick society that sickents (poisons) minds, described in Neil Postman's 1985 book "Amusing Ourselves To Death" about media ecology. ===:::
