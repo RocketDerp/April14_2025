@@ -51,3 +51,30 @@ Year 2007 was when the Apple iPhone 1 first went on sale [June 29 2007](https://
 
 P.S. I was there in Bellevue Washington when the [Museum of Pop Culture](https://www.youtube.com/watch?v=NmQr3rsC-vk) was being developed, running the museum development private social media systems for Paul Allen Group. Neil Postman was still alive and I had time to research anything I wanted while quietly sitting in my office. The [nightmare was](https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s) seeding. NFL sports, NBA team, app empire, fleet of private [jets](https://www.scmp.com/magazines/style/entertainment/article/3269337/donald-trumps-private-jet-really-crappy-and-dilapidated-former-presidents-plane-dubbed-trump-force) and private cruise [ships](https://en.wikipedia.org/wiki/Octopus_(yacht)), the [rescue of Apple Computers by Bill Gates](https://www.cnbc.com/2017/08/29/steve-jobs-and-bill-gates-what-happened-when-microsoft-saved-apple.html) and the creation of 99 cents music store iPod culture to come, [Dreamworks](https://www.latimes.com/archives/la-xpm-2007-aug-07-fi-dreamworks7-story.html), Hollywood [stars](https://www.businessinsider.com/paul-allen-cannes-yacht-party-2015-5). The creation of a [Microsoft cable TV news network](https://www.eweek.com/cloud/why-microsoft-s-16-year-experiment-with-msnbc.com-ended/) like Elon Musk purchasing Twitter or Donald Trump creating "Truth Social" - except Bill Gates ([October 7](https://thehill.com/opinion/international/4296326-hamass-oct-7-birthday-gift-to-putin/), 1996 was when Fox News went online). [The Whole World, Wired World](https://www.latimes.com/archives/la-xpm-1995-05-07-tm-63445-story.html). And beyond the Pale Blue Dot, [like Elon Musk SpaceX](https://www.newyorker.com/news/postscript/paul-allen-the-quiet-space-baron). Bellevue was the hub to research the hell out of events with AT&T office one floor away from Paul Allen's office, we had datacenter Internet at our desk. Jemi Hendrix, Woodstock 1969 forever. Not this Trumpism MAGA shit. Some of us have not forgotten the [Halloween](https://en.wikipedia.org/wiki/Halloween_documents) nightmare that hollowed out the intellectual development of young people to be closed-source *consumers* of computers instead of open souce free thinking *rulers* of computers. Neil Postman [saw it](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/) all coming and [was](https://www.youtube.com/watch?v=hlrv7DIHllE) teaching.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+.
+
+# Trump Superstar Charm
+
+As Trump says, when you are *a star*, the rules change. Starstruck audience.
+
+&nbsp;
+
+> If it were up to me, once we enter mad max world soon. There wouldnt be a bunker deep enough, or an island far enough away to stop us from dragging them out to face justice.
+
+That science fiction fantasy, often from billionaire film corporations and entertainment networks, I call out as why people don't choose to confront the media ecology crisis staring us in the face.
+
+Donald Trump is first and foremost a charming entertainer. No matter if people describe themselves as left or right, conservative or liberal, they all have things in common about Donald Trump:
+
+1. Trump inspires hate
+2. Trump inspires mocking
+3. Trump inspires egomania
+
+And we have a nation of total mockery. People who flock to Donald Trump content and walk away with more hate and more mocking than ever before. A total avoidance of nonfiction and constant trash media engagement. Trump can charm the wealth and power out of people by his unique communications, outstanding mannerisms and style. Donald Trump plays a perfect Tony Clifton act and the USA population eats it up  - regardless of personal preference on media platform they favor and what political party they join.
