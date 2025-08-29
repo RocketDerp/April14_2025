@@ -444,3 +444,12 @@ james-HIMself 2018-10-02
 "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 "The brilliance of this new type of authoritarianism is that **instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd**." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, 2014 ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n3dmol/detainees_report_alleged_uprising_at_alligator/nbcxjrc/
+
+BobbaBlep 2023-07-28
+
+"Name the next facility "Pedophile Pond" and throw all the GOP in there."
+
+* :::=== RoundSparrow_Commentary : Twitter-think short messaging on Reddit saying everyone in an entire politcal party ("GOP") should be put into a facility. That's become a repeated normal in USA society discourse, imprison or deport to Africa or Central America anyone you disagree with or that you don't comprehend or understand. MAGA values adopted deeper and deeper into mindsets. Short message and nicknames like "Pedophile Pond" are a form of ritual chanting. ===:::
