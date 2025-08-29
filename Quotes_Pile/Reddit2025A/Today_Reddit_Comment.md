@@ -483,3 +483,15 @@ https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than
 da2Pakaveli 2017-10-02
 
 "Right-wing (extremist) populists have always been conman who teamed up with the rich afterwards to eliminate the labor movement"
+
+* :::=== RoundSparrow_Commentary : It is a fundamental mistake to assume that compusive fiction addicts are self-aware of their own fiction addicitons. Humanity has not escaped monomyth meme patterns. People flock together to the same fiction storytelling. Quran, Bible, Torah, and feed it to their children. The addiction can be so deep in ficiton, that terrorism develops and people bomb schools and teaching center of competing media systems. “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbdoq93/
+
+bgroins 2009-11-12
+
+"Growing up being conned weekly by their pastors kind of sets them up for that. Couple that with not learning critical thinking in school and it's a slam dunk."
+
+* :::=== RoundSparrow_Commentary : Children at the youngest age are fed for-profit Disney, fed advertising and marketing manipulation / Edward Bernays style mental exploitation for junk food, toys, overconsumption. Even if a family considers themselves atheists, they use even more powerful media than the very old 2,000 year-old Bible and put on Edward Bernays students content (marketing, product placement, etc). ===:::
