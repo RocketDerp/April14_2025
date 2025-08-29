@@ -78,3 +78,12 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_
 attrezzarturo 2017-05-08
 
 "The final plan is US+Russia vs Europe, and it's working great"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbbg0w1/
+
+Master-Piccolo-4588 2020-10-03
+
+"Russia aimed for decades for this current state while Istael, while taking a different path, came to the same result."
+
