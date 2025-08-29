@@ -1093,3 +1093,8 @@ WAKE UP AMERICA front page of Reddit
 Woke to what, exactly? Finnegans Wake / Woke / Irish author James Joyce 1924.   
 Media woke. Woke to media ecology. Not alseep in meme state, rectionary thinking.   
 https://old.reddit.com/r/OfficeSpeak/comments/1n2gpaj/trump_does_not_plan_to_leave_office_wake_up/
+
+&nbsp;
+
+Russia reddit engagement August 2025 50501    
+https://old.reddit.com/r/50501/comments/1n2s41z/russian_ip_addresses_on_this_sub/
