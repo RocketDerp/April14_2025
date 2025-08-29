@@ -527,3 +527,19 @@ https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than
 ConfectionSoft6218 2020-02-01
 
 "I just moved from Cali to South Carolina, and everyone talks trash about the Golden State. Not one with that attitude has even visited the place. But somehow, they know all about it. When I suggest they check it out, it seems many have never flown on an airplane before."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcunnj/
+
+Lodgik 2016-03-31
+
+"It has become a truism among Republicans that the right is better with the economy. Everyone "knows" it's true. It's "common sense."
+
+It's so true that when it doesn't match up against reality, it's *reality* that's wrong.
+
+It's a commonly held belief that Obama wrecked the American economy. Nevermind that he took power during the 2008 economic recession and by the time his term ended, it was in a better position. The truism is that Democrats are bad for the economy, so he wrecked the economy.
+
+California is controlled by Democrats. So its economy simply *must* be terrible."
+
+* :::=== RoundSparrow_Commentary : I also observe that the people who live in USA who criticize USA, are entirely unable to describe the economy and conditions of Russia. They can't describe Moscow or Saint Pete or living conditions in Russia. But they are harshly critical of USA. They also can't describe Canada or Australia. Just certain that California is terrible. Not able to cite one single thing wrong with Moscow as a city for living, as if it is absolutely perfect in their mind. There are now USA Democrat poltiical party in Moscow, so it must be better? They can't explain. https://www.youtube.com/watch?v=h3h--K5928M ===:::
