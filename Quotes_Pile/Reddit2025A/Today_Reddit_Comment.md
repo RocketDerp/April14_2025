@@ -566,3 +566,15 @@ lokiofsaassgaard 2021-03-29
 
 * :::=== RoundSparrow_Commentary :  "this stupid bullshit" - calling for more "this stupid bullshit". That's what a meme addicted population does. Constantly craves more entertainment stupid content. Idiocracy. Entertainment enslavement, death by LOL, as defined in 1985 book "Amusing Ourselves To Death" by Neil Postman. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ - 1985 was when California Entertainment President Ronald Reagan was second term in office. The parallels of entertainment itself wrecking society. 
 !!!!!! To be ultra clear, the thing is, I don't want to be right. This isn't ABOUT me being right or Neil Postman being right in 1985 - in only so much that if it (Postman / Surkov) IS correct that this (always more antics) is driving our behavior / Apple iPhone and iPad addiction as Neil Postman explains in his writings - then we are in a feedback loop. Clearly as unpopular as I am, I'm not addressing any issue other than pointing out the predictability of Donald Trump's antics politics being based on Russian Surkov techniques and mass man social discoveries. I cant stand living in this stupid bullshit for OVER TEN FULL YEARS. It was exhausting to see people so anti-book anti-intellectual anti-c0mpassion anti-love back in 2014, and it gets worse every year in USA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n2upwz/jd_just_dance_vance_troll/nba8k5g/
+
+almostthemainman 2019-10-29
+
+" “I’d rather see him do something stupid than nothing”
+
+Your average 2024 American voter."
+
+* :::=== RoundSparrow_Commentary : People are attracted to entertainment and amusement. Why do you have to be so repulsed by a person? "I’m one of those people who can’t stand Newsom" - WHY? There is not a demonstration of self awareness as to WHY, just a vibe feeling of "I can't stand a person".- the scary answer is that it may be the long-term mind alternations of psychologists of Cambridge Analytica and Kremlin inforamtion warfare. https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ or long-term media addiction, or all these things. Or Reddit itself it just a waste of time (including mine). And death by amusement is how the USA as a nation has choosen to end itself. Or the end of goodness, and people are excited to have mocking all the time. I am not. I am misserable living in this world of Donald Trump being so attractive to pepole in adopting dehumanization and mockery of nonfiction books and nonfiction learning. I do not hate Donald Trump, I am sickened by a society who thinks meme entertainment is more improtant than compassion. ===:::
