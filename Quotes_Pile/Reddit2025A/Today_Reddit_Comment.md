@@ -303,3 +303,47 @@ https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_
 Hair_I_Go  2018-06-24
 
 "I feel like we’re being isolated, little by little"
+
+&nbsp;
+
+&nbsp;
+
+"The folks behind all this are people like Russ Vought (head of the office of budget management and primary author of project 2025) and Howard Lutnick (commerce secretary and former Cantor Fitzgerald which is the biggest supporter of the heritage foundation). They want an era of isolationism for the U.S. because they think this country can prosper with the right access to raw materials and straight labor. It’s why they are working on shutting down access to proper education, having Trump go on and on about acquiring Canada and Greenland which is partly for resources and accessibility but also as a buffer zone to the rest of the world. They have been convinced into thinking AI will figure out all the problems with Elon Musk (SpaceX/Starshield/Starlink/Grok) and Peter Thiel/Palantir. Elon Musk has already announced he won’t push for a 3rd party, instead he is putting his support behind Vance. With Trump being sick it’s not long before Vance is in control.
+
+Palantir is what found Elon his adult and kids DOGE team which most people have forgotten is really USDS which has access to most federal agencies. Understand that the decision by Trump to fire the NSA chief and his deputy may be in fact be the most dangerous decision Trump has made so far. Timothy Haugh like his last 2 predecessors were restricting the access and control Peter Thiel had through his company Palantir over the CIA/NSA to commit domestic surveillance. Palantir (just got $10 BILLION contract with the US government) who is now the biggest defense contractor for the CIA/NSA based on publicly available data on DOD contracts (they had $750 million added to their current contract a while back) along with providing day-to-day operations for both agencies. ⁠Palantir is contracted with state and local governments and police here in the U.S. The goal for Palantir is and always has been domestic surveillance. Palantir is an intelligence corporation which provides advanced analysis, sigint, osint, criminal and threat awareness and kill chain efficiencies to all levels of US, UK, and corporate agencies.
+
+Now comes the push for removing Trump from office.
+
+Elon was the early test to see if scapegoat mechanism would work and it sort of did for him. Which is sort of the plan, scapegoat mechanism at its finest. Peter is a ⁠key believer of scapegoat mechanism for which he says Trump fills that role. Thiel has been grooming JD Vance since 2011 as his benefactor and mentor, Thiel brought Vance to Mar-a- Lago to smooth over things with Trump so Vance could be VP, Thiel gave Vance $15 million in donations to run for Senate (the largest amount of money ever donated to a single Senate candidate ever)
+
+Scapegoat mechanism is simple that you have someone in power take on a lot of bad actions then remove them and so the masses feel it’s been all undone. The test case was Elon and DOGE which worked perfectly seeing as how all the federal investigations into Elon are gone and DOGE is still at all the federal agencies. Elon’s employee Amanda Scales still has the private server setup at OPM. All the data they got from the federal agencies and Treasury department when they had hard physical access is still under their control.
+
+In September when the gap fund bill signed in March expires along with the deferred resignation program kicking in and the SSA/IRS data being handed over to Palantir as part of the doge plan they have provided for updating the SSA system there could be a lot of reasons for him to be removed from office.
+
+Peter Thiel/Palantir just got what they wanted, access to a big enough database for the first step in complete surveillance.
+
+https://www.theguardian.com/us-news/2025/jun/30/trump-citizenship-database
+
+Peter is also a major defense contractor for the UK intelligence community and army along with the major police forces in the UK. He branched out to their healthcare a few years ago with a contract to shift through all the data at NHS England which is done now so Kier announced that NHS England will be shutdown (not NHS). Peter through his company has full access to Norway’s government and civilian surveillance services. Peter/Palantir provides direct support for the IDF (Israel) in all their operations from Gaza to the West Bank to Iran.
+
+Thiel directly owns roughly 180 million publicly traded shares which 7%. His investment firm Rivendell 7 owns 34 million publicly traded shares. Other Thiel vehicles own 37 million shares. Thiel entities also own 32.5 million supervoting Class B shares in Palantir. Those class b shares carry 10 votes while public ones carry only 1 vote per share. Now here is the kicker for why he still controls Palantir (link below), Thiel has sole investment power over 335,000 class F shares as part of a trust that has 49.99% voting interest in the company.
+
+https://www.barrons.com/articles/palantir-stock-chairman-peter-thiel-b63415c7
+
+Alex Karp the ceo of Palantir knew Thiel well before 2003 when Thiel tapped him to be ceo. Karp has condemned “woke” ways of thinking, calling woke a central risk to Palantir, that Palantir is a counter-example to companies he considers woke. Karp condemned pro-Palestine protests calling them an infection inside of our society, he remarked the peace activists are war activists and they should be sent to North Korea. Karp has said the west has a superior way of living and said he supports Palantir contract with ICE and using the software to enable separation of families.
+
+https://www.politico.com/news/2024/05/01/alex-karp-hill-summit-trump-00155571
+
+Peter Thiel
+
+• ⁠born in West Germany, grew up and went to school in the city of Swakopmund in West South Africa, the city was notorious for its continued glorification of Nazism to a dad who was an engineer working on uranium which was in violation of international law
+
+• ⁠Partners with Elon Musk at PayPal, early investor in Facebook
+
+• ⁠self-proclaimed Christian nationalist, believes women right to vote is wrong, idolizes Curtis Yarvin and Yarvin’s philosophy on replacing democracy with authoritarianism all in Peter’s own book
+
+• ⁠Palantir after its creation in 2003 was bailed out partly by In-Q-Tel the CIA’s venture capital firm"
+
+* :::=== RoundSparrow_Commentary : A lot of this is about the parties *feasting upon* the meme addeled population in USA. Cambridge Analytica and the Internet Research Agency were the key to creating the War Against Relaity that is described September 9, 2014 in public: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - of which we not know the IRA was online in 2013: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." Denial abounds, the USA and NATO have had their asses kicked in an information war, it is NOT ONLY the USA. "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" (Conservatives) - https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america 
+===:::
