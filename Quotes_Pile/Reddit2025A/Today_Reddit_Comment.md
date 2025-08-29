@@ -250,4 +250,14 @@ Vaulters 2016-03-29
 "We're so far past anything America's founders imagined here bud."
 
 * :::=== RoundSparrow_Commentary : Twitter-think one-line one-sentence shallow superficial. Of course the Founding Fathers imagined what **fiction sytems of the Catholic Church had done to Europe mindsets** (imported from the Levant). The Great Seal of the United States of America instruction tool to defend against meme (John 1:1) warfare was created in 1776. We did not teach the population, We The People, were not educated on art symbolism and symbolic meanings of the founding fathers.
-"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, 1987 ===:::
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller (immigrant to USA), 1987 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbceuqa/
+
+BlingBomBom **2025-08-03 (new account)**
+
+"Amerisharts wanted this. The few who didn't are outnumbered and outgunned by those who do, and they will also be blamed for everything that goes wrong.
+
+A superpower sleptwalk straight into fascism. It gets what it deserves."
