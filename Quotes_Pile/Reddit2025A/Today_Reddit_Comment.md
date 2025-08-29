@@ -587,3 +587,11 @@ https://old.reddit.com/r/politics/comments/1n3c38q/maga_hunger_games_taking_plac
 Expert-Collection145 2022-10-09
 
 "Don't think that means he is harmless. George W. Bush was an charming empty suit that enabled Cheney to use Haliburton to rape the middle east and decrease the privacy and freedom of every American citizen."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3c38q/maga_hunger_games_taking_place_as_trump_health/nbdhh3p/
+
+scroopydog 2018-07-25
+
+"The nightmare outcome here is the political party created from Peron. There are still Peronistas in Argentina, I wouldn’t be so quick to think that the party couldn’t just become MAGAists: they live to perpetuate a line of thinking that they consider an ideology (which is asinine because an ideology needs thought consistency, of which MAGA has none)."
