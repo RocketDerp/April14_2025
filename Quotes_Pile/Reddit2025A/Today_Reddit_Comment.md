@@ -527,3 +527,15 @@ https://old.reddit.com/r/Futurology/comments/1n2mcir/new_research_argues_societa
 People do much better during the peak of the civilization."
 
 * :::=== RoundSparrow_Commentary :  Yes. Parenting in Palestine. Getting married in Palestine in October 2021 and having your first child in June 2023 leads to a terrible nightmare. People all around you in Palestine are organizing a terror attack on Isreal the morning of October 7, 2023 (Putin's birthday) and from that day forward your life is Hell. At least the Hell hasn't stopped at the end of August 2025 when I write this commentary. Parenting in Palestine is constant stress. Donald Trump leadership of the USA is constant stress if you don't think fiction and chaos are awesome entertainment for you and the future of children. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n2upwz/jd_just_dance_vance_troll/nb8wnte/
+
+Jake_loves_pizza 2025-02-01 (new this year)
+
+"There's someone I know in this discord server who absolutely hates Newsom but tbh, I know some of his views aren't the greatest but holy shit at least SOMEONE is trying to do something to stick it to these idiots."
+
+* :::=== RoundSparrow_Commentary : Entertaining the audience, amusing the audience. Addressing Cambridge Analytica and Kremlin informaiton warfare with more mockery.
+"The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia
+- vibes politics that plays right into the absurd / surreal foundation of Surkovian information warfare. Instead of addressing brainrot in the population, the aftermath of stragetic meme bombing by Cambridge Analytica, it puts focus on figurehead vs. figurehead, JD Vance in this case. Mocking Tony Clifton performers is not resisting Tony Clifton's act and screenplay. We The People are as egaged as ever in entertainment addictions. ===:::
