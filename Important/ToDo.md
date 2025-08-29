@@ -1103,3 +1103,9 @@ https://old.reddit.com/r/50501/comments/1n2s41z/russian_ip_addresses_on_this_sub
 
 choice marriage honesty, mental health diagnosis honesty     
 https://old.reddit.com/r/lol/comments/1n2oepb/lol/
+
+&nbsp;
+
+Female author, casual genocide on other planets metaphors. Dream topics.   
+The Corruption of Athshe | The Word For World is Forest    
+https://www.youtube.com/watch?v=LvrKA-fR7MA
