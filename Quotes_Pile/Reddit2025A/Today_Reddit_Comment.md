@@ -552,4 +552,14 @@ technanonymous 2023-10-15
 
 "Newsom needs to publish stats on red states every day. He should be talking about the “market correction” of real estate in some area of Texas like Austin as people and companies move away. Austin is getting hammered with falling prices and increasing inventories. He needs to list poverty numbers, infant mortality, teen pregnancy, etc., along with crime numbers. The south east is a disaster."
 
-* :::=== RoundSparrow_Commentary : Here is a social media user calling for a father, a daddy like person, to do it for them. Why can't Reddit post these every 4 hours? Why can't social media users stop using their spare time and free time to call for others to do it and organize We The People into shifts to sustain postings for months and months on important topics? Why is the idea of using social media to sustain and organize important USA rescue topics so absent from their minds? Has the Internet Reserch Agency and Cambridge Analytica conditioned social media users to NOT do this with the systems they are commenting on? They recognize it is for the greater good the nation, but they can't escape the idea of a male leader Donald Trump doing it for them or a male leader Newsom dong it for them. So programmed to not work peer to peer on social media in asserting the most important society rescue efforts. ===:::
+* :::=== RoundSparrow_Commentary : Here is a social media user calling for a father, a daddy like person, to do it for them. Why can't  Reddit community post these stats every 4 hours? Why can't social media users stop using their spare time and free time to call for others to do it and organize We The People into shifts to sustain repeated postings for months and months on important topics? Why is the idea of using social media to sustain and organize important USA rescue topics so absent from their minds? Has the Internet Reserch Agency and Cambridge Analytica conditioned social media users to NOT do this with the systems they are commenting on? They recognize it is for the greater good the nation, but they can't escape the idea of a male leader Donald Trump doing it for them or a male leader Newsom dong it for them. So programmed to not work peer to peer on social media information systems in asserting the most important society rescue efforts. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcwe0u/
+
+SewAlone 2018-12-20
+
+"And people eat it up. Fox is on tv at the gym, the car dealer, the military bases, etc..Propaganda all day long."
+
+* :::=== RoundSparrow_Commentary : I see smartphones on all day long in public. How many are using Twitter and Reddit and being mislead? Why can't people see the forest for the trees? ===:::
