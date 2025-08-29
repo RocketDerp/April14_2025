@@ -409,3 +409,9 @@ https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be
 valamaladroit 2022-03-13
 
 "At this point, it doesn't matter whether they do or not. Trump has already created a fascist government. Even if MAGA completely turned on him before he dies, it doesn't matter. And whichever chud inherits the fascist system doesn't really need to worry about whether the MAGA base supports him or not. Republican politicians and SCOTUS don't want democracy anymore, so they'll be fine with whoever as long as that person keeps the grift/kleptocracy going. The voters don't matter under a fascist dictatorship, and that includes MAGA voters."
+
+&nbsp;
+
+superspacetrucker **2025-07-01 (new account)**
+
+"Maga will shift gears and worship anyone who attacks libs or anyone Maga hates. It's not trumps character they like, it's that someone is finally expressing the hate they feel towards others and it gives them permission to be as awful as they are."
