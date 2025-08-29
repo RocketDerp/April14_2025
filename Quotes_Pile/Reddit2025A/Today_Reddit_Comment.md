@@ -495,3 +495,15 @@ bgroins 2009-11-12
 "Growing up being conned weekly by their pastors kind of sets them up for that. Couple that with not learning critical thinking in school and it's a slam dunk."
 
 * :::=== RoundSparrow_Commentary : Children at the youngest age are fed for-profit Disney, fed advertising and marketing manipulation / Edward Bernays style mental exploitation for junk food, toys, overconsumption. Even if a family considers themselves atheists, they use even more powerful media than the very old 2,000 year-old Bible and put on Edward Bernays students content (marketing, product placement, etc). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbdxjdk/
+
+DoubleJumps 2010-07-03
+
+"The fact that they just double down every time they find out they were lied to is what blows my mind.
+
+Like at this point most of them know they get lied to and they are cool with it."
+
+* :::=== RoundSparrow_Commentary : These patterns of behavior ("double down every time") are reported time and time again. But social media users are not going to the public library to get cult deprogramming books. In the context of Fox News discussion, they aren't promoting Jen Senko's film: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad to rally around and keep repeating on social media until there is a mass movement to deal with this crisis. Instead, it is OVER 10 YEARS of streaming messages on every social machine platform hour after hour about the same **common media ecology problems** (symptoms). ===:::
