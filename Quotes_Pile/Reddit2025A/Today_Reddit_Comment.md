@@ -62,3 +62,12 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_
 ezekiellake 2011-06-28
 
 "If you talk like a Russian agent, and act like a Russian agent, and supports all the things a Russian agent would support … then it doesn’t actually matter whether you’re actually a Russian agent or not!"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbbaoqc/
+
+Subject-Historian11 2025-03-23 (new this year)
+
+"No doubt about it. Whether intentional or not the whole MAGAt cult is Russian assets"
+
