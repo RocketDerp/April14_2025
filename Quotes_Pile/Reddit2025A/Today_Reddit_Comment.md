@@ -507,3 +507,15 @@ DoubleJumps 2010-07-03
 Like at this point most of them know they get lied to and they are cool with it."
 
 * :::=== RoundSparrow_Commentary : These patterns of behavior ("double down every time") are reported time and time again. But social media users are not going to the public library to get cult deprogramming books. In the context of Fox News discussion, they aren't promoting Jen Senko's film: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad to rally around and keep repeating on social media until there is a mass movement to deal with this crisis. Instead, it is OVER 10 YEARS of streaming messages on every social machine platform hour after hour about the same **common media ecology problems** (symptoms). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcpsbt/
+
+sdmichael 2014-01-08
+
+"California does have its problems. That being said, it isn't "ruined" or "destroyed".
+
+I also am so confused how they lump in "greatest weather" with a governor "ruining" a state. Does the governor also control the weather or something?"
+
+* :::=== RoundSparrow_Commentary : These are all symptons of context bewilderment. ===:::
