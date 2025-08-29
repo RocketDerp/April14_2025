@@ -563,3 +563,11 @@ SewAlone 2018-12-20
 "And people eat it up. Fox is on tv at the gym, the car dealer, the military bases, etc..Propaganda all day long."
 
 * :::=== RoundSparrow_Commentary : I see smartphones on all day long in public. How many are using Twitter and Reddit and being mislead? Why can't people see the forest for the trees? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/wallstreetbets/comments/1n3k79q/most_trump_tariffs_ruled_illegal_in_blow_to_white/nbecqxf/
+
+EnterBruges 2013-07-27
+
+"Part of me is hopeful that you will take this opportunity to reflect upon how your chosen media "algorithms" slant and distort the truth to portray a certain narrative catered specifically to your worldview, but I presume that to be wishful thinking. Have a nice day"
