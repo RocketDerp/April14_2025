@@ -17,6 +17,6 @@ Deeply I have felt along the same lines as Dr. Martin Luther King Jr: "I never i
 
 ### Friday August 29, 2025
 
-I am clearly one of those 'Losers' + 'Suckers' Trump calls out. I have never been able to get crowds of people on social media or in person to listen and hang on my every world like Donald Trump does.
+I am clearly one of those 'Losers' + 'Suckers' Trump calls out. I have never been able to get crowds of people on social media or in person to listen and hang on my every world (word) like Donald Trump does.
 
 Since Trump is incredibly **popular** and constantly the center of society attention, I am factually the loser. The crowd has spoken.
