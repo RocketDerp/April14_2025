@@ -1098,3 +1098,8 @@ https://old.reddit.com/r/OfficeSpeak/comments/1n2gpaj/trump_does_not_plan_to_lea
 
 Russia reddit engagement August 2025 50501    
 https://old.reddit.com/r/50501/comments/1n2s41z/russian_ip_addresses_on_this_sub/
+
+&nbsp;
+
+choice marriage honesty, mental health diagnosis honesty     
+https://old.reddit.com/r/lol/comments/1n2oepb/lol/
