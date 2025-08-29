@@ -46,3 +46,19 @@ yorapissa 2024-09-08 (joined at election 2024)
 "There is also the historic example of Hitler, Mussolini or Kadafi. Unfortunate that they dragged a lot of people to the grave before them. Let’s see if America truly is the special country we claim we are and how far we will be dragged before it’s gets stopped in its tracks. I remember, a long time ago, in high school history classes thinking “ how did the German people let that happen?”. It’s becoming a haunting thought now when I can see how easily it’s happening here and how meaningless the word “American” can become with so much un-American activity being condoned by supposedly very self declared American Patriots."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3547m/trump_cancels_kamala_harris_secret_service_detail/nbaxj6t/
+
+The_Jolly_Dog 2013-03-26
+
+"It’s amazing how Trump so perfectly represents the absolute worst of humanity. Petty little toddler"
+
+* :::=== RoundSparrow_Commentary : Entertaiment addiction. Reality TV "The Apprentice" audience. Constant mocking, total mockery. People addicted to the antics and communications mockery for OVER TEN YEARS AND TWO MONTHS. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbb16hw/
+
+ezekiellake 2011-06-28
+
+"If you talk like a Russian agent, and act like a Russian agent, and supports all the things a Russian agent would support … then it doesn’t actually matter whether you’re actually a Russian agent or not!"
