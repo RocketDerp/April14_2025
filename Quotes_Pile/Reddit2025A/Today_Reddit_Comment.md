@@ -579,3 +579,11 @@ https://old.reddit.com/r/politics/comments/1n3c38q/maga_hunger_games_taking_plac
 julianriv 2018-07-25
 
 "All of Peter Thiel's money is not going to make Vance likable. The blind loyalty of millions of supporters is what gives Trump his clout to bend other elected representatives to his will. I don't see Vance ever getting there. When/if Trump dies about 1/2 of his loyal followers will spend the first several years denying that he is dead. Not jumping on the Vance band wagon."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3c38q/maga_hunger_games_taking_place_as_trump_health/nbcpkpn/
+
+Expert-Collection145 2022-10-09
+
+"Don't think that means he is harmless. George W. Bush was an charming empty suit that enabled Cheney to use Haliburton to rape the middle east and decrease the privacy and freedom of every American citizen."
