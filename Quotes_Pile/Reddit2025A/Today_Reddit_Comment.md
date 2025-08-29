@@ -586,3 +586,12 @@ femptocrisis 2017-12-30
 https://old.reddit.com/r/BlueskySkeets/comments/1n2upwz/jd_just_dance_vance_troll/nb9i6kf/
 
 "i appreciate the quotes around "liberal" lol. i swear if you asked rush Limbaugh back in 2004, a liberal was a literal communist socialist hippy, but now in 2025 a liberal is like two pixels left of a fascist on the political compass smh. what even is a "liberal" atp lol"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n2znkr/we_are_now_at_a_point_where_other_countries_are/
+
+"We are now at the point"    
+
+* :::=== RoundSparrow_Commentary : Recency bias. January 6, 2021 had plenty of global coverage. Prior coverage. Pelple on social media continue to behave as if Donald Trump was never removed from office for 4 years and replaced by Joe Biden. There is such a recency focus of social media consumers, not connecting events and trends. ===:::
+
