@@ -143,3 +143,10 @@ Minion_of_Cthulhu 2015-05-18
 
 &nbsp;
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbb8ek6/
+
+calmdownmyguy 2022-09-05
+
+"In their defense, people bring facts, statistics, and sources fucks up their circle jerk."
+
+* :::=== RoundSparrow_Commentary : Middle East imported tradition for thousands of years: Circle jerk Torah vs. Circle Jerk Quran fiction vs. Cirlce Jerk Bible fiction. All 3 fiction. Reddit /r/Conservative community fiction vs. /r/LeopardsAtMAGAFaces community ficiton. Bluesky fiction vs. Fox News fiction. Nobody supporting Malala's reformations efforts of pro-science comrpehension of nonfiction. Fiction addiction rules.  ===:::
