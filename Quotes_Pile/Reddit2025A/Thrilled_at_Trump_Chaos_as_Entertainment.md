@@ -677,3 +677,11 @@ What we are living under in August 2025, is what Neil Postman wrote about and de
 And Neil Postman wasn't even describing it as information warfare, he saw it happening as a natural product of electric media consumption, he was clear on this: "In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result." - 1985
 
 What Surkov has done with Putin / Kremlin since year 2000 was *intential*, weaponzied, and exported with Cambridge Analytia since Q2 2013.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n2jj9u/gavin_newsom_says_trump_wants_to_run_for_a_third/
+
+"You Think he Is Joking?" - No American people think mocking Trump's poop diapers, mocking Trump's orange skin, mocking his golf course outings it he most hillarious and funny jokes ever created. For OVER TEN YEARS AND TWO MONTHS, since June 2025, social machines hum with mocking and insulting of how terrible Trump is playing Tony Clifton. It never ends. Sincerity, goodness, honesty have all been abandoned in favor of people insulting and mocking. We are living in a total mockery. We are a joke as a nation. People are attracted to trash entertainment.  People are entirely avoiding nonfiction, unable to face up that a 1985 book 'Amusing Ourselves To Death" about media ecology explains the media addiction problems of USA August 2025. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
