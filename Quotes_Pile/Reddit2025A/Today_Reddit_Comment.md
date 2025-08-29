@@ -518,4 +518,12 @@ sdmichael 2014-01-08
 
 I also am so confused how they lump in "greatest weather" with a governor "ruining" a state. Does the governor also control the weather or something?"
 
-* :::=== RoundSparrow_Commentary : These are all symptons of context bewilderment. ===:::
+* :::=== RoundSparrow_Commentary : These are all symptoms of context bewilderment. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbdfbit/
+
+ConfectionSoft6218 2020-02-01
+
+"I just moved from Cali to South Carolina, and everyone talks trash about the Golden State. Not one with that attitude has even visited the place. But somehow, they know all about it. When I suggest they check it out, it seems many have never flown on an airplane before."
