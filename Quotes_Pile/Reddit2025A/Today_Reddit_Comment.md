@@ -17,7 +17,7 @@ I keep saying that MAGA is not a problem unique to America: similar parties and 
 
 * :::=== RoundSparrow_Commentary : The MAGA "movement" is not unique to USA, and people keep ignoring that Putin and Trump are best buddies and working together. The Internet Research Agency worked with Cambridge Analytica as agreed by Trump in November 2012 to alter the minds and behaviors of ALL PEOPLE.
 "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети."
-We have HARD VALIDATED FACTUAL EVIDENCE going back **to year 2014** diclosed to We The People, the public world wide: "It examined thousands of tweets sent between 2014 and 2017. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University." - https://www.bbc.com/news/world-us-canada-45294192 ===:::
+We have HARD VALIDATED FACTUAL EVIDENCE going back **to year 2014** disclosed to We The People, the public world wide: "It examined thousands of tweets sent between 2014 and 2017. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University." - https://www.bbc.com/news/world-us-canada-45294192 ===:::
 
 &nbsp;
 
