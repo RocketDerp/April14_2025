@@ -201,4 +201,14 @@ theOTHERdimension 2013-08-13
 
 "This man doesn’t see her as a person but as an object that should be benefitting him. He’s upset his property is not being allowed into the country because he feels he’s owed for his investment. His friends and family are the ones he sees as people. He has no qualms about asking her to leave everything she knows behind to benefit him but he refuses to reciprocate."
 
-* :::=== RoundSparrow_Commentary : Reddit users don't see Trump supporters as human persons, they view them as enemy compbatants to cheer on their self-harm and destruciton at the hands of Putin's information warfare since March 2013. They make no effort to rescue American people wrecked by the Internet Research Agency, they find it entertaining and thrilling to use their spare time and free time to kick the mentally injured and cheer on Putin's information warfare success. Americans hate Americans and are trhilled to see Americans suffering at the hands of anti-NATO information warfare. These are educated Americans with free time and spare time to make messaging sport of dehumanizing Amreian people. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
+* :::=== RoundSparrow_Commentary : Reddit users don't see Trump supporters as human persons, they view them as enemy compbatants to cheer on their self-harm and destruciton at the hands of Putin's information warfare since March 2013. They make no effort to rescue American people wrecked by the Internet Research Agency, they find it entertaining and thrilling to use their spare time and free time to kick the mentally injured and cheer on Putin's information warfare success. Americans hate Americans and are trhilled to see Americans suffering at the hands of anti-NATO information warfare. These are educated Americans on Reddit (typically white collar) with free time and spare time to make messaging sport of dehumanizing Amrerican people as Russian systems replace and take over classical USA values in 2025. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/marvelcirclejerk/comments/1n39iqs/huh/nbc6lkm/
+
+TotalNonsense0 2023-03-23
+
+"Anyone in the room with me right now could have an explosive device that would kill us all. Or the guy who just stepped out could have left such a device behind."
+
+* :::=== RoundSparrow_Commentary : I've lived in several Islamic nations / terrorist nations. Algeria, Jordan, Indoonesia, Mayalis during the ARab Spring formation onward. I did not hide my presence. I had no security. I wore a Mexican Cowboy Hat walking around in public in Jordan for years while Syria war was starting up and ongoing. This is basic situational awareness. You promote Maritn Luther King Jr's 1954 equation: *all hate in all places*. We are all human beings and if we don't message and communicate that love matters to every person on Earth, we end up driving ourselvs into fanatasy fiction addictions like you see in USA in August 2025 of Donald Trump society. Hate and mass dehumanization abounds. ===:::
