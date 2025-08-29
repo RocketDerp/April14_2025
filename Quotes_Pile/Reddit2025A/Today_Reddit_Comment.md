@@ -212,3 +212,42 @@ TotalNonsense0 2023-03-23
 "Anyone in the room with me right now could have an explosive device that would kill us all. Or the guy who just stepped out could have left such a device behind."
 
 * :::=== RoundSparrow_Commentary : I've lived in several Islamic nations / terrorist nations. Algeria, Jordan, Indoonesia, Mayalis during the ARab Spring formation onward. I did not hide my presence. I had no security. I wore a Mexican Cowboy Hat walking around in public in Jordan for years while Syria war was starting up and ongoing. This is basic situational awareness. You promote Maritn Luther King Jr's 1954 equation: *all hate in all places*. We are all human beings and if we don't message and communicate that love matters to every person on Earth, we end up driving ourselvs into fanatasy fiction addictions like you see in USA in August 2025 of Donald Trump society. Hate and mass dehumanization abounds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1n3ccuf/youth_gator_days/
+
+* :::=== RoundSparrow_Commentary : Front page of Reddit: I wish I had consumed more fiction video game content messages. Very popular with fiction addicted society. Abandonment of reality. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbca2ri/
+
+Alz_Own 2022-09-22
+
+"In essence, the Trump administration is now asking foreign mail carriers to act as import tax collectors on behalf of the U.S. government — something they aren't set up to do or may be refusing to do, she said.
+
+Reminds me of Mexico will pay for the wall, and expecting Mexico to go along with it"
+
+* :::=== RoundSparrow_Commentary : Fiction storytelling outsells nonfiction. Trump mythology draws in haters and lovers alike. People with free time / spare time on Reddit and Blueksy constantly express how much they hate the Tony Clifton antics of Donald Trump White House acts. [The Wall](https://www.youtube.com/watch?v=FZyE4bIylZ4) is one of Trump's greatest fictions storytelling performances. Of course it could have been physically constructed and paid for by the USA, but the fiction addiction (and symbol shuffle) in the audience is the key to Surkovian governing. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbca9ri/
+
+Gregory_Appleseed 2019-08-16
+
+"Oh no! Trade wars have consequences? What? That's so surprising! You mean to tell me, that punishing our trading partners for selling stuff and buying stuff is a bad thing? No way! I'm shocked! Shocked!"
+
+* :::=== RoundSparrow_Commentary : Tony Clifton audience, We The People, enjoy mocking how terrible and bad Donald Trump (Tony Clifton) act is. This antics poitics (Tony Clifton style) so engages the audience that people compusively react. Reactionary thinking abounds. People entirely unable to organize nonfiction solutions to the crisis: such as teaching Neil Postman's 1985 book "Amusing Ourselves To Death" or one of the hundreds of books about cult deprogramming in the public library. Instead, the population is so addicted to the Tony Clifton (Trump / Kremlin / White House) antics that they are glued with all free time and spare time to social machiens for the hour by hour mockery. Surkov won, Russia won, since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcctqk/
+
+Vaulters 2016-03-29
+
+"We're so far past anything America's founders imagined here bud."
+
+* :::=== RoundSparrow_Commentary : Twitter-think one-line one-sentence shallow superficial. Of course the Founding Fathers imagined what **fiction sytems of the Catholic Church had done to Europe mindsets** (imported from the Levant). The Great Seal of the United States of America instruction tool to defend against meme (John 1:1) warfare was created in 1776. We did not teach the population, We The People, were not educated on art symbolism and symbolic meanings of the founding fathers.
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, 1987 ===:::
