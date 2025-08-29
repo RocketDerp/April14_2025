@@ -181,3 +181,13 @@ athenaprime 2010-07-09
 "He made the classical mistake of voting for an in-group and an out-group society, but believing he was gonna be the in-group. "There IS a Club, and you ain't in it," as George Carlin said.
 
 People who want boot-on-the-neck always think they're gonna be the boot right up until the moment they feel the treads on their own necks."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbb296h/
+
+Responsible-Room-645 2024-01-02
+
+"The only joy I’m getting out of this disaster is watching the Trump voters get screwed by the guy they were willing to move heaven and earth to re elect."
+
+* :::=== RoundSparrow_Commentary : Murder / suicide pact thinking. Islamoc terrorist logic: my death is good because I get to take people who don't like my fiction Quran story interpretaiton. down with me. Reddit fiction content addicts thrilled to have murder/suicide nation of Fox News addicts taken down with them. Anti-Malala, avoidant of nonfiction, avoidant of education and teaching. What Surkov saw that few others recognized, that James Joyce articulates so beautifuly in his Dublin metaphors of Finnegans Wake, is that human brains can be exploited to see thrills of SYSTEMS killing people. The Fderal Governing SYSTEM is harming Trump voters, so Reddit users are thrilled to see humans crushed by a system. This was a core focus of Finnegans Wake illumination of Dublin society behaviors in year 1924. You can see this pattern play out all over the world, where people cheer on goernments and systems and coprorations who harm human beings. ""The only joy I’m getting out of this disaster is watching the Trump voters get screwed" by the *system of government*, by the machinery of the state. Reddit social machine addicts love machines, hate human persons. The thrill that messages off Fox News machines can destroy human lives, the thrill that Reddit messages can destroy human lives. That is what the Internet Research Agency and Cambridge Analytica has condtioned the ENTIRE popualtion, all inclusive, even non-voters, even children age 12 exposed to their own partent's 'second hand smoke' (metaphor) of Cambridge Analytica mind programming (message patterns like: https://www.bbc.com/news/world-us-canada-45294192 ). ===:::
