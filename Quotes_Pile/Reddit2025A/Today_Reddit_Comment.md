@@ -374,4 +374,16 @@ digiorno 2010-05-12
 
 "They’re also sheep. Once Fox News starts saying he’s amazing for the economy and the second coming of Trump, then they’ll all line up to suck him off."
 
-* :::=== RoundSparrow_Commentary : It is important to distingusih a cult of *messages*, of *fictoin storytelling cults*, from cult of individual people. L Ron Hubbard is dead, but his science fiction storytelling pattern can be reworked and adapted by leaders of Scientology fiction empire. Rupert Murdoch ficiton media empire is wealth televagelism networks. ===:::
+* :::=== RoundSparrow_Commentary : It is important to distingusih a cult of *messages*, of *fictoin storytelling cults*, from cult of individual people. L Ron Hubbard is dead, but his science fiction storytelling pattern can be reworked and adapted by leaders of Scientology fiction empire. Rupert Murdoch ficiton media empire is wealth televagelism networks. Fiction addicts, message addicts, can even be lead by ChatGPT / GrokAI (etc) reprodicing Quran fiction / Torah fiction / Bible fiction patterns of monomyth memes (John 1:1). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be_president_if_trumps/nbcgge6/
+
+tevs__ 2019-02-08
+
+"Hear me out, Trump is the eternal President, but he's 'convalescing'... Just Dance can be the front-man, and TrumpAI gives a daily recorded segment where he identifies the new enemies of the state.
+
+What a bright and pleasant future /s
+
+I can't mock too much, our UK politics is just as effed: * the left wing party are in power but are getting blamed for not fixing everything in one year and making everyone rich again * the right wing party presided over 14 years of decline, are super unpopular, and chose a black woman with a Nigerian name as leader, so all the racists have switched to.. * the far right party, run/owned by our own mini Trump, who wants to cut our healthcare in half, give tax cuts to billionaires, and is currently stoking xenophobia and nationalism amongst the white working class"
