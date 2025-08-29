@@ -578,3 +578,11 @@ almostthemainman 2019-10-29
 Your average 2024 American voter."
 
 * :::=== RoundSparrow_Commentary : People are attracted to entertainment and amusement. Why do you have to be so repulsed by a person? "I’m one of those people who can’t stand Newsom" - WHY? There is not a demonstration of self awareness as to WHY, just a vibe feeling of "I can't stand a person".- the scary answer is that it may be the long-term mind alternations of psychologists of Cambridge Analytica and Kremlin inforamtion warfare. https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ or long-term media addiction, or all these things. Or Reddit itself it just a waste of time (including mine). And death by amusement is how the USA as a nation has choosen to end itself. Or the end of goodness, and people are excited to have mocking all the time. I am not. I am misserable living in this world of Donald Trump being so attractive to pepole in adopting dehumanization and mockery of nonfiction books and nonfiction learning. I do not hate Donald Trump, I am sickened by a society who thinks meme entertainment is more improtant than compassion. ===:::
+
+&nbsp;
+
+femptocrisis 2017-12-30
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n2upwz/jd_just_dance_vance_troll/nb9i6kf/
+
+"i appreciate the quotes around "liberal" lol. i swear if you asked rush Limbaugh back in 2004, a liberal was a literal communist socialist hippy, but now in 2025 a liberal is like two pixels left of a fascist on the political compass smh. what even is a "liberal" atp lol"
