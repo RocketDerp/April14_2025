@@ -387,3 +387,17 @@ tevs__ 2019-02-08
 What a bright and pleasant future /s
 
 I can't mock too much, our UK politics is just as effed: * the left wing party are in power but are getting blamed for not fixing everything in one year and making everyone rich again * the right wing party presided over 14 years of decline, are super unpopular, and chose a black woman with a Nigerian name as leader, so all the racists have switched to.. * the far right party, run/owned by our own mini Trump, who wants to cut our healthcare in half, give tax cuts to billionaires, and is currently stoking xenophobia and nationalism amongst the white working class"
+
+* :::=== RoundSparrow_Commentary : December 20, 2013 - "Vladimir Putin, Conservative Icon
+The Russian president is positioning himself as the world's leading defender of traditional values."
+By Brian Whitmore https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be_president_if_trumps/nbc9mvv/
+
+UsedToHaveThisName 2022-04-27
+
+"It doesn't really matter whether MAGA does or not. MAGA was the useful group of idiots that got Trump elected to get the Project 2025 agenda implemented. The right people are mostly in the right places to fulfill Project 2025.
+
+Overall progress of Project 2025 stands at 47%."
