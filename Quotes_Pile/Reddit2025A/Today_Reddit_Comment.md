@@ -124,3 +124,11 @@ ChadTstrucked 2021-08-20
 * :::=== RoundSparrow_Commentary : Twitter-think meme-thinking Twitter-length logic. Explain marriage between religions, predudice between atheists / Upanishads / Torah / Bible / Quran groups? Explain why men in poverty are not as attractive as wealthy men? Explain why women vote for Putin? Explain why women vote for Trump? Explain why people who use spare time and free time on social media don't support Malala since year 2012 and year 2013 when she became world famous? And instead, spend their free time constantly discussing their addiction to Trump mocking messages? Completely avoidant of Malala messages, books? Explain how mothers want Donald Trump to be role model for thier children, including dauthers, while avoding Malala as a role model for thier children? Explain sports stars and rock stars who have massive groupies in every city, even when they are public bigots? Detailed dicussion, not Twitter-think. Malala wrote an entire book explaining the situations and experiences:
 “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbb8stn/
+
+secondtaunting 2021-02-03
+
+"What’s with the traditional family values bullshit? I’ve heard that a bunch. It’s so stupid."
