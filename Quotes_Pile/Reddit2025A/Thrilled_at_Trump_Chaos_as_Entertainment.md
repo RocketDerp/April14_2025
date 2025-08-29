@@ -697,3 +697,8 @@ Front page of Reddit. People feeding fiction electric messages to Americans for 
 
 "the dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites now down to 10 seconds or less, lowest-common-denominator programming, credulous presentations on pseudoscience and superstition, but [especially a kind of celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE).” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3b1bf/this_trolling_is_so_entertaining/
