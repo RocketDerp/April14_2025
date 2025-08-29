@@ -549,3 +549,20 @@ QXR_LOTD 2020-01-21
 Pritzker still has his flaws, but he’s been consistent in his views, and aggressive towards Trump without having to resort to just copying his rhetoric."
 
 * :::=== RoundSparrow_Commentary :  This is a war for hearts and minds. Entertainment enslavement, death by LOL, as defined in 1985 book "Amusing Ourselves To Death" by Neil Postman. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/  We are losing a *race to the bottom* of human cognition. Vibe politics is vibe entertainment, this goes way beyond election and is **informaiton warfare**, hearts and minds warfare to self-harm the USA by addiction to antics and attraction to "bad-ass" behaviors. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n2upwz/jd_just_dance_vance_troll/nb9v2h6/
+
+lokiofsaassgaard 2021-03-29
+
+<img width="1300" height="878" alt="image" src="https://github.com/user-attachments/assets/7a459d26-cfd7-44bc-b1c8-9a9f2a36a83e" />
+
+&nbsp;
+
+"Here’s the thing. I’m one of those people who can’t stand Newsom. But I also can’t stand the people who chose not voting at all because Kamala Harris’ politics weren’t perfect. Newsom can eat my toe, but I’d still rather see him do this stupid bullshit because at least he’s doing *something*"
+
+* :::=== RoundSparrow_Commentary :  "this stupid bullshit" - calling for more "this stupid bullshit". That's what a meme addicted population does. Constantly craves more entertainment stupid content. Idiocracy. Entertainment enslavement, death by LOL, as defined in 1985 book "Amusing Ourselves To Death" by Neil Postman. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ - 1985 was when California Entertainment President Ronald Reagan was second term in office. The parallels of entertainment itself wrecking society. 
+!!!!!! To be ultra clear, the thing is, I don't want to be right. This isn't ABOUT me being right or Neil Postman being right in 1985 - in only so much that if it (Postman / Surkov) IS correct that this (always more antics) is driving our behavior / Apple iPhone and iPad addiction as Neil Postman explains in his writings - then we are in a feedback loop. Clearly as unpopular as I am, I'm not addressing any issue other than pointing out the predictability of Donald Trump's antics politics being based on Russian Surkov techniques and mass man social discoveries. I cant stand living in this stupid bullshit for OVER TEN FULL YEARS. It was exhausting to see people so anti-book anti-intellectual anti-c0mpassion anti-love back in 2014, and it gets worse every year in USA. ===:::
