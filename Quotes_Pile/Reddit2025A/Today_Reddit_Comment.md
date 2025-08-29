@@ -415,3 +415,11 @@ valamaladroit 2022-03-13
 superspacetrucker **2025-07-01 (new account)**
 
 "Maga will shift gears and worship anyone who attacks libs or anyone Maga hates. It's not trumps character they like, it's that someone is finally expressing the hate they feel towards others and it gives them permission to be as awful as they are."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n34g5q/cdc_leader_drops_bombshell_rfk_jr_admission/nbbe5md/
+
+pUmKinBoM 2011-07-06
+
+"And seemingly so do a lot of Americans. It's crazy how much American's hate children of all backgrounds."
