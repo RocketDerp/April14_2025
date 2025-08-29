@@ -538,4 +538,14 @@ Jake_loves_pizza 2025-02-01 (new this year)
 
 * :::=== RoundSparrow_Commentary : Entertaining the audience, amusing the audience. Addressing Cambridge Analytica and Kremlin informaiton warfare with more mockery.
 "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia
-- vibes politics that plays right into the absurd / surreal foundation of Surkovian information warfare. Instead of addressing brainrot in the population, the aftermath of stragetic meme bombing by Cambridge Analytica, it puts focus on figurehead vs. figurehead, JD Vance in this case. Mocking Tony Clifton performers is not resisting Tony Clifton's act and screenplay. We The People are as egaged as ever in entertainment addictions. ===:::
+... Vibe politics that plays right into the absurd / surreal fiction foundation of Surkovian information warfare. Instead of addressing brainrot domination in the population, the aftermath of stragetic meme bombing by Cambridge Analytica, it puts focus on figurehead vs. figurehead, JD Vance in this case. Mocking Tony Clifton performers is not resisting Tony Clifton's act and screenplay. We The People are as egaged as ever in entertainment addictions. ===:::
+
+&nbsp;
+
+QXR_LOTD 2020-01-21
+
+"Before primaries is exactly when you should be pointing out disqualifying factors. We shouldn’t be allowing an opportunistic corporate stooge build momentum when we can direct that support to other candidates.
+
+Pritzker still has his flaws, but he’s been consistent in his views, and aggressive towards Trump without having to resort to just copying his rhetoric."
+
+* :::=== RoundSparrow_Commentary :  This is a war for hearts and minds. Entertainment enslavement, death by LOL, as defined in 1985 book "Amusing Ourselves To Death" by Neil Postman. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/  We are losing a *race to the bottom* of human cognition. Vibe politics is vibe entertainment, this goes way beyond election and is **informaiton warfare**, hearts and minds warfare to self-harm the USA by addiction to antics and attraction to "bad-ass" behaviors. ===:::
