@@ -1086,3 +1086,10 @@ https://old.reddit.com/r/nextfuckinglevel/comments/1n2ev4s/farmer_flips_car_that
 
 Choice marriage honesty.     
 https://old.reddit.com/r/SipsTea/comments/1n2dw76/thoughts/
+
+&nbsp;
+
+WAKE UP AMERICA front page of Reddit    
+Woke to what, exactly? Finnegans Wake / Woke / Irish author James Joyce 1924.   
+Media woke. Woke to media ecology. Not alseep in meme state, rectionary thinking.   
+https://old.reddit.com/r/OfficeSpeak/comments/1n2gpaj/trump_does_not_plan_to_leave_office_wake_up/
