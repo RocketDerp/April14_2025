@@ -465,3 +465,21 @@ blightsteel101 2016-10-17
 So are Republicans gonna stick to mass graves, or do yall think they'll jump straight to ovens?"
 
 * :::=== RoundSparrow_Commentary : Fiction addicts are treating the situation like it is a weekly TV fiction series with a new episode coming next week, speculating on what will happen next (mass graves?) as they are trilled (often citing popcorn consumption on Reddit) at the *action* happening. Detached from compassion and humanism, in love with the (Reddit, social device) media machines delivering the stimulating content. Don't confuse this Reddit messsaging with comedy or satire, this has been ongoing for over TEN FULL YEARS, the engagement (addiction) to Donald Trump antics and anti-reality. This is REALLY what is happening, media addicts feeding a media-centered leadership that has adopted Russian Surkov techniques. No other politicans have been able to satiate so many information system addictions. It is a very sick society that sickents (poisons) minds, described in Neil Postman's 1985 book "Amusing Ourselves To Death" about media ecology. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbd0l6t/
+
+steppedinhairball  2017-12-15
+
+"Putin owns Murdock. Murdock, at age 93, married a Russian scientist last year."
+
+* :::=== RoundSparrow_Commentary : Twitter-thinking short-length messaging. Doesn't name the spouse, doesn't provide a date, doesn't link an article. The context of this discussion is Fox News being bad, with zero self-awareness of how Reddit users believe trash media messages. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcozw5/
+
+da2Pakaveli 2017-10-02
+
+"Right-wing (extremist) populists have always been conman who teamed up with the rich afterwards to eliminate the labor movement"
