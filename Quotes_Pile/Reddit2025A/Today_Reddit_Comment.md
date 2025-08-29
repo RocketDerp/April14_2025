@@ -94,3 +94,14 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_
 Subject_Impress 2020-04-01
 
 "This is another example of TDS making liberals dumb. If anything the EU and all of their leaders are Russian assets. They are continuing to help fund Russia's invasion of Ukraine with their purchases of Russian oil and gas. How much is the US buying? None"
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n371mz/too_busy_chasing_farm_workers_and_carrying_out/nbbl4z5/
+
+Frustrated_Nerd  2014-08-14
+
+"There was one 10 minute video where he shows his written manifesto. I read it was uploaded "right before the shooting"'. I watched the whole video on Twitter but it didn't specify a time or anything like that.
+
+I'm also not sure how true it is that they'd be posting about this for months. Their social media got taken down before their name was public."
+
