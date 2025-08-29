@@ -283,3 +283,23 @@ Majestic_Jackass  2013-08-23
 "People pointed out America first is an isolationist mindset. We are in the find out stage of FAFO.
 
 I don’t know when it’ll happen but we’re on a trajectory where eventually we’ll leave NATO or they’ll kick us out. There’s a future NWO where we aren’t at the top. Without being active members in the global economy, Americans of this future will have to be fully self reliant."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcouav/
+
+Bargadiel 2012-02-04
+
+"My Trumper mom is convinced that this is because "all these countries have taken advantage of us" but when I asked her what specifically they did, she had no idea and tried to change the subject.
+
+The tarrifs were already an indirect way to just make everything more expensive for everyday Americans, but doing away with the deminimis rules is a blatant slap in the face to everyone. It's an attempt to discourage any and all global commerce, from important stuff to even mundane purchases.
+
+Charging someone 18% on a Pokemon card they order from Japan doesn't do anything but harm small businesses and individuals. That Trump is trying to convince us that somehow it's the other countries fault is so fucked up."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcnefy/
+
+Hair_I_Go  2018-06-24
+
+"I feel like we’re being isolated, little by little"
