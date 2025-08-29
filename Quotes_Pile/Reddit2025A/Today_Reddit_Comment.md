@@ -515,3 +515,15 @@ But then what. We've still got groups like Proud Boys and 3 percenters and even 
 You know that old adage about how "A lie makes it around the world before the Truth even gets its boots on". This is basally the physical manifestation of that. People can tear things down faster than good ethical people can build things up. How do you get back to a society that values the hard sweaty work of "building things up" and "lifting others".
 
 The currently popular ideology seems to be "tear things down and be cruel and selfish"."
+
+&nbsp;
+
+https://old.reddit.com/r/Futurology/comments/1n2mcir/new_research_argues_societal_collapse_benefits_99/nb7zja4/
+
+00rb 2019-03-05
+
+"Also, people suffer when society is ABOUT to collapse. The same thing that causes the collapse causes the suffering.
+
+People do much better during the peak of the civilization."
+
+* :::=== RoundSparrow_Commentary :  Yes. Parenting in Palestine. Getting married in Palestine in October 2021 and having your first child in June 2023 leads to a terrible nightmare. People all around you in Palestine are organizing a terror attack on Isreal the morning of October 7, 2023 (Putin's birthday) and from that day forward your life is Hell. At least the Hell hasn't stopped at the end of August 2025 when I write this commentary. Parenting in Palestine is constant stress. Donald Trump leadership of the USA is constant stress if you don't think fiction and chaos are awesome entertainment for you and the future of children. ===:::
