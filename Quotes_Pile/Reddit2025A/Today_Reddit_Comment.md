@@ -1,3 +1,30 @@
+# Friday August 29, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3547m/trump_cancels_kamala_harris_secret_service_detail/nbb3iy0/
+
+Reno_Potato 2025-01-21 (new this year)
+
+"Not just your country. I'm in fucking Canada and out of 6 immediate neighbours 3 are Maple MAGA and are all women.
+
+I made the mistake of bringing up politics with one the other day...    
+*"Oh I love what Trump is doing down there. He's a hero, we need someone like that in Canada"*   
+*"Why don't you move down to the States then?"* -me   
+
+F%#$ing irony is that she's on disability and benefitting from a long list of social services which would be the first to be cut under a Trumplike regime.   
+I keep saying that MAGA is not a problem unique to America: similar parties and sentiments are rising worldwide. Even darker days are ahead."
+
+
+&nbsp;
+
+* :::=== RoundSparrow_Commentary : The MAGA "movement" is not unique to USA, and people keep ignoring that Putin and Trump are best buddies and working together. The Internet Research Agency worked with Cambridge Analytica as agreed by Trump in November 2012 to alter the minds and behaviors of ALL PEOPLE.
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети."
+We have HARD VALIDATED FACTUAL EVIDENCE going back **to year 2014** diclosed to We The People, the public world wide: "It examined thousands of tweets sent between 2014 and 2017. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University." - https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+
+.
+
 # Thursday August 28, 2025
 
 &nbsp;
