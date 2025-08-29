@@ -685,3 +685,15 @@ What Surkov has done with Putin / Kremlin since year 2000 was *intential*, weapo
 https://old.reddit.com/r/politics/comments/1n2jj9u/gavin_newsom_says_trump_wants_to_run_for_a_third/
 
 "You Think He Is Joking?" - No American people think mocking Trump's poop diapers, mocking Trump's orange skin, mocking his golf course outings is the most hillarious, amusing, engaging and funny jokes ever created. For OVER TEN YEARS AND TWO MONTHS, since June 2025, social machines hum with mocking and insulting of how terrible Trump is playing Tony Clifton acts. It never ends. Sincerity, science, goodness, honesty have all been abandoned in favor of people insulting and mocking. We are living in a total mockery. We are a joke as a nation. People are attracted to trash entertainment.  People are entirely avoiding nonfiction, unable to face up that a 1985 book 'Amusing Ourselves To Death" about media ecology explains the media addiction problems of USA August 2025. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n35nbi/i_must_confess/
+
+Front page of Reddit. People feeding fiction electric messages to Americans for the sake of creeating bewilderment. Copycats to the Internet Research Agency. A population so addicted to Russian's information warfare since March 2013, they compusively are now addicted to the constant entertainment and stimulation of having "an enemy* within. MAGA values, the "enemy" within of immigrants and liberals, but now everyone in USA has an out-group "enemy within" to attack and dehumanize with electric media machines. This is all what Carl Sagan warned us in 1995 book, ***Celebration of Ignorance*** behavioirs. A whole nation celebraint how entertaining and thrilling it is to adopt predatory ignorance as a tool.
+
+"the dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites now down to 10 seconds or less, lowest-common-denominator programming, credulous presentations on pseudoscience and superstition, but [especially a kind of celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE).” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
