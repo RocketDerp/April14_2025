@@ -347,3 +347,23 @@ Peter Thiel
 * :::=== RoundSparrow_Commentary : A lot of this is about the parties *feasting upon* the meme addeled population in USA. Cambridge Analytica and the Internet Research Agency were the key to creating the War Against Relaity that is described September 9, 2014 in public: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - of which we not know the IRA was online in 2013: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
 "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." Denial abounds, the USA and NATO have had their asses kicked in an information war, it is NOT ONLY the USA. "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" (Conservatives) - https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america 
 ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be_president_if_trumps/nbccj9z/
+
+we_are_sex_bobomb 2011-05-23
+
+"Trump doesn’t have shit. The bottom line is that MAGA voters want a bad person to do the deplorable things they wish upon others but are too cowardly to execute themselves. So “liking” the guy is entirely beside the point.
+
+Thats why creeps like Ted Cruz stay in power forever despite being utterly repulsive. It doesn’t matter. Being likeable doesn’t matter. Trump never needed to be likeable, he only needed to be ruthless.
+
+Vance will have to prove himself to the same crowd. Is he willing to do what his voters won’t, to punish the people they hate? That is what matters.
+
+At the end of the day, they’ll get behind Vance as long as he proves himself to be cruel enough to do the dirty work of America’s worst people."
+
+* :::=== RoundSparrow_Commentary : An important concept to understand about fiction believers who are avoidant of nonfiction. Allah / God in The Bible is a horrible monster who kills everyone who disagrees with him (Noah's Ark)... yet people still praise and bow down to Allah / God. We do not teach this monomyth pattern in schools, we do not teach comparative mythology, **fiction exploitations of the human brain** for thousands of years... in our schools. Donald Trump is Mythological and frequently described as Jesus / God by Americans. The *attraciton to fiction* is a problem of Fox News HDTV fiction, Reddit messages fiction, Twitter fiction, Facebook fiction, Church fiction, etc. Parents indoctrinate their own children into these abusive fiction stories: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Octoer 8, 2013. ===:::
+
+
