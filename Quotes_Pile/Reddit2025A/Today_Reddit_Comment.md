@@ -67,3 +67,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_w
 GreyScope 2015-07-29
 
 "They’ll hang around like a bad smell on the front pages or so until the papers/news realise they don’t make ratings. I’m on a strategy of the sooner I never hear about them ever again the better (apart from being arrested of course)"
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_went_down_for_a_minute_and_then/nbhatgu/
+
+PomegranateMinimum15 2021-09-21
+
+"So where are the kids. Are they active on social media ? Ivanka for example. She having a good day? Im seriously nor going to check..I try to skil his fucking voice and face and family also when i can. Because when h3 dies .it.sgoing to be so many conspiracies and movies and bs. Ughhh we will not be done with its face for a while"
