@@ -1136,3 +1136,8 @@ Hashtag assertGood
 https://old.reddit.com/r/technology/comments/1n3tmnr/trump_is_dead_trends_on_x_heres_what_we_know/    
 https://old.reddit.com/r/OutOfTheLoop/comments/1n3tdtj/whats_up_with_people_saying_that_trump_is_dead/
 
+&nbsp;
+
+Not True for Tony Clifton, he alteres his appearance.    
+Not True for Donald J Trump.    
+https://old.reddit.com/r/memes/comments/1n3wt5s/lmao/
