@@ -81,3 +81,18 @@ PomegranateMinimum15 2021-09-12
 &nbsp;
 
 "So where are the kids. Are they active on social media ? Ivanka for example. She having a good day? Im seriously nor going to check..I try to skil his fucking voice and face and family also when i can. Because when h3 dies .it.sgoing to be so many conspiracies and movies and bs. Ughhh we will not be done with its face for a while"
+
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_went_down_for_a_minute_and_then/nbhmjsr/
+
+HBun16 2017-09-11 (9/11)
+
+<img width="1172" height="512" alt="image" src="https://github.com/user-attachments/assets/9e95361e-8424-445c-a453-1d8e2b8be8dd" />
+
+&nbsp;
+
+"This MF would fake his own demise, and come back telling his followers he met God and was told to come back and do great things. His supporters would lap it up like pigs in slop."
