@@ -96,3 +96,37 @@ HBun16 2017-09-11 (9/11)
 &nbsp;
 
 "This MF would fake his own demise, and come back telling his followers he met God and was told to come back and do great things. His supporters would lap it up like pigs in slop."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n41bdu/dictator_hideandseek_now_streaming_in_the_us/nbhmifr/
+
+DruidicMagic 2019-03-29
+
+<img width="1064" height="1300" alt="image" src="https://github.com/user-attachments/assets/2dd15037-029c-4b4d-903c-f9dad6c40f18" />
+
+&nbsp;
+
+"Humanity awaits with baited breath the most anticipated obituary drop since World War II."
+
+* :::=== RoundSparrow_Commentary : My entire media ecology project is named "Wake Indra", around *Finnegans Wake*, death rituals of Dublin Ireland metaphors of Bible verse John 1:1 www.WakeIndra.com - "Wake" as in James Joyce's themes. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n41bdu/dictator_hideandseek_now_streaming_in_the_us/nbhkmbh/
+
+Tholian_Bed 2024-11-24
+
+"Within a week or so of Donnie meeting with Putin so he can be told what Vlad expects from him, Russia did a massive missile strike on Kyiv and killed more than a dozen people and wounded hundreds.
+
+Civilians. That is what Russia attacks with their missiles. They do not use their missiles against the Ukrainian troops slaughtering their own soldiers, with a casualty ratio of 4:1 in favor of the Ukrainian defenders.
+
+Why is Russia fighting this way? Because they intend to simply destroy Ukraine on all fronts until it collapses. This is known.
+
+President Dzhokhar Dudayev - "Russians sick with russism" https://www.youtube.com/watch?app=desktop&v=d7xJl3ZrFeI&t=102s
+
+Americans are sick with Trumpism. Different from Russism. Trumpism, is being a craven bootlicker for evil men. The supporters lick Donnie's boots, and Donnie licks Putin's."
+
+&nbsp;
