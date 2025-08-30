@@ -1146,3 +1146,8 @@ https://old.reddit.com/r/memes/comments/1n3wt5s/lmao/
 
 Joyce ARG / Trump ARG / Babel Tower ARG     
 https://old.reddit.com/r/comics/comments/1n3zpdi/choose_your_weapon/
+
+&nbsp;
+
+Media literacy dead, Animal Farm.    
+https://old.reddit.com/r/okbuddycinephile/comments/1n3yxr7/media_literacy_is_a_zombie/
