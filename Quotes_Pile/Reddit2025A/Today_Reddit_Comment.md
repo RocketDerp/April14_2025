@@ -70,8 +70,14 @@ GreyScope 2015-07-29
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_went_down_for_a_minute_and_then/nbhatgu/
 
 PomegranateMinimum15 2021-09-21
+
+<img width="1366" height="1038" alt="image" src="https://github.com/user-attachments/assets/681b7b98-2724-4e37-8682-84064c215b79" />
+
+&nbsp;
 
 "So where are the kids. Are they active on social media ? Ivanka for example. She having a good day? Im seriously nor going to check..I try to skil his fucking voice and face and family also when i can. Because when h3 dies .it.sgoing to be so many conspiracies and movies and bs. Ughhh we will not be done with its face for a while"
