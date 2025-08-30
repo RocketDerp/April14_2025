@@ -1,3 +1,641 @@
+# Friday August 29, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3547m/trump_cancels_kamala_harris_secret_service_detail/nbb3iy0/
+
+Reno_Potato 2025-01-21 (new this year)
+
+"Not just your country. I'm in fucking Canada and out of 6 immediate neighbours 3 are Maple MAGA and are all women.
+
+I made the mistake of bringing up politics with one the other day...    
+*"Oh I love what Trump is doing down there. He's a hero, we need someone like that in Canada"*   
+*"Why don't you move down to the States then?"* -me   
+
+F%#$ing irony is that she's on disability and benefitting from a long list of social services which would be the first to be cut under a Trumplike regime.   
+I keep saying that MAGA is not a problem unique to America: similar parties and sentiments are rising worldwide. Even darker days are ahead."
+
+* :::=== RoundSparrow_Commentary : The MAGA "movement" is not unique to USA, and people keep ignoring that Putin and Trump are best buddies and working together. The Internet Research Agency worked with Cambridge Analytica as agreed by Trump in November 2012 to alter the minds and behaviors of ALL PEOPLE.
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети."
+We have HARD VALIDATED FACTUAL EVIDENCE going back **to year 2014** disclosed to We The People, the public world wide: "It examined thousands of tweets sent between 2014 and 2017. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University." - https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3547m/trump_cancels_kamala_harris_secret_service_detail/nbayz5c/
+
+MaceNow 2019-03-03
+
+"He’s not going down. They won. He’ll die surrounded by friends and family when he goes. We lost. And we’re just at the start of it."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3547m/trump_cancels_kamala_harris_secret_service_detail/nbb8u2l/
+
+D50 2009-04-30
+
+"I’m not an expert but I believe the concept of Karma would suggest that Trump will suffer in a future life, not that he would face punishment in this one.
+
+It’s a nice thought."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3547m/trump_cancels_kamala_harris_secret_service_detail/nbb63l0/
+
+yorapissa 2024-09-08 (joined at election 2024)
+
+"There is also the historic example of Hitler, Mussolini or Kadafi. Unfortunate that they dragged a lot of people to the grave before them. Let’s see if America truly is the special country we claim we are and how far we will be dragged before it’s gets stopped in its tracks. I remember, a long time ago, in high school history classes thinking “ how did the German people let that happen?”. It’s becoming a haunting thought now when I can see how easily it’s happening here and how meaningless the word “American” can become with so much un-American activity being condoned by supposedly very self declared American Patriots."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3547m/trump_cancels_kamala_harris_secret_service_detail/nbaxj6t/
+
+The_Jolly_Dog 2013-03-26
+
+"It’s amazing how Trump so perfectly represents the absolute worst of humanity. Petty little toddler"
+
+* :::=== RoundSparrow_Commentary : Entertainment addiction. Reality TV "The Apprentice" audience. Constant mocking, total mockery. People addicted to the antics and communications mockery for OVER TEN YEARS AND TWO MONTHS. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbb16hw/
+
+ezekiellake 2011-06-28
+
+"If you talk like a Russian agent, and act like a Russian agent, and supports all the things a Russian agent would support … then it doesn’t actually matter whether you’re actually a Russian agent or not!"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbbaoqc/
+
+Subject-Historian11 2025-03-23 (new this year)
+
+"No doubt about it. Whether intentional or not the whole MAGAt cult is Russian assets"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbbez2t/
+
+attrezzarturo 2017-05-08
+
+"The final plan is US+Russia vs Europe, and it's working great"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbbg0w1/
+
+Master-Piccolo-4588 2020-10-03
+
+"Russia aimed for decades for this current state while Istael, while taking a different path, came to the same result."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n34o11/trump_is_objectively_a_russian_asset_portugals/nbbg26a/
+
+Subject_Impress 2020-04-01
+
+"This is another example of TDS making liberals dumb. If anything the EU and all of their leaders are Russian assets. They are continuing to help fund Russia's invasion of Ukraine with their purchases of Russian oil and gas. How much is the US buying? None"
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n371mz/too_busy_chasing_farm_workers_and_carrying_out/nbbl4z5/
+
+Frustrated_Nerd  2014-08-14
+
+"There was one 10 minute video where he shows his written manifesto. I read it was uploaded "right before the shooting"'. I watched the whole video on Twitter but it didn't specify a time or anything like that.
+
+I'm also not sure how true it is that they'd be posting about this for months. Their social media got taken down before their name was public."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n36y9l/they_are_too_busy_chasing_down_farmers_and/nbbg3ap/
+
+Stodles 2022-02-27
+
+"This only further confirms my theory - with foreknowledge of the attack, the FBI had plenty of time to create a fake paper trail for the name change and a fake manifesto... Then they allow the attack to happen and spin the narrative that he was trans..."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbb2hlv/
+
+ChadTstrucked 2021-08-20
+
+"Turns out, women are not that attracted to prejudice. Who knew?"
+
+* :::=== RoundSparrow_Commentary : Twitter-think meme-thinking Twitter-length logic. Explain marriage between religions, prejudice between atheists / Upanishads / Torah / Bible / Quran groups? Explain why men in poverty are not as attractive as wealthy men? Explain why women vote for Putin? Explain why women vote for Trump? Explain why people who use spare time and free time on social media don't support Malala since year 2012 and year 2013 when she became world famous? And instead, spend their free time constantly discussing their addiction to Trump mocking messages? Completely avoidant of Malala messages, books? Explain how mothers want Donald Trump to be role model for their children, including daughters, while avoiding Malala as a role model for their children? Explain sports stars and rock stars who have massive groupies in every city, even when they are public bigots? Detailed discussion, not Twitter-think reactions. Malala wrote an entire book explaining the situations and experiences:
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbb8stn/
+
+secondtaunting 2021-02-03
+
+"What’s with the traditional family values bullshit? I’ve heard that a bunch. It’s so stupid."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbbhsot/
+
+Minion_of_Cthulhu 2015-05-18
+
+"I'm sure he'll handle his confusion like his type always does, by lashing out at some completely unrelated issue that Fox News tells him is an existential threat."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbb8ek6/
+
+calmdownmyguy 2022-09-05
+
+"In their defense, people bring facts, statistics, and sources fucks up their circle jerk."
+
+* :::=== RoundSparrow_Commentary : Middle East imported tradition for thousands of years: Circle jerk Torah vs. Circle Jerk Quran fiction vs. Circle Jerk Bible fiction. All 3 fiction. Reddit /r/Conservative community fiction vs. /r/LeopardsAteMAGAFaces community fiction. Bluesky fiction vs. Fox News fiction. Nobody supporting Malala's reformations efforts of pro-science comprehension of nonfiction. Fiction addiction rules. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbbbsg4/
+
+DeadAnarchistPhil 2018-02-02
+
+"And yet they call people on the left “snowflakes”. 
+
+I’ve been over there and seen the circlekerking they do, it’s laughable. “The left don’t like reality and facts!” and “Anything they don’t agree with, they lose their shit!” It’s like they’re completely lacking any self-awareness. 
+
+Obviously not all of them are like that, some actually question Trump and the Government’s actions, those people then get accused of being “Brigaders”. 
+
+So any dissenting voices must be secret liberals, just like the Conservative politicians who came out against Trump during the election. All this time, they were secretly Liberal plants. 
+
+Utterly fucking bizarre and bereft of any self-awareness or intelligence."
+
+* :::=== RoundSparrow_Commentary : The mental wasteland aftermath of the Internet Research Agency working with Cambridge Analytica since March 2013. Minds programmed to *hate upon Americans* and **do everything they can to avoid nonfiction learning about Russian information warfare at any cost** to the USA future. Social media filter-bubble chambers, meme addicts, drunk on meme content that they repeat over and over in patterns. A meme addled population, wrecked by CA and IRA, compulsively mocking and insulting American people with their free time / spare time on social machines.
+“It’s June 2018, and I’m in Washington to testify to the U.S. Congress about Cambridge Analytica, a military contractor and psychological warfare firm where I used to work, and a complex web involving Facebook, Russia, WikiLeaks, the Trump campaign, and the Brexit referendum.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019
+===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbbnqj2/
+
+athenaprime 2010-07-09
+
+"He made the classical mistake of voting for an in-group and an out-group society, but believing he was gonna be the in-group. "There IS a Club, and you ain't in it," as George Carlin said.
+
+People who want boot-on-the-neck always think they're gonna be the boot right up until the moment they feel the treads on their own necks."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbb296h/
+
+Responsible-Room-645 2024-01-02
+
+"The only joy I’m getting out of this disaster is watching the Trump voters get screwed by the guy they were willing to move heaven and earth to re elect."
+
+* :::=== RoundSparrow_Commentary : Murder / suicide pact thinking. Islamic terrorist logic: my death is good because I get to take people who don't like my fiction Quran story interpretation. down with me. Reddit fiction content addicts thrilled to have murder/suicide nation of Fox News addicts taken down with them. Anti-Malala, avoidant of nonfiction, avoidant of education and teaching. What Surkov saw that few others recognized, that James Joyce articulates so beautifully in his Dublin metaphors of Finnegans Wake, is that human brains can be exploited to see thrills of SYSTEMS killing people. The Federal Governing SYSTEM is harming Trump voters, so Reddit users are thrilled to see humans crushed by a system. This was a core focus of Finnegans Wake illumination of Dublin society behaviors in year 1924. You can see this pattern play out all over the world, where people cheer on governments and systems and corporations who harm human beings. ""The only joy I’m getting out of this disaster is watching the Trump voters get screwed" by the *system of government*, by the machinery of the state. Reddit social machine addicts love machines, hate human persons. The thrill that messages off Fox News machines can destroy human lives, the thrill that Reddit messages can destroy human lives. That is what the Internet Research Agency and Cambridge Analytica has conditioned the ENTIRE population, all inclusive, even non-voters, even children age 12 exposed to their own parent's 'second hand smoke' (metaphor) of Cambridge Analytica mind programming (message patterns like: https://www.bbc.com/news/world-us-canada-45294192 ).
+"The only joy I’m getting out of this disaster is watching the Trump voters get screwed by the guy they were willing to move heaven and earth to re elect." - **note that the person is not describing authentic joy** that comes from *rescuing people from Trump and Murdoch and Putin*, but a militant stimulation (terrorists) of "joy" from watching human persons harmed by Donald Trump Systems. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n368yk/trump_voters_pregnant_fianc%C3%A9_is_denied_entry_to/nbbry8r/
+
+theOTHERdimension 2013-08-13
+
+"This man doesn’t see her as a person but as an object that should be benefitting him. He’s upset his property is not being allowed into the country because he feels he’s owed for his investment. His friends and family are the ones he sees as people. He has no qualms about asking her to leave everything she knows behind to benefit him but he refuses to reciprocate."
+
+* :::=== RoundSparrow_Commentary : Reddit users don't see Trump supporters as human persons, they view them as enemy combatants to cheer on their self-harm and destruction at the hands of Putin's information warfare since March 2013. They make no effort to rescue American people wrecked by the Internet Research Agency, they find it entertaining and thrilling to use their spare time and free time to kick the mentally injured and cheer on Putin's information warfare success. Americans hate Americans and are thrilled to see Americans suffering at the hands of anti-NATO information warfare. These are educated Americans on Reddit (typically white collar) with free time and spare time to make messaging sport of dehumanizing American people as Russian systems replace and take over classical USA values in 2025. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/marvelcirclejerk/comments/1n39iqs/huh/nbc6lkm/
+
+TotalNonsense0 2023-03-23
+
+"Anyone in the room with me right now could have an explosive device that would kill us all. Or the guy who just stepped out could have left such a device behind."
+
+* :::=== RoundSparrow_Commentary : I've lived in several Islamic nations / terrorist nations. Algeria, Jordan, Indonesia, Malaysia during the Arab Spring formation onward. I did not hide my presence. I had no security. I wore a Mexican Cowboy Hat walking around in public in Jordan for years while Syria war was starting up and ongoing. This is basic situational awareness. You promote Martin Luther King Jr's 1954 equation: *all hate in all places*. We are all human beings and if we don't message and communicate that love matters to every person on Earth, we end up driving ourselves into fantasy fiction addictions like you see in USA in August 2025 of Donald Trump society. Hate and mass dehumanization abounds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1n3ccuf/youth_gator_days/
+
+* :::=== RoundSparrow_Commentary : Front page of Reddit: I wish I had consumed more fiction video game content messages. Very popular with fiction addicted society. Abandonment of reality. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbca2ri/
+
+Alz_Own 2022-09-22
+
+"In essence, the Trump administration is now asking foreign mail carriers to act as import tax collectors on behalf of the U.S. government — something they aren't set up to do or may be refusing to do, she said.
+
+Reminds me of Mexico will pay for the wall, and expecting Mexico to go along with it"
+
+* :::=== RoundSparrow_Commentary : Fiction storytelling outsells nonfiction. Trump mythology draws in haters and lovers alike. People with free time / spare time on Reddit and Bluesky constantly express how much they hate the Tony Clifton antics of Donald Trump White House acts. [The Wall](https://www.youtube.com/watch?v=FZyE4bIylZ4) is one of Trump's greatest fictions storytelling performances. Of course it could have been physically constructed and paid for by the USA, but the fiction addiction (and symbol shuffle) in the audience is the key to Surkovian governing. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbca9ri/
+
+Gregory_Appleseed 2019-08-16
+
+"Oh no! Trade wars have consequences? What? That's so surprising! You mean to tell me, that punishing our trading partners for selling stuff and buying stuff is a bad thing? No way! I'm shocked! Shocked!"
+
+* :::=== RoundSparrow_Commentary : Tony Clifton audience, We The People, enjoy mocking how terrible and bad Donald Trump (Tony Clifton) act is. This antics politics (Tony Clifton style) so engages the audience that people compulsively react. Reactionary thinking abounds. People entirely unable to organize nonfiction solutions to the crisis: such as teaching Neil Postman's 1985 book "Amusing Ourselves To Death" or one of the hundreds of books about cult deprogramming in the public library. Or, [Robert Bernard Reich is an American professor, author, lawyer, and political commentator. He worked in the administrations of presidents Gerald Ford and Jimmy Carter](https://en.wikipedia.org/wiki/Robert_Reich) is active on Bluesky and YouTube and other social media, and could be repeated and asserted every 4 hours on Reddit. **Instead, the meme addled population is so addicted to the Tony Clifton** (Trump / Kremlin / White House) antics that they are glued with all free time and spare time to social machines for the hour by hour mockery. Surkov won, Russia won, since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcctqk/
+
+Vaulters 2016-03-29
+
+"We're so far past anything America's founders imagined here bud."
+
+* :::=== RoundSparrow_Commentary : Twitter-think one-line one-sentence shallow superficial. Of course the Founding Fathers imagined what **fiction systems of the Catholic Church had done to Europe mindsets** (imported from the Levant). The Great Seal of the United States of America instruction tool to defend against meme (John 1:1) warfare was created in 1776. We did not teach the population, We The People, were not educated on art symbolism and symbolic meanings of the founding fathers.
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller (immigrant to USA), 1987 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbceuqa/
+
+BlingBomBom **2025-08-03 (new account)**
+
+"Amerisharts wanted this. The few who didn't are outnumbered and outgunned by those who do, and they will also be blamed for everything that goes wrong.
+
+A superpower sleptwalk straight into fascism. It gets what it deserves."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcuw5j/
+
+blewnote1 2009-02-04
+
+"I think there's a portion of my country that is straight up evil, but I think there's also just a lot of incredibly stupid people. They were pissed about the price of eggs and whatever else so they pulled the lever for a guy who said ok national TV that immigrants were eating dogs and cats out of their neighbors backyards because they were too dumb to realize that when he said he could fix their problems he obviously could not.
+
+I don't know where we go from here. Seeing a picture of soldiers in front of a giant portrait of the leader of our country hanging on a building, a la Mussolini/Kim Jong Un/Putin/Stalin/etc is crazy (and that's just one of the 1000's of things that have happened, it's just what I saw most recently). Shit's fucked up."
+
+* :::=== RoundSparrow_Commentary : No ability to articulate Cambridge Analytica or Internet Research Agency influence on USA society since year 2013. Multiple nations have reported the IRA crisis, it isn't just domestic USA: https://www.theguardian.com/technology/2020/mar/13/facebook-uncovers-russian-led-troll-network-based-in-west-africa ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcgzz5/
+
+Majestic_Jackass  2013-08-23
+
+"People pointed out America first is an isolationist mindset. We are in the find out stage of FAFO.
+
+I don’t know when it’ll happen but we’re on a trajectory where eventually we’ll leave NATO or they’ll kick us out. There’s a future NWO where we aren’t at the top. Without being active members in the global economy, Americans of this future will have to be fully self reliant."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcouav/
+
+Bargadiel 2012-02-04
+
+"My Trumper mom is convinced that this is because "all these countries have taken advantage of us" but when I asked her what specifically they did, she had no idea and tried to change the subject.
+
+The tarrifs were already an indirect way to just make everything more expensive for everyday Americans, but doing away with the deminimis rules is a blatant slap in the face to everyone. It's an attempt to discourage any and all global commerce, from important stuff to even mundane purchases.
+
+Charging someone 18% on a Pokemon card they order from Japan doesn't do anything but harm small businesses and individuals. That Trump is trying to convince us that somehow it's the other countries fault is so fucked up."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n3bet7/us_shoppers_orders_canceled_as_world_shuts_down/nbcnefy/
+
+Hair_I_Go  2018-06-24
+
+"I feel like we’re being isolated, little by little"
+
+&nbsp;
+
+&nbsp;
+
+"The folks behind all this are people like Russ Vought (head of the office of budget management and primary author of project 2025) and Howard Lutnick (commerce secretary and former Cantor Fitzgerald which is the biggest supporter of the heritage foundation). They want an era of isolationism for the U.S. because they think this country can prosper with the right access to raw materials and straight labor. It’s why they are working on shutting down access to proper education, having Trump go on and on about acquiring Canada and Greenland which is partly for resources and accessibility but also as a buffer zone to the rest of the world. They have been convinced into thinking AI will figure out all the problems with Elon Musk (SpaceX/Starshield/Starlink/Grok) and Peter Thiel/Palantir. Elon Musk has already announced he won’t push for a 3rd party, instead he is putting his support behind Vance. With Trump being sick it’s not long before Vance is in control.
+
+Palantir is what found Elon his adult and kids DOGE team which most people have forgotten is really USDS which has access to most federal agencies. Understand that the decision by Trump to fire the NSA chief and his deputy may be in fact be the most dangerous decision Trump has made so far. Timothy Haugh like his last 2 predecessors were restricting the access and control Peter Thiel had through his company Palantir over the CIA/NSA to commit domestic surveillance. Palantir (just got $10 BILLION contract with the US government) who is now the biggest defense contractor for the CIA/NSA based on publicly available data on DOD contracts (they had $750 million added to their current contract a while back) along with providing day-to-day operations for both agencies. ⁠Palantir is contracted with state and local governments and police here in the U.S. The goal for Palantir is and always has been domestic surveillance. Palantir is an intelligence corporation which provides advanced analysis, sigint, osint, criminal and threat awareness and kill chain efficiencies to all levels of US, UK, and corporate agencies.
+
+Now comes the push for removing Trump from office.
+
+Elon was the early test to see if scapegoat mechanism would work and it sort of did for him. Which is sort of the plan, scapegoat mechanism at its finest. Peter is a ⁠key believer of scapegoat mechanism for which he says Trump fills that role. Thiel has been grooming JD Vance since 2011 as his benefactor and mentor, Thiel brought Vance to Mar-a- Lago to smooth over things with Trump so Vance could be VP, Thiel gave Vance $15 million in donations to run for Senate (the largest amount of money ever donated to a single Senate candidate ever)
+
+Scapegoat mechanism is simple that you have someone in power take on a lot of bad actions then remove them and so the masses feel it’s been all undone. The test case was Elon and DOGE which worked perfectly seeing as how all the federal investigations into Elon are gone and DOGE is still at all the federal agencies. Elon’s employee Amanda Scales still has the private server setup at OPM. All the data they got from the federal agencies and Treasury department when they had hard physical access is still under their control.
+
+In September when the gap fund bill signed in March expires along with the deferred resignation program kicking in and the SSA/IRS data being handed over to Palantir as part of the doge plan they have provided for updating the SSA system there could be a lot of reasons for him to be removed from office.
+
+Peter Thiel/Palantir just got what they wanted, access to a big enough database for the first step in complete surveillance.
+
+https://www.theguardian.com/us-news/2025/jun/30/trump-citizenship-database
+
+Peter is also a major defense contractor for the UK intelligence community and army along with the major police forces in the UK. He branched out to their healthcare a few years ago with a contract to shift through all the data at NHS England which is done now so Kier announced that NHS England will be shutdown (not NHS). Peter through his company has full access to Norway’s government and civilian surveillance services. Peter/Palantir provides direct support for the IDF (Israel) in all their operations from Gaza to the West Bank to Iran.
+
+Thiel directly owns roughly 180 million publicly traded shares which 7%. His investment firm Rivendell 7 owns 34 million publicly traded shares. Other Thiel vehicles own 37 million shares. Thiel entities also own 32.5 million supervoting Class B shares in Palantir. Those class b shares carry 10 votes while public ones carry only 1 vote per share. Now here is the kicker for why he still controls Palantir (link below), Thiel has sole investment power over 335,000 class F shares as part of a trust that has 49.99% voting interest in the company.
+
+https://www.barrons.com/articles/palantir-stock-chairman-peter-thiel-b63415c7
+
+Alex Karp the ceo of Palantir knew Thiel well before 2003 when Thiel tapped him to be ceo. Karp has condemned “woke” ways of thinking, calling woke a central risk to Palantir, that Palantir is a counter-example to companies he considers woke. Karp condemned pro-Palestine protests calling them an infection inside of our society, he remarked the peace activists are war activists and they should be sent to North Korea. Karp has said the west has a superior way of living and said he supports Palantir contract with ICE and using the software to enable separation of families.
+
+https://www.politico.com/news/2024/05/01/alex-karp-hill-summit-trump-00155571
+
+Peter Thiel
+
+• ⁠born in West Germany, grew up and went to school in the city of Swakopmund in West South Africa, the city was notorious for its continued glorification of Nazism to a dad who was an engineer working on uranium which was in violation of international law
+
+• ⁠Partners with Elon Musk at PayPal, early investor in Facebook
+
+• ⁠self-proclaimed Christian nationalist, believes women right to vote is wrong, idolizes Curtis Yarvin and Yarvin’s philosophy on replacing democracy with authoritarianism all in Peter’s own book
+
+• ⁠Palantir after its creation in 2003 was bailed out partly by In-Q-Tel the CIA’s venture capital firm"
+
+* :::=== RoundSparrow_Commentary : A lot of this is about the parties *feasting upon* the meme addled population in USA. Cambridge Analytica and the Internet Research Agency were the key to creating the War Against Reality that is described September 9, 2014 in public: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - of which we not know the IRA was online in 2013: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." Denial abounds, the USA and NATO have had their asses kicked in an information war, it is NOT ONLY the USA. "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" (Conservatives) - https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america 
+===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be_president_if_trumps/nbccj9z/
+
+we_are_sex_bobomb 2011-05-23
+
+"Trump doesn’t have shit. The bottom line is that MAGA voters want a bad person to do the deplorable things they wish upon others but are too cowardly to execute themselves. So “liking” the guy is entirely beside the point.
+
+Thats why creeps like Ted Cruz stay in power forever despite being utterly repulsive. It doesn’t matter. Being likeable doesn’t matter. Trump never needed to be likeable, he only needed to be ruthless.
+
+Vance will have to prove himself to the same crowd. Is he willing to do what his voters won’t, to punish the people they hate? That is what matters.
+
+At the end of the day, they’ll get behind Vance as long as he proves himself to be cruel enough to do the dirty work of America’s worst people."
+
+* :::=== RoundSparrow_Commentary : An important concept to understand about fiction believers who are avoidant of nonfiction. Allah / God in The Bible is a horrible monster who kills everyone who disagrees with him (Noah's Ark)... yet people still praise and bow down to Allah / God. We do not teach this monomyth pattern in schools, we do not teach comparative mythology, **fiction exploitations of the human brain** for thousands of years... in our schools. Donald Trump is Mythological and frequently described as Jesus / God by Americans. The *attraction to fiction* is a problem of Fox News HDTV fiction, Reddit messages fiction, Twitter fiction, Facebook fiction, Church fiction, etc. Parents indoctrinate their own children into these abusive fiction stories: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be_president_if_trumps/nbcdedh/
+
+digiorno 2010-05-12
+
+"They’re also sheep. Once Fox News starts saying he’s amazing for the economy and the second coming of Trump, then they’ll all line up to suck him off."
+
+* :::=== RoundSparrow_Commentary : It is important to distinguish a cult of *messages*, of *fiction storytelling cults*, from cult of individual people. L Ron Hubbard is dead, but his science fiction storytelling pattern can be reworked and adapted by leaders of Scientology fiction empire. Rupert Murdoch fiction media empire is wealth televangelism networks. Fiction addicts, message addicts, can even be lead by ChatGPT / GrokAI (etc) reproducing Quran fiction / Torah fiction / Bible fiction / Kremlin IRA fiction patterns of monomyth memes (John 1:1). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be_president_if_trumps/nbcgge6/
+
+tevs__ 2019-02-08
+
+"Hear me out, Trump is the eternal President, but he's 'convalescing'... Just Dance can be the front-man, and TrumpAI gives a daily recorded segment where he identifies the new enemies of the state.
+
+What a bright and pleasant future /s
+
+I can't mock too much, our UK politics is just as effed: * the left wing party are in power but are getting blamed for not fixing everything in one year and making everyone rich again * the right wing party presided over 14 years of decline, are super unpopular, and chose a black woman with a Nigerian name as leader, so all the racists have switched to.. * the far right party, run/owned by our own mini Trump, who wants to cut our healthcare in half, give tax cuts to billionaires, and is currently stoking xenophobia and nationalism amongst the white working class"
+
+* :::=== RoundSparrow_Commentary : December 20, 2013 - "Vladimir Putin, Conservative Icon.
+The Russian president is positioning himself as the world's leading defender of traditional values."
+By Brian Whitmore https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be_president_if_trumps/nbc9mvv/
+
+UsedToHaveThisName 2022-04-27
+
+"It doesn't really matter whether MAGA does or not. MAGA was the useful group of idiots that got Trump elected to get the Project 2025 agenda implemented. The right people are mostly in the right places to fulfill Project 2025.
+
+Overall progress of Project 2025 stands at 47%."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n39dvr/jd_vance_says_hes_ready_to_be_president_if_trumps/nbc9mgq/
+
+valamaladroit 2022-03-13
+
+"At this point, it doesn't matter whether they do or not. Trump has already created a fascist government. Even if MAGA completely turned on him before he dies, it doesn't matter. And whichever chud inherits the fascist system doesn't really need to worry about whether the MAGA base supports him or not. Republican politicians and SCOTUS don't want democracy anymore, so they'll be fine with whoever as long as that person keeps the grift/kleptocracy going. The voters don't matter under a fascist dictatorship, and that includes MAGA voters."
+
+&nbsp;
+
+superspacetrucker **2025-07-01 (new account)**
+
+"Maga will shift gears and worship anyone who attacks libs or anyone Maga hates. It's not trumps character they like, it's that someone is finally expressing the hate they feel towards others and it gives them permission to be as awful as they are."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n34g5q/cdc_leader_drops_bombshell_rfk_jr_admission/nbbe5md/
+
+pUmKinBoM 2011-07-06
+
+"And seemingly so do a lot of Americans. It's crazy how much American's hate children of all backgrounds."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n34g5q/cdc_leader_drops_bombshell_rfk_jr_admission/nbawmzk/
+
+No_Celery_5373 2025-06-11 (recent account)
+
+"I'm not saying we need a full wall here, but maybe us Canadians need to think about building a big sneeze guard."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n3dmol/detainees_report_alleged_uprising_at_alligator/nbcwz4k/
+
+james-HIMself 2018-10-02
+
+"Reads like an Onion article. I can’t believe this place even exists hypothetically. Even people that are in the US illegally deserve some level of compassion. Locking them in cages like animals without proper necessities. Sounds like a human rights nightmare. Gross"
+
+* :::=== RoundSparrow_Commentary :  The Onion is absurd humor and surreal comedy. Donald Trump and Putin and cast are playing Tony Clifton acts on the population. Nobody has found any practical defense against this information warfare tactic.
+"But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+"The brilliance of this new type of authoritarianism is that **instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd**." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, 2014 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n3dmol/detainees_report_alleged_uprising_at_alligator/nbcxjrc/
+
+BobbaBlep 2023-07-28
+
+"Name the next facility "Pedophile Pond" and throw all the GOP in there."
+
+* :::=== RoundSparrow_Commentary : Twitter-think short messaging on Reddit saying everyone in an entire political party ("GOP") should be put into a facility. That's become a repeated normal in USA society discourse, imprison or deport to Africa or Central America anyone you disagree with or that you don't comprehend or understand. MAGA values adopted deeper and deeper into mindsets. Short message and nicknames like "Pedophile Pond" are a form of ritual chanting. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n3dmol/detainees_report_alleged_uprising_at_alligator/nbdgdtv/
+
+blightsteel101 2016-10-17
+
+"Interesting how we're only getting the reports from the guards and politicians that want this camp set up.
+
+So are Republicans gonna stick to mass graves, or do yall think they'll jump straight to ovens?"
+
+* :::=== RoundSparrow_Commentary : Fiction addicts are treating the situation like it is a weekly TV fiction series with a new episode coming next week, speculating on what will happen next (mass graves?) as they are trilled (often citing popcorn consumption on Reddit) at the *action* happening. Detached from compassion and humanism, in love with the (Reddit, social device) media machines delivering the stimulating content. Don't confuse this Reddit messaging with comedy or satire, this has been ongoing for over TEN FULL YEARS, the engagement (addiction) to Donald Trump antics and anti-reality. This is REALLY what is happening, media addicts feeding a media-centered leadership that has adopted Russian Surkov techniques. No other politicians have been able to satiate so many information system addictions. It is a very sick society that sickens (poisons) minds, described in Neil Postman's 1985 book "Amusing Ourselves To Death" about media ecology. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbd0l6t/
+
+steppedinhairball  2017-12-15
+
+"Putin owns Murdock. Murdock, at age 93, married a Russian scientist last year."
+
+* :::=== RoundSparrow_Commentary : Twitter-thinking short-length messaging. Doesn't name the spouse, doesn't provide a date, doesn't link an article. The context of this discussion is Fox News being bad, with zero self-awareness of how Reddit users believe trash media messages. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcozw5/
+
+da2Pakaveli 2017-10-02
+
+"Right-wing (extremist) populists have always been conman who teamed up with the rich afterwards to eliminate the labor movement"
+
+* :::=== RoundSparrow_Commentary : It is a fundamental mistake to assume that compulsive fiction addicts are self-aware of their own fiction addictions. Humanity has not escaped monomyth meme patterns. People flock together to the same fiction storytelling. Quran, Bible, Torah, and feed it to their children. The addiction can be so deep in fiction, that terrorism develops and people bomb schools and teaching center of competing media systems. “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbdoq93/
+
+bgroins 2009-11-12
+
+"Growing up being conned weekly by their pastors kind of sets them up for that. Couple that with not learning critical thinking in school and it's a slam dunk."
+
+* :::=== RoundSparrow_Commentary : Children at the youngest age are fed for-profit Disney, fed advertising and marketing manipulation / Edward Bernays style mental exploitation for junk food, toys, overconsumption. Even if a family considers themselves atheists, they use even more powerful media than the very old 2,000 year-old Bible and put on Edward Bernays students content (marketing, product placement, etc). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbdxjdk/
+
+DoubleJumps 2010-07-03
+
+"The fact that they just double down every time they find out they were lied to is what blows my mind.
+
+Like at this point most of them know they get lied to and they are cool with it."
+
+* :::=== RoundSparrow_Commentary : These patterns of behavior ("double down every time") are reported time and time again. But social media users are not going to the public library to get cult deprogramming books. In the context of Fox News discussion, they aren't promoting Jen Senko's film: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad to rally around and keep repeating on social media until there is a mass movement to deal with this crisis. Instead, it is OVER 10 YEARS of streaming messages on every social machine platform hour after hour about the same **common media ecology problems** (symptoms). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcpsbt/
+
+sdmichael 2014-01-08
+
+"California does have its problems. That being said, it isn't "ruined" or "destroyed".
+
+I also am so confused how they lump in "greatest weather" with a governor "ruining" a state. Does the governor also control the weather or something?"
+
+* :::=== RoundSparrow_Commentary : These are all symptoms of context bewilderment. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbdfbit/
+
+ConfectionSoft6218 2020-02-01
+
+"I just moved from Cali to South Carolina, and everyone talks trash about the Golden State. Not one with that attitude has even visited the place. But somehow, they know all about it. When I suggest they check it out, it seems many have never flown on an airplane before."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcunnj/
+
+Lodgik 2016-03-31
+
+"It has become a truism among Republicans that the right is better with the economy. Everyone "knows" it's true. It's "common sense."
+
+It's so true that when it doesn't match up against reality, it's *reality* that's wrong.
+
+It's a commonly held belief that Obama wrecked the American economy. Nevermind that he took power during the 2008 economic recession and by the time his term ended, it was in a better position. The truism is that Democrats are bad for the economy, so he wrecked the economy.
+
+California is controlled by Democrats. So its economy simply *must* be terrible."
+
+* :::=== RoundSparrow_Commentary : I also observe that the people who live in USA who criticize USA, are entirely unable to describe the economy and conditions of Russia. They can't describe Moscow or Saint Pete or living conditions in Russia. But they are harshly critical of USA. They also can't describe Canada or Australia. Just certain that California is terrible. Not able to cite one single thing wrong with Moscow as a city for living, as if it is absolutely perfect in their mind. There are no USA Democrat political party in Moscow, so it must be better? They can't explain. https://www.youtube.com/watch?v=h3h--K5928M ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcrky2/
+
+technanonymous 2023-10-15
+
+"Newsom needs to publish stats on red states every day. He should be talking about the “market correction” of real estate in some area of Texas like Austin as people and companies move away. Austin is getting hammered with falling prices and increasing inventories. He needs to list poverty numbers, infant mortality, teen pregnancy, etc., along with crime numbers. The south east is a disaster."
+
+* :::=== RoundSparrow_Commentary : Here is a social media user calling for a father, a daddy like person, to do it for them. Why can't  Reddit community post these stats every 4 hours? Why can't social media users stop using their spare time and free time to call for others to do it and organize We The People into shifts to sustain repeated postings for months and months on important topics? Why is the idea of using social media to sustain and organize important USA rescue topics so absent from their minds? Has the Internet Research Agency and Cambridge Analytica conditioned social media users to NOT do this with the systems they are commenting on? They recognize it is for the greater good the nation, but they can't escape the idea of a male leader Donald Trump doing it for them or a male leader Newsom dong it for them. So programmed to not work peer to peer on social media information systems in asserting the most important society rescue efforts. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n3djgr/fox_news_is_worse_than_russian_state_propaganda/nbcwe0u/
+
+SewAlone 2018-12-20
+
+"And people eat it up. Fox is on tv at the gym, the car dealer, the military bases, etc..Propaganda all day long."
+
+* :::=== RoundSparrow_Commentary : I see smartphones on all day long in public. How many are using Twitter and Reddit and being mislead? Why can't people see the forest for the trees? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/wallstreetbets/comments/1n3k79q/most_trump_tariffs_ruled_illegal_in_blow_to_white/nbecqxf/
+
+EnterBruges 2013-07-27
+
+"Part of me is hopeful that you will take this opportunity to reflect upon how your chosen media "algorithms" slant and distort the truth to portray a certain narrative catered specifically to your worldview, but I presume that to be wishful thinking. Have a nice day"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3c38q/maga_hunger_games_taking_place_as_trump_health/nbdw2bz/
+
+julianriv 2018-07-25
+
+"All of Peter Thiel's money is not going to make Vance likable. The blind loyalty of millions of supporters is what gives Trump his clout to bend other elected representatives to his will. I don't see Vance ever getting there. When/if Trump dies about 1/2 of his loyal followers will spend the first several years denying that he is dead. Not jumping on the Vance band wagon."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3c38q/maga_hunger_games_taking_place_as_trump_health/nbcpkpn/
+
+Expert-Collection145 2022-10-09
+
+"Don't think that means he is harmless. George W. Bush was an charming empty suit that enabled Cheney to use Haliburton to rape the middle east and decrease the privacy and freedom of every American citizen."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n3c38q/maga_hunger_games_taking_place_as_trump_health/nbdhh3p/
+
+scroopydog 2018-07-25
+
+"The nightmare outcome here is the political party created from Peron. There are still Peronistas in Argentina, I wouldn’t be so quick to think that the party couldn’t just become MAGAists: they live to perpetuate a line of thinking that they consider an ideology (which is asinine because an ideology needs thought consistency, of which MAGA has none)."
+
+&nbsp;
+
+https://old.reddit.com/r/EhBuddyHoser/comments/1n3ks9g/you_heard_him_folks_get_this_man_a_plane/nbea5w0/
+
+stoicphilosopher 2014-02-23
+
+"Lol... I live in CA at the moment and this guy is 100% gold. The fact that I'm not sure if this post is real or not illustrates how good his trolling has become. Props to whatever social media intern came up with this."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n3mlzz/common_sense_gun_laws/nbf2cvs/
+
+Destriod777 2021-07-10
+
+"Conservatives will turn their back on every amendment in the constitution the second they realize it also extends to people they don’t like"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n3pnic/bessent_warns_of_us_embarrassment_if_tariffs/nbffqjs/
+
+MassHassEffect 2021-06-06
+
+"As a European: sadly yes. We have our own problems, but it pales in comparison to the fullblown authoritarian takeover in the US.
+
+We swore "never again" after WWII and enjoyed a historic long time of peace and wealth on the continent through an economic federation of states with open borders, which led to unification of that union. Nobody even remembers why we were ever in conflict with each other. Our unity makes us stronger than ever. And i'm pissed as fuck that we are now necessitated to re-arm ourselves to fight of not only Russia, but also our lifelong ally, the US, which is clearly in cahoots with Russia (please stop trying to annex Greenland)."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n3pnic/bessent_warns_of_us_embarrassment_if_tariffs/nbfn2g7/
+
+shesquared 2025-05-19 (recent account)
+
+"Specifically, Peter Theil and the tech broligarchy who want to rule everything and everyone. The dumb asses in this administration are all moronic puppets."
+
+* :::=== RoundSparrow_Commentary : Are Saudi Arabian royalty puppets to Mohammad's Quran science fiction and Mecca theme park? Is Disney puppets to their own Star Wars science fiction media empire? Is Fox News puppets to their own fiction storytelling? Comparative Mythology is not an optional learning subject, every person age 12 to age 120 needs to understand "The Power Of Myth". Egomania abounds. Humanity becomes **addicted to fiction, attracted to fiction in compulsive self-harm** https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth ===:::
+
+&nbsp;
+
+&nbsp;
+
 # Thursday August 28, 2025
 
 &nbsp;
