@@ -291,3 +291,12 @@ Graega 2017-04-22
 
 * :::=== RoundSparrow_Commentary : Russian information warfare (IRA) since March 2013 has cost the USA future in ways that can't even be measured or described.
 "Russian Twitter trolls stoked voter fraud fear before election. Months before Wikileaks messaged Donald Trump Jr. about a "rigged" election, Russian Twitter trolls sowed doubt about the election's validity online" https://www.nbcnews.com/tech/social-media/russian-twitter-trolls-stoked-voter-fraud-fear-election-n820771 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1n43hx4/kari_lake_lays_off_more_than_500_staff_at_voice/nbi2kld/
+
+WordPeas 2019-03-10
+
+"What difference does it make anymore compared to social media and internet-based news?"
+
