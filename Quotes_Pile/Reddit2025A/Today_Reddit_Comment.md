@@ -318,5 +318,14 @@ Prosthemadera 2014-12-14
 
 "Yeah it's been 8 months now and he's only now realizing who Trump is? His problems with Trump on not based on critical thinking or based on what would actually improve the country. It's all stupid vibes without using his higher brain functions at all."
 
-* :::=== RoundSparrow_Commentary : It's been over TEN YEARS AND TWO MONTHS since Trump skyrocketed to the center of all society attention. Message after message about Donald J Trump. A society so addicted to the Tony Clifton style of content creation. Even longer since the IRA started polluting Internet media systems, since March 2013. Experienced media profesisonals like Joe Rogan can't even recognize what media progessor Neil Postman described in his 1985 book, "Amusing Ourselves To Death". March 27, 2024 — "Our politics are unhinged. He saw it coming 40 years ago." - https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+* :::=== RoundSparrow_Commentary : It's been over TEN YEARS AND TWO MONTHS since Trump skyrocketed to the center of all society attention. Message after message about Donald J Trump. A society incredibly addicted to the Tony Clifton style of content creation. Even longer since the IRA started polluting Internet media systems, since March 2013. Experienced media profesisonals like Joe Rogan can't even recognize what media stuy professor Neil Postman described in his 1985 book, "Amusing Ourselves To Death". March 27, 2024 — "Our politics are unhinged. He saw it coming 40 years ago." - https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n43hag/joe_rogan_says_endorsing_trump_seems_like_a/nbi0hec/
+
+amateur_mistake 2012-03-19
+
+"If you have ever learned anything from Joe Rogan's show, you are probably now misinformed about that thing."
+
+* :::=== RoundSparrow_Commentary : It means misleading information--misplace, irrelevant, fragmented or superficial information--information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that **when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if **we take ignorance to be knowledge**?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1995 ===:::
