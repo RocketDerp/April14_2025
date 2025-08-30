@@ -1133,5 +1133,6 @@ https://old.reddit.com/r/law/comments/1n3xrcz/19_grounds_for_trumps_impeachment_
 Social media did not. 
 Call for resignation, repeat day 730 of calls for goodness campaign of Trump.   
 Hashtag assertGood    
-https://old.reddit.com/r/technology/comments/1n3tmnr/trump_is_dead_trends_on_x_heres_what_we_know/
+https://old.reddit.com/r/technology/comments/1n3tmnr/trump_is_dead_trends_on_x_heres_what_we_know/    
+https://old.reddit.com/r/OutOfTheLoop/comments/1n3tdtj/whats_up_with_people_saying_that_trump_is_dead/
 
