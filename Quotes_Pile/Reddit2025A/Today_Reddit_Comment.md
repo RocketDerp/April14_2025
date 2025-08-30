@@ -397,3 +397,14 @@ NotAStatistic2 2015-11-19
 This is purely performative on your end. Why don't you write a boilerplate letter and ask people to send it to their representatives if the files being released is so important to you?
 
 It's also pretty funny that you think anyone actually cares whether Trump is on the list or not, which is assuredly is. The public has known he's a sleazy pervert for decades now, and they love him for it. No one who voted for him cared about the Access Hollywood tapes, and they don't care about his trips to pedo island."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n46432/trump_heads_off_death_rumors_by_finally_appearing/
+
+"Finally Appearing"
+
+* :::=== RoundSparrow_Commentary : Front page of Reddit, "FINALLY APPEARING". He was gone for so long. People were breaking out in riots that they can't get their addiction satisified to mocking and insulting how terrible Tony Clifton's script is, how bad Tony Clifton performances are. Donald Trump was not the center of LIVE BREAKING NEWS attention, so his absence became LIVE BREAKING NEWS all over social media empires! This **shit-show of addiction to mocking and insulting Tony Clifton's act has been going on for over TEAN YEARS AND TWO MONTHS** since Donald Trump became center of every media platform's content! https://www.youtube.com/watch?v=WWHjKzQUWNQ ===:::
+
