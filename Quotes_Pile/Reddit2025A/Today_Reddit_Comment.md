@@ -595,3 +595,11 @@ https://old.reddit.com/r/politics/comments/1n3c38q/maga_hunger_games_taking_plac
 scroopydog 2018-07-25
 
 "The nightmare outcome here is the political party created from Peron. There are still Peronistas in Argentina, I wouldn’t be so quick to think that the party couldn’t just become MAGAists: they live to perpetuate a line of thinking that they consider an ideology (which is asinine because an ideology needs thought consistency, of which MAGA has none)."
+
+&nbsp;
+
+https://old.reddit.com/r/EhBuddyHoser/comments/1n3ks9g/you_heard_him_folks_get_this_man_a_plane/nbea5w0/
+
+stoicphilosopher 2014-02-23
+
+"Lol... I live in CA at the moment and this guy is 100% gold. The fact that I'm not sure if this post is real or not illustrates how good his trolling has become. Props to whatever social media intern came up with this."
