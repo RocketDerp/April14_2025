@@ -232,3 +232,23 @@ cjboffoli 2009-02-14
 "Cost of "owning the libs" I guess. Maybe next time don't vote for the convicted felon "businessman" who had six previous bankruptcies."
 
 * :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations / mind manipulation techniques](Surkovian_Onion_Eating.md). A (Reddit) twitter-length tweet-thinking **conditioned response** to the Putin media invasion situation. Russia has won *hearts and minds of the enemy* (USA) to self-harm since March 2013. "Maybe next time don't vote for the convicted felon" - maybe *next time* don't **suck down Russian information warfare every day on Reddit, USA every end-user**. Not just election voters, not just Republicans, not just MAGA, EVERYONE who can't describe Kremlin information warfare with self-awareness of crowd behaviors. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4246n/trump_pictured_heading_to_play_golf_after/nbhxgoz/
+
+NoPomegranate4794 2022-06-03
+
+"Also Maga IS Trump. A cult rarely ever survives after the leader dies. Heck one cult survived only because the newest leader pretended that the original leader was just in some kind of spiritual sleep and would return, and even then they still didn't last that long.
+
+Many have tried to be the new Trump and has fallen flat. I honestly don't know what it is, I personally find him about as appealing as a hangnail. But some people find him charismatic, and that's like the main weapon of a cult leader.
+
+JD Vance is already disliked by many even in the Maga verse, with some already calling for Rubio to take over instead of Vance. His level of weird awkwardness, is close to that of Ron DeSantis.
+
+Plus some will just be too depressed after. It's gonna happen and I'm genuinely worried about the rise in rates of self exits that might happen.
+
+I recently saw a video of a woman recording her dad where she faked reading an article that Trump died and his reaction was on the same level as if someone told him someone killed his own mother.
+
+Maga is at a level of worship that is scary and not for those on the outside."
+
+* :::=== RoundSparrow_Commentary : Such absolute overconfident ignraonce of comparative mythology and media ecology. That's like saying that films no longer sell because an adctor dies. or that the Mosque and Church no longer funciton because Jesus died. This person is in absolute denial that The Bible is science fiction, Fox News is scieence ficiton, the Quran from Mohammad is science fiction. Fox News / Newsmax / Twitter / Facebook / Reality TV media cults are not going to disappear. They change names. **Adam / Eve / Noah / Jesus / Mary - are ALL IN Mohammad's renamed recon. The Quran is another name for a revised Bible**.  It may no longer go by "MAGA", but unless media cults are educated and addressed directly, the USA will continue deeper and deeper into fiction addictions - as described in the 1985 book by NYU prof Neil Postman "Amusing Ourselves To Death". If people do not free their minds from monomyth fiction storytelling addictions, we can not have a free democracy of free thinkers. It is OPEN SEASON on Reddit meme addicts who compusively suck down monomyth fiction stories and are not self-aware of their own puppet behavior by content creators. The Russian IRA, China, Rupert Murdoch, etc, etc, etc, etc. And now ChatGPT has been trained on all these monomyth fiction stories and can generate new patterns to exploit human minds. ===:::
