@@ -252,3 +252,16 @@ I recently saw a video of a woman recording her dad where she faked reading an a
 Maga is at a level of worship that is scary and not for those on the outside."
 
 * :::=== RoundSparrow_Commentary : Such absolute overconfident ignraonce of comparative mythology and media ecology. That's like saying that films no longer sell because an adctor dies. or that the Mosque and Church no longer funciton because Jesus died. This person is in absolute denial that The Bible is science fiction, Fox News is scieence ficiton, the Quran from Mohammad is science fiction. Fox News / Newsmax / Twitter / Facebook / Reality TV media cults are not going to disappear. They change names. **Adam / Eve / Noah / Jesus / Mary - are ALL IN Mohammad's renamed recon. The Quran is another name for a revised Bible**.  It may no longer go by "MAGA", but unless media cults are educated and addressed directly, the USA will continue deeper and deeper into fiction addictions - as described in the 1985 book by NYU prof Neil Postman "Amusing Ourselves To Death". If people do not free their minds from monomyth fiction storytelling addictions, we can not have a free democracy of free thinkers. It is OPEN SEASON on Reddit meme addicts who compusively suck down monomyth fiction stories and are not self-aware of their own puppet behavior by content creators. The Russian IRA, China, Rupert Murdoch, etc, etc, etc, etc. And now ChatGPT has been trained on all these monomyth fiction stories and can generate new patterns to exploit human minds. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4246n/trump_pictured_heading_to_play_golf_after/nbi63hv/
+
+CumboxMold 2018-03-21
+
+"I am also genuinely worried about the rise of self-exits after MAGA realizes they have been lied to and taken for suckers... after they already lost their entire family, probably all of their non-like-minded friends, support group(s), and substantial amounts of money, whether via donations or merch. They gave up their entire lives... their life savings... their families, even their own children, for THIS?
+
+Edit: There will probably also be a new flavor of scam for those who have no desire to self-exit; maybe they will promise to help you get your family and/or money back. They are still gullible and easily led after all, that part wouldn't change..."
+
+* :::=== RoundSparrow_Commentary : Murder/suicide cults. Islamic terrorists faced with reality often flock to terrorism suicide tactics and media venues (Mosques) that teach heaven after death rewards. [Donald Tump $59.99 USA Bible](https://en.wikipedia.org/wiki/God_Bless_the_U.S.A._Bible) science fiction storybook promises heven **after death** rewards. ===:::
+
