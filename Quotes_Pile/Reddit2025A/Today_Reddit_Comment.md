@@ -300,3 +300,12 @@ WordPeas 2019-03-10
 
 "What difference does it make anymore compared to social media and internet-based news?"
 
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n43hag/joe_rogan_says_endorsing_trump_seems_like_a/nbi2d8l/
+
+Logistocrate 2022-02-11
+
+"He's infinitely worse though, his platform fed pro Trump bullshit to millions of his fans. Fuck Joe Rogan."
+
+* :::=== RoundSparrow_Commentary : So does Reddit, so does Bluesky, so does every media platform and media system. Endless reactions to Donald Trump playing Tony Clifton bullshit. ===:::
