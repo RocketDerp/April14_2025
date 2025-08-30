@@ -265,3 +265,18 @@ Edit: There will probably also be a new flavor of scam for those who have no des
 
 * :::=== RoundSparrow_Commentary : Murder/suicide cults. Islamic terrorists faced with reality often flock to terrorism suicide tactics and media venues (Mosques) that teach heaven after death rewards. [Donald Tump $59.99 USA Bible](https://en.wikipedia.org/wiki/God_Bless_the_U.S.A._Bible) science fiction storybook promises heven **after death** rewards. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4246n/trump_pictured_heading_to_play_golf_after/nbi9qyf/
+
+NoPomegranate4794 2022-06-03
+
+"My biggest worry is for farmers. They already have a higher than average self exit rate.
+
+"The National Rural Health Association reports that farmers are 3.5 times more likely to die by s****e than the general population."
+
+And they're more common to be family annihilators, so not only would they take themselves out, but there is the potential of them taking their whole family with them.
+
+That's followed up by the the religious zealots. Like there's been several stories about people who have taken themselves and their whole families out because they believe that this world was too wicked for them all to live in. They made the unilateral decision to destroy their family."
+
+* :::=== RoundSparrow_Commentary : “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. **It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken**. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ===:::
