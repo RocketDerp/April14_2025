@@ -386,3 +386,14 @@ DrifterNomadWanderer 2024-09-25
 
 "The only explanation for taking pride in cheating your way into something (from golf championships to a Nobel prize), is that Trump has never earned anything in his life."
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n45tbo/trump_spotted_departing_the_white_house_the_30th/nbj40j9/
+
+NotAStatistic2 2015-11-19
+
+"It's pretty adorable that you guys incessantly post this stuff on reddit as if it will spur anyone with any real authority into action.
+
+This is purely performative on your end. Why don't you write a boilerplate letter and ask people to send it to their representatives if the files being released is so important to you?
+
+It's also pretty funny that you think anyone actually cares whether Trump is on the list or not, which is assuredly is. The public has known he's a sleazy pervert for decades now, and they love him for it. No one who voted for him cared about the Access Hollywood tapes, and they don't care about his trips to pedo island."
