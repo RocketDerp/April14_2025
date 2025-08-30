@@ -175,4 +175,14 @@ Silvedl 2012-02-06
 
 "They spent years saying Biden was replaced by a body double. Now it’s our turn."
 
-* :::=== RoundSparrow_Commentary :  Compusive meme addicts, **compulsive fiction addicts** to the Surkov governing / IRA meme warfare since March 2013 **constantly call for more and more fiction-based governing*. Increase the fiction in society, We The People beg and beg every day on social machines. Fiction vs. fiction. Monomyth story vs. monomyth story. Bible fiction vs. Fox News fiction vs. Reddit fiction vs. Bluesky fiction vs. Facebook fiction. So many channels of fiction to choose from. ===:::
+* :::=== RoundSparrow_Commentary :  Compusive meme addicts, **compulsive fiction addicts** to the Surkov governing / IRA meme warfare since March 2013 **constantly call for more and more fiction-based governing**. Increase the fiction in society, We The People beg and beg every day on social machines. Fiction vs. fiction. Monomyth story vs. monomyth story. Bible fiction vs. Fox News fiction vs. Reddit fiction vs. Bluesky fiction vs. Facebook fiction. So many channels of fiction to choose from. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n43min/the_photo_of_trump_golfing_today/nbi4fqy/
+
+OkaySureBye 2020-09-06
+
+"This is supposed to dispel the death rumors. There's absolutely no hiding the health rumors at this point. The man runs exclusively on uppers and McDonald's."
+
+* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations techniques](Surkovian_Onion_Eating.md). A (Reddit) twitter-length tweet-thinking conditioned response to the situation. Egoism Reddit conditoning to not look deeper into the subject of media ecology and Russia's past 25 years of media public relations methods. **Donald Trump does not avoid BAD NEWS. Donald Trump thrives off the death wishes and mcoking. Donald Trump playing Tony Clifton** has engaged We The People for over TEN YEARS AND TWO MONTHS in nonstop mocking and insulting of how terrible Tony Clifton act is, Trump is a master. Surkov won since March 2013. ===:::
