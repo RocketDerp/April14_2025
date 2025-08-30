@@ -1141,3 +1141,8 @@ https://old.reddit.com/r/OutOfTheLoop/comments/1n3tdtj/whats_up_with_people_sayi
 Not True for Tony Clifton, he alteres his appearance.    
 Not True for Donald J Trump.    
 https://old.reddit.com/r/memes/comments/1n3wt5s/lmao/
+
+&nbsp;
+
+Joyce ARG / Trump ARG / Babel Tower ARG     
+https://old.reddit.com/r/comics/comments/1n3zpdi/choose_your_weapon/
