@@ -158,3 +158,21 @@ https://old.reddit.com/r/BlueskySkeets/comments/1n41bdu/dictator_hideandseek_now
 Dabster85 2019-12-08
 
 "Don’t get your hopes up. He’ll be Bernie for the weekend if GOP has anything to do with it. I expect secret service to walk in with him. Orange spray can in the background with an extra arm up his sleeves using the autopen on yet another bs executive order."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n43min/the_photo_of_trump_golfing_today/nbi7urs/
+
+Pocketfullofbugs 2016-11-06
+
+"I'm gonna call everything a body double or deep state or a lizard. What has acting reasonable gotten us? For this one I am going with three kids in a skin suit."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n43min/the_photo_of_trump_golfing_today/nbi9qiq/
+
+Silvedl 2012-02-06
+
+"They spent years saying Biden was replaced by a body double. Now it’s our turn."
+
+* :::=== RoundSparrow_Commentary :  Compusive meme addicts, **compulsive fiction addicts** to the Surkov governing / IRA meme warfare since March 2013 **constantly call for more and more fiction-based governing*. Increase the fiction in society, We The People beg and beg every day on social machines. Fiction vs. fiction. Monomyth story vs. monomyth story. Bible fiction vs. Fox News fiction vs. Reddit fiction vs. Bluesky fiction vs. Facebook fiction. So many channels of fiction to choose from. ===:::
