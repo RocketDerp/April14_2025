@@ -1122,3 +1122,8 @@ https://old.reddit.com/r/whatdoIdo/comments/1n3rlhf/my_girlfriend_killed_herself
 
 Prayer and school shooting. Pro-violence USA militant Christians (Campbell has in Power of Myth word "militant"). Badly educated church school. Badly educated Bible interpretation in USA.    
 https://old.reddit.com/r/MurderedByWords/comments/1n3pa59/the_hypocrisy_is_astounding/
+
+&nbsp;
+
+Social media recency bias and how few have made a list, a named list, of Trump badness.   
+https://old.reddit.com/r/law/comments/1n3xrcz/19_grounds_for_trumps_impeachment_and_removal/
