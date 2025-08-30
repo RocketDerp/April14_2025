@@ -185,4 +185,14 @@ OkaySureBye 2020-09-06
 
 "This is supposed to dispel the death rumors. There's absolutely no hiding the health rumors at this point. The man runs exclusively on uppers and McDonald's."
 
-* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations techniques](Surkovian_Onion_Eating.md). A (Reddit) twitter-length tweet-thinking conditioned response to the situation. Egoism Reddit conditoning to not look deeper into the subject of media ecology and Russia's past 25 years of media public relations methods. **Donald Trump does not avoid BAD NEWS. Donald Trump thrives off the death wishes and mcoking. Donald Trump playing Tony Clifton** has engaged We The People for over TEN YEARS AND TWO MONTHS in nonstop mocking and insulting of how terrible Tony Clifton act is, Trump is a master. Surkov won since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations techniques](Surkovian_Onion_Eating.md). A (Reddit) twitter-length tweet-thinking conditioned response to the situation. Egoism Reddit conditoning to not look deeper into the subject of media ecology and Russia's past 25 years of media public relations methods. **Donald Trump does not avoid BAD NEWS. Donald Trump thrives off the death wishes and mcoking. Donald Trump playing Tony Clifton** has engaged We The People for over TEN YEARS AND TWO MONTHS in nonstop mocking and insulting of how terrible Tony Clifton act is, Trump is a master. Surkov won since March 2013. The death rumors feed into Jesus resurection Surkov monomyth mind exploit patterns. LOUDER / MORE BLUNT: **"supposed to dispel the death rumors" is competely wrong, it isn't dispell, it is walking into the spotlight of social media attention** created by the JD Vance kickoff of the Tony Clifton holday 3-day weekend meme antics governing ...  https://www.youtube.com/watch?v=Rq_aRCWVHCs  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n43min/the_photo_of_trump_golfing_today/nbi1pej/
+
+IlluminatiLemonParty 2019-10-13 (note username is a mocking / meme meaning)
+
+"I know it's blurry and probably him but it looks off"
+
+* :::=== RoundSparrow_Commentary : Mocking-loving audience fixated on every move and shake of the Tony Clifton performance of Donald Trump for OVER 10 YEARS AND 2 MONTHS. ===:::
