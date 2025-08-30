@@ -1117,3 +1117,8 @@ People abandon good lives, so marriages and parenting abndonment in context.
 On a macro scale, humanity has Putin and Trump. Do we even desire peace and goodness?   
 Are we suicidal as a species with our anti-Malala values of avoiding learning?    
 https://old.reddit.com/r/whatdoIdo/comments/1n3rlhf/my_girlfriend_killed_herself/
+
+&nbsp;
+
+Prayer and school shooting. Pro-violence USA militant Christians (Campbell has in Power of Myth word "militant"). Badly educated church school. Badly educated Bible interpretation in USA.    
+https://old.reddit.com/r/MurderedByWords/comments/1n3pa59/the_hypocrisy_is_astounding/
