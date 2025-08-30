@@ -212,3 +212,13 @@ https://old.reddit.com/r/news/comments/1n43yfc/company_behind_jack_daniels_says_
 Ralphie99 2015-08-28
 
 "Canadian here — we don’t need American booze. We make plenty of our own and it’s just as good as anything made in the USA. Canadians were buying American booze out of habit, nothing more. Now their habits have changed. It will take a very long time for American brands to regain their lost market share in Canada, if it even happens."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n43yfc/company_behind_jack_daniels_says_canadian_boycott/nbi97l9/
+
+SavagRavioli 2023-11-28
+
+"It wasn't a response to tariffs, it was because Trump threatened them because Peter Thiel and his posse have a child hood dream of world domination, and fuckheads like this trying to gaslight it being over tariffs only make it where they should go for total annihilation of the industry at this point."
+
+* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations / mind manipulation techniques](Surkovian_Onion_Eating.md). A (Reddit) twitter-length tweet-thinking conditioned response to the situation. Egoism Reddit conditoning to not look deeper into the subject of media ecology and Russia's past 25 years of media public relations methods. ===:::
