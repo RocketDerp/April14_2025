@@ -1165,7 +1165,6 @@ https://old.reddit.com/r/PrequelMemes/comments/1n41cad/cis_did_nothing_wrong/
 &nbsp;
 
 The ultimate back-pocket weapon systems in reserve, that hate will save humanity.   
-The lesson to teach every child: if you keep hate handy, keep murder as the last resort, murder and killing will save you and he the lesson to pass down to the next generation of children.    
-https://old.reddit.com/r/comics/comments/1n4b8ba/thats_not_nice_oc/
-
+The lesson to teach every child: if you keep hate handy, keep murder as the last resort, murder and killing will save you and be the lesson to pass down to the next generation of children. Every society in every geography passes down the lesson as a trade-secret: prepare for war, prepare for death, don't prepare for psychologically asking nicely not to kill us all wtih romote ICBM and drone weapons.        
+https://old.reddit.com/r/comics/comments/1n4b8ba/thats_not_nice_oc/     
 Instead: why not use Twitter to teach cult behaviors and how Russian information warare has taken over Elon Musk's mind since March 2013? The Trump / IRA / Cambridge Analytica agreement of November 7. 2012? Musk isn't keeping up, Musk shows all the signs of information overload.    
