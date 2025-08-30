@@ -12,7 +12,7 @@ https://autistics.life/@RoundSparrow/115118006699148095
 
 # Donald Trump Death
 
-&nbps;
+&nbsp;
 
 https://people.com/andy-kaufman-s-best-friend-shares-thoughts-on-whether-comedian-faked-death-11704040
 
