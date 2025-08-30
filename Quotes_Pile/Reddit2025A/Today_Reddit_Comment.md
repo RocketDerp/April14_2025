@@ -49,3 +49,15 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_w
 FilthyTexas 2020-09-26
 
 "It will be a fake corpse. He will be escaping to another island where the real Epstein, the real Ken Lay and others who faked their deaths reside."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_went_down_for_a_minute_and_then/nbhhdya/
+
+budwise 2012-05-21
+
+"If Dems want to gain any control of this narrative, they should be fighting fire with fire. They should be shouting Vance is trying to kill Trump to take his spot from the roof tops. Then when he inevitably kicks the bucket they should continue to claim he had trump killed to sow as much division among MAGA as possible to weaken his grip on power. Vance won’t inherit his cult of personality."
+
+* :::=== RoundSparrow_Commentary : Fiction addicts demanding more ficiton to satiate their constant craving for more and more fiction governing. Surkov won since March 2013. Meme adelled nation. ===:::
+
+
