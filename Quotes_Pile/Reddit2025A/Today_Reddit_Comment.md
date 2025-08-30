@@ -151,3 +151,10 @@ DancingEurynome 2024-11-23
 
 "Well if its ok for the bluwhytes why is it not ok for Russia? If the answer is because blackmail and money that's not good enough. Im not for civilians dying but for standards in foreign and domestic policy, which it seems we do not have here in the states. When Bongino wrote that "this is no way to run an empire" I both wish he would have elaborated and dont really need him to. I feel like we all know that our own people are the biggest traffickers perverts and drug runners and are inexorably linked to those same characters in other nations. That's why Democrats have left their base on this issue and MAGA is catching on. Can Americans unite against these grossly criminal puppeteers? I wonder."
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n41bdu/dictator_hideandseek_now_streaming_in_the_us/nbhz3kf/
+
+Dabster85 2019-12-08
+
+"Don’t get your hopes up. He’ll be Bernie for the weekend if GOP has anything to do with it. I expect secret service to walk in with him. Orange spray can in the background with an extra arm up his sleeves using the autopen on yet another bs executive order."
