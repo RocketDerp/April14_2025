@@ -1109,3 +1109,11 @@ https://old.reddit.com/r/lol/comments/1n2oepb/lol/
 Female author, casual genocide on other planets metaphors. Shared **Public Dream** topics.   
 The Corruption of Athshe | The Word For World is Forest    
 https://www.youtube.com/watch?v=LvrKA-fR7MA
+
+&nbsp;
+
+Suicide stories. People telling how people with apparently happy lives.    
+People abandon good lives, so marriages and parenting abndonment in context.    
+On a macro scale, humanity has Putin and Trump. Do we even desire peace and goodness?   
+Are we suicidal as a species with our anti-Malala values of avoiding learning?    
+https://old.reddit.com/r/whatdoIdo/comments/1n3rlhf/my_girlfriend_killed_herself/
