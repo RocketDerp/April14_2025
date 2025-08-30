@@ -280,3 +280,14 @@ And they're more common to be family annihilators, so not only would they take t
 That's followed up by the the religious zealots. Like there's been several stories about people who have taken themselves and their whole families out because they believe that this world was too wicked for them all to live in. They made the unilateral decision to destroy their family."
 
 * :::=== RoundSparrow_Commentary : “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. **It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken**. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1n43hx4/kari_lake_lays_off_more_than_500_staff_at_voice/nbi2bkp/
+
+Graega 2017-04-22
+
+"She's from AZ, and let me tell you, if you're not already familiar with her: She is as Nazi as they come. She cost this state a fortune with her lies about 2020 being a stolen election. She would be standing at the lever, pulling it to release gas into the chamber, with a smile on her face. She is a hateful, evil piece of shit."
+
+* :::=== RoundSparrow_Commentary : Russian information warfare (IRA) since March 2013 has cost the USA future in ways that can't even be measured or described.
+"Russian Twitter trolls stoked voter fraud fear before election. Months before Wikileaks messaged Donald Trump Jr. about a "rigged" election, Russian Twitter trolls sowed doubt about the election's validity online" https://www.nbcnews.com/tech/social-media/russian-twitter-trolls-stoked-voter-fraud-fear-election-n820771 ===:::
