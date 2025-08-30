@@ -191,8 +191,16 @@ OkaySureBye 2020-09-06
 
 https://old.reddit.com/r/pics/comments/1n43min/the_photo_of_trump_golfing_today/nbi1pej/
 
-IlluminatiLemonParty 2019-10-13 (note username is a mocking / meme meaning)
+IlluminatiLemonParty 2019-10-13 (note username is a mocking / meme meaning. **An afficinado of trash media content** culture)
 
 "I know it's blurry and probably him but it looks off"
 
-* :::=== RoundSparrow_Commentary : Mocking-loving audience fixated on every move and shake of the Tony Clifton performance of Donald Trump for OVER 10 YEARS AND 2 MONTHS. ===:::
+* :::=== RoundSparrow_Commentary : Mocking-loving audience fixated on every move and shake of the Tony Clifton performance of Donald Trump for OVER 10 YEARS AND 2 MONTHS. Glued to the show. ===:::
+
+&nbsp;
+
+Jeffreyknows 2015-03-04
+
+"Is it me. But trumps never this quiet ever? If he knew all this was being said, he too narcissistic to not get on camera just to talk some shit like an old bitchy auntie"
+
+* :::=== RoundSparrow_Commentary : **I want my MTV!** https://www.youtube.com/watch?v=wTP2RUD_cL0 I want my amusement entertainment!!! I want my Donald Trump show of Tony Clifton acts!!! When is he coming back on main stages!!! Media addicts society calling for more and more and more and more FOR OVER TEN YEARS AND TWO MONTHS ===:::
