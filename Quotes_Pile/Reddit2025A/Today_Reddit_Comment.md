@@ -611,3 +611,13 @@ https://old.reddit.com/r/agedlikemilk/comments/1n3mlzz/common_sense_gun_laws/nbf
 Destriod777 2021-07-10
 
 "Conservatives will turn their back on every amendment in the constitution the second they realize it also extends to people they don’t like"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n3pnic/bessent_warns_of_us_embarrassment_if_tariffs/nbffqjs/
+
+MassHassEffect 2021-06-06
+
+"As a European: sadly yes. We have our own problems, but it pales in comparison to the fullblown authoritarian takeover in the US.
+
+We swore "never again" after WWII and enjoyed a historic long time of peace and wealth on the continent through an economic federation of states with open borders, which led to unification of that union. Nobody even remembers why we were ever in conflict with each other. Our unity makes us stronger than ever. And i'm pissed as fuck that we are now necessitated to re-arm ourselves to fight of not only Russia, but also our lifelong ally, the US, which is clearly in cahoots with Russia (please stop trying to annex Greenland)."
