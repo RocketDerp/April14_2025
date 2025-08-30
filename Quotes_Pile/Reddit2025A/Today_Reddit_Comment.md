@@ -25,3 +25,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_w
 UngusChungus94 2023-06-20
 
 "Which will probably backfire. There's gonna be a block party somewhere in almost every neighborhood in America after he's gone. It'll look even more wild when it happens on a Tuesday!"
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_went_down_for_a_minute_and_then/nbhhvtk/
+
+winedood 2019-06-05
+
+"They will just rename Labor Day as “Trump, our lord and savior day” "
