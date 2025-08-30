@@ -374,4 +374,15 @@ Alwayssunnyinarizona 2016-08-04
 
 That's his guiding principle. Lots of his followers, too, thinking these things are a matter of how much money you have to spend rather than, you know, *earning it*."
 
-* :::=== RoundSparrow_Commentary : Putin, Surkov, Trump, Musk (Twitter) have all learned that the IRA since March 2013 has turned We The People into enteratinment driven society. The Cambridge Analytica payloads have turned Americans into out-group haters, constantly repeating messages of mockery / dehumaanization / hate. Fiction addiction works. Surkov and Putin used this for 25 years in Russian, and the IRA adapted it for the world wide web. Now ChatGPT and GrokAI and other LLM systems have all be trained on this IRA + CA content. "When you're famous, they just let you do it" - when you make it a constant topic of media discussion, people fall. Just like the Church clergy opeated in the Middle Ages of Europe with famous fiction (Bible) stories. Donald Trump did earn his fain, Trump has mastered the Tony Clifton act. Americans eat it up, the more the audience mocks Tony Clifton (Trump), the more they are engaged. ===:::
+* :::=== RoundSparrow_Commentary : Putin, Surkov, Trump, Musk (Twitter) have all learned that the IRA since March 2013 has turned We The People into enteratinment driven society. The Cambridge Analytica payloads have turned Americans into out-group haters, constantly repeating messages of mockery / dehumaanization / hate. Fiction addiction works. Surkov and Putin used this for 25 years in Russian, and the IRA adapted it for the world wide web. Now ChatGPT and GrokAI and other LLM systems have all been trained on this IRA + CA content since year 2022. "When you're famous, they just let you do it" - when you make it a constant topic of media discussion, people fall. Just like the Church clergy opeated in the Middle Ages of Europe with famous fiction (Bible) stories. Donald Trump did earn his fain, Trump has mastered the Tony Clifton act. Americans eat it up, the more the audience mocks Tony Clifton (Trump), the more they are engaged. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n457kx/trump_asked_modi_for_nobel_backing_his_no_brought/nbihctk/
+
+DrifterNomadWanderer 2024-09-25
+
+"The only explanation for taking pride in cheating your way into something (from golf championships to a Nobel prize), is that Trump has never earned anything in his life."
+
