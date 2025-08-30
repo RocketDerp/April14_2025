@@ -58,6 +58,12 @@ budwise 2012-05-21
 
 "If Dems want to gain any control of this narrative, they should be fighting fire with fire. They should be shouting Vance is trying to kill Trump to take his spot from the roof tops. Then when he inevitably kicks the bucket they should continue to claim he had trump killed to sow as much division among MAGA as possible to weaken his grip on power. Vance won’t inherit his cult of personality."
 
-* :::=== RoundSparrow_Commentary : Fiction addicts demanding more ficiton to satiate their constant craving for more and more fiction governing. Surkov won since March 2013. Meme adelled nation. ===:::
+* :::=== RoundSparrow_Commentary : Fiction addicts demanding more ficiton to satiate their constant craving for more and more fiction governing. Surkov won since March 2013. Meme adelled nation. "cult of personality" is a shallow and superficial, people do not understand that Jesus is dead and the Bible continues to work. L Ron Hubbard is dead, the science ficton storytelling addicitons continue. Media cults of Fox News and Surkov monomyth patterns are **media cults**. Media cults are media cults, Reddit cults, HDTV cults, Bluesky cults, cults of mocking and insulting Donald Trump will continue as jokes and meme cults long long long after his death. Addiction to fiction, avoidance of nonfiction science. Memes to our death. "Amusing Ourselves to Death" - Neil Postman, 1985. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_went_down_for_a_minute_and_then/nbhl3my/
+
+GreyScope 2015-07-29
+
+"They’ll hang around like a bad smell on the front pages or so until the papers/news realise they don’t make ratings. I’m on a strategy of the sooner I never hear about them ever again the better (apart from being arrested of course)"
