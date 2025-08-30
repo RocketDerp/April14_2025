@@ -308,4 +308,15 @@ Logistocrate 2022-02-11
 
 "He's infinitely worse though, his platform fed pro Trump bullshit to millions of his fans. Fuck Joe Rogan."
 
-* :::=== RoundSparrow_Commentary : So does Reddit, so does Bluesky, so does every media platform and media system. Endless reactions to Donald Trump playing Tony Clifton bullshit. ===:::
+* :::=== RoundSparrow_Commentary : So does Reddit, so does Bluesky, so does every media platform and media system. Endless reactions to Donald Trump playing Tony Clifton bullshit. Compusive media addict behavior is Trumpism / MAGA. A nation swayed by thier horrific understanding of monomyth storytelling patterns. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1n43hag/joe_rogan_says_endorsing_trump_seems_like_a/nbi86xk/
+
+Prosthemadera 2014-12-14
+
+"Yeah it's been 8 months now and he's only now realizing who Trump is? His problems with Trump on not based on critical thinking or based on what would actually improve the country. It's all stupid vibes without using his higher brain functions at all."
+
+* :::=== RoundSparrow_Commentary : It's been over TEN YEARS AND TWO MONTHS since Trump skyrocketed to the center of all society attention. Message after message about Donald J Trump. A society so addicted to the Tony Clifton style of content creation. Even longer since the IRA started polluting Internet media systems, since March 2013. Experienced media profesisonals like Joe Rogan can't even recognize what media progessor Neil Postman described in his 1985 book, "Amusing Ourselves To Death". March 27, 2024 — "Our politics are unhinged. He saw it coming 40 years ago." - https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+
