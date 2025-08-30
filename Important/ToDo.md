@@ -1156,3 +1156,8 @@ https://old.reddit.com/r/okbuddycinephile/comments/1n3yxr7/media_literacy_is_a_z
 
 Putin destabalizing Germany. Real WW3     
 https://old.reddit.com/r/worldnews/comments/1n3zsf4/we_are_already_in_conflict_with_russia_merz_says/
+
+&nbsp;
+
+Star wars prequels and war against governing / rebellion.    
+https://old.reddit.com/r/PrequelMemes/comments/1n41cad/cis_did_nothing_wrong/
