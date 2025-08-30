@@ -1151,3 +1151,8 @@ https://old.reddit.com/r/comics/comments/1n3zpdi/choose_your_weapon/
 
 Media literacy dead, Animal Farm.    
 https://old.reddit.com/r/okbuddycinephile/comments/1n3yxr7/media_literacy_is_a_zombie/
+
+&nbsp;
+
+Putin destabalizing Germany. Real WW3     
+https://old.reddit.com/r/worldnews/comments/1n3zsf4/we_are_already_in_conflict_with_russia_merz_says/
