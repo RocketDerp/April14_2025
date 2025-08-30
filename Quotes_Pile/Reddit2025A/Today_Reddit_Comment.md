@@ -329,3 +329,13 @@ amateur_mistake 2012-03-19
 "If you have ever learned anything from Joe Rogan's show, you are probably now misinformed about that thing."
 
 * :::=== RoundSparrow_Commentary : It means misleading information--misplace, irrelevant, fragmented or superficial information--information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that **when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if **we take ignorance to be knowledge**?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1995 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1n41zgl/when_donnies_tariffs_work/nbhqioh/
+
+joekerr9999 2019-09-13
+
+"Trump continues to lie about the effects of the Trump tariff tax. He's really going to be challenged to push this whopper. It's another case of who are you going to believe - Trump or your lying eyes? Prices are climbing everywhere but of course working class wages are not."
+
+* :::=== RoundSparrow_Commentary : In a Tony Clifton performance, Trump creates tension with the social media audience, with We The People, loudly proclimating via loudspeaker electric systems... surreal absurd things like **"I am the greatest and smartest man or woman in the whole world!!!"** while people mock and insult Donald Trump (Tony Clifton) constantly. This has been gong on for over TEN YEARS AND TWO MONTHS. Every media system is full of constant Donald Trump mocking messages, hate messaging. Emotional tension as the audience is *glued to their seat* waiting for the next entertainment absurd Trump surreal antic to appear on media systems. Americans eat this shit show up, Surkovian Russia year 2011 techniques ===:::
