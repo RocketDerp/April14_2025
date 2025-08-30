@@ -339,3 +339,21 @@ joekerr9999 2019-09-13
 "Trump continues to lie about the effects of the Trump tariff tax. He's really going to be challenged to push this whopper. It's another case of who are you going to believe - Trump or your lying eyes? Prices are climbing everywhere but of course working class wages are not."
 
 * :::=== RoundSparrow_Commentary : In a Tony Clifton performance, Trump creates tension with the social media audience, with We The People, loudly proclaiming via loudspeaker  / meme amplifying electric media systems... surreal absurd things like **"I am the greatest and smartest man or woman in the whole world!!!"** while people mock and insult Donald Trump (Tony Clifton) constantly. This has been gong on for over TEN YEARS AND TWO MONTHS. Every media system is full of constant Donald Trump mocking messages, hate messaging. Emotional tension as the audience is *glued to their seat* waiting for the next entertainment absurd Trump surreal antic to appear on media systems. Americans eat this shit show up, Surkovian Russia year 2011 techniques ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1n41zgl/when_donnies_tariffs_work/nbhr4wi/
+
+Glittering_Arm7635 2024-12-27
+
+"I sold beer from 2016-2021. An 18/16oz case was usually 16.99, could be 14.99 on sale. Yesterday at the store I went over to take a peak and could not believe a 21.99 price tag. This was at a Kroger near indianapolis."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1n41zgl/when_donnies_tariffs_work/nbhv47n/
+
+floofnstuff 2017-04-07
+
+"Sadly he got a lot of votes on bring down the prices on goods and services, this was even a single issue vote for some. He obviously had tariffs in mind all along and I find it hard to believe that no one in his administration knew how tariffs would impact our economy. Voters were straight up lied to - anything for a vote to keep Trump out of jail."
+
+* :::=== RoundSparrow_Commentary : "What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019**. ===:::
