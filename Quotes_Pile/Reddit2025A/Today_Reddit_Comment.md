@@ -33,3 +33,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_w
 winedood 2019-06-05
 
 "They will just rename Labor Day as “Trump, our lord and savior day” "
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_went_down_for_a_minute_and_then/nbhfrin/
+
+OldGuto 2018-12-26
+
+"Or he's in ICU, no rants from him on X or Truth about being "the most alive president in history unlike sleepy Joe" - even in a normal hospital bed he'd be ranting."
