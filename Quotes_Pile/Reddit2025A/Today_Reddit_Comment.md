@@ -41,3 +41,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_w
 OldGuto 2018-12-26
 
 "Or he's in ICU, no rants from him on X or Truth about being "the most alive president in history unlike sleepy Joe" - even in a normal hospital bed he'd be ranting."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_went_down_for_a_minute_and_then/nbhfiou/
+
+FilthyTexas 2020-09-26
+
+"It will be a fake corpse. He will be escaping to another island where the real Epstein, the real Ken Lay and others who faked their deaths reside."
