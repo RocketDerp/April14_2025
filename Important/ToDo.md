@@ -1127,3 +1127,11 @@ https://old.reddit.com/r/MurderedByWords/comments/1n3pa59/the_hypocrisy_is_astou
 
 Social media recency bias and how few have made a list, a named list, of Trump badness.   
 https://old.reddit.com/r/law/comments/1n3xrcz/19_grounds_for_trumps_impeachment_and_removal/
+
+&nbsp;
+
+Social media did not. 
+Call for resignation, repeat day 730 of calls for goodness campaign of Trump.   
+Hashtag assertGood    
+https://old.reddit.com/r/technology/comments/1n3tmnr/trump_is_dead_trends_on_x_heres_what_we_know/
+
