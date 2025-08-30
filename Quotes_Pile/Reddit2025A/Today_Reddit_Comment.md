@@ -603,3 +603,11 @@ https://old.reddit.com/r/EhBuddyHoser/comments/1n3ks9g/you_heard_him_folks_get_t
 stoicphilosopher 2014-02-23
 
 "Lol... I live in CA at the moment and this guy is 100% gold. The fact that I'm not sure if this post is real or not illustrates how good his trolling has become. Props to whatever social media intern came up with this."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n3mlzz/common_sense_gun_laws/nbf2cvs/
+
+Destriod777 2021-07-10
+
+"Conservatives will turn their back on every amendment in the constitution the second they realize it also extends to people they don’t like"
