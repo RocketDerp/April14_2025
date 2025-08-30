@@ -357,3 +357,21 @@ floofnstuff 2017-04-07
 "Sadly he got a lot of votes on bring down the prices on goods and services, this was even a single issue vote for some. He obviously had tariffs in mind all along and I find it hard to believe that no one in his administration knew how tariffs would impact our economy. Voters were straight up lied to - anything for a vote to keep Trump out of jail."
 
 * :::=== RoundSparrow_Commentary : "What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019**. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n457kx/trump_asked_modi_for_nobel_backing_his_no_brought/nbikmqo/
+
+Alwayssunnyinarizona 2016-08-04
+
+<img width="1036" height="514" alt="image" src="https://github.com/user-attachments/assets/845f0211-5dfc-483f-870a-a8c34877ecb5" />
+
+&nbsp;
+
+"When you're famous, they just let you do it.
+
+That's his guiding principle. Lots of his followers, too, thinking these things are a matter of how much money you have to spend rather than, you know, *earning it*."
+
+* :::=== RoundSparrow_Commentary : Putin, Surkov, Trump, Musk (Twitter) have all learned that the IRA since March 2013 has turned We The People into enteratinment driven society. The Cambridge Analytica payloads have turned Americans into out-group haters, constantly repeating messages of mockery / dehumaanization / hate. Fiction addiction works. Surkov and Putin used this for 25 years in Russian, and the IRA adapted it for the world wide web. Now ChatGPT and GrokAI and other LLM systems have all be trained on this IRA + CA content. "When you're famous, they just let you do it" - when you make it a constant topic of media discussion, people fall. Just like the Church clergy opeated in the Middle Ages of Europe with famous fiction (Bible) stories. Donald Trump did earn his fain, Trump has mastered the Tony Clifton act. Americans eat it up, the more the audience mocks Tony Clifton (Trump), the more they are engaged. ===:::
