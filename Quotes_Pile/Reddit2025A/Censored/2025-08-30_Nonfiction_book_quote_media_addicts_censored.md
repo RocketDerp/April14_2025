@@ -1,4 +1,4 @@
-Can not quote a non-fictoin book about media addict behaviors / smartphone addicts on Reddit comments, censored.   
+Can not quote a non-fiction book about media addict behaviors / smartphone addicts on Reddit comments, censored.   
 
 https://old.reddit.com/r/instant_regret/comments/1n424c4/lady_misses_justin_timberlake_singing_to_her/nbi8ind/
 
