@@ -204,3 +204,11 @@ Jeffreyknows 2015-03-04
 "Is it me. But trumps never this quiet ever? If he knew all this was being said, he too narcissistic to not get on camera just to talk some shit like an old bitchy auntie"
 
 * :::=== RoundSparrow_Commentary : **I want my MTV!** https://www.youtube.com/watch?v=wTP2RUD_cL0 I want my amusement entertainment!!! I want my Donald Trump show of Tony Clifton acts!!! When is he coming back on main stages!!! Media addicts society calling for more and more and more and more FOR OVER TEN YEARS AND TWO MONTHS ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n43yfc/company_behind_jack_daniels_says_canadian_boycott/nbi6fc8/
+
+Ralphie99 2015-08-28
+
+"Canadian here — we don’t need American booze. We make plenty of our own and it’s just as good as anything made in the USA. Canadians were buying American booze out of habit, nothing more. Now their habits have changed. It will take a very long time for American brands to regain their lost market share in Canada, if it even happens."
