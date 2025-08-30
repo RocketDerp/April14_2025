@@ -74,7 +74,7 @@ GreyScope 2015-07-29
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1n3ztlg/guys_truth_social_went_down_for_a_minute_and_then/nbhatgu/
 
-PomegranateMinimum15 2021-09-21
+PomegranateMinimum15 2021-09-12
 
 <img width="1366" height="1038" alt="image" src="https://github.com/user-attachments/assets/681b7b98-2724-4e37-8682-84064c215b79" />
 
