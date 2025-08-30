@@ -130,3 +130,24 @@ President Dzhokhar Dudayev - "Russians sick with russism" https://www.youtube.co
 Americans are sick with Trumpism. Different from Russism. Trumpism, is being a craven bootlicker for evil men. The supporters lick Donnie's boots, and Donnie licks Putin's."
 
 &nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n41bdu/dictator_hideandseek_now_streaming_in_the_us/nbi6b0t/
+
+Tholian_Bed 2024-11-24
+
+"If you watch the video, it is a specific term. It is understood by Russia's neighbors all too well. It is the name for Russian imperial delusions.
+
+"Russism" is the belief that Russia is the center of a genuine historically real empire, that includes the Baltic states, ceretainly all of Eastern Europe, but historically Ukraine has been the chief prize of Russist fantasies. Ukraine, is Russia, according to Russism.
+
+It's this idea of a "Greater Russia" which includes, btw, Alaska. It's a delusion. But that video is from 1995, the Yeltsin years. 30 years ago, people who were soon to be assassinated (Dudayev was assassinated shortly after this video, and Chechnya is now a Russian vassal) told us what we are facing today."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n41bdu/dictator_hideandseek_now_streaming_in_the_us/nbhp5ny/
+
+DancingEurynome 2024-11-23
+
+"Well if its ok for the bluwhytes why is it not ok for Russia? If the answer is because blackmail and money that's not good enough. Im not for civilians dying but for standards in foreign and domestic policy, which it seems we do not have here in the states. When Bongino wrote that "this is no way to run an empire" I both wish he would have elaborated and dont really need him to. I feel like we all know that our own people are the biggest traffickers perverts and drug runners and are inexorably linked to those same characters in other nations. That's why Democrats have left their base on this issue and MAGA is catching on. Can Americans unite against these grossly criminal puppeteers? I wonder."
+
