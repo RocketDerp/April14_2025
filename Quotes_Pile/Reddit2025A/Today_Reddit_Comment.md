@@ -621,3 +621,13 @@ MassHassEffect 2021-06-06
 "As a European: sadly yes. We have our own problems, but it pales in comparison to the fullblown authoritarian takeover in the US.
 
 We swore "never again" after WWII and enjoyed a historic long time of peace and wealth on the continent through an economic federation of states with open borders, which led to unification of that union. Nobody even remembers why we were ever in conflict with each other. Our unity makes us stronger than ever. And i'm pissed as fuck that we are now necessitated to re-arm ourselves to fight of not only Russia, but also our lifelong ally, the US, which is clearly in cahoots with Russia (please stop trying to annex Greenland)."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n3pnic/bessent_warns_of_us_embarrassment_if_tariffs/nbfn2g7/
+
+shesquared 2025-05-19 (recent account)
+
+"Specifically, Peter Theil and the tech broligarchy who want to rule everything and everyone. The dumb asses in this administration are all moronic puppets."
+
+* :::=== RoundSparrow_Commentary : Are Saudi Arabian royalty puppets to Mohammad's Quran science fiction and Mecca theme park? Is Disney puppets to their own Star Wars science fiction media empire? Is Fox News puppets to their own fiction storytelling? Comparative Mythology is not an optional learning subject, every person age 12 to age 120 needs to understand "The Power Of Myth". Egomania abounds. Humanity becomes **addicted to fiction, attracted to fiction in compusive self-harm** https://en.wikipedia.org/wiki/Joseph_Campbell_and_the_Power_of_Myth ===:::
