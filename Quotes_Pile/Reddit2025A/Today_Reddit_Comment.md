@@ -221,4 +221,14 @@ SavagRavioli 2023-11-28
 
 "It wasn't a response to tariffs, it was because Trump threatened them because Peter Thiel and his posse have a child hood dream of world domination, and fuckheads like this trying to gaslight it being over tariffs only make it where they should go for total annihilation of the industry at this point."
 
-* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations / mind manipulation techniques](Surkovian_Onion_Eating.md). A (Reddit) twitter-length tweet-thinking conditioned response to the situation. Egoism Reddit conditoning to not look deeper into the subject of media ecology and Russia's past 25 years of media public relations methods. ===:::
+* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations / mind manipulation techniques](Surkovian_Onion_Eating.md). A (Reddit) twitter-length tweet-thinking conditioned response to the situation. Egoism Reddit conditoning to not look at MULTIPLE NATO NATIONS since year 2013. Forest for the **domestic USA** trees perspective absent. Even nations outside NATO that are enemy to China / Russia / North Korea: https://www3.nhk.or.jp/nhkworld/en/news/20250814_11/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n43yfc/company_behind_jack_daniels_says_canadian_boycott/nbi452j/
+
+cjboffoli 2009-02-14
+
+"Cost of "owning the libs" I guess. Maybe next time don't vote for the convicted felon "businessman" who had six previous bankruptcies."
+
+* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations / mind manipulation techniques](Surkovian_Onion_Eating.md). A (Reddit) twitter-length tweet-thinking **conditioned response** to the Putin media invasion situation. Russia has won *hearts and minds of the enemy* (USA) to self-harm since March 2013. "Maybe next time don't vote for the convicted felon" - maybe *next time* don't **suck down Russian information warfare every day on Reddit, USA every end-user**. Not just election voters, not just Republicans, not just MAGA, EVERYONE who can't describe Kremlin information warfare with self-awareness of crowd behaviors. ===:::
