@@ -21,6 +21,16 @@ Elon Musk does not have dementia. Tucker Carlson does not have dementia. The ent
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnwqbe/
+
+NachoWindows 2018-08-23
+
+"I posted some bizarre shit during my mental breakdown and drinking binges, but this shit is truly insane."
+
+* :::=== RoundSparrow_Commentary : It is weaponized and deliberate. This is Russian informationw warfare. War Againt Reality. https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+
+&nbsp;
+
 # Saturday August 30, 2025
 
 &nbsp;
