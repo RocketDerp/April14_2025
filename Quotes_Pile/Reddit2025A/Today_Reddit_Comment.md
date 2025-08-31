@@ -86,3 +86,13 @@ https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_p
 Hufflepuffins 2014-01-14
 
 "generic filler posted by panicked aides trying to cover up for the president's death in a freak blimping accident on Thursday morning"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnp263/
+
+sashiko 2012-01-29
+
+"Oh god, please don't make an A.I. of trump brain, that really would be hell on earth."
+
+* :::=== RoundSparrow_Commentary : A generative artifiicial intelligence that provides the stimulation content that social media addiction society constantly craves and flocks to. ===:::
