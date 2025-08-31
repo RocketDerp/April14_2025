@@ -126,3 +126,19 @@ Worst_Comment_Evar 2023-07-24 (note username meaning: mocking affictionado)
 "Our frail sundowning President acting just like a swath of our elderly population posting drivel on social media. Problem is that this elderly person has his own social media platform and the nuclear codes."
 
 * :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations techniques](Surkovian_Onion_Eating.md). This isn't just one single person, Donald Trump, behaving this way, and they are not all elderly. Reddit itself is full of the same absurd surreal fiction. Donald Trump playuing Tony Clifton has audience reactions like this one, declaring it is just a single bad performer and not a blend of scripted and improv audience (Truth Social) interactions. Entertainment addiction, mocking the entertainers, driving society. ===::
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbnismn/
+
+ItsJustForMyOwnKicks  2023-09-10
+
+"People who need to hate more than love."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbnsjk7/
+
+A_little_lady  2019-12-16
+
+"And you'd think we (the entire world population) have seen enough the last time he was president and that we saw the entire extent of his stupidity... Turns out we haven't seen anything yet"
