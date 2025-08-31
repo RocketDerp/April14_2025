@@ -1218,3 +1218,15 @@ https://youtu.be/xuBfCvhvBIA
 
 Sports media consumers, cults of hate. What Cambridge Analytica deep mind-fucking tapped into.   
 https://old.reddit.com/r/nba/comments/1n4zui8/fan_greets_nico_harrison_at_a_restaurant_and/
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n53fzg/fmr_cdc_director_says_you_can_no_longer_trust_the/nbpolee/
+
+Due-Egg4743 2020-09-08
+
+"Everything's become an opinion piece from conservative "news" outlets to even government health agencies.
+
+ Trump hired his cabinet members for mainly just two reasons: 1) loyalty to him and not going to question Trump 2) telegenic and looks/sounds good on tv. 
+
+Fox News personalities make up the majority of his cabinet because they're both fiercely loyal to Trump and have years of tv and media experience. With Kennedy, Trump fawns over the Kennedy legacy and desperately wants to be loved like JFK."
