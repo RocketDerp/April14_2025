@@ -121,7 +121,7 @@ firemaker68 2016-08-20
 
 https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnxo8o/
 
-Worst_Comment_Evar 2023-07-24
+Worst_Comment_Evar 2023-07-24 (note username meaning: mocking affictionado)
 
 "Our frail sundowning President acting just like a swath of our elderly population posting drivel on social media. Problem is that this elderly person has his own social media platform and the nuclear codes."
 
