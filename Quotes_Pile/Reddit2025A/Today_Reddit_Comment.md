@@ -242,3 +242,24 @@ https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_p
 SwvellyBents 2021-10-29
 
 "Steven King couldn't have written a character this demented."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbnwdmg/
+
+LostWoodsInTheField 2016-06-14
+
+<img width="1652" height="590" alt="image" src="https://github.com/user-attachments/assets/1066f938-0d7a-4212-a5e7-ae4cee3fb602" />
+
+&nbsp;
+
+"
+> Steven King couldn't have written a character this demented.
+
+Every single excellent writer couldn't write this character because he's so unbelievable. You have to make your characters seem believable on some level or else the watcher gets bored/annoyed.
+
+Even documentaries tone down characters because they know they would lose people if they told the whole truth."
+
+* :::=== RoundSparrow_Commentary : Donald Trump working with Putin and Surkov techniques / Kremlin - have pushed the Overton Window of USA society to be deeper and deeper into fiction. The avoidance of nonfiction abounds in USA society. ===:::
