@@ -295,3 +295,11 @@ glitterandnails 2022-04-20
 "Republicans really are a collection of psychopaths, sociopaths, malignant narcissists, and machiavellians (Dark Triad), who are also extremely brazen. They would destroy the world if it benefited them."
 
 * :::=== RoundSparrow_Commentary : Short message, Twitter-length thinking. Only USA of 0.34 billion people, what about the other 8 billion people on Earth? What is the history of self-harm behaviors globally? How is Russia compared to USA? Assuming you agree witht he Reddit comment (author is sincere), how do we address this behavior of clubs and groups and teams and entire nations of self-harm? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4x1nn/author_stephen_king_says_people_will_deny_they/nbogdg7/
+
+ThatB0yAintR1ght 2019-11-02
+
+"Yeah, I was bullied pretty relentlessly in my red state high school when I was vocally opposed to the Iraq war and continued to listen to the Dixie Chicks. The same people who bullied me then opined on FB about how terrible the neocon wars were and no new wars started in Trump’s 1st term, etc etc."
