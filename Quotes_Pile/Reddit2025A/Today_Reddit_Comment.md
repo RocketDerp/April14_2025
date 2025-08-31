@@ -438,3 +438,10 @@ pickled_penguin_ 2024-11-08
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1n532rk/party_over_country_youre_a_member_of_a_cult/nbpty8a/
+
+elcaifasmayor **2025-07-28 (new account)**
+
+"This is a trait of Republicans. They act like politics is a WWE match. Anything that they *think* has the Democrat stamp on it has to be bad, even if it goes against their own interests."
+
+* :::=== RoundSparrow_Commentary : Entertainment politics draws in Reddit users. Constantly thrilled at the mocking and insulting how terrible Tony Clifton is at playing President of the United States of America. Trump doing Tony Clifton acts draws huge audiences with faith in hate and mockery, Trump inspires hate and mocking. Been going on for over a decade. ===:::
