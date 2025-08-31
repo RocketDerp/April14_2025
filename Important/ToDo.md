@@ -1193,3 +1193,8 @@ https://old.reddit.com/r/OldSchoolCool/comments/1n4d2hs/university_of_florida_19
 
 Trump supporters report higher levels of psychopathy, manipulativeness, callousness, and narcissism    
 https://old.reddit.com/r/NoShitSherlock/comments/1n4schm/trump_supporters_report_higher_levels_of/
+
+&nbsp;
+
+Attacks on science. Attacks on nonfiction. War againt Reality.    
+https://old.reddit.com/r/politics/comments/1n4vakl/historians_see_autocratic_playbook_in_trumps/
