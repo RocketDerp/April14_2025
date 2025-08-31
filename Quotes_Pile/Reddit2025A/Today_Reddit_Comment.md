@@ -106,3 +106,14 @@ WeirdSysAdmin 2020-12-08
 "I was checking to see what was being posted while he was dead. It was just a bunch of AI slop on X, one of them was a bunch of spliced AI slop of him in various ages. One of the scenes was him looking like he was a decorated military officer, it was bizarre."
 
 * :::=== RoundSparrow_Commentary : Media addicted socities [go wild when "dead air"](https://en.wikipedia.org/wiki/Dead_air) is encountered. Facebook outages, Tiktok outages, Donald Trump off the air. Study of Marshall McLuhan (University of Toronto) and Neil Postman (New York University) on media ecology analyzes such beaviors of electric media consumers. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnwr2v/
+
+firemaker68 2016-08-20
+
+"I’m guessing that he has an AI agent controlling his account and without his direct input, it’s just randomly posting junk."
+
+* :::=== RoundSparrow_Commentary : "The Automated War Against Reality" would be a follow up to the 2019 book. ChatGPT breakthrough to the public face was in year 2022, and sitaution is beyond what Peter's 2019 book covers. "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+
