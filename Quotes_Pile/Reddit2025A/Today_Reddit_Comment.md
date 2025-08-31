@@ -422,4 +422,14 @@ dougthebuffalo 2017-02-02
 
 "It's unbelievable how it's literally Every. Single. Time. They complain about something, you search their tweets for a keyword from their complaint, there they are years ago doing the exact fucking thing they're complaining about."
 
-* :::=== RoundSparrow_Commentary : This is how Surkovian information warfare works. That is how Surkov governing techniques have kept Putin in power for 25 years. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
+* :::=== RoundSparrow_Commentary : This is how Surkovian information warfare works. That is how Surkov governing techniques have kept Putin in power for 25 years. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ""It's unbelievable how it's literally Every. Single. Time" - yha, unbeliable, unbelievable, not believable, that's the brain exploit. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n4fw2n/there_is_always_a_tweet_for_stuff_like_this/nbl4vw5/
+
+FlyingSMonster 2010-07-26
+
+"These people live and breathe hypocrisy and double standards. They either have no shame, or are completely unaware of their own bullshit. I don't know what's worse honestly, it feels like most of them are entirely cognizant of how shameless they are and are actually proud of it."
+
+* :::=== RoundSparrow_Commentary : People are proud of video game fiction stories. Super Mario 64 is fiction, pride in winning a speedrun. People are proud of near-fiction sports in a rectangle with an army of medical doctors support people with god-like genetics. People are not proud of nonfiction larning about information warfare and science. Nonfiction is considered boring. People are proud of art and fiction, not reality and sincere honest politicians. People are not proud of Malala and using social media to repeat Malala's messages of nonfictoin educaiton learning teaching, they are proud of Donald Trump dunking insulting mocking at how bad Tony Clifton performance (Donald Trump) is terribly bad. Reality TV is scripted, it is not nonfiction learning of humanism. (Drunk on 3-day weekend when I wrote this, beyond my brain damages) ===:::
