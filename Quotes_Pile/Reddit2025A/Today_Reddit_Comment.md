@@ -234,3 +234,11 @@ nrek00 2011-11-25
 "or
 
 He disappears a few days, comes back, says he was dead and resurrected by God, becomes the Magassiah, opens a church (the ultimate grift) and turns the United States into a theocracy. Rename the country: Gilead."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbnjn1k/
+
+SwvellyBents 2021-10-29
+
+"Steven King couldn't have written a character this demented."
