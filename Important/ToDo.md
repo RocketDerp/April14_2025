@@ -1208,3 +1208,8 @@ https://old.reddit.com/r/comics/comments/1n4xupm/mental_health/
 
 Systemic dehumanization of the Irish, topics of Joyce     
 https://old.reddit.com/r/lostgeneration/comments/1n4t7xy/today_i_learned/
+
+&nbsp;
+
+Excellent writingg about prequels of films and such.   
+https://youtu.be/xuBfCvhvBIA
