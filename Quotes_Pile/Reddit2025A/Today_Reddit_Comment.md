@@ -333,3 +333,11 @@ https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the
 bolkiebasher 2017-02-28
 
 "Well said. So many people don't realise how brave the Russians were standing up to Putin, even if it meant going to jail. So repressive society in Russia."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the_news_of_his/nbpbdsn/
+
+Sidelines101 2014-06-29
+
+"One of Trumps kids will be VP."
