@@ -341,3 +341,11 @@ https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the
 Sidelines101 2014-06-29
 
 "One of Trumps kids will be VP."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the_news_of_his/nbpbngc/
+
+ReelTwoReel 2013-122-30
+
+"Damn, I hate the bullshit. Gives credence to the right’s fake news allegations."
