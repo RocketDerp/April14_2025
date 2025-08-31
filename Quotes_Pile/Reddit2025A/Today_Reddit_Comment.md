@@ -78,3 +78,11 @@ DarkestAir12 **08-05-2025 (new account)**
 "Don't forget the need by multiple users to make non stop jokes with 1000 responses that bury the decent comments."
 
 * :::=== RoundSparrow_Commentary : Social media **humor-waashes** Donald Trump. Enteratinment washes his beahvir and leadership. People so addicted to mocking and insulting Trump playing Tony Clifton that they compusively flock to the stimulating Trump ideas and messages. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnmv4s/
+
+Hufflepuffins 2014-01-14
+
+"generic filler posted by panicked aides trying to cover up for the president's death in a freak blimping accident on Thursday morning"
