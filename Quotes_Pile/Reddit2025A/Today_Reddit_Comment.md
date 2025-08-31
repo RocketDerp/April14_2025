@@ -215,3 +215,12 @@ Lysol3435 2016-03-09
 
 * :::=== RoundSparrow_Commentary : Attraction to fiction content. Fiction is way more popular than nonfiction and Donald Trump + Putin have created a network of fiction governing systems and values. The audience has been flocking to the total mockery of Trump playing Tony Clifton character. A population entirely engaged in mocking and insulting how terrible and bad Tony Clifton is as President of the United States of America. "The fact that anyone believes anything a MAGA official says is bonkers to me." - fiction addicts don't care to study and understand nonfiction. Comprehension isn't the media consumer concern, entertainment and amusement and stimulation by Trump is the attraction. ===:::
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbnq5sa/
+
+silverback2267 2019-11-09
+
+"The ultimate malicious narcissist: he wants to take us all with him."
