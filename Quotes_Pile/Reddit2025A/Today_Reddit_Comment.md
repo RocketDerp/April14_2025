@@ -425,3 +425,11 @@ RealNiceKnife 2022-10-10
 "That's all they are. They are exactly the same as the decade of "He's in hot water!" "Insiders are scared!" "The walls are closing in on Trump!" headlines.
 
 They amount to nothing and they're just there to string you along and get you to read the article because they know millions of people are filled to brim with hope of reading that *actual* headline some day."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n55om5/something_is_very_wrong_extrump_insider_flags/nbqvqrp/
+
+pickled_penguin_ 2024-11-08
+
+"Remember when people like boebert tweeted out accusing Biden of being dead saying he was replaced with a body double? I 'member"
