@@ -377,3 +377,11 @@ dacsimpson 2014-07-08
 "And they swear it’s the other side that’s in a cult"
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1n544au/rudy_giuliani_hospitalized_after_his_vehicle_was/nbpv9qd/
+
+philter25 2016-12-19
+
+"The stench of death is following MAGA this weekend. It’s like Labor Day is fighting back lol"
+
+* :::=== RoundSparrow_Commentary : The stench of death-wishing upon Ameicans this weekend. Out-group hate and extreme dehumanization patterns abound. Surkov won since March 2013. ===:::
