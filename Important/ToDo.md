@@ -1173,3 +1173,11 @@ Instead: why not use Twitter to teach cult behaviors and how Russian information
 
 Declared emergency over computer hacking.    
 https://old.reddit.com/r/technology/comments/1n4boz5/us_and_allies_declare_salt_typhoon_hack_a/
+
+
+&nbap;
+
+&nbps;
+
+Malala in Swat Valley Pakistan started blogging on the Internet media sytems in January 2009. She got a shcool bus assination assinged to her in 2012. She stood up to the media empire of the Quran media system, Taliban, Radio Mullah - using Internet blogging - and they took out the upstart female girl competing in the media ecological system.     
+https://old.reddit.com/r/todayilearned/comments/1n4eerq/til_17yearold_female_pitcher_jackie_mitchell/
