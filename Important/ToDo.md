@@ -1213,3 +1213,8 @@ https://old.reddit.com/r/lostgeneration/comments/1n4t7xy/today_i_learned/
 
 Excellent writingg about prequels of films and such.   
 https://youtu.be/xuBfCvhvBIA
+
+&nbsp;
+
+Sports media consumers, cults of hate. What Cambridge Analytica deep mind-fucking tapped into.   
+https://old.reddit.com/r/nba/comments/1n4zui8/fan_greets_nico_harrison_at_a_restaurant_and/
