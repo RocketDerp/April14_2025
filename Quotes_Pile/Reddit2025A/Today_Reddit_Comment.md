@@ -30,3 +30,14 @@ NachoWindows 2018-08-23
 * :::=== RoundSparrow_Commentary : It is weaponized and deliberate. This is Russian informationw warfare. War Againt Reality. https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnu9jz/
+
+JagmeetSingh2 2017-11-28
+
+"Yep yet MAGA Cultists act like he's perfect"
+
+* :::=== RoundSparrow_Commentary : Study the Bible, it is poetry fiction. Cults of media around a media star. Information cults. The unique style and tone of the fiction attracts compusive cult addictio. Fox News audience behaves as if Fox News storytelling is perfectly fine nonfiction. ===:::
+
+
+&nbsp;
