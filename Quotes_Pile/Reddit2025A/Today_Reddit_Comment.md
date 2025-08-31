@@ -303,3 +303,15 @@ https://old.reddit.com/r/politics/comments/1n4x1nn/author_stephen_king_says_peop
 ThatB0yAintR1ght 2019-11-02
 
 "Yeah, I was bullied pretty relentlessly in my red state high school when I was vocally opposed to the Iraq war and continued to listen to the Dixie Chicks. The same people who bullied me then opined on FB about how terrible the neocon wars were and no new wars started in Trump’s 1st term, etc etc."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4zc72/trump_drowns_out_death_speculation_with_truth/nbovl9i/
+
+Deicide1031 2021-09-26
+
+"Blows my mind how this is the one guy who could actually push the country to build more starter homes…or improve health care.
+
+Yet he just trolls the whole time like a teenager and millions think it’s no big deal."
+
+* :::=== RoundSparrow_Commentary : Blowing minds is exactly what is happening. Since March 2013, the Russian information warfare keeps blowing minds over and over so people can't resist the mind-blowing experience of Donald Trump acting as Tony Clifton. Endless mockinga nd insultinghow terrible Tony Clifton is at Pesident of the United States of America. Constant audience engagement. ===:::
