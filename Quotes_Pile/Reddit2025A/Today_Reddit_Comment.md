@@ -263,3 +263,13 @@ Every single excellent writer couldn't write this character because he's so unbe
 Even documentaries tone down characters because they know they would lose people if they told the whole truth."
 
 * :::=== RoundSparrow_Commentary : Donald Trump working with Putin and Surkov techniques / Kremlin - have pushed the Overton Window of USA society to be deeper and deeper into fiction. The avoidance of nonfiction abounds in USA society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4x1nn/author_stephen_king_says_people_will_deny_they/nbolrlo/
+
+LordMimsyPorpington 2019-06-07
+
+"These groups who keep thinking laws mean anything in the absence of people willing to enforce them is really starting to irritate me."
+
+* :::=== RoundSparrow_Commentary : People sometimes day that atheists can't be moral because there is no afterlife judgement day to enforce their behavior. That ficiton storytelling of Jugement Day is critical. As if love and compassion are not good enough to be their own motivation and people would not teach and share compassion peer to peer. ===:::
