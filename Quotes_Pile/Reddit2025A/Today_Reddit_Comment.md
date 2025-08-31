@@ -433,3 +433,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1n55om5/something_is_very_wrong_e
 pickled_penguin_ 2024-11-08
 
 "Remember when people like boebert tweeted out accusing Biden of being dead saying he was replaced with a body double? I 'member"
+
+* :::=== RoundSparrow_Commentary :  June 1, 2025 Trump himself: https://www.nbcnews.com/politics/donald-trump/trump-shares-unfounded-conspiracy-theory-claiming-biden-was-executed-2-rcna210244 ===:::
+
+&nbsp;
+
