@@ -224,3 +224,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_p
 silverback2267 2019-11-09
 
 "The ultimate malicious narcissist: he wants to take us all with him."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbnthfv/
+
+nrek00 2011-11-25
+
+"or
+
+He disappears a few days, comes back, says he was dead and resurrected by God, becomes the Magassiah, opens a church (the ultimate grift) and turns the United States into a theocracy. Rename the country: Gilead."
