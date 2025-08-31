@@ -164,3 +164,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_p
 GrooveStreetSaint  2024-03-05
 
 "They're absolutely terrified of the world because they're psychopaths and assume everyone else is too, and they would be at each other's throats if they didn't have people of other races, genders, and ideologies to unite against."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbo174g/
+
+CetraNeverDie  2023-12-02
+
+"He's a useful idiot for those actually in charge. They can push the envelope further and further, instituting more and more of their heinous dreams, and at the end of the day get to wash their hands of it if there ever even comes to be any backlash, because they can just blame Trump for everything. Their supporters will continue to support them regardless, and nothing changes except the US gets dragged further and further into a dystopia."
