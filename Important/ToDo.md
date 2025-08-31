@@ -1188,3 +1188,8 @@ https://old.reddit.com/r/todayilearned/comments/1n4eerq/til_17yearold_female_pit
 
 Choice marriage honesty, marketing      
 https://old.reddit.com/r/OldSchoolCool/comments/1n4d2hs/university_of_florida_1999/
+
+&nbsp;
+
+Trump supporters report higher levels of psychopathy, manipulativeness, callousness, and narcissism    
+https://old.reddit.com/r/NoShitSherlock/comments/1n4schm/trump_supporters_report_higher_levels_of/
