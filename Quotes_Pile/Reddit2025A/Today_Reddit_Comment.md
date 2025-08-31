@@ -142,3 +142,25 @@ https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_p
 A_little_lady  2019-12-16
 
 "And you'd think we (the entire world population) have seen enough the last time he was president and that we saw the entire extent of his stupidity... Turns out we haven't seen anything yet"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbnvr2l/
+
+The-Phone1234  2017-06-19
+
+<img width="1370" height="1026" alt="image" src="https://github.com/user-attachments/assets/2beaaea7-1d30-439d-b218-60d5dd2ca7a8" />
+
+&nbsp;
+
+"Nah, they're mad too. When you're stoked up into a frenzy, made into a victim with enemies on all sides, you don't have time to slow down and reflect and come to better conclusions. It's reactionary thinking, these guys have no emotional control. Not being literate doesn't help."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbo9f0e/
+
+GrooveStreetSaint  2024-03-05
+
+"They're absolutely terrified of the world because they're psychopaths and assume everyone else is too, and they would be at each other's throats if they didn't have people of other races, genders, and ideologies to unite against."
