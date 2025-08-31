@@ -1198,3 +1198,8 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n4schm/trump_supporters_report
 
 Attacks on science. Attacks on nonfiction. War againt Reality.    
 https://old.reddit.com/r/politics/comments/1n4vakl/historians_see_autocratic_playbook_in_trumps/
+
+&nbsp;
+
+PizzaCake on mentalth health mocking and gun worship.    
+https://old.reddit.com/r/comics/comments/1n4xupm/mental_health/
