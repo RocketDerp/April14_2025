@@ -96,3 +96,11 @@ sashiko 2012-01-29
 "Oh god, please don't make an A.I. of trump brain, that really would be hell on earth."
 
 * :::=== RoundSparrow_Commentary : A generative artifiicial intelligence that provides the stimulation content that social media addiction society constantly craves and flocks to. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnvviy/
+
+WeirdSysAdmin 2020-12-08
+
+"I was checking to see what was being posted while he was dead. It was just a bunch of AI slop on X, one of them was a bunch of spliced AI slop of him in various ages. One of the scenes was him looking like he was a decorated military officer, it was bizarre."
