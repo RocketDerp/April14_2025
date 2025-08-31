@@ -359,3 +359,11 @@ plastic_alloys 2023-10-05
 "The issue is that Trump does all the stuff that these people wrote conspiracies about, but they’re so blinded and determined to back their guy they let it happen. Vance will have a much tougher time"
 
 * :::=== RoundSparrow_Commentary : The Fox News, Newsmax, Reddit, Bluesky, Twitter problems keepgrowing and growing. IRA flew under people's radarand just calling people "bots" they disagree with. Fiction ddiction runs USA behavior. Climate change mockery,anti-goodness from Churuch and religion. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the_news_of_his/nbpc3vu/
+
+GuelboStudio 2018-10-05
+
+"Until last year, this sub had pictures of beautiful moments and marvelous places, and i joined for that reason. Now it feels like 2/3 of the posts are about Trump, and this post is a wish for his death. I don't like him either, but you guys are nuts. So do me a favor and ban me. I want to cut ties to this sub."
