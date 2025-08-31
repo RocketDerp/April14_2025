@@ -385,3 +385,25 @@ philter25 2016-12-19
 "The stench of death is following MAGA this weekend. It’s like Labor Day is fighting back lol"
 
 * :::=== RoundSparrow_Commentary : The stench of death-wishing upon Ameicans this weekend. Out-group hate and extreme dehumanization patterns abound. Surkov won since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n53fzg/fmr_cdc_director_says_you_can_no_longer_trust_the/nbpolee/
+
+Due-Egg4743 2020-09-08
+
+"Everything's become an opinion piece from conservative "news" outlets to even government health agencies.
+
+ Trump hired his cabinet members for mainly just two reasons: 1) loyalty to him and not going to question Trump 2) telegenic and looks/sounds good on tv. 
+
+Fox News personalities make up the majority of his cabinet because they're both fiercely loyal to Trump and have years of tv and media experience. With Kennedy, Trump fawns over the Kennedy legacy and desperately wants to be loved like JFK."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n53fzg/fmr_cdc_director_says_you_can_no_longer_trust_the/nbptj1a/
+
+HM9719 2021-04-20
+
+"Nothing can ever be trusted anymore."
+
+* :::=== RoundSparrow_Commentary :  “In an ever-changing, incomprehensible world the masses had reached the point where they would, at the same time, believe everything and nothing, think that everything was possible and that nothing was true." ― Hannah Arendt, The Origins of Totalitarianism. Published 1951. ===:::
