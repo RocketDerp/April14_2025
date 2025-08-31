@@ -39,5 +39,14 @@ JagmeetSingh2 2017-11-28
 
 * :::=== RoundSparrow_Commentary : Study the Bible, it is poetry fiction. Cults of media around a media star. Information cults. The unique style and tone of the fiction attracts compusive cult addictio. Fox News audience behaves as if Fox News storytelling is perfectly fine nonfiction. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnrskc/
+
+Clean-Measurement922 2020-11-11
+
+"Remember when the top comment on Reddit would be an accurate synopsis of the article?
+
+Nowadays I can't even read the article because it's pay walled and all the top comments are mostly other people who also did not read the article"
 
 &nbsp;
