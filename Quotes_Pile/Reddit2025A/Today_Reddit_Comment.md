@@ -117,3 +117,12 @@ firemaker68 2016-08-20
 
 * :::=== RoundSparrow_Commentary : "The Automated War Against Reality" would be a follow up to the 2019 book. ChatGPT breakthrough to the public face was in year 2022, and sitaution is beyond what Peter's 2019 book covers. "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnxo8o/
+
+Worst_Comment_Evar 2023-07-24
+
+"Our frail sundowning President acting just like a swath of our elderly population posting drivel on social media. Problem is that this elderly person has his own social media platform and the nuclear codes."
+
+* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. complete and total denial of Russian information warfare and public relations techniques](Surkovian_Onion_Eating.md). This isn't just one single person, Donald Trump, behaving this way, and they are not all elderly. Reddit itself is full of the same absurd surreal fiction. Donald Trump playuing Tony Clifton has audience reactions like this one, declaring it is just a single bad performer and not a blend of scripted and improv audience (Truth Social) interactions. Entertainment addiction, mocking the entertainers, driving society. ===::
