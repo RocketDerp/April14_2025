@@ -325,3 +325,11 @@ myfakesecretaccount 2021-07-09
 "I think he’s gotten to the point where he’s more lows than highs and they can’t manage it with medication. Dudes talking about wanting to go to Heaven and pushing really hard to slap his name and face all over everything. Coupled with the fact that the White House is being decorated to look more like Mar a Lago and they’ve stopped all tours, they’re probably trying to minimize all ability to be in any proximity to him."
 
 * :::=== RoundSparrow_Commentary : Audience is hanging on every word, glued for ever move and shake. This has been gong on for over TEN YEARS AND TWO MONTHS, endless messaging systems about Donald J. Trump. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the_news_of_his/nbpayrt/
+
+bolkiebasher 2017-02-28
+
+"Well said. So many people don't realise how brave the Russians were standing up to Putin, even if it meant going to jail. So repressive society in Russia."
