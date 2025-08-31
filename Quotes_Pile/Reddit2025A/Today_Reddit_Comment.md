@@ -367,3 +367,13 @@ https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the
 GuelboStudio 2018-10-05
 
 "Until last year, this sub had pictures of beautiful moments and marvelous places, and i joined for that reason. Now it feels like 2/3 of the posts are about Trump, and this post is a wish for his death. I don't like him either, but you guys are nuts. So do me a favor and ban me. I want to cut ties to this sub."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the_news_of_his/nbpgs1v/
+
+dacsimpson 2014-07-08
+
+"And they swear it’s the other side that’s in a cult"
+
+&nbsp;
