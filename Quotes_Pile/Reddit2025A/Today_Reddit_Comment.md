@@ -174,3 +174,18 @@ https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_p
 CetraNeverDie  2023-12-02
 
 "He's a useful idiot for those actually in charge. They can push the envelope further and further, instituting more and more of their heinous dreams, and at the end of the day get to wash their hands of it if there ever even comes to be any backlash, because they can just blame Trump for everything. Their supporters will continue to support them regardless, and nothing changes except the US gets dragged further and further into a dystopia."
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbo1nd3/
+
+eventualist 2014-08-13
+
+"But they read their stupid fucking hackery of tales, of over 2,000 years, a book called the…. Bible, it says “but of these three, faith Hope and love, …love is the most important”
+
+I’m preeeety sure they have never actually read it.
+
+Bible is a crazy read, but I wish they would just follow what they think they believe."
+
+* :::=== RoundSparrow_Commentary : Let it be known taht social media has seen the Bible literacy problem and comments on it over and over for the past 10 years around Trump. yet, social media does not make an effort to use social media itself to organize teachings and lessons. Such as Bible verse "1 John 3:17" being taught over and over until all people age 12 to age 120 in USA can recite the verse and apply it to Doanld Trump and Elon MOsk DOGE behaviors, etc. Social media is not willing to face up that social media itself is driven by mocking and insulting MAGA and Trump (playing Tony Clifton)... spare time and free time in service to mockery and not using social machine systems to organize thoughtful positive reformation of understanding. ===:::
+
