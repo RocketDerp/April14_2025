@@ -50,3 +50,21 @@ Clean-Measurement922 2020-11-11
 Nowadays I can't even read the article because it's pay walled and all the top comments are mostly other people who also did not read the article"
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnu67p/
+
+BaeIz 2024-12-31 (new this year)
+
+"This has been one of my biggest annoyances with Reddit. Trying to find a copy pasted text of the article, links to an unpaid version, but its all Haha LeFuni Redditor quips all trying to one up each other for karma"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4u384/trump_79_goes_on_bizarre_ai_posting_spree/nbnxudc/
+
+bottom 2010-01-14
+
+"And Reddit complains that media sucks and journalism getting bad - and you wonder why they good ones don’t have jobs ?
+
+Down vote away but the less support journalism gets the better it is for trump.
+
+You’re racing tk the bottom"
