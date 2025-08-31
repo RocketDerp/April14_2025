@@ -349,3 +349,13 @@ https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the
 ReelTwoReel 2013-122-30
 
 "Damn, I hate the bullshit. Gives credence to the right’s fake news allegations."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n50uan/oc_im_going_to_open_this_once_the_news_of_his/nbpa6de/
+
+plastic_alloys 2023-10-05
+
+"The issue is that Trump does all the stuff that these people wrote conspiracies about, but they’re so blinded and determined to back their guy they let it happen. Vance will have a much tougher time"
+
+* :::=== RoundSparrow_Commentary : The Fox News, Newsmax, Reddit, Bluesky, Twitter problems keepgrowing and growing. IRA flew under people's radarand just calling people "bots" they disagree with. Fiction ddiction runs USA behavior. Climate change mockery,anti-goodness from Churuch and religion. ===:::
