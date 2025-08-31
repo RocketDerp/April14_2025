@@ -408,3 +408,18 @@ https://old.reddit.com/r/politics/comments/1n46432/trump_heads_off_death_rumors_
 
 * :::=== RoundSparrow_Commentary : Front page of Reddit, "FINALLY APPEARING". He was gone for so long. People were breaking out in riots that they can't get their addiction satisified to mocking and insulting how terrible Tony Clifton's script is, how bad Tony Clifton performances are. Donald Trump was not the center of LIVE BREAKING NEWS attention, so his absence became LIVE BREAKING NEWS all over social media empires! This **shit-show of addiction to mocking and insulting Tony Clifton's act has been going on for over TEN YEARS AND TWO MONTHS** since Donald Trump became center of every media platform's content! https://www.youtube.com/watch?v=WWHjKzQUWNQ ===:::
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n4fw2n/there_is_always_a_tweet_for_stuff_like_this/nbl17lw/
+
+dougthebuffalo 2017-02-02
+
+<img width="992" height="844" alt="image" src="https://github.com/user-attachments/assets/dd788848-298b-4319-a25c-0444a7f739a9" />
+
+&nbsp;
+
+"It's unbelievable how it's literally Every. Single. Time. They complain about something, you search their tweets for a keyword from their complaint, there they are years ago doing the exact fucking thing they're complaining about."
+
+* :::=== RoundSparrow_Commentary : This is how Surkovian information warfare works. That is how Surkov governing techniques have kept Putin in power for 25 years. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
