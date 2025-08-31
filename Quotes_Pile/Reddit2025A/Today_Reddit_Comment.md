@@ -273,3 +273,15 @@ LordMimsyPorpington 2019-06-07
 "These groups who keep thinking laws mean anything in the absence of people willing to enforce them is really starting to irritate me."
 
 * :::=== RoundSparrow_Commentary : People sometimes day that atheists can't be moral because there is no afterlife judgement day to enforce their behavior. That ficiton storytelling of Jugement Day is critical. As if love and compassion are not good enough to be their own motivation and people would not teach and share compassion peer to peer. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4x1nn/author_stephen_king_says_people_will_deny_they/nbom443/
+
+Green-Amount2479 2023-03-15
+
+"Yes and all it takes is him ignoring everything again, his party just rolling with it and his stacked SCOTUS signing it off. You’d think they care at this point? I’m not so sure. It’s also a long ass time until 2028 if you look at what he‘s already done in just the past few months.
+
+Prior behavior also play a role because he already mentioned it multiple times and even has hats with Trump 2028 in his stupid gift shop. If anything people should have learned that Trump doesn’t fucking ‚joke‘ and doesn’t ‚just troll the libs‘, he actually means it when it’s about stuff like this. He has proven this behavior time and time again."
+
+* :::=== RoundSparrow_Commentary : The etnire population, regardless of political party, is rolling with it. Becaue people do not grasp that mocking and insulting Tony Clifton playing the President of the United States (Trump playing Clifton acts) is not resisting. Mocking Trump is not resisting Trump, it's exactly what Surkovian governing does to engage everyone. A mockey of nonfiction, mockery of science, mockery of reality itself in favor of fiction adudience addictions. ===:::
