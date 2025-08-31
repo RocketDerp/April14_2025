@@ -1203,3 +1203,8 @@ https://old.reddit.com/r/politics/comments/1n4vakl/historians_see_autocratic_pla
 
 PizzaCake on mentalth health mocking and gun worship.    
 https://old.reddit.com/r/comics/comments/1n4xupm/mental_health/
+
+&nbsp;
+
+Systemic dehumanization of the Irish, topics of Joyce     
+https://old.reddit.com/r/lostgeneration/comments/1n4t7xy/today_i_learned/
