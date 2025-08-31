@@ -315,3 +315,13 @@ Deicide1031 2021-09-26
 Yet he just trolls the whole time like a teenager and millions think it’s no big deal."
 
 * :::=== RoundSparrow_Commentary : Blowing minds is exactly what is happening. Since March 2013, the Russian information warfare keeps blowing minds over and over so people can't resist the mind-blowing experience of Donald Trump acting as Tony Clifton. Endless mockinga nd insultinghow terrible Tony Clifton is at Pesident of the United States of America. Constant audience engagement. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n4zc72/trump_drowns_out_death_speculation_with_truth/nbow8zi/
+
+myfakesecretaccount 2021-07-09
+
+"I think he’s gotten to the point where he’s more lows than highs and they can’t manage it with medication. Dudes talking about wanting to go to Heaven and pushing really hard to slap his name and face all over everything. Coupled with the fact that the White House is being decorated to look more like Mar a Lago and they’ve stopped all tours, they’re probably trying to minimize all ability to be in any proximity to him."
+
+* :::=== RoundSparrow_Commentary : Audience is hanging on every word, glued for ever move and shake. This has been gong on for over TEN YEARS AND TWO MONTHS, endless messaging systems about Donald J. Trump. ===:::
