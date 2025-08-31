@@ -189,3 +189,12 @@ Bible is a crazy read, but I wish they would just follow what they think they be
 
 * :::=== RoundSparrow_Commentary : Let it be known taht social media has seen the Bible literacy problem and comments on it over and over for the past 10 years around Trump. yet, social media does not make an effort to use social media itself to organize teachings and lessons. Such as Bible verse "1 John 3:17" being taught over and over until all people age 12 to age 120 in USA can recite the verse and apply it to Doanld Trump and Elon MOsk DOGE behaviors, etc. Social media is not willing to face up that social media itself is driven by mocking and insulting MAGA and Trump (playing Tony Clifton)... spare time and free time in service to mockery and not using social machine systems to organize thoughtful positive reformation of understanding. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbnmrpp/
+
+lucasg115 2012-12-04
+
+"Actually, he said “Ministry of War.” The US uses “Departments,” while Israel and Russia use “Ministries.” Whoever is feeding him this particular line clearly doesn’t even care about subtlety anymore."
+
+* :::=== RoundSparrow_Commentary : "subtlety anymore" - was the Wall against Mexico that was promised for first term *subtle*? Media addicts have extreme recency bias and think that Donald Trump has been subtle for a few day and that is all the timeline analyzed. Was naming his media platform "Truth Social" February 21, 2022 subtle?  ===:::
