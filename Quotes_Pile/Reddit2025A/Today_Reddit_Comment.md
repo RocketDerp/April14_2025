@@ -415,3 +415,13 @@ https://old.reddit.com/r/politics/comments/1n51jd4/donald_trump_is_on_the_brink_
 ProfessionalCraft983 2025-02-07 (new this year)
 
 "The Kim regime is still going strong. Not much resistance against Putin or Xi. All dictatorships eventually fall but it can take generations before they do. And often they bring their own demise upon themselves through corruption and poor governance (like the USSR). It’s not very often that dictators are overthrown by their own people, and when they are they’re usually just replaced by another dictator."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n55om5/something_is_very_wrong_extrump_insider_flags/nbqoszl/
+
+RealNiceKnife 2022-10-10
+
+"That's all they are. They are exactly the same as the decade of "He's in hot water!" "Insiders are scared!" "The walls are closing in on Trump!" headlines.
+
+They amount to nothing and they're just there to string you along and get you to read the article because they know millions of people are filled to brim with hope of reading that *actual* headline some day."
