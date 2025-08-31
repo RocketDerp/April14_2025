@@ -198,3 +198,20 @@ lucasg115 2012-12-04
 "Actually, he said “Ministry of War.” The US uses “Departments,” while Israel and Russia use “Ministries.” Whoever is feeding him this particular line clearly doesn’t even care about subtlety anymore."
 
 * :::=== RoundSparrow_Commentary : "subtlety anymore" - was the Wall against Mexico that was promised for first term *subtle*? Media addicts have extreme recency bias and think that Donald Trump has been subtle for a few day and that is all the timeline analyzed. Was naming his media platform "Truth Social" February 21, 2022 subtle?  ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n4tavp/making_peace_was_his_promise/nbnq1d8/
+
+Lysol3435 2016-03-09
+
+"The fact that anyone believes anything a MAGA official says is bonkers to me. Like Johnson saying that the Epstein list *must* be released hours after voting to keep it covered up. The distances they will travel to keep faith in the cult in the face of glaring counter-evidence are unfathomable"
+
+<img width="1656" height="432" alt="image" src="https://github.com/user-attachments/assets/c1435908-54a4-45ec-91bc-ad599573fce1" />
+
+&nbsp;
+
+* :::=== RoundSparrow_Commentary : Attraction to fiction content. Fiction is way more popular than nonfiction and Donald Trump + Putin have created a network of fiction governing systems and values. The audience has been flocking to the total mockery of Trump playing Tony Clifton character. A population entirely engaged in mocking and insulting how terrible and bad Tony Clifton is as President of the United States of America. "The fact that anyone believes anything a MAGA official says is bonkers to me." - fiction addicts don't care to study and understand nonfiction. Comprehension isn't the media consumer concern, entertainment and amusement and stimulation by Trump is the attraction. ===:::
+
