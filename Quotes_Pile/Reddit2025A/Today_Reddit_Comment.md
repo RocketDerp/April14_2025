@@ -470,3 +470,11 @@ FantozziUgo 2021-12-11
 "There's being a moron and then there's whatever this is, but with nuclear codes."
 
 * :::=== RoundSparrow_Commentary : This is called Surkov governing. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5yap8/trumps_gaza_plan_involves_offering_palestinians/nbw40x8/
+
+Still_Independent_90 2023-08-24
+
+"There is literally no depth to which this man will sink. At this point he has sunk so far that Hell has lost 400 acres."
