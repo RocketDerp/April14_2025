@@ -153,3 +153,13 @@ https://old.reddit.com/r/politics/comments/1n57v36/trump_has_been_at_his_golf_re
 Orange8920 2020-05-30
 
 "The reason this worked is that Republicans have an entire media ecosystem to make something that's such a non-issue into a talking point for rage bait. That doesn't really exist for Democrats and they'll continue to fight uphill as long as they don't have a FOX News or OAN to project stupid stuff like "Obama's tan suit" the way they should be doing with Trump's golf trips."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5qhpp/gavin_newsom_continues_to_troll_trump_by_blasting/nbuj4a0/
+
+timetogetoutside100 2023-12-29
+
+"The fact that Faux news can't handle this, and they can't stop talking about it, shows Newsom's mocking of Trump is getting under their skin, I love it"
+
+* :::=== RoundSparrow_Commentary : The more people for the past TEN YEARS have adopted Donald Trump media techniques, Surkov Russian techniques, the more audiences crave more. The more dehumanization, mockery, hate that is made center to poltiics - the more audiences flock to every breaking news event. Non-sotp growth for over TEN YEARS AND TWO MONTHS of this flocking to anti-intellectual fiction trash leadership signals. Always more mocking. Always more total mockery. ===:::
