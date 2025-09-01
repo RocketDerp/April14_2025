@@ -115,3 +115,11 @@ Finally, they are just better at it. I'm not aware of any western disinformation
 We might be smarter to do things like stuxnet in Russia. That we have shown aptitude in."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5odqt/donald_trump_posting_weekold_photo_raises/nbu8nkw/
+
+snoo_spoo 2024-05-28
+
+"But if it were only that, he could have phoned in to Fox News by now, with a rant."
+
+&nbsp;
