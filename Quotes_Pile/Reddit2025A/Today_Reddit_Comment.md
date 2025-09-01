@@ -14,6 +14,16 @@ Dear-Pangolin1391 2021-03-13
 
 "There is no proof that he is fine. If they want to make this all go away then have Trump do a press conference. Anyone can be using his social media account and I have yet to see a photo that's not questionable about its authenticity."
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n5dce4/11yearold_boy_fatally_shot_in_houston_after_ding/nbrvx6t/
+
+EmilyAnn1790 2017-01-11
+
+"I moved to Texas 2 years ago and joined Nextdoor. I immediately notice that every video posted of every level of regular neighborhood happenings is met with comments like “they’re lucky I wasn’t there with my gun” “wish they would have tried that at my house, I’m ready with a gun”. None of the videos/images showed people breaking into a house, btw.
+
+Just a collection of people dying to use their guns because they lived in a very safe, low crime suburb which didn’t fit their Rambo fantasies. That’s how this nonsense happens."
+
 
 &nbsp;
 
