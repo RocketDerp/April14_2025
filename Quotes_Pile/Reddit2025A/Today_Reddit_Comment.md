@@ -312,3 +312,10 @@ Psilocybe-Philosophy 2024-12-08
 
 "Why couldn’t trump have been on the Biggest Loser instead of the apprentice. Seems more appropriate and we would still have a democracy"
 
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbuicgh/
+
+Umbrella_Viking 2021-06-12
+
+"It’s very apparent that he is a Russian asset. There is so much evidence that it’s unequivocal."
