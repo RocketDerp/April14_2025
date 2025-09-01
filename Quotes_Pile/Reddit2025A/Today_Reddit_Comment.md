@@ -133,3 +133,17 @@ Peachy33 2012-07-30
 It’s so difficult when I have first graders repeating things they hear their parents say. It was rough during the election. One of my students who receives several services (van transportation, reading support, speech therapy) was really excited that Trump was elected because he was “going to get rid of all the bad people in the country”. And she’s not the exception."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n57v36/trump_has_been_at_his_golf_resorts_every_fourth/nbqtpwr/
+
+Dr-Mumm-Rah 2012-09-26
+
+"Golfing while wearing a tan suit and eating a hamburger with Dijon mustard.
+
+Aka the unholy Fox News Trinity.
+
+Yep, the history channel was right. That guy was the antichrist of US presidents.
+
+Look at all that economic, social and spiritual stability he tried to trick us with."
+
+&nbsp;
