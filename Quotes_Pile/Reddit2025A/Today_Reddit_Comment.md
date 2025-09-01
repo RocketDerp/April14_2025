@@ -222,3 +222,13 @@ Admitting the truth about what they see? Means admitting that they are wrong. Th
 Their ego is more precious to them than the truth, their faith, or any life on this planet. They would rather be dead than wrong."
 
 * :::=== RoundSparrow_Commentary : People can not stop their runaway addiction to mockery and insutling. Donald Trum provided nonstop entertainment, amusement, mockery. Constantly mocking the Tony Clifton acts performed by Donald Trump has wrecked nonfiction attractions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbu5594/
+
+Efficient_Smilodon 2020-08-02
+
+"it's the same phenomenon in terrorists and the goal of martyrdom. Their ego becomes so warped by the lies it is fed that they would rather die than change. It's a testament to the power of identification with dogma , the ultimate poison, to create a life so unmoored from the natural way of life that it would rather die than truly face the responsibility of living in harmony with reality."
+
+* :::=== RoundSparrow_Commentary : The reality of comparative mythology. The reality that billionares create media content that they feed to the ppor people... trickle down content to worship the rich and famous. Stories about how Heaven awaits after death. How Donald Trump is Jesus and god. How mocking and hate are the best answer to the future. Liign in an ocean of "reality" where hate is prized and every media system is polluted with mockery and insulting. Live in harmony with ChatGPT and Grok AI fiction content all over every media platform and media system. Including printed books. https://www.npr.org/2025/05/20/nx-s1-5405022/fake-summer-reading-list-ai  ===:::
