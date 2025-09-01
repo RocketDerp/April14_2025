@@ -254,7 +254,7 @@ FarmingDowns 2023-05-27
 "It's ironic you chose to type that on this leftist echochamber lol."
 
 * :::=== RoundSparrow_Commentary : lol lol lol lmfao Twitter-length comments on serious "no shit, Sherlock!" subjects. A constant social-media laugh track, like anti-intellectual TV comedy laugh tracks adapted to social machines.
-"Who is prepared to **take arms against a sea of amusements?** To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 - publshed the last time the USA had an **entertainment President of the United States of America - Ronald Regan second term 1985**. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley ===:::
+"Who is prepared to **take arms against a sea of amusements?** To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 - publshed the last time the USA had an **entertainment President of the United States of America - Ronald Reagan second term 1985**. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley ===:::
 
 &nbsp;
 
@@ -264,5 +264,24 @@ brianishere2 2020-10-07
 
 "Republicans, and especially Trump, are 100% insulated from any consequences from their disastrous policies and obvious corruption because of FOX NEWS. Fox News is the real enemy that is enabking the destruction of America."
 
-* :::=== RoundSparrow_Commentary : Fox News is from October 7, 1996. Reddit is from July 2005. [Bluesky meme entertainment venue became a big hit in earlt November 2024](https://www.theguardian.com/technology/2024/nov/12/us-election-bluesky-users-flee-x-twitter-trump-musk). Every media addict stand upon their amusement mill saying the problem is entertainment Fox News. Tree after tree, nobody wanting to confront the whole forest of amusmeent mills.
-"Who is prepared to **take arms against a sea of amusements?** To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 - publshed the last time the USA had an **entertainment President of the United States of America - Ronald Regan second term 1985**. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley  - And Ronald Reagan the frequent mockery and insult was that he had dementia, Alzheimer's, or other age releated brain problems. Mockery based amusement entertainment leadership. ===:::
+* :::=== RoundSparrow_Commentary : Fox News is from October 7, 1996. Reddit is from July 2005. [Bluesky meme entertainment venue became a big hit in early November 2024](https://www.theguardian.com/technology/2024/nov/12/us-election-bluesky-users-flee-x-twitter-trump-musk). Every media addict stand upon their amusement mill saying the problem is entertainment Fox News. Tree after tree, nobody wanting to confront the whole forest of amusmeent mills.
+"Who is prepared to **take arms against a sea of amusements?** To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 - publshed the last time the USA had an **entertainment President of the United States of America - Ronald Reagan second term 1985**. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley  - And Ronald Reagan the frequent mockery and insult was that he had dementia, Alzheimer's, or other age releated brain problems. Mockery based amusement entertainment leadership. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbu3jfl/
+
+Level_Technician8332 **2025-07-28 (new account)**
+
+"But it’s not just Fox anymore…. There are so many networks, and then you get into the real meat: YouTube and podcasts. There are simply not enough boomers to keep this going. They needed young people, and they used modern platforms to get a message out that resonated with them. It’s terrifying, and it happened in Germany leading up to the 2nd world war.
+
+But when you called them Nazis, for YEARS, voices on the right AND the left called you an alarmist. The left slept through this. They pandered to minorities without offering a plan to make their lives better. They championed issues that impacted less than 3% of the electorate while not telling the lower class as a whole how they will be moving to a new middle class within 10 years. Nothing.
+
+Fox enables all of this, and they are MAGA heroin for sure. But that makes social media MAGA meth, and the red hats have mastered social media in the same way the left figured out the 24 hour news cycle first in the early 90s. And the lefts lack of effective leadership is doing the red hats every favor in the world.
+
+If there was a party trying to let a dictator take over, the Dems are doing a fantastic job fitting that mold. They won’t emulate an opposition party, aren’t providing plans that people can easily understand and sell to others, so what the fuck are they doing? In 2025 I give the democrats the MAGA MVP award. Hopefully shit changes fast."
+
+* :::=== RoundSparrow_Commentary : Opens with not just Fox News... Nazi Germany didnt have the Apple iPhone in year 1937, nor did they have Russia pumping media messages from the Internet Research Agency (since yaer 2013) and modern social systems. Still ongoing and being reproted by MULTIPLE nations.
+"August 17, 2025 — A pro-Russian propaganda group is taking advantage of high-profile news events to spread disinformation" https://www.politico.com/news/2025/08/17/russia-us-news-media-disinformation-campaign-00512173 ===:::
