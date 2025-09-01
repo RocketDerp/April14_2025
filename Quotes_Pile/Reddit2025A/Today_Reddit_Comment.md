@@ -545,3 +545,11 @@ Devmoi 2016-06-24
 But also, Gen X was the largest group that voted for Trump. And then our parents (Boomers) warned us about this crap, but then were brainwashed by it.
 
 And I just feel bad for Gen Z. A lot of them have zero common sense. It’s insane."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n56hyj/they_would_never_have_known_new_warnings_about/nbqlp85/
+
+Fukface_Von_Clwnstik 2020-07-20
+
+"37% think vaccines cause autism and also think dogs can be autistic. Easy to say lol what a bunch of dipshits, the laugh is harder when you remember this is almost half the people driving a 4,000lb car next to you."
