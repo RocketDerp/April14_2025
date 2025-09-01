@@ -147,3 +147,9 @@ Yep, the history channel was right. That guy was the antichrist of US presidents
 Look at all that economic, social and spiritual stability he tried to trick us with."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n57v36/trump_has_been_at_his_golf_resorts_every_fourth/nbqo61u/
+
+Orange8920 2020-05-30
+
+"The reason this worked is that Republicans have an entire media ecosystem to make something that's such a non-issue into a talking point for rage bait. That doesn't really exist for Democrats and they'll continue to fight uphill as long as they don't have a FOX News or OAN to project stupid stuff like "Obama's tan suit" the way they should be doing with Trump's golf trips."
