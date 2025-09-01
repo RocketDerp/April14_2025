@@ -285,3 +285,21 @@ If there was a party trying to let a dictator take over, the Dems are doing a fa
 
 * :::=== RoundSparrow_Commentary : Opens with not just Fox News... Nazi Germany didnt have the Apple iPhone in year 1937, nor did they have Russia pumping media messages from the Internet Research Agency (since yaer 2013) and modern social systems. Still ongoing and being reproted by MULTIPLE nations.
 "August 17, 2025 — A pro-Russian propaganda group is taking advantage of high-profile news events to spread disinformation" https://www.politico.com/news/2025/08/17/russia-us-news-media-disinformation-campaign-00512173 ===:::
+
+&nbsp;
+
+"Trump is the laughing stock of the world"
+
+* :::=== RoundSparrow_Commentary :  Donald Trump **performing Tony Clifton antics**  are the most amusing and enertaining content ever created. People have abandoned nonfiction and given up on thinking to join the total mockery and insulting of Tony Clifton (Trump). https://www.youtube.com/watch?v=m_jDxK4LQJw Beyond the "Infinite Jest V" patterns, this is live performances on every media platform with published books, etc. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbu4hie/
+
+Busby5150 2022-02-27
+
+"A wise person will scrutinize any information they consume. Try to poke holes in it until you can’t destroy it. Then and only then can you believe it to be factual. Just like a scientist does.
+
+A MAGA does just the opposite. They blindly DEFEND all information and REFUSE to believe it could possible be incorrect. Anything that does not make them feel good is simply labeled FAKE NEWS. This is what children do.
+
+Which camp do you want to be in?"
