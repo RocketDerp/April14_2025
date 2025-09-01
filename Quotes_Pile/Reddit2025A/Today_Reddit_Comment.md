@@ -569,3 +569,11 @@ https://old.reddit.com/r/BlueskySkeets/comments/1n55gjm/he_truly_needs_attention
 Regulus242 2018-01-19
 
 "I wouldn't be shocked if they made an AI trained on Trump to replace him after he's gone to keep all of his influence as much as they can."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n5jo3o/thousands_of_locals_marched_in_osaka_japan/nbteoku/
+
+meeseekstodie137 2019-04-11
+
+"just another marginalized group being targeted for the sole reason of their vulnerability, happens all the time all around the world, this is just the group it's happening to currently, it's just predators being predators tbh"
