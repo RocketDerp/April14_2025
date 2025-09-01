@@ -24,6 +24,13 @@ EmilyAnn1790 2017-01-11
 
 Just a collection of people dying to use their guns because they lived in a very safe, low crime suburb which didn’t fit their Rambo fantasies. That’s how this nonsense happens."
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n5dce4/11yearold_boy_fatally_shot_in_houston_after_ding/nbs7ucx/
+
+Iswaterreallywet 2017-10-20
+
+"Fox News primes them to believe this. They are genuinely enemies of the country."
 
 &nbsp;
 
