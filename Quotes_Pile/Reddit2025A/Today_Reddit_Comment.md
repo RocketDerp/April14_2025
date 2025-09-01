@@ -183,3 +183,25 @@ Level_Technician8332 **2025-07-28 (recent account)**
 "One of the greatest failures of the media will be the baffling inability to label MAGA as a cult sooner. They still haven’t. Until there is a unified declaration of what we are dealing with it seems too many people will keep sleepwalking towards full on authoritarianism."
 
 * :::=== RoundSparrow_Commentary : Always looking to rich people who own big media platforms to do it. People with spare time and free time on Reddit social machines don't want to organize and stay on the same page of important topics of nonfiction. Such as cult deprogramming. Instead, looking for "the media" and ignoring that "social media" is right in front of their face on their touchscreen. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbua4th/
+
+Nandou_B 2019-08-06
+
+<img width="1066" height="956" alt="image" src="https://github.com/user-attachments/assets/8f3eb780-6cab-44a8-ae83-1cfa2cbb27cf" />
+
+&nbsp;
+
+"Sure, rock a red MAGA hat and you’re ‘making America great again’ by erasing facts, logic, and everyone who disagrees with you from the narrative 🧢🚫 Ignoring reality never looked so... stylish"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbuhztm/
+
+nikkymikkyboobs **2025-08-18 (new account)**
+
+"the refusal to call it what it is allows dangerous groupthink to persist unchecked. It’s alarming how many people don’t see it."
