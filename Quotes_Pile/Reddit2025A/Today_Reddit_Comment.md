@@ -410,3 +410,11 @@ People with an education who have travelled around a bit understand that the USA
 But people who do NOT have that experience see their adequate lives in their town as being RELATIVELY garbage because they're comparing their life situation to Wakanda, basically, and they're mad that they will never get a chance to go live there. And they get even MORE mad when anyone tries to make changes that would actually make their lives better, because they already believe that so many other people have lives so much better than theirs, and political figures have taken advantage of that to push the idea that it will get worse if we do anything like, say, health care for all.
 
 They literally don't understand it's not real and that damn near everything they think they know is a lie."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n5syn4/hypocrisy_much/nbv1dqg/
+
+Ok_Explorer_8151 2025-09-05
+
+"I never pray because I believe all religions are bullshit, but I am praying to see the day when Biden is standing over Trump's putrid and decaying corpse at the funeral and gives him a single-eyed wink with the biggest shit eating smirk of all time."
