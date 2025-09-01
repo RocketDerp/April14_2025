@@ -488,3 +488,23 @@ Drak_is_Right 2014-09-05
 "Mate, this isnt even the most disgusting thing I have heard in 2025. The Sudan situation is fucked (and completely ignored).
 
 It is top 3 most fucked things I have heard from Trump in 2025 though."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n5qkg7/trump_hides_from_cameras_again_amid_deteriorating/nbukgth/
+
+ma2is 2011-05-23
+
+"I hope his downfall to 💀 is both long and painful while at the same time I hope he relinquishes power asap.
+
+Edit: stop with the “Reddit cares” bs messages you sensitive twats. Reality check for you magas: outside of your sad little circle the rest o f the world wants this exile vile child rapist asshole dead and a swift death wouldn’t be justice for his crimes."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n5qkg7/trump_hides_from_cameras_again_amid_deteriorating/nbw7n6c/
+
+chyura 2020-12-29
+
+"Meh theyve already been doing it for years with other pieces of shit. No amount of crying will prevent the dancing in the streets we'll see when he eats it.
+
+You cant actively choose to make deplorable choices at every turn, publicize and rant and rave about them all as the worlds biggest media whore, then be sad or surprised when millions celebrate your death."
