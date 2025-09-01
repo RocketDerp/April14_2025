@@ -163,3 +163,13 @@ timetogetoutside100 2023-12-29
 "The fact that Faux news can't handle this, and they can't stop talking about it, shows Newsom's mocking of Trump is getting under their skin, I love it"
 
 * :::=== RoundSparrow_Commentary : The more people for the past TEN YEARS have adopted Donald Trump media techniques, Surkov Russian techniques, the more audiences crave more. The more dehumanization, mockery, hate that is made center to poltiics - the more audiences flock to every breaking news event. Non-sotp growth for over TEN YEARS AND TWO MONTHS of this flocking to anti-intellectual fiction trash leadership signals. Always more mocking. Always more total mockery. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbu0u2o/
+
+Wide_Environment618 **2025-08-24 (new account**, top voted comment in posting)
+
+"It’s a cult. They cannot think for themselves."
+
+* :::=== RoundSparrow_Commentary : Very popular statement on social media. What is unpopular on social media: nonfiction teaching and learning about cult deprogramming. Education and teaching are not attractive. Mocking and insutling and name-calling incredibly popular. Twitter-length Tweet-thinking. "It’s a cult. They cannot think for themselves." - the issue is not *original creative thinking*, the issue is taht the thinking is self-harm to the USA. The thinking is follow Cambridge Analytica thinking since March 2013. The abandonment of nonfiction in favor of total mockery. "No Siht Sherlock" on Reddit is that kind of conditioned mockery I am witnessing as a cult repetitive chanting. ===:::
