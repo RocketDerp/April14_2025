@@ -358,3 +358,11 @@ cerebrumvr 2016-03-13
 "is this the longest we've gone without hearing his voice in the last 10 years?"
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5odqt/donald_trump_posting_weekold_photo_raises/nbuwpcz/
+
+Akimbo_Zap_Guns 2015-08-09
+
+"It’s 1000% a stroke. This clown can’t go a day without blabbing off to the media and it’s be multiple days now without him ranting to the press. Hell just a few weeks ago he was shouting at the press from the White House rooftops. Add on to the fact the only confirmed picture we have of him walking to a car to “golf” his mouth is just hanging open."
+
+&nbsp;
