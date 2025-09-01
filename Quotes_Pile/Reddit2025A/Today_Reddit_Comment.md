@@ -561,3 +561,11 @@ https://old.reddit.com/r/BlueskySkeets/comments/1n55gjm/he_truly_needs_attention
 lucid_aurora 2018-09-02
 
 "Right!? Sometimes when I start to think about things like this, I feel like a regular ol' QAnon sap, but then I remember that I'm following "conspiracy" theories based on what is actually happening/spoken/photographed, and not just making up whatever the hell I want about the woke liberal dems who are apparently dead set on destroying this country due to their...their...I don't know, I'm too tired to make something up. Their alliance with the bison the Jewish space laser operators beamed down to earth to attack hardworking American conservatives who are just trying to pet them in a national park (that's on borrowed time thanks to this administration) in order to further the Epstein hoax that is not real, but exists, but is just a bunch of liberal lies?"
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n55gjm/he_truly_needs_attention/nbqc5xi/
+
+Regulus242 2018-01-19
+
+"I wouldn't be shocked if they made an AI trained on Trump to replace him after he's gone to keep all of his influence as much as they can."
