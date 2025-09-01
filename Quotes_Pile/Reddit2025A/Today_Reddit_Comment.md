@@ -445,3 +445,19 @@ elcaifasmayor **2025-07-28 (new account)**
 "This is a trait of Republicans. They act like politics is a WWE match. Anything that they *think* has the Democrat stamp on it has to be bad, even if it goes against their own interests."
 
 * :::=== RoundSparrow_Commentary : Entertainment politics draws in Reddit users. Constantly thrilled at the mocking and insulting how terrible Tony Clifton is at playing President of the United States of America. Trump doing Tony Clifton acts draws huge audiences with faith in hate and mockery, Trump inspires hate and mocking. Been going on for over a decade. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right_maybe_donald_trump/nbqxjc3/
+
+Fantastic-Ad-2856 2022-06-22
+
+"I think some people think the apprentice was real and trump is the guy on that show."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right_maybe_donald_trump/nbqysmb/
+
+mr_cristy 2014-09-10 (Self-declared Canadian)
+
+"I feel like an insane person due to this man. Like me, my wife, and all of my friends find it so incredibly obvious that he's a corrupt moron but my mom and all my aunts and uncles and my sisters all think he's God's gift, a brilliant and morally upstanding man. I've literally heard people I know compare him to Jesus. I'm not religious at all but I'm pretty sure Jesus would be flipping a lot of tables over that comparison."
