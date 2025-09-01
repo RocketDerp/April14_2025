@@ -382,3 +382,11 @@ thudwhomper 2010-09-29
 "There is no scenario where this is normal."
 
 * :::=== RoundSparrow_Commentary :  Antics politics. Media addicts flocking to content of Tony Clifton White House performners. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1n5wzap/nothing_to_see_here_just_black_bags_being_tossed/nbvvppx/
+
+Leopardos40 2017-08-05
+
+"You know, back in the early ’90s, as a non-American high school student, we used to see the US as a kind of high society—almost like Wakanda. What I’m seeing right now feels like rock bottom."
