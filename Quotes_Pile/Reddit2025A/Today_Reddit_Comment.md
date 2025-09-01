@@ -78,6 +78,13 @@ Germany isn't even able to weaken the propaganda of the AfD, let alone working o
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n5k4p2/eu_heads_plane_hit_by_suspected_russian_gps/nbtenom/
+
+CatsBoobsBaseball 2025-07-17
+
+"Buddy, Trump and Putin were kissing in Alaska and calling it Russia a couple weeks ago. It’s not rocket science."
+
+&nbsp;
 
 # Sunday August 31, 2025
 
