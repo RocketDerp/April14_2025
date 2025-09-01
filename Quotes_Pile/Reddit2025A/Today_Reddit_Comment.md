@@ -80,9 +80,17 @@ Germany isn't even able to weaken the propaganda of the AfD, let alone working o
 
 https://old.reddit.com/r/worldnews/comments/1n5k4p2/eu_heads_plane_hit_by_suspected_russian_gps/nbtenom/
 
-CatsBoobsBaseball 2025-07-17
+CatsBoobsBaseball **2025-07-17 (new account)**
 
 "Buddy, Trump and Putin were kissing in Alaska and calling it Russia a couple weeks ago. It’s not rocket science."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n5k4p2/eu_heads_plane_hit_by_suspected_russian_gps/nbthn3q/
+
+werewolfshadow 2023-09-19
+
+"Donald Trump was put in power by Putin to weaken the US and NATO."
 
 &nbsp;
 
