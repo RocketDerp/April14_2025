@@ -205,3 +205,6 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torche
 nikkymikkyboobs **2025-08-18 (new account)**
 
 "the refusal to call it what it is allows dangerous groupthink to persist unchecked. It’s alarming how many people don’t see it."
+
+* :::=== RoundSparrow_Commentary : I spot a Twitter-length tweet-thinking, I call it for what it is. We The People refuse to call it what it is: A Total Mockery. Group A mocking group B, group B mocking group C, group C mocking gorup A. Every pattern imaginable of out-group mocking. **United States of hate and United States of Total Mockery**, united in the faith that insulting, mocking, and avoiding learning Russian information warfare techniques of Surkov and Putin will better the future of the USA. Mockery as relgion, mocking as faith. Media addiction to notifcations about "the out-group" mockery.
+"Our politics are unhinged. He saw it coming 40 years ago" : https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
