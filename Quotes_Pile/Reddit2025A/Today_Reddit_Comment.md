@@ -372,3 +372,13 @@ https://old.reddit.com/r/politics/comments/1n5odqt/donald_trump_posting_weekold_
 Efficient_Cause_6900  2021-07-20
 
 "It baffles me that we're even here. The Trump decline has be the most visible in the history of public figures but we watched Joe Biden give a 2 hour State of the Union without a hiccup and we STILL have to hear conjecture that he's severely cognitively declined."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1n5wzap/nothing_to_see_here_just_black_bags_being_tossed/nbvu2ot/
+
+thudwhomper 2010-09-29
+
+"There is no scenario where this is normal."
+
+* :::=== RoundSparrow_Commentary :  Antics politics. Media addicts flocking to content of Tony Clifton White House performners. ===:::
