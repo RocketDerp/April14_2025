@@ -1218,3 +1218,8 @@ https://youtu.be/xuBfCvhvBIA
 
 Sports media consumers, cults of hate. What Cambridge Analytica deep mind-fucking tapped into.   
 https://old.reddit.com/r/nba/comments/1n4zui8/fan_greets_nico_harrison_at_a_restaurant_and/
+
+&nbsp;
+
+Adam Savage - the structred harming of human beings.     
+https://www.youtube.com/watch?v=0y2fDrv47U4
