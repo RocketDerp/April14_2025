@@ -343,4 +343,18 @@ J-the-Kidder 2021-08-15
 
 "How ironic would it be for this old prick to keel over on Labor Day? A day devoted to the working class, that he's spent a lifetime fucking over and swindling?"
 
+&nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5odqt/donald_trump_posting_weekold_photo_raises/nbuyfpt/
+
+cerebrumvr 2016-03-13
+
+<img width="1168" height="1246" alt="Screenshot from 2025-09-01 11-35-58" src="https://github.com/user-attachments/assets/09498516-af9b-4e1d-854b-4eee718fa5c2" />
+
+&nbsp;
+
+"is this the longest we've gone without hearing his voice in the last 10 years?"
+
+&nbsp;
