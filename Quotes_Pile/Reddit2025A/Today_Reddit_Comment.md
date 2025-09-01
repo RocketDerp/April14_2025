@@ -6,6 +6,14 @@ joekerr9999 2019-09-13
 
 "HIs is the classis dilemma of the liar. Trump lies so much he has no credibility at all. There is no transparency. The American people really have no information on the president's health. So what do the republicans do? They investigate Biden from a year ago. And so it goes."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5l8zx/donald_trump_responds_to_viral_health_rumors/nbtkos3/
+
+Dear-Pangolin1391 2021-03-13
+
+"There is no proof that he is fine. If they want to make this all go away then have Trump do a press conference. Anyone can be using his social media account and I have yet to see a photo that's not questionable about its authenticity."
+
 
 &nbsp;
 
