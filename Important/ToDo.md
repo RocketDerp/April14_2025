@@ -1244,4 +1244,5 @@ https://www.youtube.com/watch?v=sIAeD3J_bcg
 Wildcard lyrics, MonoMyth lyrics without infinite meaning.    
 Publicity over confusing bewilering lyrics. Finnegans Wake addresses this of the Quran, Bible, Torah.    
 Earwicker themes, "words are hard to recognize" from the video    
+Donald Trump as widecard, egoism disco ball to audience.    
 https://www.youtube.com/watch?v=hgj8R-yS6hY
