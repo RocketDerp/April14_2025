@@ -470,4 +470,12 @@ merikariu 2016-01-31
 
 "I think it shows how delusional and utterly disconnected from reality many people are. They are the insane ones and, sadly, they seem to outnumber the same citizens."
 
-* :::=== RoundSparrow_Commentary : We have not faced up that Torah / Bible / Quran / Upanishads / Scientology are science fiction stories. People willing to abandon nonfiction science thinking in favor of fiction storytelling about outer-space aliens. MOoses and the burning bush. ===:::
+* :::=== RoundSparrow_Commentary : We have not faced up that Torah / Bible / Quran / Upanishads / Scientology are science fiction stories. People willing to abandon nonfiction science thinking in favor of fiction storytelling about outer-space aliens. Moses and the burning bush. Fox News and the miricle wealth lords. Putin's IRA and the magical war against Ukraine since February 2014. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right_maybe_donald_trump/nbqtorz/
+
+TintedApostle 2022-01-15
+
+"Trump is what happens when the media falls in line and refuses to challenge the myths."
