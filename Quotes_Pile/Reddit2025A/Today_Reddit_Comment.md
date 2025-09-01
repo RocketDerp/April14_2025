@@ -418,3 +418,11 @@ https://old.reddit.com/r/BlueskySkeets/comments/1n5syn4/hypocrisy_much/nbv1dqg/
 Ok_Explorer_8151 2025-09-05
 
 "I never pray because I believe all religions are bullshit, but I am praying to see the day when Biden is standing over Trump's putrid and decaying corpse at the funeral and gives him a single-eyed wink with the biggest shit eating smirk of all time."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n5syn4/hypocrisy_much/nbv6upy/
+
+ZarosGuardian 2018-08-12
+
+"The only thing these hardcore MAGA people want to do is "own the libs" and hurt marginalized groups. They don't care if it hurts them too, misery loves company after all."
