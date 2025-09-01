@@ -303,3 +303,12 @@ Busby5150 2022-02-27
 A MAGA does just the opposite. They blindly DEFEND all information and REFUSE to believe it could possible be incorrect. Anything that does not make them feel good is simply labeled FAKE NEWS. This is what children do.
 
 Which camp do you want to be in?"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbu8e83/
+
+Psilocybe-Philosophy 2024-12-08
+
+"Why couldn’t trump have been on the Biggest Loser instead of the apprentice. Seems more appropriate and we would still have a democracy"
+
