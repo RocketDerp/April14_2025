@@ -34,6 +34,28 @@ Iswaterreallywet 2017-10-20
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n5k4p2/eu_heads_plane_hit_by_suspected_russian_gps/nbt6vau/
+
+TryHard2TryHarder **2025-08-14 (new account)**
+
+"Everyone is afraid of a hot WW3, and while it's right to avoid that, it's not right to allow Russia to attack the West through influence, propaganda, undersea cable cutting, GPS jamming, etc. without consequence, and purely financial responses aren't deterring them.
+
+Eventually influence campaigns get the job done, seeding a societal cancer that eventually kills the host. We're seeing that today across Europe and in the US.
+
+Russia only understands force."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n5k4p2/eu_heads_plane_hit_by_suspected_russian_gps/nbt7u8g/
+
+NMe84 2014-01-24
+
+"The real question is why we're not doing the same they are doing. Where are our attempts to unseat Putin? It's one thing to not want to escalate, but Russia set the rules of the game. Why aren't we playing?"
+
+* :::=== RoundSparrow_Commentary : People againt Putin are not self-aware that what Surkov information warfare does is make people addicted to entertainment-based politics. Fiction outselling nonfiction also takes on Saudi Arabia Mecca, Russia, Palestine, Israel, etc. Putin is convincing people that "War All Against All" (Surkov calls the 5th World War) is more social media engagement and excitement than compassionand love. This is a LONG standing problem of the Bible fiction storytelling in USA. Sports games, video games, addictions to competition to entertainment - not learning nonfiction self-improvement. Entertainment of war, entertainment of hate insulting mocking of out-groups is the values of Putin. And USA has discarded science and compassion values in favor of entertainment. "Fight fire with fire" means fight entertainment Putin and Trump with more entertainmet. It has wercked the Earth itself with climate change and religion entertainment wars. Trash mockery politics on Reddit outsells nonfiction sincere leaders. Rupert Murdoch's Fox News fiction outsells important science learning and comprehension. ===:::
+
+&nbsp;
+
 # Sunday August 31, 2025
 
 &nbsp;
