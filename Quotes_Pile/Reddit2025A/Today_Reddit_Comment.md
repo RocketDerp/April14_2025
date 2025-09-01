@@ -173,3 +173,13 @@ Wide_Environment618 **2025-08-24 (new account**, top voted comment in posting)
 "It’s a cult. They cannot think for themselves."
 
 * :::=== RoundSparrow_Commentary : Very popular statement on social media. What is unpopular on social media: nonfiction teaching and learning about cult deprogramming. Education and teaching are not attractive. Mocking and insutling and name-calling incredibly popular. Twitter-length Tweet-thinking. "It’s a cult. They cannot think for themselves." - the issue is not *original creative thinking*, the issue is taht the thinking is self-harm to the USA. The thinking is follow Cambridge Analytica thinking since March 2013. The abandonment of nonfiction in favor of total mockery. "No Siht Sherlock" on Reddit is that kind of conditioned mockery I am witnessing as a cult repetitive chanting. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbu2ks3/
+
+Level_Technician8332 **2025-07-28 (recent account)**
+
+"One of the greatest failures of the media will be the baffling inability to label MAGA as a cult sooner. They still haven’t. Until there is a unified declaration of what we are dealing with it seems too many people will keep sleepwalking towards full on authoritarianism."
+
+* :::=== RoundSparrow_Commentary : Always looking to rich people who own big media platforms to do it. People with spare time and free time on Reddit social machines don't want to organize and stay on the same page of important topics of nonfiction. Such as cult deprogramming. Instead, looking for "the media" and ignoring that "social media" is right in front of their face on their touchscreen. ===:::
