@@ -1228,3 +1228,8 @@ https://www.youtube.com/watch?v=0y2fDrv47U4
 
 Reddit front page, isnaity of Gaza. I find people are unable to recognize their anti-Malala behaviors on social media globally since October 8, 2013 book published. There are many great truths in Malala's book and people are avoidant of them. Why can't people declare ALL war, Ukraine and Gaza and Sudan all bad? We glorify war for spectacle entertainment in films / TV shows / video games... and we don't take nonfiction educaiton serious like Malala is pointing out.     
 https://old.reddit.com/r/Fauxmoi/comments/1n54tqw/spike_lee_i_just_find_it_insane_that_if_you_speak/
+
+&nbsp;
+
+We are all watching the aftermath of a loss to Russian information warfare.    
+https://old.reddit.com/r/washingtondc/comments/1n54903/a_protester_at_union_station/
