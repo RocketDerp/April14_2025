@@ -253,5 +253,16 @@ FarmingDowns 2023-05-27
 
 "It's ironic you chose to type that on this leftist echochamber lol."
 
-* :::=== RoundSparrow_Commentary : lol lol lol lmfao Twitter-length comments on serious "no shit, Sherlock!" subjects. A constant social-media laugh track, like terrile TV comedy adapted to social machines.
-"Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 - publshed the last time the USA had an **entertainment President of the United States of America - Ronald Regan second term 1985**. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley ===:::
+* :::=== RoundSparrow_Commentary : lol lol lol lmfao Twitter-length comments on serious "no shit, Sherlock!" subjects. A constant social-media laugh track, like anti-intellectual TV comedy laugh tracks adapted to social machines.
+"Who is prepared to **take arms against a sea of amusements?** To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 - publshed the last time the USA had an **entertainment President of the United States of America - Ronald Regan second term 1985**. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbu1k6q/
+
+brianishere2 2020-10-07
+
+"Republicans, and especially Trump, are 100% insulated from any consequences from their disastrous policies and obvious corruption because of FOX NEWS. Fox News is the real enemy that is enabking the destruction of America."
+
+* :::=== RoundSparrow_Commentary : Fox News is from October 7, 1996. Reddit is from July 2005. [Bluesky meme entertainment venue became a big hit in earlt November 2024](https://www.theguardian.com/technology/2024/nov/12/us-election-bluesky-users-flee-x-twitter-trump-musk). Every media addict stand upon their amusement mill saying the problem is entertainment Fox News. Tree after tree, nobody wanting to confront the whole forest of amusmeent mills.
+"Who is prepared to **take arms against a sea of amusements?** To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 - publshed the last time the USA had an **entertainment President of the United States of America - Ronald Regan second term 1985**. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley  - And Ronald Reagan the frequent mockery and insult was that he had dementia, Alzheimer's, or other age releated brain problems. Mockery based amusement entertainment leadership. ===:::
