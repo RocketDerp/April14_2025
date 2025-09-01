@@ -123,3 +123,13 @@ snoo_spoo 2024-05-28
 "But if it were only that, he could have phoned in to Fox News by now, with a rant."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5nv9j/trumps_bill_is_a_death_warrant_say_parents_of/nbu3520/
+
+Peachy33 2012-07-30
+
+"I live and teach in a rural area. I promise that most of these folks will never know the truth. They will continue to believe that Obama and Biden and the Clintons are behind all of this. They are sick, angry, and suspicious and when Fox News is on every television telling you that the democrats are to blame it takes zero effort to believe it.
+
+It’s so difficult when I have first graders repeating things they hear their parents say. It was rough during the election. One of my students who receives several services (van transportation, reading support, speech therapy) was really excited that Trump was elected because he was “going to get rid of all the bad people in the country”. And she’s not the exception."
+
+&nbsp;
