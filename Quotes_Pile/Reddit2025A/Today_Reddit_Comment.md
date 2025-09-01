@@ -461,3 +461,12 @@ Writer_In_Residence 2022-10-08
 
 "It’s a holiday. If we do not get a 2 AM Truth Social six-post all caps meltdown I think we can call time of death."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5yap8/trumps_gaza_plan_involves_offering_palestinians/nbw4q3b/
+
+FantozziUgo 2021-12-11
+
+"There's being a moron and then there's whatever this is, but with nuclear codes."
+
+* :::=== RoundSparrow_Commentary : This is called Surkov governing. ===:::
