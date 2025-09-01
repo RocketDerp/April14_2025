@@ -426,3 +426,13 @@ https://old.reddit.com/r/BlueskySkeets/comments/1n5syn4/hypocrisy_much/nbv6upy/
 ZarosGuardian 2018-08-12
 
 "The only thing these hardcore MAGA people want to do is "own the libs" and hurt marginalized groups. They don't care if it hurts them too, misery loves company after all."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1n5yisf/viral_video_from_today_showing_several_large/nbw6sz5/
+
+zippazappadoo 2018-07-08
+
+"Wtf is going on right now? Like surely the WH staff know everyone has been speculating for days over this and it's still radio silence. Like if trump was a-ok don't you think he'd have appeared on camera or tweeted or anything? It's starting to seem like even if he hasn't croaked he's medically incapacitated like he's had a stroke or is bedridden in some way. It's so fucking weird. As far as I know every time a president has had serious medical issues in the past it was quickly reported to the media. What's with all the secrecy? At this point the longer they wait the more serious it seems."
+
+* :::=== RoundSparrow_Commentary : ***WTF Politics, What The Fuck Politics*** is Russina Surkov politics system. Surkog governing. Donald Trump plauying Tony Clifton and people going WTF WTF LOL LOL for over TEN YEARS AND TWO MONTHS in USA. Antics politics. Bewidering politics. Descrrbied December 31, 2014 - more than a decade ago by BBC Adam Curtis: https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
