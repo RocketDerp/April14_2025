@@ -577,3 +577,11 @@ https://old.reddit.com/r/pics/comments/1n5jo3o/thousands_of_locals_marched_in_os
 meeseekstodie137 2019-04-11
 
 "just another marginalized group being targeted for the sole reason of their vulnerability, happens all the time all around the world, this is just the group it's happening to currently, it's just predators being predators tbh"
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n5jo3o/thousands_of_locals_marched_in_osaka_japan/nbt9g89/
+
+TheHeroHartmut 2015-12-28
+
+"The tribalism mentality was probably very useful in the early days of humanity that lived in, well, tribes. It's only over the last few thousand years that we've settled into communities, and the stupid caveman parts of our brains just haven't quite caught up to that yet."
