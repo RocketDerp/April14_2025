@@ -1233,3 +1233,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1n54tqw/spike_lee_i_just_find_it_insan
 
 We are all watching the aftermath of a loss to Russian information warfare.    
 https://old.reddit.com/r/washingtondc/comments/1n54903/a_protester_at_union_station/
+
+&nbsp;
+
+Star Trek DS9 bad guys. References James Joyce    
+https://www.youtube.com/watch?v=sIAeD3J_bcg
