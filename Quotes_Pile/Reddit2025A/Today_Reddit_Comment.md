@@ -56,6 +56,16 @@ NMe84 2014-01-24
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n5k4p2/eu_heads_plane_hit_by_suspected_russian_gps/nbt870t/
+
+faen_du_sa 2013-03-09
+
+"Same reason democrats always "plays nice".
+
+Civilized people expect some kind of baseline of behaviour and civility, and if "we" break it, there is no one left to uphold it. I would agree at one point it has to stop, but I can kinda see it as well."
+
+&nbsp;
+
 # Sunday August 31, 2025
 
 &nbsp;
