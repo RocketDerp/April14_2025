@@ -334,3 +334,13 @@ They want to hurt others, please remember that going forward. When Republicans s
 “The other nine, decent, hard-working, ordinarily intelligent and honest men, **did not know** before 1933 that Nazism was evil. They did not know between 1933 and 1945 that it was evil. And they **do not know** it now. None of them ever knew, or now knows, Nazism as we knew and know it; and they lived under it, served it, and, indeed, made it.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933–45 (published 1955).
 “The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... **No one knew what was happening to him, least of all of the Germans**, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” ― Dr. Carl Jung, After the Catastrophe, 1945.
 If you don't know who Dr. Carl Jung is, please look him up. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5odqt/donald_trump_posting_weekold_photo_raises/nbu1bo2/
+
+J-the-Kidder 2021-08-15
+
+"How ironic would it be for this old prick to keel over on Labor Day? A day devoted to the working class, that he's spent a lifetime fucking over and swindling?"
+
+
