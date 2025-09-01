@@ -508,3 +508,13 @@ chyura 2020-12-29
 "Meh theyve already been doing it for years with other pieces of shit. No amount of crying will prevent the dancing in the streets we'll see when he eats it.
 
 You cant actively choose to make deplorable choices at every turn, publicize and rant and rave about them all as the worlds biggest media whore, then be sad or surprised when millions celebrate your death."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n5qkg7/trump_hides_from_cameras_again_amid_deteriorating/nbul8m7/
+
+coldliketherockies 2021-02-02
+
+"Yes. But also may his supporters have no peace as well. It’s been 10 years of this shit and so so so much evidence that this was toxic both in general and especially for certain segments of the population. For people to live their every day lives but ignore or cheer on so many horrific behaviors deserves karma. W"
+
+* :::=== RoundSparrow_Commentary : Same sort of values MAGA people have for Barack Obama and Hillary Clinton supporters ("Lock her Up!" chanting for years). Americans hate Americans. Russia won, Surkov won the information war. ===:::
