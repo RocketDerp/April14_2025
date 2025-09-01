@@ -466,3 +466,10 @@ The [history of *snake oil* sales techniques](https://en.wikipedia.org/wiki/Snak
 How men manipulate women into pregnency with media systems and mind-tricking messages.   
 Exploiting the attraction to exotic sexuality, exotic sexual ideas and creative fictions storytelling.    
 https://old.reddit.com/r/science/comments/1my1ssb/most_tiktok_videos_about_birth_control_are/
+
+&nbsp;
+
+### Background music playing at retail 
+
+Retail store background music systems.    
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1n5njj4/i_understand_now/
