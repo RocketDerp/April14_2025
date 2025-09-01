@@ -505,3 +505,13 @@ https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right
 xtalharry1 2019-01-27
 
 "He’s not a moron. Not in any way. Do not make the ridiculous mistake of underestimating him. He is a charismatic cunning sociopathic narcissist with the most powerful army in the world. He is a danger to our present and future."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right_maybe_donald_trump/nbqyj0e/
+
+Searchlights 2011-03-08
+
+"Despite obvious deficiencies, he demonstrates a genius for leading followers. As a cult leader there's nobody better."
+
+* :::=== RoundSparrow_Commentary : Trump's ability to master media cults is amazing. The Tony Clifton performance of drawing people in to addiction to his antics and content creation. ===:::
