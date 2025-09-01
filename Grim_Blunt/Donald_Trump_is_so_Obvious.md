@@ -33,3 +33,17 @@ https://autistics.life/@RoundSparrow/115041475227865077
 June 16, 2015 campaign rally speech at Trump Tower in New York City
 
 I hope that now, August 16, 2025 - we are reaching a point that the saturation of Donald Trump bullshit is smelling so bad that ALL people are waking up that for over 10 years rural people have trusted NYC City Slicker.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# September 1, 2025
+
+Front page of Reddit social media site.    
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/     
+“The entire WORLD can see that Trump is absolutely unqualified to lead… but those red hats shield their brains from taking in facts & data”    
+Yes, the ENTIRE WORLD can see that Trump is unqualified to lead a free-thinking democracy of educated people who understand media ecology. But what Trump is QUALIFIED to do is Reality TV "The Apprentice" and "Truth Social" meme-speak. Donald Trump is qualified to lead a society of media addicts who can not resist mocking Tony Clifton performance that Donald Trump has mastered. A blend of Surkov Russian year 2011 scripted governing methods (entertainment-based governing https://www.youtube.com/watch?v=h9_L9GRRsQo ) with Tonly Clifton audience improv. The "No Shit, Sherlock!" community of Reddit is exactly the kind of reactions a Tony Clifton performance gets from audiences. This has been going on for over ten years and two months.    
+
