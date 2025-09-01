@@ -94,6 +94,14 @@ werewolfshadow 2023-09-19
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n5k4p2/eu_heads_plane_hit_by_suspected_russian_gps/nbtvko9/
+
+donnie-stingray 2017-06-10
+
+"As much as I agree with you, my country almost put a puppet president in charge because of the propaganda, the money, and all the finely tuned influence Russia put behind him. Our secret services were so behind they only managed to put the pieces together only AFTER the court cancelled the elections because of the tampering they uncovered. They pushed propaganda through tiktok just a few months before elections. The candidate participated in NO debates. Almost a year later, we see the people that voted for him around us. They are people living abroad, sending money home, that have voted for a crazy man that was about to close the boarders to Europe and basically strip us of any NATO protection. As much as you want to blame the common man, this psychological warfare is something hard to detect and combat."
+
+&nbsp;
+
 # Sunday August 31, 2025
 
 &nbsp;
