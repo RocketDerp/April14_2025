@@ -518,3 +518,11 @@ coldliketherockies 2021-02-02
 "Yes. But also may his supporters have no peace as well. It’s been 10 years of this shit and so so so much evidence that this was toxic both in general and especially for certain segments of the population. For people to live their every day lives but ignore or cheer on so many horrific behaviors deserves karma. W"
 
 * :::=== RoundSparrow_Commentary : Same sort of values MAGA people have for Barack Obama and Hillary Clinton supporters ("Lock her Up!" chanting for years). Americans hate Americans. Russia won, Surkov won the information war. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n5qkg7/trump_hides_from_cameras_again_amid_deteriorating/nbuzwrr/
+
+WeirdcoolWilson 2023-06-13
+
+"That fucker is ADDICTED to media attention, in any form he can get it. For him to hide means he’s dead already"
