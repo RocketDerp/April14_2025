@@ -1633,3 +1633,17 @@ AlbionPCJ 2018-08-18
 "It's reality warfare. They're trying to override the world as it exists with one that automatically validates their beliefs despite the fact that they keep being contradicted by real life at every turn. That they're doing this while they hold actual power is even sadder- they can't just be in charge, reality itself must be constantly bending over backwards to justify them at every turn
 
 Edit: For any wrestling fans out there, it's a sort of "hyper-kayfabe". It is not only not enough to believe and buy into the false reality for your narrative to make sense in spite of the contradictions, you must roll that constructed universe back onto itself to force the real world to become a mirror of the fake one to try and destroy the contradictions entirely"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5ru6d/trump_admits_his_administration_is_being_ripped/
+
+Why oh why does social media socity ignore factual hard evidene about vacination information warfare out of Russia's IRA going back to year 2014? https://www.bbc.com/news/world-us-canada-45294192
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5rek2/trump_is_wiping_out_unions_why_are_they_so_quiet/
+
+Unions have been manipulated by the IRA and CA since March 2013. Deep mind-fucking of the population to self-harm.
