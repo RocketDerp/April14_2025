@@ -479,3 +479,13 @@ https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right
 TintedApostle 2022-01-15
 
 "Trump is what happens when the media falls in line and refuses to challenge the myths."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right_maybe_donald_trump/nbqxk3w/
+
+KaijuNo-8 2024-06-30
+
+"How it isn’t completely, blatantly, overwhelmingly obvious to everyone blows my mind. We have soooooooo many uneducated people in this country. We need to overwhelm with Blue and fix our education system that the bastards have been gutting for 50 years."
+
+* :::=== RoundSparrow_Commentary : USA society is unable to cite mutiple NATO nations reporting Russia's War Against Reality since year 2013. ===:::
