@@ -478,3 +478,13 @@ https://old.reddit.com/r/politics/comments/1n5yap8/trumps_gaza_plan_involves_off
 Still_Independent_90 2023-08-24
 
 "There is literally no depth to which this man will sink. At this point he has sunk so far that Hell has lost 400 acres."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n5yap8/trumps_gaza_plan_involves_offering_palestinians/nbwhsnd/
+
+Drak_is_Right 2014-09-05
+
+"Mate, this isnt even the most disgusting thing I have heard in 2025. The Sudan situation is fucked (and completely ignored).
+
+It is top 3 most fucked things I have heard from Trump in 2025 though."
