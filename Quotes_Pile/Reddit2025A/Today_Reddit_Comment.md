@@ -1,3 +1,14 @@
+# Monday September 1, 2025
+
+https://old.reddit.com/r/politics/comments/1n5l8zx/donald_trump_responds_to_viral_health_rumors/nbtd8x3/
+
+joekerr9999 2019-09-13
+
+"HIs is the classis dilemma of the liar. Trump lies so much he has no credibility at all. There is no transparency. The American people really have no information on the president's health. So what do the republicans do? They investigate Biden from a year ago. And so it goes."
+
+
+&nbsp;
+
 # Sunday August 31, 2025
 
 &nbsp;
