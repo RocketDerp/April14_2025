@@ -232,3 +232,26 @@ Efficient_Smilodon 2020-08-02
 "it's the same phenomenon in terrorists and the goal of martyrdom. Their ego becomes so warped by the lies it is fed that they would rather die than change. It's a testament to the power of identification with dogma , the ultimate poison, to create a life so unmoored from the natural way of life that it would rather die than truly face the responsibility of living in harmony with reality."
 
 * :::=== RoundSparrow_Commentary : The reality of comparative mythology. The reality that billionares create media content that they feed to the ppor people... trickle down content to worship the rich and famous. Stories about how Heaven awaits after death. How Donald Trump is Jesus and god. How mocking and hate are the best answer to the future. Liign in an ocean of "reality" where hate is prized and every media system is polluted with mockery and insulting. Live in harmony with ChatGPT and Grok AI fiction content all over every media platform and media system. Including printed books. https://www.npr.org/2025/05/20/nx-s1-5405022/fake-summer-reading-list-ai  ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbulcrg/
+
+PhillySaget 2024-03-23
+
+<img width="924" height="854" alt="image" src="https://github.com/user-attachments/assets/9b0a69e6-e0c7-47e2-9e2d-3a4e06c1f00e" />
+
+" "It’s a cult. They cannot think for themselves." he says to his echo chamber, as they mindlessly upvote his comment to the top."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbum8wb/
+
+FarmingDowns 2023-05-27
+
+"It's ironic you chose to type that on this leftist echochamber lol."
+
+* :::=== RoundSparrow_Commentary : lol lol lol lmfao Twitter-length comments on serious "no shit, Sherlock!" subjects. A constant social-media laugh track, like terrile TV comedy adapted to social machines.
+"Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 - publshed the last time the USA had an **entertainment President of the United States of America - Ronald Regan second term 1985**. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley ===:::
