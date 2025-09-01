@@ -452,3 +452,12 @@ https://old.reddit.com/r/TikTokCringe/comments/1n5yisf/viral_video_from_today_sh
 Waggonly 2023-11-02
 
 "Is this for real? How can somebody possibly video from this vantage point? Promo access and without being gunned down by Secret Service?"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n60cpk/donald_trump_news_potus_spotted_on_the_golf_course/nbwk6q2/
+
+Writer_In_Residence 2022-10-08
+
+"It’s a holiday. If we do not get a 2 AM Truth Social six-post all caps meltdown I think we can call time of death."
+
