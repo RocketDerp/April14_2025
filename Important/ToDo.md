@@ -1238,3 +1238,10 @@ https://old.reddit.com/r/washingtondc/comments/1n54903/a_protester_at_union_stat
 
 Star Trek DS9 bad guys. References James Joyce    
 https://www.youtube.com/watch?v=sIAeD3J_bcg
+
+&nbsp;
+
+Wildcard lyrics, MonoMyth lyrics without infinite meaning.    
+Publicity over confusing bewilering lyrics. Finnegans Wake addresses this of the Quran, Bible, Torah.    
+Earwicker themes, "words are hard to recognize" from the video    
+https://www.youtube.com/watch?v=hgj8R-yS6hY
