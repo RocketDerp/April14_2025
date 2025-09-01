@@ -444,3 +444,11 @@ https://old.reddit.com/r/TikTokCringe/comments/1n5yisf/viral_video_from_today_sh
 mmmck2 2021-12-25 (Christmas)
 
 "This is SO weird. WTF??? Somebody should ask the liar in the press room about it. It would be interesting to hear what lie she will tell."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1n5yisf/viral_video_from_today_showing_several_large/nbw84oj/
+
+Waggonly 2023-11-02
+
+"Is this for real? How can somebody possibly video from this vantage point? Promo access and without being gunned down by Secret Service?"
