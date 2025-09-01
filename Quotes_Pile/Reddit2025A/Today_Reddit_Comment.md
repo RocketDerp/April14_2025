@@ -390,3 +390,23 @@ https://old.reddit.com/r/PublicFreakout/comments/1n5wzap/nothing_to_see_here_jus
 Leopardos40 2017-08-05
 
 "You know, back in the early ’90s, as a non-American high school student, we used to see the US as a kind of high society—almost like Wakanda. What I’m seeing right now feels like rock bottom."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1n5wzap/nothing_to_see_here_just_black_bags_being_tossed/nbw5nwh/
+
+maeryclarity 2020-01-04
+
+"That's because, just like Wakanda, the "America" that you saw was a fictional creation based on the media's portrayal of America. People in AMERICA believe that the REAL America is somewhere else out there, somewhere nice and clean and fancy, where everyone's happy and life is fairly easy.
+
+Not in THEIR town of course but somewhere.
+
+It's part of where the anger and entitlement particularly of less educated/traveled people in the USA is coming from, the concept of "relative poverty" is important in psychology....if you have a perfectly nice and nutritious meal, but everyone else around you is having something fancier to eat, suddenly your nice nutritious meal may seem like garbage to you because everyone else is having something nicer.
+
+Which is stupid, okay, but that's how our minds work.
+
+People with an education who have travelled around a bit understand that the USA is not what the media makes it appear to be, and so they're not as bothered by the idea of relative poverty.
+
+But people who do NOT have that experience see their adequate lives in their town as being RELATIVELY garbage because they're comparing their life situation to Wakanda, basically, and they're mad that they will never get a chance to go live there. And they get even MORE mad when anyone tries to make changes that would actually make their lives better, because they already believe that so many other people have lives so much better than theirs, and political figures have taken advantage of that to push the idea that it will get worse if we do anything like, say, health care for all.
+
+They literally don't understand it's not real and that damn near everything they think they know is a lie."
