@@ -319,3 +319,18 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torche
 Umbrella_Viking 2021-06-12
 
 "It’s very apparent that he is a Russian asset. There is so much evidence that it’s unequivocal."
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbv2ru6/
+
+VaselineHabits 2020-05-30
+
+"Which should tell everyone else what they need to know about Trump supporters. *By this point*, THEY do know better - they support a twice impeached convicted felon and pedophile with *vigor*
+
+They want to hurt others, please remember that going forward. When Republicans show you who they are, *believe them*"
+
+* :::=== RoundSparrow_Commentary :  No, they do not. I am the only non MAGA worshiper in my entire extended family of dozens.  They actually believe mocking will make a better future. Their religion is that more mocking and more insulting will better the world for their children. That hate and dehumanization is the path forward for humanity. They are entirely addicted to fiction and avoidant of nonfiction. Avoiding reality itself. They consider reality boring and tedious and flock from meme system to meme system of MAGA worship values.
+“The other nine, decent, hard-working, ordinarily intelligent and honest men, **did not know** before 1933 that Nazism was evil. They did not know between 1933 and 1945 that it was evil. And they **do not know** it now. None of them ever knew, or now knows, Nazism as we knew and know it; and they lived under it, served it, and, indeed, made it.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933–45 (published 1955).
+“The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... **No one knew what was happening to him, least of all of the Germans**, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” ― Dr. Carl Jung, After the Catastrophe, 1945.
+If you don't know who Dr. Carl Jung is, please look him up. ===:::
