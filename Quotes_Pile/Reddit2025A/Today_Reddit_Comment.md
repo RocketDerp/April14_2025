@@ -104,6 +104,18 @@ donnie-stingray 2017-06-10
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n5k4p2/eu_heads_plane_hit_by_suspected_russian_gps/nbtot2f/
+
+morpheousmorty **2025-07-27 (new account)**
+
+"We (western democracies) are fighting back, but Putin has tighter control over the media than we do. In addition the amount of information needed to make change is much higher, because you aren't going to win elections with information campaigns. You'd have to influence the Russian public enough to revolt.
+
+Finally, they are just better at it. I'm not aware of any western disinformation campaign as successful as Brexit or Trump.
+
+We might be smarter to do things like stuxnet in Russia. That we have shown aptitude in."
+
+&nbsp;
+
 # Sunday August 31, 2025
 
 &nbsp;
