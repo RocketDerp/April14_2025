@@ -523,3 +523,13 @@ https://old.reddit.com/r/worldnews/comments/1n54p1m/trump_officials_discussed_50
 iamawj101 2020-10-25
 
 "Russia loves amplifying these fringe separatist movements so, naturally, Trump officials would encourage it."
+
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1n57l5o/gen_z_men_are_blaming_democrats_for_trump/nbql3w6/
+
+PlainBread 2010-05-07
+
+"As a Millennial I'm disgusted that we had to deal with cable TV networks manipulating stupid people, but now thanks to bot farms and LLMs, the internet is manipulating stupid people as well.
+
+The internet was supposed to save us, not become a far more complicated form of enslavement."
