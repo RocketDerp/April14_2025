@@ -461,3 +461,13 @@ https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right
 mr_cristy 2014-09-10 (Self-declared Canadian)
 
 "I feel like an insane person due to this man. Like me, my wife, and all of my friends find it so incredibly obvious that he's a corrupt moron but my mom and all my aunts and uncles and my sisters all think he's God's gift, a brilliant and morally upstanding man. I've literally heard people I know compare him to Jesus. I'm not religious at all but I'm pretty sure Jesus would be flipping a lot of tables over that comparison."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right_maybe_donald_trump/nbr1z04/
+
+merikariu 2016-01-31
+
+"I think it shows how delusional and utterly disconnected from reality many people are. They are the insane ones and, sadly, they seem to outnumber the same citizens."
+
+* :::=== RoundSparrow_Commentary : We have not faced up that Torah / Bible / Quran / Upanishads / Scientology are science fiction stories. People willing to abandon nonfiction science thinking in favor of fiction storytelling about outer-space aliens. MOoses and the burning bush. ===:::
