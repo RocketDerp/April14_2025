@@ -497,3 +497,11 @@ https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right
 hmr0987 2018-01-05
 
 "He’s done one thing well through his whole life and that’s know how to manipulate people and turn anything into a positive. He’s a racist, misogynistic, xenophobic, rapist and potential pedophile who has bankrupted business after business (including a freaking Casino) and now a country."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n58lpy/maybe_rex_tillerson_was_right_maybe_donald_trump/nbqujvd/
+
+xtalharry1 2019-01-27
+
+"He’s not a moron. Not in any way. Do not make the ridiculous mistake of underestimating him. He is a charismatic cunning sociopathic narcissist with the most powerful army in the world. He is a danger to our present and future."
