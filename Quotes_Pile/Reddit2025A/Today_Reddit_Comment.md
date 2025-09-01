@@ -66,6 +66,19 @@ Civilized people expect some kind of baseline of behaviour and civility, and if 
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n5k4p2/eu_heads_plane_hit_by_suspected_russian_gps/nbtl0y6/
+
+Breezel123 2018-06-13
+
+"Germany investigated the Nordstream pipeline bombing like it was the most important thing ever. When they requested information from polish law enforcement about some people involved, Poland was like "lol, nah". It's a fucking war, why are we investigating the side that does these things to defend themselves and weaken the aggressor? And to what end? Are we going to arrest the Ukrainians that did it? It has no consequence now that it's done and it was a convenient way for Germany to get out of the remaining contracts without being held responsible for rising energy prices resulting from it.
+
+Germany isn't even able to weaken the propaganda of the AfD, let alone working on tools to counter Russian propaganda."
+
+* :::=== RoundSparrow_Commentary : AfD is selling the message that hate and mocking of outsiders has long-term payoffs. That love and compassion should be abandoned in favor of addiction to hate and mass dehumanization. Which is more popular in video games, war and killing entertainment. Real life, authentic nonfiction learning - what Malala is begging people to do... doesn't sell like AfD and Russia's hate content. Comprehension and understanding are boring to people who want enemy to mock and hate. ===:::
+
+&nbsp;
+
+
 # Sunday August 31, 2025
 
 &nbsp;
