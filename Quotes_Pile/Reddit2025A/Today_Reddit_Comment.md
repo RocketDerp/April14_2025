@@ -208,3 +208,17 @@ nikkymikkyboobs **2025-08-18 (new account)**
 
 * :::=== RoundSparrow_Commentary : I spot a Twitter-length tweet-thinking, I call it for what it is. We The People refuse to call it what it is: A Total Mockery. Group A mocking group B, group B mocking group C, group C mocking gorup A. Every pattern imaginable of out-group mocking. **United States of hate and United States of Total Mockery**, united in the faith that insulting, mocking, and avoiding learning Russian information warfare techniques of Surkov and Putin will better the future of the USA. Mockery as relgion, mocking as faith. Media addiction to notifcations about "the out-group" mockery.
 "Our politics are unhinged. He saw it coming 40 years ago" : https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1n5oh75/jasmine_crockett_torches_maga_after_the_president/nbu1oqw/
+
+AutisticHobbit 2017-12-06
+
+"Won't. They can. They simply refuse.
+
+Admitting the truth about what they see? Means admitting that they are wrong. They would rather end themselves than do that.
+
+Their ego is more precious to them than the truth, their faith, or any life on this planet. They would rather be dead than wrong."
+
+* :::=== RoundSparrow_Commentary : People can not stop their runaway addiction to mockery and insutling. Donald Trum provided nonstop entertainment, amusement, mockery. Constantly mocking the Tony Clifton acts performed by Donald Trump has wrecked nonfiction attractions. ===:::
