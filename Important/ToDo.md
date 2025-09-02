@@ -1256,3 +1256,8 @@ https://www.youtube.com/watch?v=CAm_L6CTnD4
 
 Reddit mafia. how Reddit is used to influence AI training, etc.     
 https://www.youtube.com/watch?v=RjUcfSVuU1A
+
+&nbsp;
+
+Shakespeare vs. James Joyce    
+https://old.reddit.com/r/whenthe/comments/1n6rr2q/zounds/
