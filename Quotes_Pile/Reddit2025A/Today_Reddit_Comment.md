@@ -541,3 +541,13 @@ Kernburner 2021-08-28
 "It’s rather fitting that the most infamous conspiracy theorist of our times is falling victim to conspiracy theories. All I know is I want to see Trump’s birth certificate to prove he wasn’t born in Kenya."
 
 * :::=== RoundSparrow_Commentary : Garbage information into minds, garbage repeating on social media systems. A society flocking to fiction and avoidant of nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6sjev/donald_trump_looks_rough_and_is_45_minutes_late/nc2e4st/
+
+ZampanoGuy 2025-02-08
+
+"If you pay attention, Melania is slowly morphing into Trump. Just look at the faces."
+
+* :::=== RoundSparrow_Commentary : If you pay attention, the United States of America has been morphing into Tony Clifton acts of Donald Trump on every media outlet since year 2013. Putin and Surkov governing techniques applied to social media and White House entertainment addictions. ===:::
