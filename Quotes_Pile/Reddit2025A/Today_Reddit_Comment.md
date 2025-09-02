@@ -180,3 +180,22 @@ DewSchnozzle 2012-12-13
 
 "Tom Clancy himself couldn't write a better novel about Russian infiltration than what we're seeing happen in real life"
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6hkww/donald_trump_to_make_televised_announcement_at/nc0b4ub/
+
+"haberdasher42" 2012-05-23
+
+<img width="1612" height="830" alt="image" src="https://github.com/user-attachments/assets/b99e9c1a-4f45-465f-b8eb-871bc2937f27" />
+
+&nbsp;
+
+"How do you all not understand that you're being led around by the nose? They used the Epstein distraction for as long as it was useful and now it will be ignored until it seems convenient again.
+
+Hell, even if he was on video fucking a teenage girl half his base would say it's fake and the other half would just ignore it just like they do when they hear Pastors and community leaders fuck their own kids. Nothing would be done.
+
+I honestly don't understand why you all keep thinking these issues are anything more than ways to keep you shouting into the void."
+
+&nbsp;
