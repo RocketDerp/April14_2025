@@ -594,3 +594,22 @@ Cabrill0 2018-08-29
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6sjev/donald_trump_looks_rough_and_is_45_minutes_late/nc2xpo1/
+
+Doublejimjim1 2021-07-07
+
+<img width="1118" height="1270" alt="image" src="https://github.com/user-attachments/assets/33d855ac-43ed-45d9-9cdd-23e99d1bb796" />
+
+"Like every day the last 10 years. He skates on every charge against him, he doesn't really ever look worse other than the natural aging process of a 70-80 year old male. These stories are always, he's going down for sure, his health is so bad etc. Nothing ever changes. Wake me up when he dies. Actually don't because nothing is going to change."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6sjev/donald_trump_looks_rough_and_is_45_minutes_late/nc2y5lj/
+
+ISFJ_Dad 2022-04-11
+
+"Exactly so who’s been pushing all these doctored up photos the last few days. I dont like the guy personally but dens keep pushing these fake narratives that keep ending up false."
+
+&nbsp;
