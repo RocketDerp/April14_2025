@@ -522,3 +522,12 @@ UnquestionabIe 2013-12-31 (NYE)
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1n6htjp/leaked_plan_from_trump_administration_to_make/nc0exmb/
+
+versusgorilla 2008-02-14
+
+"They're trying to convince people that the people aren't being slaughtered in a religious holy extermination, but they're simply being removed from their impoverished situation in order to make way for the high tech futurist city of tomorrow! Futurists rejoice! *It's not a genocide, it's the hard work that needs to be done in order to become a true futurist society*
+
+Nevermind how they could do this shit in the farmlands of Texas if they really wanted, or Israel could volunteer any of their coastline. They don't HAVE to do the world of tomorrow on the ruins of the Palestinian's last strip of land."
+
+* :::=== RoundSparrow_Commentary : “It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992 ===:::
