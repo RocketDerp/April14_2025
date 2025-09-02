@@ -349,3 +349,23 @@ https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_e
 Reddvox 2019-01-29
 
 "These times ... when the clown/comedian is the only truly trustworthy adult and competent politician in the room..."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_ever_agreed_on/nc00wy8/
+
+neddiddley 2021-01-30
+
+"It doesn’t really require you to believe either fascist dictator as long as you acknowledge the pattern of one fascist dictator is Lucy holding a football and the other is Charlie Brown lining up to kick it."
+
+* :::=== RoundSparrow_Commentary : Which is a scripted fiction comic strip and television series. Authored specifically as fiction. Surkov governing: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ Donald Trum playing Charlie Brown, Trump playing Tony Clifton. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_ever_agreed_on/nbzl7p9/
+
+pongomanswe 2015-12-11
+
+"This is really hard to follow. Russia is known to lie constantly. Trump is known to lie and/or misremember things. Those two together threaten the truth-lie continuum, making me worry about our existence."
+
+* :::=== RoundSparrow_Commentary : There can be 57 TV channels of fiction content. Fiction channel 3, fiction channel 4, and so forth. But nonfiction isn't selling. Nonfiction is not popular. That's how the War Against Reality / War Against Nonfiction works since March 2013. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." https://www.youtube.com/watch?v=YAlDbP4tdqc ===:::
