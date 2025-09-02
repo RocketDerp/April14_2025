@@ -37,3 +37,9 @@ ReporterNervous6240 2021-04-06
 "Donald trump disappearing due to all these different rumours of ill health/death not long after a meeting with Putin, is this not raising any questions?"
 
 &nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n6c0xj/calling_it/nbzl4zk/
+
+MrsMoonpoon 2018-11-03
+
+"I think he is fine unfortunately. This is likely manufactured so we stop talking about the Epstein files."
