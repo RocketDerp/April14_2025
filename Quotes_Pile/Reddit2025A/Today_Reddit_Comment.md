@@ -214,3 +214,10 @@ At the end of the day, no matter what comes to light with Epstein or what happen
 
 &nbsp;
 
+https://old.reddit.com/r/inflation/comments/1n6gdr7/the_trump_effect/nc0gszr/
+
+Oily_Bolts  2025-07-22 (recent account)
+
+"The one constant among the internet over the last 20 years is that whatever value for inflation the government reports is hilariously inaccurate when compared to day to day inflation that your average middle class consumer has to deal with.
+
+But now that Trump's in office, everyone suddenly believes the "no inflation" lie. Like I could understand people believing 2-3% inflation because that's what they've been saying the average has been for years, but straight up NO inflation? Come on now, they're just *trying* to be as stupid as possible at this point"
