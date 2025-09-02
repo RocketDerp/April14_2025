@@ -613,3 +613,13 @@ ISFJ_Dad 2022-04-11
 "Exactly so who’s been pushing all these doctored up photos the last few days. I dont like the guy personally but dens keep pushing these fake narratives that keep ending up false."
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1n6u8ko/trump_calls_video_of_bag_being_thrown_from_white/nc2qocs/
+
+Dull-And-Witless-Boy 2025-01-25 (new this year)
+
+"Why would he acknowledge it at all? I feel like him saying anything at all about it is a dead giveaway it's real. Why would he say anything about a fake video? There's millions of them."
+
+* :::=== RoundSparrow_Commentary : Twitter-thinking logic. It was seen in public out an open window, so it must mean something! QAnon style logic. As if a house doesn't have all kinds of movement within that you can't normally see. Just when you spot a mysery bag with unknown contents, it's news! In fiction storytelling, that's a "mystery box". ===:::
+
+&nbsp;
