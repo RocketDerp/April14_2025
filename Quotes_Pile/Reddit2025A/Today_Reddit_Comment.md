@@ -107,3 +107,11 @@ https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_r
 delusiongenerator 2016-04-06
 
 "This is the real work that got done when we rolled out the red carpet for a Russian mafia strategy meeting on American soil and called it a peace summit."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc00qpv/
+
+Due_Letterhead_5558 2024-11-24
+
+"You have to be shockingly stupid to put on a hat like this about yourself, much less wear one on camera, much less do so as the president. And not “stupid” in the insulting way, but in the “mind completely and utterly in shambles” way. It boggles the mind, seeing this and accepting it as real."
