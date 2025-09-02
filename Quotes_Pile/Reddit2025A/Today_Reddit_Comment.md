@@ -91,3 +91,11 @@ https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_r
 TheRealBittoman 2019-11-07
 
 "Trump and Republicans are being played by Russia. The rest of us are the ones those folks kept mocking us with "Russia, Russia, Russia". We're the majority and we're definitely not doing it willingly."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nbzsm22/
+
+Goodk4t 2014-12-12
+
+"A purge of those loyal to the country - all enabled by 77 million of brain dead American voters who elected a pedophile well known to be beholden to a Russian dictator. "
