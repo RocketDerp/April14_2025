@@ -499,3 +499,15 @@ https://old.reddit.com/r/politics/comments/1n6s38x/trump_to_make_white_house_ann
 MomsAreola 2014-03-19
 
 "It doesnt make any sense as to why one state is better than the other. When Trump says "because mail in ballots" were fucked. He wants to move all major military presence out of blue states ahead of civil war."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6s38x/trump_to_make_white_house_announcement_amid/nc28uhi/
+
+godzillachilla 2019-03-01
+
+"Is this about Epstein? No? Then we don't care"
+
+* :::=== RoundSparrow_Commentary : Twitter-length binary-thinking (1 single bit) Tweet-logic. Promoting that you should be a one-topic concern, one and only one thing to pay attention to. Simplicity itself. ...
+"And I think that… the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s **the most powerful political rhetoric in a world** with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple”" - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ ...
+And notice how many of the single-topic voters only want to vote on sex. Sex of women having abortions about sexual pregnancy. Sex of Donald Trump on Epstein's rich people sex lives private jet. Every other topic is of zero concern, only that they constantly message to everyone that [ONLY ONE THING MATTERS](https://en.wikipedia.org/wiki/Single-issue_politics): sex topics. ===:::
