@@ -464,3 +464,23 @@ noda237 2020-10-07 (October 7, joined on Putin's birthday, Fox News birthday)
 
 "Pointless. The people voice is dead. The 1% own the world and will do with it what they want. The rot is too deep for society to be saved at this point"
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6kigf/breaking_an_enormous_protest_has_erupted_outside/nc1o5sv/
+
+Shadowflame247  2018-05-28
+
+"Ok, respectfully, I get the desire to embellish; but 'enormous' is not the word that comes to mind when I watch the video. They took over maybe a city block, if that? Access to Trump Tower was not impugned in any real way. The numbers weren't particularly staggering. And...everyone will think I'm criticizing the protestors. I'm not. I'm criticizing the headline.
+
+We, as a people, are exhausted by embellished sensationalized headlines that call us to action while presenting an image of media clip that presents a starkly different picture to what's being projected in the wording. This discredits and diminishes any attached movement, because it makes the movement seem, in the uninformed viewer's eyes, desperate for attention.
+
+Essentially: You have called my attention to this event; and presented it as a large, substantive incident; when in reality it is no more or less then the hundreds and thousands of moderately sized protests I have already seen. You got my hope up that finally action was being taken; and the absence of that in reality, reminded me of the deficit of energy that we seem to be suffering. You have wasted my time, you have wasted my energy; and you made the movement seem desperate and inadequate.
+
+I understand you have to write eye catching headline; it's your job. But don't rely on explosive wording to do it. It would have been a much better headline to say, "Protests across the nation against the Trump Regime ongoing. The latest has occurred in front of Trump Tower; and is the most recent indication that the movement is gathering steam."
+
+Even better would have been to do some actual reporting; and finding out if there's any cross philosophy agitation involved; are there a handful of former Red Hats? If so, what motivated them to change perspective. What's the common ground? What are the issues?
+
+But hey. What can you do. We should have buried tabloid journalism when we had the chance. Instead of allowing an unnecessary unholy union of information and entertainment."
+
