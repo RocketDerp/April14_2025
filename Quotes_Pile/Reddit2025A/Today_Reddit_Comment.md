@@ -20,6 +20,15 @@ I seriously think it will only be a slight realignment to reach this state, and 
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n6c0xj/calling_it/nbzooxd/
+
+AndrewTheAverage 2019-06-21
+
+"I think people are too high on the hopium.
+
+There is evidence he is unwell, but no evidence he is catching up with his mate Jeffery. He has access to some of the best medical care in the world - you know, the health care paid for by the people he is removing health care from"
+
+&nbsp;
 
 # Monday September 1, 2025
 
