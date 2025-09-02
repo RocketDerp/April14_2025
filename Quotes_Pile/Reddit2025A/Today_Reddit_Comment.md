@@ -289,3 +289,19 @@ https://old.reddit.com/r/agedlikemilk/comments/1n6g1ed/comments_aged_horribly/nc
 the_millenial_falcon 2016-12-16
 
 "My favorite hobby has some of the worst people. Malignant, reactionary man-children."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n6fk43/guaranteed/nbzs7xo/
+
+Level_Current2701 2025-07-28 (new account)
+
+"Right? They'll rewrite history like he was the ultimate superhero. Meanwhile, reality was a whole different story!!"
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n6fk43/guaranteed/nc0e1cw/
+
+gunsnammo37 2012-03-04
+
+"Why would Putin want him to die? Trump is dismantling the US for him."
