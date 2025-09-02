@@ -455,3 +455,12 @@ tonymorgan92 2016-05-19
 "Which is exactly why protesting is pointless. You do it the legal way and nothing gets done. You do it the way youre suggesting and then law enforcement comes and breaks it up.... becsuse... ya know... youre doing something illegal, and then yall rally against how your rights are being violated when youre the ones breaking the law 🤣."
 
 * :::=== RoundSparrow_Commentary : Messages on Reddit media machines: all protest is pointless. Give up on education, give up on sharing goodness ideas. Just give up. The 🤣 at the end of the message. "(U+1F923). 🤣. Name: Rolling On the Floor Laughing." - it is all so hilarious and funny to Reddit media addicts.  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6kigf/breaking_an_enormous_protest_has_erupted_outside/nc1mtih/
+
+noda237 2020-10-07 (October 7, joined on Putin's birthday, Fox News birthday)
+
+"Pointless. The people voice is dead. The 1% own the world and will do with it what they want. The rot is too deep for society to be saved at this point"
+
