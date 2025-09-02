@@ -704,3 +704,13 @@ https://old.reddit.com/r/BlueskySkeets/comments/1n6q3eg/the_media_is_complicit_i
 skesisfunk 2011-10-26
 
 "It's not just Fox anymore. Pretty much all local news has been captured by conservative interests, it is a process that has been ongoing for at least 10 years. We are seeing the horrifying fruition of this campaign: Main Stream media won't be silenced, it will be captured (this objective is essentially complete). With the main stream media neutralized it will be much easier for the budding authoritarian state to frame any remaining free journalism as extremists and silence them with force."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n6q3eg/the_media_is_complicit_in_ending_democracy/nc3253g/
+
+throwawayhookup127 2022-06-02
+
+"They're not even complicit, the media is *the* reason politics has devolved so much so quickly. News outlets chasing clicks spin headlines to drive outrage-based engagement because that's where the money is, so self centered politicians start using rhetoric that's easy to write those same sorts of headlines about, and it just goes round and round until we end up with state sponsored media writing hit pieces on whoever's against their biggest money makers because they know it sells.
+
+There's no such thing as journalistic integrity when a news org is for profit, and everything wrong with the US currently (and world politics to a lesser degree) can be traced back to the media and their silver tongued pundits."
