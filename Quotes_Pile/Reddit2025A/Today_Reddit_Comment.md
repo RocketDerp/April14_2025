@@ -405,3 +405,13 @@ https://old.reddit.com/r/worldnews/comments/1n6ktyj/donald_trumps_50day_deadline
 Photodan24 2015-08-22
 
 "Pretty much the worst example of a human being alive today. It's honestly unbelievable, but I can think of zero redeeming qualities to the man."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ktyj/donald_trumps_50day_deadline_to_russia_expires/nc10jhl/
+
+ApesAPoppin237 2025-05-29 (new this year)
+
+"Kinda makes you wonder if he isn't some sort of mirror spirit sent to reflect all of the worst qualities of humanity back in our faces in the most obnoxious way possible, doesn't it"
+
+* :::=== RoundSparrow_Commentary : Tony Clifton performances. ===:::
