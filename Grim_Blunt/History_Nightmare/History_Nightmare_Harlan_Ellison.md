@@ -17,11 +17,11 @@ Monomyth metaphors to Monomyth metaphor translations.
 
 "Written in confusing 'modernist' prose, the style is reminiscent of James Joyce's rather challenging books, Ulysses and Finnegan's Wake." - https://www.sffchronicles.com/threads/580837/
 
-1. “There is no night where it waits. Only the riddle of which terrible dream will set it loose." ― Harlan Ellison ... Finnegans Wake is a dream that takes place at night.
+1. “There is no night where it waits. Only the riddle of which terrible dream will set it loose." ― Harlan Ellison ... Joyce's Finnegans Wake is a dream that takes place at night. A rescue from dreams to Wake.
 
 2. "It beheaded mercy to take possession of that place. It feasts on darkness from the minds of men." ― Harlan Ellison ... Bible verse Romans 11:32 is a deep reference throughout the works of James Joyce. How church has educated The Bible has been to *avoid* Bible verse 11:32 equation and statement. The **beheading of mercy** is to elminate the Romans 11:32 Bible equation from society. To not make *mercy* the ultimate and final outcome of all sins.
 
-3. "It has never heard music, and shows its fangs when we panic." ― Harlan Ellison ... Finnegans Wake singsong, musical, is *all music*, all oral sound flows, all languge bends to music. Joyce in 1924 publication of the singsong of Wake is making the ame statement loudly.
+3. "It has never heard music, and shows its fangs when we panic." ― Harlan Ellison ... Finnegans Wake singsong, musical, is *all music*, all oral sound flows, all languge bends to music. Joyce in 1924 publication of the singsong of Wake is making the same statement loudly.
 
 4. "It is the beast of our savage past, hungering today, and waiting patiently for the mortal meal of all our golden tomorrows. It lies waiting.” ― Harlan Ellison, The Beast That Shouted Love at the Heart of the World. June 1968 ... match up to: “History, Stephen said, is a nightmare from which I am trying to awake.”
 ― James Joyce, Ulysses. December 1920
