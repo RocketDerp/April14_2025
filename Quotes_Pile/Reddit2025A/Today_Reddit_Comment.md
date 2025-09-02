@@ -623,3 +623,11 @@ Dull-And-Witless-Boy 2025-01-25 (new this year)
 * :::=== RoundSparrow_Commentary : Twitter-thinking logic. It was seen in public out an open window, so it must mean something! QAnon style logic. As if a house doesn't have all kinds of movement within that you can't normally see. Just when you spot a mysery bag with unknown contents, it's news! In fiction storytelling, that's a "mystery box". ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1n6u8ko/trump_calls_video_of_bag_being_thrown_from_white/nc37m9f/
+
+Interesting-Force866 2020-09-09
+
+"Why would that go out the window when they could otherwise dispose of it like they would any other trash and attract no attention at all?"
+
+&nbsp;
