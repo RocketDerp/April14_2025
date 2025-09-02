@@ -526,3 +526,22 @@ https://old.reddit.com/r/NoFilterNews/comments/1n5qkg7/trump_hides_from_cameras_
 WeirdcoolWilson 2023-06-13
 
 "That fucker is ADDICTED to media attention, in any form he can get it. For him to hide means he’s dead already"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1n60yf1/trump_admin_wants_to_own_patents_of_new/nbwokwu/
+
+archimedesrex 2012-10-20
+
+"The Federal government should takeover the administration of healthcare from those woke insurance companies next!"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1n60yf1/trump_admin_wants_to_own_patents_of_new/nbwqtdl/
+
+SAugsburger 2008-03-07
+
+"There is an argument that if the government bankrolls the research that anything invented ought to be public domain, but that doesn't sound like what they're proposing."
+
+&nbsp;
+
