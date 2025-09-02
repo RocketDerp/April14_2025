@@ -8,3 +8,6 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n6c0xj/calling_it/
 
 Endless "Celebration of Ignorance", "Celebration of Fiction content" on social machines USA.     
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1n6jhr0/hes_fine/
+
+Front page of Reddit, making Trump into a supernatural mythological being. Power beyond human.    
+https://old.reddit.com/r/gifs/comments/1n6qaay/this_explains_everything/
