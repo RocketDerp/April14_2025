@@ -257,3 +257,20 @@ zoinkability 2009-10-19
 "The other issue is that they aren’t actually evaluating it as a game, they are all mocking it for its format. As if both great and crap games don’t come in every format.
 
 Saying “not another side-scroller” would be like saying “not another comedy” about a movie. It’s not like there is some finite number of comedy movies that can exist, nor that just because there are a lot of comedies that nobody could ever make a great one."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n6g1ed/comments_aged_horribly/nc02eb5/
+
+SocksOnHands 2010-06-20
+
+<img width="988" height="346" alt="image" src="https://github.com/user-attachments/assets/b7fb6853-bd8c-42bc-a07c-a09fd2f56686" />
+
+&nbsp;
+
+"I find, strangely enough, that gamers have the worst understanding of video games, and especially game development."
+
+* :::=== RoundSparrow_Commentary : “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, [War and Peace in the Global Village, 1968. A book](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village) about media consumers, media ecology. :::===
+
