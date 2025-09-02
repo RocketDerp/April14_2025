@@ -377,3 +377,15 @@ https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_e
 franker 2011-01-11
 
 "Neither one of them should be in power. But people commonly have a strange love of assholes because "ooh, confidence." "
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_ever_agreed_on/nbzvfd9/
+
+TryHard2TryHarder **2025-08-14 (new account)**
+
+"Trump and his bigliest intellect is being ridiculed on the world stage.
+
+In any other facet of their lives, the MAGA types would reject and ridicule someone that consistently fails so hard. Yet, here we are... And Trump will give Russia another 90 days because Putin probably said he thinks Trump's golf game is the strongest he's ever seen."
+
+* :::=== RoundSparrow_Commentary : [Surkovian onion eating](Surkovian_Onion_Eating.md). Reddit audience to Trump thinks this is all accidental and stupid. That the shock value, the kind of reactions this Reddit comment shows, are not part of Russian Surkov governing techniques. Donald Trump playing Tony Clifton acts and the crowd (on Reddit) eats it up without any self-awareness that absurd and surreal is the very basis of Putin's information warfare. Mocking Trump is not resisting the Surkov techniques. (Who knows if this Reddit comment is authentic / sincere, nearly impossible to tell anymore. Could be there to add mocking track to Reddit audience / Reddit media environment.) ===:::
