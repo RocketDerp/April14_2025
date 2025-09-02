@@ -397,3 +397,11 @@ https://old.reddit.com/r/worldnews/comments/1n6ktyj/donald_trumps_50day_deadline
 mtnman575 2018-08-03
 
 "Another TACO bluff. No wonder the other world leaders are forming anti-American right in front of our faces. The 100 plus years of American dominance in world affairs is ending because idiots in this country elected the least competent person possible."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ktyj/donald_trumps_50day_deadline_to_russia_expires/nc0z0sj/
+
+Photodan24 2015-08-22
+
+"Pretty much the worst example of a human being alive today. It's honestly unbelievable, but I can think of zero redeeming qualities to the man."
