@@ -1246,3 +1246,8 @@ Publicity over confusing bewilering lyrics. Finnegans Wake addresses this of the
 Earwicker themes, "words are hard to recognize" from the video    
 Donald Trump as widecard, egoism disco ball to audience.    
 https://www.youtube.com/watch?v=hgj8R-yS6hY
+
+&nbsp;
+
+Typos and word misplacement language problems      
+https://www.youtube.com/watch?v=CAm_L6CTnD4
