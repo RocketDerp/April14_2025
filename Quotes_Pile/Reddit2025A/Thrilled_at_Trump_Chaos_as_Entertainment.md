@@ -714,3 +714,25 @@ SmokedLimburger 2024-11-17
 "It will get overturned but I’m happy that Mr orangecicle will be ranting about it for days."
 
 Happy that Donald Trump provides constant entertainment. Addiction to Donald Trump antics media.
+
+&nbsp;
+
+&nbsp;
+
+# Tuesday September 2, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_ever_agreed_on/nbzxmvk/
+
+intronert 2011-01-16
+
+<img width="974" height="440" alt="image" src="https://github.com/user-attachments/assets/77524607-5dde-44ef-8c5f-85d00772e026" />
+
+&nbsp;
+
+"Hilarious. Putin playing Trump for a fool."
+
+So fucking funny, amsuing, hillarious to watch Russia make the USA look stupid and dumb. Tony Clifton acts by Trump are so entertaining!
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/), 1985
+
