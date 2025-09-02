@@ -545,3 +545,8 @@ SAugsburger 2008-03-07
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1n63a11/the_god_emperor_is_dying_hopefully_maga_will_go/nbxhfrb/
+
+Specialist-Jello7544 2024-02-18
+
+"I have NEVER understood people for idolizing such a horrible “politician” as Trump. This whole adoration of Trump is so gross. How can so many people think that a guy who spouts such vile insane rhetoric is the second coming of Christ?"
