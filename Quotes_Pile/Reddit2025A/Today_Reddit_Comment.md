@@ -415,3 +415,15 @@ ApesAPoppin237 2025-05-29 (new this year)
 "Kinda makes you wonder if he isn't some sort of mirror spirit sent to reflect all of the worst qualities of humanity back in our faces in the most obnoxious way possible, doesn't it"
 
 * :::=== RoundSparrow_Commentary : Tony Clifton performances. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6kigf/breaking_an_enormous_protest_has_erupted_outside/nc1fhjh/
+
+mjrubs 2015-11-28
+
+"This was yesterday and part of a large nationwide organized event. 
+
+The post title makes it sound like people are currently arriving outside the building in droves with pitchforks and torches ready to burn the mutha to the ground."
+
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. Hyperreality outsells reality. Hyper Reddit headlines outsellf sincere reality. ===:::
