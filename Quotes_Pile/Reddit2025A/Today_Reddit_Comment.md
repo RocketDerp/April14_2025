@@ -531,3 +531,13 @@ versusgorilla 2008-02-14
 Nevermind how they could do this shit in the farmlands of Texas if they really wanted, or Israel could volunteer any of their coastline. They don't HAVE to do the world of tomorrow on the ruins of the Palestinian's last strip of land."
 
 * :::=== RoundSparrow_Commentary : “It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6uutk/trump_addresses_online_health_rumours_in_oval/nc2u2b2/
+
+Kernburner 2021-08-28
+
+"It’s rather fitting that the most infamous conspiracy theorist of our times is falling victim to conspiracy theories. All I know is I want to see Trump’s birth certificate to prove he wasn’t born in Kenya."
+
+* :::=== RoundSparrow_Commentary : Garbage information into minds, garbage repeating on social media systems. A society flocking to fiction and avoidant of nonfiction. ===:::
