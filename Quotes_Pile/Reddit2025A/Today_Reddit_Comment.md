@@ -389,3 +389,11 @@ TryHard2TryHarder **2025-08-14 (new account)**
 In any other facet of their lives, the MAGA types would reject and ridicule someone that consistently fails so hard. Yet, here we are... And Trump will give Russia another 90 days because Putin probably said he thinks Trump's golf game is the strongest he's ever seen."
 
 * :::=== RoundSparrow_Commentary : [Surkovian onion eating](Surkovian_Onion_Eating.md). Reddit audience to Trump thinks this is all accidental and stupid. That the shock value, the kind of reactions this Reddit comment shows, are not part of Russian Surkov governing techniques. Donald Trump playing Tony Clifton acts and the crowd (on Reddit) eats it up without any self-awareness that absurd and surreal is the very basis of Putin's information warfare. Mocking Trump is not resisting the Surkov techniques. (Who knows if this Reddit comment is authentic / sincere, nearly impossible to tell anymore. Could be there to add mocking track to Reddit audience / Reddit media environment.) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ktyj/donald_trumps_50day_deadline_to_russia_expires/nc0r01u/
+
+mtnman575 2018-08-03
+
+"Another TACO bluff. No wonder the other world leaders are forming anti-American right in front of our faces. The 100 plus years of American dominance in world affairs is ending because idiots in this country elected the least competent person possible."
