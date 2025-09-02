@@ -369,3 +369,11 @@ pongomanswe 2015-12-11
 "This is really hard to follow. Russia is known to lie constantly. Trump is known to lie and/or misremember things. Those two together threaten the truth-lie continuum, making me worry about our existence."
 
 * :::=== RoundSparrow_Commentary : There can be 57 TV channels of fiction content. Fiction channel 3, fiction channel 4, and so forth. But nonfiction isn't selling. Nonfiction is not popular. That's how the War Against Reality / War Against Nonfiction works since March 2013. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." https://www.youtube.com/watch?v=YAlDbP4tdqc ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_ever_agreed_on/nc0lx66/
+
+franker 2011-01-11
+
+"Neither one of them should be in power. But people commonly have a strange love of assholes because "ooh, confidence." "
