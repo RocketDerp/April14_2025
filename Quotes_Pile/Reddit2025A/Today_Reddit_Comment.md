@@ -125,3 +125,11 @@ https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_r
 Lonely_Refuse4988 2021-01-26
 
 "Imagine having the strongest military in the world, and completely surrendering the nation to a foreign adversary by electing a puppet who is an asset and agent of foreign adversary! Putin’s Russia is weak militarily but he knows and understands psy ops and how to manipulate people, to point where he can install numerous puppet authoritarians via propaganda efforts."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc0alu2/
+
+rfc2795_ **2025-08-07 (new account)**
+
+"Gabbard and Trump have always been Russian assets. Your country has been invaded by traitors."
