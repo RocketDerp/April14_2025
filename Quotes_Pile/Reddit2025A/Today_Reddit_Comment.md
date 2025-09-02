@@ -333,3 +333,11 @@ robertd440 2016-11-21
 "We need to push the narrative that JD killed him. Maga base isn't rallied behind him like 47 so if it starts spreading JD killed him the GOP might implode. MTG is already at odds with them now."
 
 * :::=== RoundSparrow_Commentary : Since March 2013 IRA and CA mind-fucking... Fiction addicts in USA ("We The People") constantly call for more fiction. That the [answer to the Kremlin's year 2013 onward War Against Reality is to add more unrelaity](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and bullshit to society. Addict behaviors, demanding more entertainment fiction politics. They want ot make sure even after Donald Trump is dead, more fiction runs the nation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_ever_agreed_on/nc078uk/
+
+angular_circle 2022-05-15
+
+"It's quite telling that in this case I'm willing to believe the Kremlin more than Trump"
