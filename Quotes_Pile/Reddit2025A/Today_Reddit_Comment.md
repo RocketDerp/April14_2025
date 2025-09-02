@@ -58,3 +58,10 @@ The rich people are calling the shots in a way that gets them what they want (ta
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc06un7/
+
+Any_Will_86 2020-11-20
+
+"The anti-vaxxers (and oddball health nuts) are a very recent addition. The major group your missing is the crypto voters (which are pretty much the bro-sphere.)"
+
+* :::=== RoundSparrow_Commentary : Since year 2014, social media has been attacked by Russia to manipulate thinking and reactions about virus / vacinnation / disease. Internet Research Agency: https://www.bbc.com/news/world-us-canada-45294192 ===:::
