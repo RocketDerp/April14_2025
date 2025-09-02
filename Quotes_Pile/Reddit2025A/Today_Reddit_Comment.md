@@ -679,8 +679,28 @@ You're doing the exact BS that you're complaining about."
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/goodnews/comments/1n6ug9z/pritzker_when_did_we_become_a_country_where_its/
 
 Illinois Governor JB Pritzker: "When did we become a country where it's ok for the US president to insist on national television that a state should call him to beg for anything? Especially something we don't want. Have we truly lost all sense of sanity in this nation that we treat this as normal?"
 
 * :::=== RoundSparrow_Commentary : "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" - https://www.youtube.com/watch?v=09maaUaRT4M ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6s5wy/gop_rep_thomas_massie_files_discharge_petition_to/nc33j2x/
+
+Salt_Top_6583 2024-10-29
+
+"Ask the Catholic Church why they did it. I'm sure you'll find their answers are very similar."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n6q3eg/the_media_is_complicit_in_ending_democracy/nc2xh8k/
+
+skesisfunk 2011-10-26
+
+"It's not just Fox anymore. Pretty much all local news has been captured by conservative interests, it is a process that has been ongoing for at least 10 years. We are seeing the horrifying fruition of this campaign: Main Stream media won't be silenced, it will be captured (this objective is essentially complete). With the main stream media neutralized it will be much easier for the budding authoritarian state to frame any remaining free journalism as extremists and silence them with force."
