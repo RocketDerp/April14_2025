@@ -163,3 +163,11 @@ https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_r
 Also don’t forget, conservatives LOVE this!"
 
 * :::=== RoundSparrow_Commentary : Social media laugh track. Messages on social machines to create laughing background track. Audience of Reddit manipulated to view this as "lmao", funny, amusing, entertaining. Also audience manipulation that adults are tolders, as tolders are not responsible for their choices, mentally casting the actions as innocent. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc079w1/
+
+Different_Glass5043 2025-01-15 (new this year)
+
+"The last administration that recognized the hazard of "group think" almost led us into a nuclear war with Russia - the admin is embracing group think - what could possibly go wrong? Ending Democratic rule - they are good with that. :-("
