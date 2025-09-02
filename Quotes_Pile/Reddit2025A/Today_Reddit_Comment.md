@@ -171,3 +171,12 @@ https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_r
 Different_Glass5043 2025-01-15 (new this year)
 
 "The last administration that recognized the hazard of "group think" almost led us into a nuclear war with Russia - the admin is embracing group think - what could possibly go wrong? Ending Democratic rule - they are good with that. :-("
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc0gyin/
+
+DewSchnozzle 2012-12-13
+
+"Tom Clancy himself couldn't write a better novel about Russian infiltration than what we're seeing happen in real life"
+
