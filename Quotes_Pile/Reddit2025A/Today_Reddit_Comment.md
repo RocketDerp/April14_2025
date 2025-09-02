@@ -99,3 +99,11 @@ https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_r
 Goodk4t 2014-12-12
 
 "A purge of those loyal to the country - all enabled by 77 million of brain dead American voters who elected a pedophile well known to be beholden to a Russian dictator. "
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nbzq23a/
+
+delusiongenerator 2016-04-06
+
+"This is the real work that got done when we rolled out the red carpet for a Russian mafia strategy meeting on American soil and called it a peace summit."
