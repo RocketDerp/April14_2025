@@ -484,3 +484,18 @@ Even better would have been to do some actual reporting; and finding out if ther
 
 But hey. What can you do. We should have buried tabloid journalism when we had the chance. Instead of allowing an unnecessary unholy union of information and entertainment."
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6s38x/trump_to_make_white_house_announcement_amid/nc286ot/
+
+Evilfart123 2014-02-28
+
+"He looks normal"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6s38x/trump_to_make_white_house_announcement_amid/nc28s14/
+
+MomsAreola 2014-03-19
+
+"It doesnt make any sense as to why one state is better than the other. When Trump says "because mail in ballots" were fucked. He wants to move all major military presence out of blue states ahead of civil war."
