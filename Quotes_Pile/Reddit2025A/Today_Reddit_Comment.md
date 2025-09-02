@@ -656,3 +656,13 @@ https://old.reddit.com/r/worldnews/comments/1n6syys/merz_putin_may_be_the_most_s
 FickleRevolution15 2024-11-28
 
 "The fact most of these comments are calling out Netanyahu when people like Bashar Al-Assad exist is actually stupendous and a clear indication that this site is one massive echo chamber."
+
+* :::=== RoundSparrow_Commentary : If someone knows a social media site that is NOT a echo-chamber of people in their own filter-bubble, let me know! Bluesky, Twitter, Facebook, Reddit... all show a narrow perspective. And attraction to constantly repeating bad events and not asserting Malala from Swat Valley Pakistan since Oceober 8, 2013 book publication. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6syys/merz_putin_may_be_the_most_serious_war_criminal/nc2ohci/
+
+ClearlyNotMeAtAll 2024-08-06
+
+"Is even possible to have one single post about Ukraine/Russia without "whatabout Israel"? Is this so much to ask?"
