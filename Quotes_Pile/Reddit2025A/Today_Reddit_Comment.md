@@ -152,3 +152,14 @@ Balbuto 2016-09-23
 
 "The USA have been comprised and are run by a criminal enterprise. Wake up people!"
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc001ii/
+
+\_skimbleshanks\_ 2024-12-04
+
+"Lmao, punished for doing their job because toddler Hitler is enamored with Putin’s homoerotic strongman routine.
+
+Also don’t forget, conservatives LOVE this!"
+
+* :::=== RoundSparrow_Commentary : Social media laugh track. Messages on social machines to create laughing background track. Audience of Reddit manipulated to view this as "lmao", funny, amusing, entertaining. Also audience manipulation that adults are tolders, as tolders are not responsible for their choices, mentally casting the actions as innocent. ===:::
