@@ -73,3 +73,21 @@ https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_r
 joshdoereddit 2020-09-27
 
 "I wouldn't say "played" with this administration. Trump and the GOP are in league with Putin."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc06ge2/
+
+Midnight-Bake 2024-01-28
+
+"Conservatives 50 years ago "The Russians are evil and trying to take over the world!"
+
+Conservatives today: "The world is evil and Russia is merely conquering it in self defense" "
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc0dp3p/
+
+TheRealBittoman 2019-11-07
+
+"Trump and Republicans are being played by Russia. The rest of us are the ones those folks kept mocking us with "Russia, Russia, Russia". We're the majority and we're definitely not doing it willingly."
