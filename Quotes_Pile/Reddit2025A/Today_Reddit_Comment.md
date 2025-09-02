@@ -43,3 +43,18 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n6c0xj/calling_it/nbzl4zk/
 MrsMoonpoon 2018-11-03
 
 "I think he is fine unfortunately. This is likely manufactured so we stop talking about the Epstein files."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc02mwi/
+
+hubbyofhoarder 2009-10-27
+
+"With respect, I think you have it backwards. The wealthy and powerful have been honing their playbooks to inflame their Konfederacy of Kooks: the uber-religious, the anti-vaxers, Christian nationalists, isolationists, racists and gun nuts (I've probably missed a few). All of those groups are essentially single issue, and will vote in lockstep with whatever party addresses their concerns.
+
+What's also obvious is that none of those groups have any concerns that will actually affect the truly wealthy and powerful of this country. Does anyone actually think that the Thiels/Murdochs/Trumps/Kochs/Mercers of this country are going to let one of us poors open carry a gun in their presence, that those families are going to stop vaccinating their kids, or that they give a fuck about paper coffee cups?
+
+The rich people are calling the shots in a way that gets them what they want (tax cuts and breaks for the rich and corporations) and that will only affect the poors(all of us) negatively. The dog is wagging the tail here, not the other way around."
+
+&nbsp;
+
