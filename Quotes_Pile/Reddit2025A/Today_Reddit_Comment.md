@@ -143,3 +143,12 @@ NeverLookBothWays 2019-09-10
 "So many lies from this administration. So much treason. It's going to be painful for everyone once MAGA falls."
 
 * :::=== RoundSparrow_Commentary : Fiction addiction runs society. Addictions to media networks mocking and insulting abound. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc005ng/
+
+Balbuto 2016-09-23
+
+"The USA have been comprised and are run by a criminal enterprise. Wake up people!"
+
