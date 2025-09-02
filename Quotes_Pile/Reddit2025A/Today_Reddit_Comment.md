@@ -676,3 +676,11 @@ Spacemanspalds 2017-01-02
 "BS. People on reddit love to hate. There are examples on both sides in THIS comment section alone. As well as examples of people asking for sources.
 
 You're doing the exact BS that you're complaining about."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1n6ug9z/pritzker_when_did_we_become_a_country_where_its/
+
+Illinois Governor JB Pritzker: "When did we become a country where it's ok for the US president to insist on national television that a state should call him to beg for anything? Especially something we don't want. Have we truly lost all sense of sanity in this nation that we treat this as normal?"
+
+* :::=== RoundSparrow_Commentary : "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" - https://www.youtube.com/watch?v=09maaUaRT4M ===:::
