@@ -581,3 +581,16 @@ https://old.reddit.com/r/NoFilterNews/comments/1n6sjev/donald_trump_looks_rough_
 Bluegill15 2018-10-28
 
 "Yeah I want him to leave this earth as much as the next person, but the level of cope this morning has been off the charts"
+
+* :::=== RoundSparrow_Commentary : People believe that when He dies, Donald Trump will magically leave Earth. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6sjev/donald_trump_looks_rough_and_is_45_minutes_late/nc2qd3g/
+
+Cabrill0 2018-08-29
+
+"Shocking that the random Twitter reports and Reddit comments weren’t true."
+
+&nbsp;
+
