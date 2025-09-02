@@ -631,3 +631,12 @@ Interesting-Force866 2020-09-09
 "Why would that go out the window when they could otherwise dispose of it like they would any other trash and attract no attention at all?"
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1n6u8ko/trump_calls_video_of_bag_being_thrown_from_white/nc2rrrj/
+
+north7 2011-02-20
+
+"I read there was renovations going on in/near the Lincoln Bedroom, this window was near and the bags were most likely demolition materials.     
+Of course Trump's AI explanation puts even that in doubt now."
+
+&nbsp;
