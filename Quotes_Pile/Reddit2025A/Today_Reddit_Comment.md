@@ -511,3 +511,14 @@ godzillachilla 2019-03-01
 * :::=== RoundSparrow_Commentary : Twitter-length binary-thinking (1 single bit) Tweet-logic. Promoting that you should be a one-topic concern, one and only one thing to pay attention to. Simplicity itself. ...
 "And I think that… the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s **the most powerful political rhetoric in a world** with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple”" - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ ...
 And notice how many of the single-topic voters only want to vote on sex. Sex of women having abortions about sexual pregnancy. Sex of Donald Trump on Epstein's rich people sex lives private jet. Every other topic is of zero concern, only that they constantly message to everyone that [ONLY ONE THING MATTERS](https://en.wikipedia.org/wiki/Single-issue_politics): sex topics. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1n6htjp/leaked_plan_from_trump_administration_to_make/nc0vp22/
+
+UnquestionabIe 2013-12-31 (NYE)
+
+"As if we need more proof they're so disconnected from the rest of humanity. Their two specialties are making overly optimistic statements about concepts that quickly becomes proven failures or creating tech whose core concepts are the most horrific choices from dystopian sci-fi settings. Their positive contributions to the world ended after the dotcom bubble burst."
+
+&nbsp;
+
