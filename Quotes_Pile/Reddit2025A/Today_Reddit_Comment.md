@@ -274,3 +274,11 @@ SocksOnHands 2010-06-20
 
 * :::=== RoundSparrow_Commentary : “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, [War and Peace in the Global Village, 1968. A book](https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village) about media consumers, media ecology. :::===
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n6g1ed/comments_aged_horribly/nc06y2f/
+
+Puresowns 2010-11-01
+
+"I think it is rather that they are so self centered, that to them there is no difference."
+
