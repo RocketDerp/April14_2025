@@ -133,3 +133,13 @@ https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_r
 rfc2795_ **2025-08-07 (new account)**
 
 "Gabbard and Trump have always been Russian assets. Your country has been invaded by traitors."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc097h6/
+
+NeverLookBothWays 2019-09-10
+
+"So many lies from this administration. So much treason. It's going to be painful for everyone once MAGA falls."
+
+* :::=== RoundSparrow_Commentary : Fiction addiction runs society. Addictions to media networks mocking and insulting abound. ===:::
