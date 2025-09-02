@@ -305,3 +305,11 @@ https://old.reddit.com/r/AdviceAnimals/comments/1n6fk43/guaranteed/nc0e1cw/
 gunsnammo37 2012-03-04
 
 "Why would Putin want him to die? Trump is dismantling the US for him."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n6fk43/guaranteed/nbzypl2/
+
+Spekingur 2011-09-14
+
+"Democrats are apparently simultaneously worst and best at everything"
