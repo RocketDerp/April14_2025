@@ -640,3 +640,11 @@ north7 2011-02-20
 Of course Trump's AI explanation puts even that in doubt now."
 
 &nbsp;
+
+https://old.reddit.com/r/technology/comments/1n6u8ko/trump_calls_video_of_bag_being_thrown_from_white/nc2u6gd/
+
+floofnstuff 2017-04-07
+
+"If it’s something he doesn’t like it’s; fake, fake news, hoax or Biden’s fault."
+
+* :::=== RoundSparrow_Commentary : Give Donald Trump credit, he knows media systems. He is 79 years old and he can say "it looks like generative A.I." to people like a teenager informed on the latest media systems. ===:
