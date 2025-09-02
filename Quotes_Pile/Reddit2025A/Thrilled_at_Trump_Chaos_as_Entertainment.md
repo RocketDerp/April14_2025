@@ -73,19 +73,19 @@ the_catalyst_alpha **2025-03-11** (Recent account)
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1m2f6ok/this_has_been_a_fun_week/
 
-Redit community created title "Fun week".
+Reddit community created title "Fun week".
 
 &nbsp;
 
 https://old.reddit.com/r/Fauxmoi/comments/1m3224v/ok_whoever_wrote_this_joke_for_elon_got_a_chuckle/
 
-Front page of Reddit Friday July 18, 2025. Chuckleheads who think every thing is a joke comedy (Donald Trump as Tony Clifton) that MAGA, Elon Musk, Donald Trump does is thrilling Reality TV (The Apprentice) entertainment, that Russian Surkov methods of government are so fun and enjoyable to keep smartphones vibrating with notificaitons to stimulate the poor people in the USA - that nobody desires to stand up and preach, quoteing Peter Pomerantsev from 2014 or Andrew Postman from February 2017... because the addiction to the antics, mocking, total mockery is such that people do not wish to remove the absurd surreal comedy entertainers (Musk, Trump, White House, Putin, JD Vance, etc).
+Front page of Reddit Friday July 18, 2025. Chuckleheads who think every thing is a joke comedy (Donald Trump as Tony Clifton) that MAGA, Elon Musk, Donald Trump does is thrilling Reality TV (The Apprentice) entertainment, that Russian Surkov methods of government are so fun and enjoyable to keep smartphones vibrating with notifications to stimulate the poor people in the USA - that nobody desires to stand up and preach, quoting Peter Pomerantsev from 2014 or Andrew Postman from February 2017... because the addiction to the antics, mocking, total mockery is such that people do not wish to remove the absurd surreal comedy entertainers (Musk, Trump, White House, Putin, JD Vance, etc).
 
 &nbsp;
 
 https://old.reddit.com/r/ChatGPT/comments/1m36rtn/unseen_angle_from_coldplay_concert/
 
-ChatGPT subreddit right to the front page of Reddit, it's laugh track to the fiction. War Against Reality lost, everything the Donald Trump White House does is endlessly entertaining to the 300 million USA population on HDTV consumers, Internet meme adueinces, social machine systems users.
+ChatGPT subreddit right to the front page of Reddit, it's laugh track to the fiction. War Against Reality lost, everything the Donald Trump White House does is endlessly entertaining to the 300 million USA population on HDTV consumers, Internet meme audiences, social machine systems users.
 
 &nbsp;
 
@@ -135,7 +135,8 @@ travoltaswinkinbhole 2022-09-27
 
 https://old.reddit.com/r/clevercomebacks/comments/1m83gmf/lil_donny_found_love/
 
-"Clever comebacks" framing of subreddit name, "Little cute innocent (psychology that children are not responsible for adult choices) Donnie Trump" framing, amused at Donald Trump, entertained at Donald Trump. It isn't funny, because **every social media user in USA is unable to cite** in July 2025: Christopher Wylie, Peter Pomerantsev, Andrew Postman, Neil Postman. People without self-awareness of what [Donald Trump Medium does to their brains](https://autistics.life/@RoundSparrow/114908848841690331). “In psychological warfare, the weak points are flaws in how people think. If you’re trying to hack a person’s mind, you need to identify cognitive biases and then exploit them.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019. For USA, that is absurd surreal comedy brain exploits, Donald Trump playing Tony Clifton compusively, without self-awareness. That's the entire point of "Amusing Ourselves To Death" 1985 book.... the lack of self-awareness.
+"Clever comebacks" framing of subreddit name, "Little cute innocent (psychology that children are not responsible for adult choices) Donnie Trump" framing, amused at Donald Trump, entertained at Donald Trump. It isn't funny, because **every social media user in USA is unable to cite** in July 2025: Christopher Wylie, Peter Pomerantsev, Andrew Postman, Neil Postman. People without self-awareness of what [Donald Trump Medium does to their brains](https://autistics.life/@RoundSparrow/114908848841690331). “In psychological warfare, the weak points are flaws in how people think. If you’re trying to hack a person’s mind, you need to identify cognitive biases and then exploit them.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019.
+For USA, that is absurd surreal comedy brain exploits, Donald Trump playing Tony Clifton compulsively, without self-awareness. That's the entire point of "Amusing Ourselves To Death" 1985 book.... the lack of self-awareness.
 
 &nbsp;
 
@@ -151,7 +152,7 @@ People in USA are thrilled and entertained at Donald Trump fiction content creat
 
 https://old.reddit.com/r/politics/comments/1m8chge/theyre_eating_themselves_alive_fmr_gop_advisor/
 
-Rupert Murdoch has been mind-fucking Americans since 1996 with Fox News, then the Internet Research Agency in Russia and Cambridge Analytica joined together in late 2012 to mind-fuck in more diverse and deeper ways. And the comments on Reddit in that posting about "eating themselves alive" - this is self-harm of USA directed by a enemy, Russia. This isn't asserting goodness, this is what you get more than a dozen years of mental and emotional manipulation for Americans to hate Americans. This is self-harm on a mass mind scale, mass pcyhosis. Science isn't being adopted, it's bullshit lust for private jet and private islands wealthy men topics.
+Rupert Murdoch has been mind-fucking Americans since 1996 with Fox News, then the Internet Research Agency in Russia and Cambridge Analytica joined together in late 2012 to mind-fuck in more diverse and deeper ways. And the comments on Reddit in that posting about "eating themselves alive" - this is self-harm of USA directed by a enemy, Russia. This isn't asserting goodness, this is what you get more than a dozen years of mental and emotional manipulation for Americans to hate Americans. This is self-harm on a mass mind scale, [mass psychosis](https://www.youtube.com/watch?v=09maaUaRT4M). Science isn't being adopted, it's bullshit lust for private jet and private islands wealthy men topics.
 
 People are not addressing the underlying cause: *why do people trust computer screens so blindly, The ELIZA effect*, why do people trust Donald Trump? Why are people attracted to terrorism and out-group killing in Israel and Palestine... why does Russia think war against Ukraine since February 2014, more than a full decade, is good for their future? Why are people so convinced badness itself (Donald Trump) is good for the future? Humanity has not developed education and defense against propaganda / cults / Rupert Murdoch Fox News - this is nothing to be happy about or cheer on. We need to be focused on the problem of people's attraction to fiction media content, Fox News attraction, Donald Trump attraction, Elon Musk Twitter attraction, etc.
 
@@ -295,8 +296,7 @@ Coastalspin3391 **2025-07-17 (new account)**
 
 "lol it’s funny people don’t grasp the situation. There is no longer actually a “NASA” "
 
-
-Egoism / egomania that it is hillarious and funny that NASA is wrecked and people don't understand what Russian information warfare since March 2013 has done to the naton self-awareness and ability to comprehend reality. Social media laugh track of Twitter-length LOL comments to mind-fuck the Reddit community furhter.
+Egoism / egomania that it is hilarious and funny that NASA is wrecked and people don't understand what Russian information warfare since March 2013 has done to the nation self-awareness and ability to comprehend reality. Social media laugh track of Twitter-length LOL comments to mind-fuck the Reddit community further.
 
 &nbsp;
 
@@ -348,25 +348,25 @@ https://old.reddit.com/r/clevercomebacks/comments/1mj5359/never_change_you_geniu
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1mjwi12/unleashing_hell_has_never_been_so_entertaining/
 
-Top of front page of Reddit. Media addicts thriled at having leaders to hate upon using media. How entertaining Hell is, the loss of an information war... unleashed Hell by Russia. We The Peope on social media are eatig the Surkovian onions, unable to cite Peter P's 2014 books and articles. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) in a RFK Jr measles segment. A nation mind-fucked by Kremlin into ractionary recency bias.
+Top of front page of Reddit. Media addicts thrilled at having leaders to hate upon using media. How entertaining Hell is, the loss of an information war... unleashed Hell by Russia. We The People on social media are eating the Surkovian onions, unable to cite Peter P's 2014 books and articles. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measles](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) in a RFK Jr measles segment. A nation mind-fucked by Kremlin into reactionary recency bias.
 
 &nbsp;
 
 https://old.reddit.com/r/Fauxmoi/comments/1mjt4tu/stephen_colbert_reacts_to_rfk_jr_vaccine_funding/
 
-I can't emphasize ENOUGH: "vacination" is the very topic title on Reddit. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) - people have clealry ahd their minds defated by the Kremlin, both RFK Jr and Stephen Colbert both in this dicussion, and noobdy in the Reddit comments. The information wawr [is still ongoing](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57), and people can't resist mocking back at Surkovian governing methods. People of USA are so caught up in the constant topic trees, the entire forest of NATO information war topics isn't being treated as a war. That's how powerful the Putin techniques are, recency bias to avoid connecting timeline dots of Russian meme war topics.
+I can't emphasize ENOUGH: "vaccination" is the very topic title on Reddit. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measles](https://www.youtube.com/watch?v=Ju7Yt0LMiVk) - people have clearly had their minds defeated by the Kremlin, both RFK Jr and Stephen Colbert both in this discussion, and nobody in the Reddit comments. The information war [is still ongoing](https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57), and people can't resist mocking back at Surkovian governing methods. People of USA are so caught up in the constant topic trees, the entire forest of NATO information war topics isn't being treated as a war. That's how powerful the Putin techniques are, recency bias to avoid connecting timeline dots of Russian meme war topics.
 
 &nbsp;
 
 https://old.reddit.com/r/therewasanattempt/comments/1mjx4x1/by_cbs_to_get_rid_of_colbert_and_his_show_before/
 
-Third time Stephen Cobert made the front-page of Reddit on the same topic. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measales](https://www.youtube.com/watch?v=Ju7Yt0LMiVk)
+Third time Stephen Colbert made the front-page of Reddit on the same topic. [Stephen Colbert can't even cite his own May 4, 2019 (Star Wars Day) coverage of Russia mind-fucking Twitter Americans on measles](https://www.youtube.com/watch?v=Ju7Yt0LMiVk)
 
 &nbsp;
 
 https://old.reddit.com/r/50501/comments/1mjwjtk/stephen_colbert_unleashes_hell_on_rfk_jr_fuck_you/
 
-And another time on the front page of Reddit with Stephen Colbert avoding the Putin information war topic of his own May 4, 2019 broadcast.
+And another time on the front page of Reddit with Stephen Colbert avoiding the Putin information war topic of his own May 4, 2019 broadcast.  https://www.youtube.com/watch?v=Ju7Yt0LMiVk
 
 &nbsp;
 
@@ -403,7 +403,7 @@ Topher92646 2021-01-27
 
 "Remember when Cosplay Barbie said she wanted to make a reality show with migrants competing to get a green card? I hope we see this in a future episode 🇨🇦"
 
-Content addicts can't wait to see MAGA Donald Trump Reality TV king ("The Apprentice") inspire more fiction content. Donald Trump inspires people to abandon nonfiction, Donald Trump inspires people to adopt hate. Exactly what Putin and Surkov schemed up in 2012. Fox News was already fiction content, and people keep begging for more future episodes. Because faith in mocking is the Rupert Murdoch faith, faith in mocking realith as boring is the MAGA faith.
+Content addicts can't wait to see MAGA Donald Trump Reality TV king ("The Apprentice") inspire more fiction content. Donald Trump inspires people to abandon nonfiction, Donald Trump inspires people to adopt hate. Exactly what Putin and Surkov schemed up in 2012. Fox News was already fiction content, and people keep begging for more future episodes. Because faith in mocking is the Rupert Murdoch faith, faith in mocking reality as boring is the MAGA faith.
 
 &nbsp;
 
@@ -444,7 +444,7 @@ https://old.reddit.com/r/chaoticgood/comments/1mocfv2/governor_newsom_fucking_mo
 
 wedgiesurvivor 2022-11-11
 
-Americans adore the Donald Trump behaving as Tony Clifton act, it gives We The People endless entertainment to insult and mock back at Tony Clifton's terrible talents. People in USA society are so engaged with Donald Trump's behaviors, manners, performance, style. Compusive mockery nation. This top voted comment on Reddit is Twitter-length Tweet-thinking, nobody has a clue they are amusing our nation to death in constant attraction to the Tony Clifton style of Surkov Governing.
+Americans adore the Donald Trump behaving as Tony Clifton act, it gives We The People endless entertainment to insult and mock back at Tony Clifton's terrible talents. People in USA society are so engaged with Donald Trump's behaviors, manners, performance, style. Compulsive mockery nation. This top voted comment on Reddit is Twitter-length Tweet-thinking, nobody has a clue they are amusing our nation to death in constant attraction to the Tony Clifton style of Surkov Governing.
 
 &nbsp;
 
@@ -464,7 +464,7 @@ Hir0Brotagonist 2018-07-31
 
 "It's funny because nothing he's saying is a hot take. It's all objectively true. I think it's probably more accurate to claim that Trump is the worst president of all time though"
 
-It's entertaining and funny that Donald Trump dong Tony Clifton lets people say hot takes. Content entertainment of the content king Donald Trump! Spare time and free time to use social media to commemnt abou thow funny it is that Donald Trump is so terrible and aweful that "hot take" isn't even hot enough! The words not avaialble to amused We The People: alarmed, disturbed, we all need to stop entertainment and be serious about Donald Trump and Fox News and MAGA cults.
+It's entertaining and funny that Donald Trump dong Tony Clifton lets people say hot takes. Content entertainment of the content king Donald Trump! Spare time and free time to use social media to comment about how funny it is that Donald Trump is so terrible and awful that "hot take" isn't even hot enough! The words not available to amused We The People: alarmed, disturbed, we all need to stop entertainment and be serious about Donald Trump and Fox News and MAGA cults.
 
 &nbsp;
 
@@ -482,7 +482,7 @@ Daimakku1 2015-05-31
 
 "He’s trolling the shit out of Trump, I love it."
 
-People are adopting Kremlin information warfare and behaving like Russia in year 2011, people love it! Insincere trolling, ["Operaion Matthew 4:19" that started in November 2012 by billionaires working togeether, Trump and Putin](../../Operation_Matthew_4_19_on_monday_2024-03-31.md) - people love it! Americans eat this shit up and love it. "He’s trolling the shit out of Trump, I love it." == *He’s ***trolling the shit out of social media addiction society***, I love it.*
+People are adopting Kremlin information warfare and behaving like Russia in year 2011, people love it! Insincere trolling, ["Operation Matthew 4:19" that started in November 2012 by billionaires working together, Trump and Putin](../../Operation_Matthew_4_19_on_monday_2024-03-31.md) - people love it! Americans eat this shit up and love it. "He’s trolling the shit out of Trump, I love it." == *He’s ***trolling the shit out of social media addiction society***, I love it.*
 
 &nbsp;
 
@@ -498,7 +498,7 @@ zzen321 2014-09-02
 
 "It's freaking awesome that Trump is hurting his supporters, the poor and uneducated, the most. I'll grin and bear it. And grin some more."
 
-Donald Trump's *supporters* are billionares and *Trump supporters* in Russia who use the most powerful media machines ever created by humanity, the USA is a leader in world media and social media, to mind-fuck everyday people. And this Reddit user thinks it is *awesome* that the Donald Trump billoionares club is being predatory towards We The People. [Cheering on that Russia's Kremlin used unethical mind-fuck with Cambridge Analtica in a November 2012 agreement](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
+Donald Trump's *supporters* are billionaires and *Trump supporters* in Russia who use the most powerful media machines ever created by humanity, the USA is a leader in world media and social media, to mind-fuck everyday people. And this Reddit user thinks it is *awesome* that the Donald Trump billionaires club is being predatory towards We The People. [Cheering on that Russia's Kremlin used unethical mind-fuck with Cambridge Analytica in a November 2012 agreement](https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/).
 
 &nbsp;
 
@@ -508,7 +508,7 @@ JacquoRock 2016-01-06
 
 "Oh my God. That was legit hysterical. He actually ad libbed, "yeah...uh...a great big beautiful ocean." Not to restate the obvious, but of course everyone is aware that such a flub by President Biden would not be ignored by all the mental giants at Fox News (as was the case here)."
 
-Media addicts of America, the social media society USA, can never get enough mocking and insulting Donald Trump on media. Instead of REMOVING Donald Trump from the spotlight, people are entirely addicted to having him there to insult and mock. IT NEVER FUCKING ENDS, OVER A DECADE OF THIS SHIT! Donald Trump content creator is irresitable to USA population. Terrible horrific taste in attraction to media garbage.
+Media addicts of America, the social media society USA, can never get enough mocking and insulting Donald Trump on media. Instead of REMOVING Donald Trump from the spotlight, people are entirely addicted to having him there to insult and mock. IT NEVER FUCKING ENDS, OVER A DECADE OF THIS SHIT! Donald Trump content creator is irresistible to USA population. Terrible horrific taste in attraction to media garbage.
 
 &nbsp;
 
@@ -534,7 +534,7 @@ Hardcorish 2012-12-29
 
 "How hilarious would it be if Trump drew the other half of his droopy face with a Sharpie to make it look 'normal' again"
 
-TEN FUCKING YEARS of social media addict nation mocking and insulting one person, Donald Trump, every hour of every day. Tony Clifton act that people eat up. Addiction to Donald Trump content, Reality TV show, has wrecked the USA. Russian information warfare of Surkov students has turned every aspect of USA life into constant jokes and hilarious Donald Trump stink. My god, do USA people have the worst possible taste in junk memes and trash media consumption to flock to this content creator. People upvote this trash taste on Reddit every hour of every day and can not resist handing power and wealth to Donald Trump in cumpulsive addiciton to the Clifton performance. It is like a wish list for the 11th season of Donald Trump South Park entertainment show: "How hilarious would it be if Trump drew the other half of his droopy face with a Sharpie to make it look 'normal' again".
+TEN FUCKING YEARS of social media addict nation mocking and insulting one person, Donald Trump, every hour of every day. Tony Clifton act that people eat up. Addiction to Donald Trump content, Reality TV show, has wrecked the USA. Russian information warfare of Surkov students has turned every aspect of USA life into constant jokes and hilarious Donald Trump stink. My god, do USA people have the worst possible taste in junk memes and trash media consumption to flock to this content creator. People upvote this trash taste on Reddit every hour of every day and can not resist handing power and wealth to Donald Trump in compulsive addiction to the Clifton performance. It is like a wish list for the 11th season of Donald Trump South Park entertainment show: "How hilarious would it be if Trump drew the other half of his droopy face with a Sharpie to make it look 'normal' again".
 
 &nbsp;
 
@@ -548,7 +548,7 @@ Pixburghkev 2019-09-08
 
 "This is the way. Finally, people having fun and laughing at them."
 
-FINALLY? That is all people have done since year 2015, endless LOL LOL LOL LMAO at Donald Trump. This tiny short message of Twitter-think is rececy bias personified. People in USA have "Amused Ourselves to Death" so much that population is thinking and acting like this is Donald Trump's FIRST TERM IN OFFICE, We The Peole ahve lost their memories of the pandemic, all the non-stop laughing and giggles over Doald Trump's media appearances and speeches. People ahve blown their minds so wide open that they can't even remember year 2016 election!!
+FINALLY? That is all people have done since year 2015, endless LOL LOL LOL LMAO at Donald Trump. This tiny short message of Twitter-think is recency bias personified. People in USA have "Amused Ourselves to Death" so much that population is thinking and acting like this is Donald Trump's FIRST TERM IN OFFICE, We The People have lost their memories of the pandemic, all the non-stop laughing and giggles over Donald Trump's media appearances and speeches. People have blown their minds so wide open that they can't even remember year 2016 election!!
 
 &nbsp;
 
@@ -574,7 +574,7 @@ MacPzesst 2021-04-10
 
 But yunno, Biden kissed his granddaughter in a slightly less-weird way than how Tom Brady made his son kiss him."
 
-Fetishment of rich men's sexual power and wealth power to be a super-star and *grab women by the pussy* and manpipulate the society. It is so hillarious and funny and god-damned entertaining to meme addicts on Reddit who react-comment and joke and are constantly amused at mocking Trump, insutling Doanld Trump, eating the Tony Clifton act Trump does on the world stage of history FOR TEN FUCKING YEARS. Over and over the meme addicts of USA society can't get enough of Donald Trump to mock, the Tony Clifton act of contradictions and nonsense draws a Reddit and Bluesky and Twitter crowd every hour of every day. "It's even more hilarious that Trump's political allies are pedophiles as well." - sometimes a cigar statement is a Freudin slip of attraction to the power of wealth lords / sex lords. The story is in HOW LONG people go on and on and on for year after year declaring that Donald Trump is absurd, surreal, ironic, Tony Clifton [without being able to describe Russian information warfare techniques](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) and call for (CALL TO INTELLECTUAL ARMS) society-wide teaching about Surkov and Putin techniques in defense of NATO.
+Fetishment of rich men's sexual power and wealth power to be a super-star and *grab women by the pussy* and manipulate the society. It is so hilarious and funny and god-damned entertaining to meme addicts on Reddit who react-comment and joke and are constantly amused at mocking Trump, insulting Donald Trump, eating the Tony Clifton act Trump does on the world stage of history FOR TEN FUCKING YEARS. Over and over the meme addicts of USA society can't get enough of Donald Trump to mock, the Tony Clifton act of contradictions and nonsense draws a Reddit and Bluesky and Twitter crowd every hour of every day. "It's even more hilarious that Trump's political allies are pedophiles as well." - sometimes a cigar statement is a Freudian slip of attraction to the power of wealth lords / sex lords. The story is in HOW LONG people go on and on and on for year after year declaring that Donald Trump is absurd, surreal, ironic, Tony Clifton [without being able to describe Russian information warfare techniques](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html) and call for (CALL TO INTELLECTUAL ARMS) society-wide teaching about Surkov and Putin techniques in defense of NATO.
 
 &nbsp;
 
@@ -598,7 +598,7 @@ literallytwisted 2018-01-05
 
 "He's just out there in dementia land like some kind of malignant Grandpa Simpson! Maybe we get a movement started to get him to demand Homer is put in the hall of fame for his time playing for the Isotopes."
 
-Media addicts begging for more antics politics. Entirely thrilled with the outcomes of the Russian informationw war win. Clamoring for more nonsense and fiction content, more Tony Clifton performances. Eating the Surkovian onions an begging to be bamboozled more.
+Media addicts begging for more antics politics. Entirely thrilled with the outcomes of the Russian information war win. Clamoring for more nonsense and fiction content, more Tony Clifton performances. Eating the Surkovian onions an begging to be bamboozled more.
 
 &nbsp;
 
@@ -634,7 +634,7 @@ psylentj 2017-09-25
 
 "Watching ignorant conservatives lose their mind over the same shit they loved Trump doing and also NOT catching the irony is the kinda entertainment ive been needing."
 
-This is the right-wing mindset of **celebration of igorance, celebration of liberal tears** mockery. Russia won the information war, hearts and minds in the USA engaged in total mockery. Entertainment at Tony Clifton performers centered around Donald Trump and Vlad Putin.
+This is the right-wing mindset of **celebration of ignorance, celebration of liberal tears** mockery. Russia won the information war, hearts and minds in the USA engaged in total mockery. Entertainment at Tony Clifton performers centered around Donald Trump and Vlad Putin.
 
 &nbsp;
 
@@ -644,7 +644,7 @@ wynnduffyisking 2018-05-13
 
 "God, i love that they just took the Saddam character and put Trump’s face on it."
 
-Thrilled taht the world uses democracy and meme systems / Reddit and Twitter entertainment systems to keep having world leaders like Putin, Trump, Sadam Hussian. Using spare time and free time on social machines to cheer with one-line Twitter thinking messages that God, diety, thank you that we have Doald Trump leading us with entertainment content creation. Enitrely addicted to the fiction created by and around Donald Trump's leadership. Runaway media addiction, runaway simulacra society. Just like Mecca and Saudi Arabaa and Quran fanfiction. South Park is fanfiction for Trump. ***Anything to avoid nonfiction learning of Kremlin information warfare based on fiction*** https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - because that's more than Bluesky-length Tweet-thinking reactions to Trump addiction. Meme thinking. ""God, i love" Trump fiction content.
+Thrilled that the world uses democracy and meme systems / Reddit and Twitter entertainment systems to keep having world leaders like Putin, Trump, Saddam Hussein. Using spare time and free time on social machines to cheer with one-line Twitter thinking messages that God, deity, thank you that we have Donald Trump leading us with entertainment content creation. Entirely addicted to the fiction created by and around Donald Trump's leadership. Runaway media addiction, runaway simulacra society. Just like Mecca and Saudi Arabia and Quran fanfiction. South Park is fanfiction for Trump. ***Anything to avoid nonfiction learning of Kremlin information warfare based on fiction*** https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - because that's more than Bluesky-length Tweet-thinking reactions to Trump addiction. Meme thinking. ""God, i love" Trump fiction content.
 
 &nbsp;
 
@@ -654,7 +654,7 @@ Ghostman_Jack 2024-11-27
 
 "It’s kind of funny. When this story first broke out right wingers were screaming and shouting how this is “more proof” how the Dems are cheating cause this guy was caught and he has a foreign name. Then it comes out he’s a trumper and crickets."
 
-Crowds flocking, people chasing after the fiction story. Absurd comedy, surreal humor, "kind of funny", entertinment addiction. Information machines driving people with attraction to fiction and fantasy.
+Crowds flocking, people chasing after the fiction story. Absurd comedy, surreal humor, "kind of funny", entertainment addiction. Information machines driving people with attraction to fiction and fantasy.
 
 &nbsp;
 
@@ -662,7 +662,7 @@ Crowds flocking, people chasing after the fiction story. Absurd comedy, surreal 
 
 https://old.reddit.com/r/Music/comments/1n2jj4z/john_fogerty_says_its_hilarious_trump_still/
 
-This is the entire situation. People think it is hilarious what Donald Trump ddoes. Irony poisioning, satire poisoning of an entire nation. People can not stop mocking the Tony Cliftion performances of Putin and Trump and supporting casts of Kremlin and White House. The more they use absurd and surreal comedy, the more the audience can't stop handing over wealth and power. That's what Surkov governing does, that is what Surkov students have mastered. As Joseph Campbell said in summer of 1987 at age 83, "die for a metaphor", in our case the fiction metaphor is Donald Trump being able to say:
+This is the entire situation. People think it is hilarious what Donald Trump does. Irony poisoning, satire poisoning of an entire nation. People can not stop mocking the Tony Clifton performances of Putin and Trump and supporting casts of Kremlin and White House. The more they use absurd and surreal comedy, the more the audience can't stop handing over wealth and power. That's what Surkov governing does, that is what Surkov students have mastered. As Joseph Campbell said in summer of 1987 at age 83, "die for a metaphor", in our case the fiction metaphor is Donald Trump being able to say:
 
 1. Bruce Springsteen https://economictimes.indiatimes.com/news/international/us/donald-trump-sues-bruce-springsteen-for-defamation-over-explosive-onstage-comments/articleshow/122116950.cms?from=mdr
 
@@ -676,7 +676,7 @@ What we are living under in August 2025, is what Neil Postman wrote about and de
 
 And Neil Postman wasn't even describing it as information warfare, he saw it happening as a natural product of electric media consumption, he was clear on this: "In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result." - 1985
 
-What Surkov has done with Putin / Kremlin since year 2000 was *intential*, weaponzied, and exported with Cambridge Analytia since Q2 2013.
+What Surkov has done with Putin / Kremlin since year 2000 was *intentional*, weaponized, and exported with Cambridge Analytica since Q2 2013.
 
 &nbsp;
 
@@ -684,7 +684,7 @@ What Surkov has done with Putin / Kremlin since year 2000 was *intential*, weapo
 
 https://old.reddit.com/r/politics/comments/1n2jj9u/gavin_newsom_says_trump_wants_to_run_for_a_third/
 
-"You Think He Is Joking?" - No American people think mocking Trump's poop diapers, mocking Trump's orange skin, mocking his golf course outings is the most hillarious, amusing, engaging and funny jokes ever created. For OVER TEN YEARS AND TWO MONTHS, since June 2025, social machines hum with mocking and insulting of how terrible Trump is playing Tony Clifton acts. It never ends. Sincerity, science, goodness, honesty have all been abandoned in favor of people insulting and mocking. We are living in a total mockery. We are a joke as a nation. People are attracted to trash entertainment.  People are entirely avoiding nonfiction, unable to face up that a 1985 book 'Amusing Ourselves To Death" about media ecology explains the media addiction problems of USA August 2025. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+"You Think He Is Joking?" - No American people think mocking Trump's poop diapers, mocking Trump's orange skin, mocking his golf course outings is the most hilarious, amusing, engaging and funny jokes ever created. For OVER TEN YEARS AND TWO MONTHS, since June 2025, social machines hum with mocking and insulting of how terrible Trump is playing Tony Clifton acts. It never ends. Sincerity, science, goodness, honesty have all been abandoned in favor of people insulting and mocking. We are living in a total mockery. We are a joke as a nation. People are attracted to trash entertainment.  People are entirely avoiding nonfiction, unable to face up that a 1985 book 'Amusing Ourselves To Death" about media ecology explains the media addiction problems of USA August 2025. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
 
 
 &nbsp;
@@ -693,7 +693,7 @@ https://old.reddit.com/r/politics/comments/1n2jj9u/gavin_newsom_says_trump_wants
 
 https://old.reddit.com/r/AdviceAnimals/comments/1n35nbi/i_must_confess/
 
-Front page of Reddit. People feeding fiction electric messages to Americans for the sake of creeating bewilderment. Copycats to the Internet Research Agency. A population so addicted to Russian's information warfare since March 2013, they compusively are now addicted to the constant entertainment and stimulation of having "an enemy* within. MAGA values, the "enemy" within of immigrants and liberals, but now everyone in USA has an out-group "enemy within" to attack and dehumanize with electric media machines. This is all what Carl Sagan warned us in 1995 book, ***Celebration of Ignorance*** behavioirs. A whole nation celebraint how entertaining and thrilling it is to adopt predatory ignorance as a tool.
+Front page of Reddit. People feeding fiction electric messages to Americans for the sake of creating bewilderment. Copycats to the Internet Research Agency. A population so addicted to Russian's information warfare since March 2013, they compulsively are now addicted to the constant entertainment and stimulation of having "an enemy* within. MAGA values, the "enemy" within of immigrants and liberals, but now everyone in USA has an out-group "enemy within" to attack and dehumanize with electric media machines. This is all what Carl Sagan warned us in 1995 book, ***Celebration of Ignorance*** behaviors. A whole nation celebrating how entertaining and thrilling it is to adopt predatory ignorance as a tool.
 
 "the dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites now down to 10 seconds or less, lowest-common-denominator programming, credulous presentations on pseudoscience and superstition, but [especially a kind of celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE).” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
@@ -733,6 +733,5 @@ intronert 2011-01-16
 
 "Hilarious. Putin playing Trump for a fool."
 
-So fucking funny, amsuing, hillarious to watch Russia make the USA look stupid and dumb. Tony Clifton acts by Trump are so entertaining!
+So fucking funny, amusing, hilarious to watch Russia make the USA look stupid and dumb. Tony Clifton acts by Trump are so entertaining!
 “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/), 1985
-
