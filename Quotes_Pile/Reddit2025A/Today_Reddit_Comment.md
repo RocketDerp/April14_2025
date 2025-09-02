@@ -221,3 +221,19 @@ Oily_Bolts  2025-07-22 (recent account)
 "The one constant among the internet over the last 20 years is that whatever value for inflation the government reports is hilariously inaccurate when compared to day to day inflation that your average middle class consumer has to deal with.
 
 But now that Trump's in office, everyone suddenly believes the "no inflation" lie. Like I could understand people believing 2-3% inflation because that's what they've been saying the average has been for years, but straight up NO inflation? Come on now, they're just *trying* to be as stupid as possible at this point"
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n6g1ed/comments_aged_horribly/nc0bt5b/
+
+Admonitio 2012-06-03
+
+"This is what stuck out to me as well. It isn't just having bad takes (which they definitely have) it's how fucking vile and unnecessarily mean they come off. Like what the fuck, just gross."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n6g1ed/comments_aged_horribly/nc0jwoc/
+
+kekepania 2013-04-08
+
+"They’re never happy. Every update is shit. Every story sucks. And god forbid you make anything “woke”. I end up leaving every gaming sub I join because of the pile roaches that run rampant in them."
