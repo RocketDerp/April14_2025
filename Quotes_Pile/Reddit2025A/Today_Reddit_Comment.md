@@ -726,3 +726,20 @@ Mammoth-Error1577 2023-07-14
 Every time I look up at that thing and see a new tile it's equally as transparently manipulative as the last.
 
 Why the folks watching don't feel absolutely abused for their lack of critical thinking is, well obvious."
+
+* :::=== RoundSparrow_Commentary : Individual person *critical thinking* doesn't address a society where billionre Rupert Murdoch is using his wealth to fund a team and technology to manipulate audiences. It has to be looked at as a forest for trees perspective. Predoatry manipulation of audiences needs to be addressed as an issue. The Church / Fox News / Kremlin information warfare. We are not teaching media ecology, fiction from nonfiction, and we are not teaming up as a society to support "the little guy" like baby boomer Jen Senko's 2015 documentary film about Fox News. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad - we are not rewarding honest and sincere people, we are not voting for politicians who are sincere and honest. Democracy does not work when it becomes a constest of constant competition to trick people and manipulate people. Wihout love and compassion for strangers, dog eat dog leads to a terrible world. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n6q3eg/the_media_is_complicit_in_ending_democracy/nc36ycl/
+
+Strawbuddy 2017-01-08
+
+"Gov is run by geriatric conservatives
+
+Media is run by geriatric conservatives
+
+Press must kiss ass and pose softball questions only to get into the Press room now
+
+This is a handful of old rich folks supporting other old rich folks, for just as long as they can still make any money off of traditional (and dying) media, as they watch their brands and their gatekeeping abilities shuffle into the twilight"
+
