@@ -29,3 +29,11 @@ AndrewTheAverage 2019-06-21
 There is evidence he is unwell, but no evidence he is catching up with his mate Jeffery. He has access to some of the best medical care in the world - you know, the health care paid for by the people he is removing health care from"
 
 &nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n6c0xj/calling_it/nbz6c1m/
+
+ReporterNervous6240 2021-04-06
+
+"Donald trump disappearing due to all these different rumours of ill health/death not long after a meeting with Putin, is this not raising any questions?"
+
+&nbsp;
