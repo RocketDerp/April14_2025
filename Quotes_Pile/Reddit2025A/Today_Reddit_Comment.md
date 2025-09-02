@@ -427,3 +427,31 @@ mjrubs 2015-11-28
 The post title makes it sound like people are currently arriving outside the building in droves with pitchforks and torches ready to burn the mutha to the ground."
 
 * :::=== RoundSparrow_Commentary : Fiction outsells nonfiction. Hyperreality outsells reality. Hyper Reddit headlines outsellf sincere reality. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6kigf/breaking_an_enormous_protest_has_erupted_outside/nc1jk34/
+
+MyguyDave15 2023-12-27
+
+"All middle aged, white protestors that don’t have real jobs and get paid by left wing ngos to “refute facism”, “defend democracy” -Hypocritical losers and sheep as these ngos are funded by oligarchs! This isnt a midterm strategy. Any support for this bullshit is antithetical to true grass-root activism and real policy policymaking but glad you idiots get off to this on reddit"
+
+* :::=== RoundSparrow_Commentary : MAGA values of mocking, insulting, total mockery USA. "'Sucker,' 'loser' and other insults Biden and Trump lobbed in presidential debate." https://www.latimes.com/politics/story/2024-06-27/sucker-loser-and-other-insults-biden-and-trump-lobbed-in-presidential-debate ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6kigf/breaking_an_enormous_protest_has_erupted_outside/nc1l4kg/
+
+MyguyDave15 2023-12-27
+
+"Very clever! Resistance should be about offering a difference of opinion on policy, not this self righteous coddling that caters to brainwashed morons like yourself"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6kigf/breaking_an_enormous_protest_has_erupted_outside/nc1lccp/
+
+tonymorgan92 2016-05-19
+
+"Which is exactly why protesting is pointless. You do it the legal way and nothing gets done. You do it the way youre suggesting and then law enforcement comes and breaks it up.... becsuse... ya know... youre doing something illegal, and then yall rally against how your rights are being violated when youre the ones breaking the law 🤣."
+
+* :::=== RoundSparrow_Commentary : Messages on Reddit media machines: all protest is pointless. Give up on education, give up on sharing goodness ideas. Just give up. The 🤣 at the end of the message. "(U+1F923). 🤣. Name: Rolling On the Floor Laughing." - it is all so hilarious and funny to Reddit media addicts.  ===:::
