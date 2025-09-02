@@ -237,3 +237,23 @@ https://old.reddit.com/r/agedlikemilk/comments/1n6g1ed/comments_aged_horribly/nc
 kekepania 2013-04-08
 
 "They’re never happy. Every update is shit. Every story sucks. And god forbid you make anything “woke”. I end up leaving every gaming sub I join because of the pile roaches that run rampant in them."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n6g1ed/comments_aged_horribly/nc0k9ei/
+
+DeezSpicyNuts 2025-03-08 (new this year)
+
+"Gamergate showed me just how fucking unhinged a significant number of young gaming men are online, and I was a young gaming man at the time lol. 
+
+The way they talked about “corruption” in the gaming journalism industry always bothered the hell out of me. They always tried to make it sound like they had discovered some grand conspiracy when it’s literally the same payola bullshit that happens in every entertainment industry."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n6g1ed/comments_aged_horribly/nc0m2bq/
+
+zoinkability 2009-10-19
+
+"The other issue is that they aren’t actually evaluating it as a game, they are all mocking it for its format. As if both great and crap games don’t come in every format.
+
+Saying “not another side-scroller” would be like saying “not another comedy” about a movie. It’s not like there is some finite number of comedy movies that can exist, nor that just because there are a lot of comedies that nobody could ever make a great one."
