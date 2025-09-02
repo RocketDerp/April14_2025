@@ -199,3 +199,18 @@ Hell, even if he was on video fucking a teenage girl half his base would say it'
 I honestly don't understand why you all keep thinking these issues are anything more than ways to keep you shouting into the void."
 
 &nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6hkww/donald_trump_to_make_televised_announcement_at/nc09czj/
+
+Silver-Bread4668  2025-06-24 (recent account)
+
+"The Epstein stuff is also a distraction.
+
+Trump is just a puppet. He's not calling the shots or writing the EOs. If he's nearing the end of his usefulness due to health issues anyway, the Epstein shit is the perfect distraction while the people actually calling the shots, who probably have nothing to do with the Epstein stuff, keep pulling the strings to loot and pillage this country while they still can.
+
+At the end of the day, no matter what comes to light with Epstein or what happens to Trump as a result of that or other things, it's not gunna solve the real issues we are facing."
+
+&nbsp;
+
