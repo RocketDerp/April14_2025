@@ -551,3 +551,15 @@ ZampanoGuy 2025-02-08
 "If you pay attention, Melania is slowly morphing into Trump. Just look at the faces."
 
 * :::=== RoundSparrow_Commentary : If you pay attention, the United States of America has been morphing into Tony Clifton acts of Donald Trump on every media outlet since year 2013. Putin and Surkov governing techniques applied to social media and White House entertainment addictions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6sjev/donald_trump_looks_rough_and_is_45_minutes_late/nc2snwk/
+
+Cyrano_Knows 2023-04-13
+
+"Im at the point where EVERY damn thing Republicans accuse the left of is sheer projection.
+
+So here I'm assuming that the adrenochrome Republicans harvest from the blood of tortured children beneath a pizza parlor isn't working anymore."
+
+* :::=== RoundSparrow_Commentary :  This is an American social media users of Reddit describing how fiction is taking over their mind. Pizzgate "pizza parlor" fantasy messages are saturing the minds of the "Epstein List" chanting audience. ===:::
