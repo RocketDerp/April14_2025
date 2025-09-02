@@ -648,3 +648,11 @@ floofnstuff 2017-04-07
 "If it’s something he doesn’t like it’s; fake, fake news, hoax or Biden’s fault."
 
 * :::=== RoundSparrow_Commentary : Give Donald Trump credit, he knows media systems. He is 79 years old and he can say "it looks like generative A.I." to people like a teenager informed on the latest media systems. ===:
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6syys/merz_putin_may_be_the_most_serious_war_criminal/nc2jnri/
+
+FickleRevolution15 2024-11-28
+
+"The fact most of these comments are calling out Netanyahu when people like Bashar Al-Assad exist is actually stupendous and a clear indication that this site is one massive echo chamber."
