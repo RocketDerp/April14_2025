@@ -313,3 +313,13 @@ https://old.reddit.com/r/AdviceAnimals/comments/1n6fk43/guaranteed/nbzypl2/
 Spekingur 2011-09-14
 
 "Democrats are apparently simultaneously worst and best at everything"
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n6fk43/guaranteed/nc0knv8/
+
+tecky1kanobe 2018-10-25
+
+"But he will be gone. And we all should celebrate that and let the trolls keyboard ninja each other. If this has taught us anything it is people are idiots and we can not change that. A third will always be left, a third, right, and a third in between. In those divisions it splits again into thirds. The furthest 2/3 of each LIC are the base and you will never shift those people away. Focus on those that can reached and write off the rest as lost causes."
+
+* :::=== RoundSparrow_Commentary : Give up on future of children, give up on education messages. Very popular to see these anti-Malala messages that state that nothing can ever improve in the world and give up on sincere honesty learning and study. Anti-progress. Anti-humanism. The whole "left vs. right" thinking isn't even that old. Cramming all human interpretations into one single bit of logic. "If this has taught us anything it is people are idiots and we can not change that." ===:::
