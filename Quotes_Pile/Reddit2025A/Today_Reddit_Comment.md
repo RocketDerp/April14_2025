@@ -1,3 +1,13 @@
+# Tuesday September 2, 2025
+
+https://old.reddit.com/r/law/comments/1n6dsnz/operation_silent_harvest_under_cover_of_darkness/nbzua25/
+
+Hoss-Bonaventure_CEO 2024-04-30
+
+"When I hear some fat fucking illiterate in an F-250 screech about protecting children, I can't help but wonder if he's a wannabe predator putting on a show."
+
+&nbsp;
+
 # Monday September 1, 2025
 
 https://old.reddit.com/r/politics/comments/1n5l8zx/donald_trump_responds_to_viral_health_rumors/nbtd8x3/
