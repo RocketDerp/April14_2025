@@ -4,11 +4,13 @@
 
 &nbsp;
 
+&nbsp;
+
 ### Romans 11:32 Bible verse
 
 Bible verse Romans 11:32 is the Mercy equation beheaded in many cases.   
 
-Romans 11:32 says, "For God has consigned all to disobedience, that he may have mercy on all" (ESV). This verse, the culmination of Paul's argument in Romans 1-11, explains that God, in His wisdom and sovereignty, allowed both Jews and Gentiles to be subject to disobedience so that He could extend His mercy universally to everyone.
+Romans 11:32 says, **"For God has consigned all to disobedience, that he may have mercy on all"** (ESV). This verse, the culmination of Paul's argument in Romans 1-11, explains that God, in His wisdom and sovereignty, allowed both Jews and Gentiles to be subject to disobedience so that He could extend His mercy universally to everyone.
 
 Gentiles / Infidels / Non-believers / All inclusive / Everyone.
 
@@ -18,7 +20,7 @@ Gentiles / Infidels / Non-believers / All inclusive / Everyone.
 
 &nbsp;
 
-Source: Joseph Campbell age 81 in 1986 - The Power of Myth, published in 1988 - page 36
+Source: Joseph Campbell age 81 in 1986 - [The Power of Myth, published in 1988](https://en.wikipedia.org/wiki/The_Power_of_Myth) - page 36
 
 
 BILL MOYERS: That would explain the other inscription down there, "Novus Ordo Sedorum."
