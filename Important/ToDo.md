@@ -1251,3 +1251,8 @@ https://www.youtube.com/watch?v=hgj8R-yS6hY
 
 Typos and word misplacement language problems      
 https://www.youtube.com/watch?v=CAm_L6CTnD4
+
+&nbsp;
+
+Reddit mafia. how Reddit is used to influence AI training, etc.     
+https://www.youtube.com/watch?v=RjUcfSVuU1A
