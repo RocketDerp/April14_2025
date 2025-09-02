@@ -323,3 +323,13 @@ tecky1kanobe 2018-10-25
 "But he will be gone. And we all should celebrate that and let the trolls keyboard ninja each other. If this has taught us anything it is people are idiots and we can not change that. A third will always be left, a third, right, and a third in between. In those divisions it splits again into thirds. The furthest 2/3 of each LIC are the base and you will never shift those people away. Focus on those that can reached and write off the rest as lost causes."
 
 * :::=== RoundSparrow_Commentary : Give up on future of children, give up on education messages. Very popular to see these anti-Malala messages that state that nothing can ever improve in the world and give up on sincere honesty learning and study. Anti-progress. Anti-humanism. The whole "left vs. right" thinking isn't even that old. Cramming all human interpretations into one single bit of logic. "If this has taught us anything it is people are idiots and we can not change that." ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n6fk43/guaranteed/nc02vzx/
+
+robertd440 2016-11-21
+
+"We need to push the narrative that JD killed him. Maga base isn't rallied behind him like 47 so if it starts spreading JD killed him the GOP might implode. MTG is already at odds with them now."
+
+* :::=== RoundSparrow_Commentary : Since March 2013 IRA and CA mind-fucking... Fiction addicts in USA ("We The People") constantly call for more fiction. That the [answer to the Kremlin's year 2013 onward War Against Reality is to add more unrelaity](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/) and bullshit to society. Addict behaviors, demanding more entertainment fiction politics. They want ot make sure even after Donald Trump is dead, more fiction runs the nation. ===:::
