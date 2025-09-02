@@ -282,3 +282,10 @@ Puresowns 2010-11-01
 
 "I think it is rather that they are so self centered, that to them there is no difference."
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1n6g1ed/comments_aged_horribly/nc02iw0/
+
+the_millenial_falcon 2016-12-16
+
+"My favorite hobby has some of the worst people. Malignant, reactionary man-children."
