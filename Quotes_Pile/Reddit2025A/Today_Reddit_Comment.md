@@ -8,6 +8,19 @@ Hoss-Bonaventure_CEO 2024-04-30
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n6c0xj/calling_it/nbzbz98/
+
+Crepo 2014-07-10
+
+"I reckon they will settle into a state where the conservative talking heads will be the face of the administration. They're the ones with the support, and they'll carry water for whatever agenda the Whitehouse pushes.
+
+I seriously think it will only be a slight realignment to reach this state, and the base will go along. If you're American, you should be really worried about this outcome."
+
+* :::=== RoundSparrow_Commentary : People in USA go along with 'talking heads', the media content, on critical health care insurance / measles and other diseases. This is an abandonment of science in favor of fiction media network addictions. Media of mocking and insulting the out-groups is driving behaviors. Reddit and Bluskey addicts mock away at hundreds of millions / MAGA population, not just one man Trump. ===:::
+
+&nbsp;
+
+
 # Monday September 1, 2025
 
 https://old.reddit.com/r/politics/comments/1n5l8zx/donald_trump_responds_to_viral_health_rumors/nbtd8x3/
