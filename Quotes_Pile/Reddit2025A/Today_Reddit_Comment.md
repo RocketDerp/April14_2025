@@ -666,3 +666,13 @@ https://old.reddit.com/r/worldnews/comments/1n6syys/merz_putin_may_be_the_most_s
 ClearlyNotMeAtAll 2024-08-06
 
 "Is even possible to have one single post about Ukraine/Russia without "whatabout Israel"? Is this so much to ask?"
+
+&nbsp;
+
+https://old.reddit.com/r/Wellthatsucks/comments/1n6u2qd/tennis_star_karol%C3%ADna_muchov%C3%A1_halts_us_open_match/nc2tth5/
+
+Spacemanspalds 2017-01-02
+
+"BS. People on reddit love to hate. There are examples on both sides in THIS comment section alone. As well as examples of people asking for sources.
+
+You're doing the exact BS that you're complaining about."
