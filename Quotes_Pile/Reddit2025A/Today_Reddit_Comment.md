@@ -341,3 +341,11 @@ https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_e
 angular_circle 2022-05-15
 
 "It's quite telling that in this case I'm willing to believe the Kremlin more than Trump"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n6ffs1/kremlin_denies_trump_putin_ever_agreed_on/nbzqb9g/
+
+Reddvox 2019-01-29
+
+"These times ... when the clown/comedian is the only truly trustworthy adult and competent politician in the room..."
