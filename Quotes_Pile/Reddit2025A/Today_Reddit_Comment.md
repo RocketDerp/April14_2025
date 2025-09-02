@@ -572,4 +572,12 @@ NonPolarVortex 2017-01-07
 
 "Right?! He just got a clean bill of health from the whitehouse doctor stating that he is literally the fittest, strongest, most intelligent, and least peadophilic president we have ever had! These libtards are just looking for any bullshit they can to knock our great emperor down"
 
-* :::=== RoundSparrow_Commentary :  It is never-ending adoption of this style of langauge. For over TEN YEARS AND TWO MONTHS people communicate like this more and more every day. Media environment driven langauge systems. https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ ===:::
+* :::=== RoundSparrow_Commentary :  It is never-ending adoption of this style of langauge. For over TEN YEARS AND TWO MONTHS people communicate like this more and more every day. Media environment driven language systems. https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n6sjev/donald_trump_looks_rough_and_is_45_minutes_late/nc2hpmh/
+
+Bluegill15 2018-10-28
+
+"Yeah I want him to leave this earth as much as the next person, but the level of cope this morning has been off the charts"
