@@ -115,3 +115,13 @@ https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_r
 Due_Letterhead_5558 2024-11-24
 
 "You have to be shockingly stupid to put on a hat like this about yourself, much less wear one on camera, much less do so as the president. And not “stupid” in the insulting way, but in the “mind completely and utterly in shambles” way. It boggles the mind, seeing this and accepting it as real."
+
+* :::=== RoundSparrow_Commentary : [Surkovian onion eating](Surkovian_Onion_Eating.md). Population thinks this is all accidental and stupid. That the shock value, the kind of reactions this Reddit comment shows, are not part of Russian Surkov governing techniques. Donald Trump playing Tony Clifton acts and the crowd (on Reddit) eats it up ithout any self-awareness that absurd and surreal is the very basis of Putin's information warfare. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6f73u/trump_gabbard_fired_top_cia_russia_expert_days/nc02131/
+
+Lonely_Refuse4988 2021-01-26
+
+"Imagine having the strongest military in the world, and completely surrendering the nation to a foreign adversary by electing a puppet who is an asset and agent of foreign adversary! Putin’s Russia is weak militarily but he knows and understands psy ops and how to manipulate people, to point where he can install numerous puppet authoritarians via propaganda efforts."
