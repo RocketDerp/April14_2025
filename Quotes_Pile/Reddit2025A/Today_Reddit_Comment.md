@@ -173,3 +173,13 @@ fushiao 2017-03-05
 "And millions of people were cool with it. The sexual assault civil case, the paying a porn Star while preaching bullshit Christian shit, undermining election integrity, trying to overthrow the government, etc. Fuck him and the people who voted for him"
 
 * :::=== RoundSparrow_Commentary : "cool with it" doesn't even begin to describe how obssed population is over the sex lives, houses, of the rich and famous. Doanld Trump's entire takeover os society is fulled by Reality TV addiction / Fox News entertainment addictions. Pizzagate QAnon, endless trash messges off Twitter / Reddit. Commplete abandonment of goodness itself as a nation in favor of constantly messaging about Donald J. Trump and similar entertainers. Trump, Diddy, rock stars, rap stars, Reality TV stars, entertainers of every kind. https://www.taylorring.com/blog/sexual-abuse-of-minors-in-the-entertainment-industry/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1n7kcpi/epstein_survivors_speak_white_house_sends_jets_at/nc8617i/
+
+Actionbrener 2024-06-02
+
+"Worse than a joke. Dangerous. Makes me sick to stay this out loud but the US government is probably the stupidest, most corrupt, and more dangerous government in the world right now. So unhinged it’s insane. You have the FBI, DOJ, SCOTUS protecting a child rapist. US is actively helping another country commit genocide as well.
+
+There’s more insane shit that has happened in the last 8 months than the previous 30 year it feels like"
