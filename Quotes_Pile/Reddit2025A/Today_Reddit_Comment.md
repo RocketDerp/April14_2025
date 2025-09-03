@@ -110,3 +110,14 @@ Danominator 2011-10-31 (Halloween)
 
 Legit wild to see so flagrantly and ao fast"
 
+* :::=== RoundSparrow_Commentary : The blatent and most obvious mental manipulation serves as cover fire for people to measure against. An incredibly low bar of measure. People develop egoism of their in-group filter-bubble. A major symptom to watch for is: lack of concern to rescue or rehabilitate those lost to fiction addictions, IRA / CA. https://en.wikipedia.org/wiki/Filter_bubble ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n7e1xy/curiouser_and_curiouser/nc7e3j7/
+
+Caftancatfan 2022-05-11
+
+"This is such a weird in group/out group phenomenon. If it’s one of “us”, there was probably a misunderstanding and do we really want to ruin a man’s future over this, etc.
+
+If it’s one of “them,” set them on fire, piss on them until they’re extinguished, gang rape them, and then set them on fire again."
