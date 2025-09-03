@@ -743,3 +743,16 @@ Press must kiss ass and pose softball questions only to get into the Press room 
 
 This is a handful of old rich folks supporting other old rich folks, for just as long as they can still make any money off of traditional (and dying) media, as they watch their brands and their gatekeeping abilities shuffle into the twilight"
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n6xk0v/thousands_of_epsteinrelated_records_from_doj/nc3t23x/
+
+Khaldara 2014-04-16
+
+"Their pet morons are still busy claiming the bland corporate branding of Cracker Barrel was somehow a victory over the nefarious “woke” (never mind the fact that McDonalds, Taco Bell, Pizza Hut, etc have been doing this same exact thing for the last 25 years to the point they’re all now effectively indistinguishable from a Starbucks all to zero Conservative outcry).
+
+It’s honestly impressive how easily those idiots are lead around by the nose. What was it before, some pants ad or something?
+
+That’ll solve the inflationary policy and tariffs busy robbing them blind! What’s a little child rape in the face of REAL issues? Like renaming the Golf of Mexico."
+
+* :::=== RoundSparrow_Commentary : Americans hate Americans. Amercians mock and insult Americans. Americans adopt the media behaviors of role model Donald Trump: insultinga and mocking Americans. https://www.nytimes.com/interactive/2021/01/19/upshot/trump-complete-insult-list.html No way do people consider outlandish insulting to be part of Russian informaiton warfare techniques (it is), and no way do people propose we stop escaliting the mob mentality conditoning and programming that is being done by machine messages. ===:::
