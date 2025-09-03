@@ -205,3 +205,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1n7ijg5/trump_admin_warns_gop_dem
 yomamma_75 2019-12-12
 
 "The Administration is awfully defensive over a proclaimed hoax, would t you say?"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n7ijg5/trump_admin_warns_gop_demanding_more_epstein/nc8j1v3/
+
+RedLanternScythe 2016-04-06
+
+"Trump has learned to frame everything in a way that he has the power to retaliate the way he wants. Everything is a disaster, emergency, invasion, and now act of war. All things the president has the power to react to"
