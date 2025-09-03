@@ -89,3 +89,11 @@ the_ouskull 2010-07-03
 Proof-Let649 2021-06-12
 
 "Well according to my co-worker Jim, he’s the most honest and transparent president in U.S. history. But seeing as Jim is an inbred moron who believes everything newsmax tells him, I may have to disagree."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n7e1xy/curiouser_and_curiouser/nc710mk/
+
+ReleaseTheGrease 2025-02-13 (new this year)
+
+"And Americans will read this post, get angry, and do fuck all but watch it happen"
