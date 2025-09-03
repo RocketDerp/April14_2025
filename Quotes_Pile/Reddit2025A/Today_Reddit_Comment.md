@@ -151,3 +151,15 @@ TargetAq 2016-11-03
 "Or he will convince everyone that he has. Whats the difference between an advanced chatbot that sounds like musk and an actual digital copy of him. To us, anyway."
 
 * :::=== RoundSparrow_Commentary : And there can be a series of systems, post-produciton processes to modify it by living people or rulesets. Especialy for non-interactive media, advanced content creation (even just 1 hour in advance opens many possibility to analyze the content for A/B testing if any unexpected audience reactions raise up). Can be tuned and modified to adopt modern trends and fashions to maintain engagement with a shallow and superficial audience / society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1n7kcpi/epstein_survivors_speak_white_house_sends_jets_at/nc8mu5w/
+
+makingkevinbacon 2017-02-03
+
+"At this point it feels so obvious tho. It's like if I paint myself blue and stand in a completely red room, screaming "Im right here!" And then when you point and say "found you" I send jets over your house and strip all your public programs and scream back "no you didn't!"
+
+He cannot be this dumb or arrogant and those who can do something can't be that hand tied, it feels all so obvious to have zero consequences. And I'm sure the many victims feel the same. I guess when the world's elite could be implicated, they need to act then. I don't have a source, but I remember someone on Reddit saying how the global economy could actually be destroyed by the list getting out and all the people actually punished. Idk the truth to it but I say let it burn"
+
+* :::=== RoundSparrow_Commentary : As a media event, extreme obvious is Tony Clifton technique. Surkov Russian media methods taken to USA media addicts. ===:::
