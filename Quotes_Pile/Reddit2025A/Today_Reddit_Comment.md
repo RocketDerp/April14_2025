@@ -1,3 +1,19 @@
+# Wednesday September 3, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n7bknm/i_will_never_understand_why_this_happened/nc6d5sc/
+
+CiDevant 2013-05-24
+
+"Your right, it's going to be written by Russia or China.
+
+We had the world and we threw it away because they tried to follow up a black man with a woman.
+
+This is the end of the American Empire.  Dying not with a whimper but a rage tweet at 2 am."
+
+&nbsp;
+
 # Tuesday September 2, 2025
 
 https://old.reddit.com/r/law/comments/1n6dsnz/operation_silent_harvest_under_cover_of_darkness/nbzua25/
