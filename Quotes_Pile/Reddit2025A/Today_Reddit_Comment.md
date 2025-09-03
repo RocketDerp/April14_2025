@@ -183,3 +183,17 @@ Actionbrener 2024-06-02
 "Worse than a joke. Dangerous. Makes me sick to stay this out loud but the US government is probably the stupidest, most corrupt, and more dangerous government in the world right now. So unhinged it’s insane. You have the FBI, DOJ, SCOTUS protecting a child rapist. US is actively helping another country commit genocide as well.
 
 There’s more insane shit that has happened in the last 8 months than the previous 30 year it feels like"
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1n7kcpi/epstein_survivors_speak_white_house_sends_jets_at/nc8f2yi/
+
+ErgoMachina 2017-08-05
+
+"It's not just a feeling. The military parade in China, and especially the words of Xi, could very well mark the formal start of WW3.
+
+It's basically NATO(Allies) vs The Axis...again. And they are already at war, with Ukraine being used as a proxy.
+
+The issue is that Russia and China fired the first shots more than a decade ago, when they filled Western society with propaganda and misinformation (and we allowed it). They were so effective that they managed to install a puppet regime in the US, throwing all NATO allies into chaos.
+
+There's no easy way out now, and I believe that's the real reason for the parade...they think they won. And honestly, if you look at the chaotic state of Western society, I would say they did. Hopefully, I'm mistaken."
