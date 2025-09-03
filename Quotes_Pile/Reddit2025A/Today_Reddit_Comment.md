@@ -798,3 +798,11 @@ https://old.reddit.com/r/Teachers/comments/1n70518/alarming_misconception/nc3x1s
 xtnh 2021-04-24
 
 "Scary, isn't it? When I started I heard that kids who had books in their homes did better in school even if the books were unopened, and I realized there were kids for whom books were alien objects."
+
+&nbsp;
+
+https://old.reddit.com/r/GetNoted/comments/1n7054q/bad_look_for_the_us_secretary_of_energy/nc42f9e/
+
+toodumbtobeAI 2025-04-28 (recent account)
+
+"The note mistakes energy with electricity exactly the way the tweet describes. Fossil fuels are not electric when used in internal combustion engines. Replacing current electrical needs does not equate to replacing all internal combustion engines with electric."
