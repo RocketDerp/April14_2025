@@ -18,3 +18,5 @@ https://old.reddit.com/r/MurderedByWords/comments/1n6rve0/what_kind_of_logic_is_
 Tracking EVERY MINUTE of Tony Clifton apperance, all ready for the mockery and insult about how terrible Donald Trump (Tony Clifton) is at his job. Sarcasm and irony poisoning to day "Weekend At Bernies" fiction reference, everything is fiction addiction.      
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1n6rcs3/weekend_at_donnies/
 
+The hyper reality this past week has been mass mind crazy.     
+https://old.reddit.com/r/politics/comments/1n708pd/trump_brushes_off_health_speculation_its_sort_of/   
