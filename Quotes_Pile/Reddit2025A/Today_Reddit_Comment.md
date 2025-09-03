@@ -223,3 +223,11 @@ johnnyribcage 2016-09-10
 "They don’t care. Trump pegged them right on the money 10 years ago when he said he could stand on fifth Avenue and blow some random person’s head off and he wouldn’t lose any votes. These are dumb (at best), evil (whether they know they are or not) people."
 
 * :::=== RoundSparrow_Commentary : I, Stephen Gutknecht, think Trump could read the crowd and the outcomes of the Novemer 7, 2012 agreement to create the Internet Research Agency in Saint Petersberg Russia. "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." - https://www.facebook.com/konstantin.rykov/posts/10210621124674610 ... By January 2016 when Trump was in Iowa and made the statement about cult loyalty, the IRA had already been mind-fucking people since Q2 2013. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n7ijg5/trump_admin_warns_gop_demanding_more_epstein/nc825p3/
+
+Hefty-Sense-8079 2024-06-15
+
+"They're not embarrassed. They're in the Faux News universe."
