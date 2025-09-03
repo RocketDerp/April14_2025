@@ -768,3 +768,17 @@ https://old.reddit.com/r/politics/comments/1n6v8xv/i_refuse_to_play_a_reality_ga
 * :::=== RoundSparrow_Commentary : At least SOMEONE is describing how the White House is operating. Most people just eat the Surkovian / Surkov techniques without calling-out that it is Reality TV style politics. One step further, call it Surkovian Russian! Cite Peter P! ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/inflation/comments/1n6w7rl/mcdonalds_ceo_says_the_quiet_part_loud_says_we/nc3vp9b/
+
+SoUnga88 2017-11-23
+
+"It’s going to take years and years of fighting, and struggling to get back what we lost. Back to back presidential wins, retaking the house and the senate, judicial reform, and reform of the SCOTUS. I just don’t see it happening."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1n6w7rl/mcdonalds_ceo_says_the_quiet_part_loud_says_we/nc3dvh2/
+
+Stuff-Optimal 2021-02-04
+
+"McDonalds used to be convenient because it was cheap, fast, and family friendly. It might still be fast when compared to other places, but it is no longer cheap or family friendly. Their buildings have removed all the fun for children to tire themselves out and they’ve raised prices probably about 3-4 times the amount of what it cost just 3 years ago. And it gets even crazier when you realize the price increase did not make any food taste better or healthier and it definitely did not go to any of the underpaid employees who work 40 hours a week and qualify for government assistance."
