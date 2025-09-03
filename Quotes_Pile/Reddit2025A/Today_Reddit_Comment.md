@@ -83,3 +83,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n7bknm/i_will_never_unders
 the_ouskull 2010-07-03
 
 "Because we live in a country that stopped shaming people for being bullies, creating a culture in which nobody has to ever consider the validity of an opinion they don't hold."
+
+&nbsp;
+
+Proof-Let649 2021-06-12
+
+"Well according to my co-worker Jim, he’s the most honest and transparent president in U.S. history. But seeing as Jim is an inbred moron who believes everything newsmax tells him, I may have to disagree."
