@@ -141,3 +141,13 @@ Ambitious_Zombie8473 2020-10-02
 I see this trend far too often in comment threads."
 
 * :::=== RoundSparrow_Commentary : Framed on Reddit subreddit as "Har Har, Not The Onion" to induce mockery and banal mindsets of egoism that Putin and Xi are dumb stupid idiots and everyone on Reddit consuming media all day understands how billionares mind-fuck them with IRA and modern equivlents. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n7fo5j/hot_mic_captures_putin_xi_discussing_organ/nc81462/
+
+TargetAq 2016-11-03
+
+"Or he will convince everyone that he has. Whats the difference between an advanced chatbot that sounds like musk and an actual digital copy of him. To us, anyway."
+
+* :::=== RoundSparrow_Commentary : And there can be a series of systems, post-produciton processes to modify it by living people or rulesets. Especialy for non-interactive media, advanced content creation (even just 1 hour in advance opens many possibility to analyze the content for A/B testing if any unexpected audience reactions raise up). Can be tuned and modified to adopt modern trends and fashions to maintain engagement with a shallow and superficial audience / society. ===:::
