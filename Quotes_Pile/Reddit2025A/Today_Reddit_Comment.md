@@ -65,3 +65,13 @@ KopOut 2010-08-26
 "Everyone wants someone else to do the right thing because they don’t want to experience any consequences of that personally.
 
 It’s a dangerous mass cowardice and greed. It’s not just the right either. Look at how many banks and bankers we penalized after the GFC. None."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n7bknm/i_will_never_understand_why_this_happened/nc6i2bk/
+
+JTD177 2021-10-04
+
+"Despite the photos showing people rioting, breaking windows, and fighting with the police, I know people who still insist that it was a peaceful demonstration"
+
+* :::=== RoundSparrow_Commentary : January 6, 2021 was after constant mental manipulation since March 2013 onward... Russian IRA conditioning of the population to be detached from reality, addicted to fiction media system and self-harm values on a macro scale (fiction like Fox News entertainment). September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
