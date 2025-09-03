@@ -99,3 +99,14 @@ ReleaseTheGrease 2025-02-13 (new this year)
 "And Americans will read this post, get angry, and do fuck all but watch it happen"
 
 * :::=== RoundSparrow_Commentary : Addiction to *watching* entertainment of Donald Trump mocking and insulting is exactly the society-wide problem. People so addicted to Twitter-length messaging one-line trash talk ideas and conditioned reactions. Unable to defend agisnt the Putin Media Invasion since March 2013. Glued to their touchscreens feeling the vibes of the entertainment streaming memes centered around Donald Trump antics and mind exploits (Surkovian governing media systems). USA will not facef up to entertainment addiction. [Grim_Blunt/Stop_All_Entertainment](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n7e1xy/curiouser_and_curiouser/nc7al4d/
+
+Danominator 2011-10-31 (Halloween)
+
+"That whole sub is a relentless psyop. You can see they were made at first but then the moderators go to work and start suppressing posts. People start posting distraction memes. Within like a week they are right back in lock step.
+
+Legit wild to see so flagrantly and ao fast"
+
