@@ -814,3 +814,11 @@ https://old.reddit.com/r/popculturechat/comments/1n6y8e4/carti_b_has_won_the_civ
 caguru 2010-10-12
 
 "Whoever edited that needs to have their Adderall taken away from them."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1n6y8e4/carti_b_has_won_the_civil_assault_lawsuit_brought/nc4fu7o/
+
+IAmGoingToFuckThat 2011-08-25
+
+"She's not a good person, but she's funny as fuck."
