@@ -75,3 +75,11 @@ JTD177 2021-10-04
 "Despite the photos showing people rioting, breaking windows, and fighting with the police, I know people who still insist that it was a peaceful demonstration"
 
 * :::=== RoundSparrow_Commentary : January 6, 2021 was after constant mental manipulation since March 2013 onward... Russian IRA conditioning of the population to be detached from reality, addicted to fiction media system and self-harm values on a macro scale (fiction like Fox News entertainment). September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n7bknm/i_will_never_understand_why_this_happened/nc6j5i2/
+
+the_ouskull 2010-07-03
+
+"Because we live in a country that stopped shaming people for being bullies, creating a culture in which nobody has to ever consider the validity of an opinion they don't hold."
