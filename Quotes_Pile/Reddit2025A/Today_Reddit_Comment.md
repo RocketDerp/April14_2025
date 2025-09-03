@@ -45,3 +45,13 @@ TexMurphyPHD 2022-11-29
 "A lot of americans hate america."
 
 * :::=== RoundSparrow_Commentary :  Many people, We The People, in USA hate human beings they disagree with. Hate itself motivates membership in tribes. “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Donald Trump acting Tony Cliftion provides constant hate magnet, constant mockery programming content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n7bknm/i_will_never_understand_why_this_happened/nc6atcx/
+
+Xpointbreak1991x 2024-07-27
+
+"Because people REALLY wanted cheap eggs, that are still not cheap to this day."
+
+* :::=== RoundSparrow_Commentary :  Twitter-think repeating retweeting shallow superficial ideas over and over. LOL LOL Eggs, people so stupid, dumb, idiot that I disagree with. A total mockery nation. Donald Trump is the messaging leader of a society that values mocking as religion. That more mockery, mock harder, hate harder, will make for a better future. Toxic religion faith systems. ===:::
