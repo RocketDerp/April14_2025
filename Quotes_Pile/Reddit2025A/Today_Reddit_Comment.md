@@ -790,3 +790,11 @@ https://old.reddit.com/r/politics/comments/1n6tcs7/gavin_newsoms_polling_surge_r
 Due-Egg4743 2020-09-08
 
 "Can't remember much about that but Newsom was definitely non-confrontational in the clips I saw from his podcast. He has a video with a headline basically saying that liberals are lost to the manosphere, which is something I've been saying for a while. He understands that and gets it. Dems are just completely getting crushed in the manosphere market to right leaning voices."
+
+&nbsp;
+
+https://old.reddit.com/r/Teachers/comments/1n70518/alarming_misconception/nc3x1si/
+
+xtnh 2021-04-24
+
+"Scary, isn't it? When I started I heard that kids who had books in their homes did better in school even if the books were unopened, and I realized there were kids for whom books were alien objects."
