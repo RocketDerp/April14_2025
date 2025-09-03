@@ -2,5 +2,26 @@
 
 ### Forgetting and re-learning, Reminding
 
-"One of our problems today is that we are not well acquainted with the literature of the spirit. We’re interested in the news of the day and the problems of the hour. It used to be that the university campus was a kind of hermetically sealed-off area where the news of the day did not impinge upon your attention to the inner life and to the magnificent human heritage we have in our great tradition—Plato, Confucius, the Buddha, Goethe, and others who speak of the eternal values that have to do with the centering of our lives. When you get to be older, and the concerns of the day have all been attended to, and you turn to the inner life—well, if you don’t know where it is or what it is, you’ll be sorry.
-Greek and Latin and biblical literature used to be part of everyone’s education. Now, when these were dropped, a whole tradition of Occidental mythological information was lost. It used to be that these stories were in the minds of people. When the story is in your mind, then you see its relevance to something happening in your own life. It gives you perspective on what’s happening to you. With the loss of that, we’ve really lost something because we don’t have a comparable literature to take its place. These bits of information from ancient times, which have to do with the themes that have supported human life, built civilizations, and informed religions over the millennia, have to do with deep inner problems, inner mysteries, inner thresholds of passage, and if you don’t know what the guide-signs are along the way, you have to work it out yourself. But once this subject catches you, there is such a feeling, from one or another of these traditions, of information of a deep, rich, life-vivifying sort that you don’t want to give it up."
+Joseph Campbell at age 83 in 1987:
+
+"One of our problems today is that we are not well acquainted with the literature of the spirit. We’re interested in the news of the day and the problems of the hour. It used to be that the university campus was a kind of hermetically sealed-off area where the news of the day did not impinge upon your attention to the inner life and to the magnificent human heritage we have in our great tradition"
+
+"When you get to be older, and the concerns of the day have all been attended to, and you turn to the inner life—well, if you don’t know where it is or what it is, you’ll be sorry."
+
+&nbsp;
+
+### Twitter / Buesky / Reddit yesterday's news
+
+"Did not click and read the article"      
+Filter bubble of time and subreddit subscriptions      
+Many repetitive comments / reaction imagee. Upvoting normally addresses that, as 750 people who agree all upvote the same comment. But many people behave in a write-only manner, not reading existing comments before making a new one.    
+
+### Wikitribune / Wikinews
+
+Wikinews.org     
+https://en.wikinews.org/wiki/Main_Page
+
+1. Standard convention for hosting multiple-langauge tarnslations of the same story
+2. Revised with history of edits. Who did the edits, when, diff of what was changed
+3. Colberative, multiple people working together
+
