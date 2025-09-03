@@ -782,3 +782,11 @@ https://old.reddit.com/r/inflation/comments/1n6w7rl/mcdonalds_ceo_says_the_quiet
 Stuff-Optimal 2021-02-04
 
 "McDonalds used to be convenient because it was cheap, fast, and family friendly. It might still be fast when compared to other places, but it is no longer cheap or family friendly. Their buildings have removed all the fun for children to tire themselves out and they’ve raised prices probably about 3-4 times the amount of what it cost just 3 years ago. And it gets even crazier when you realize the price increase did not make any food taste better or healthier and it definitely did not go to any of the underpaid employees who work 40 hours a week and qualify for government assistance."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6tcs7/gavin_newsoms_polling_surge_reaches_major/nc2ktui/
+
+Due-Egg4743 2020-09-08
+
+"Can't remember much about that but Newsom was definitely non-confrontational in the clips I saw from his podcast. He has a video with a headline basically saying that liberals are lost to the manosphere, which is something I've been saying for a while. He understands that and gets it. Dems are just completely getting crushed in the manosphere market to right leaning voices."
