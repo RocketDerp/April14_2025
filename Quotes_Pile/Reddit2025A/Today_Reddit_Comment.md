@@ -197,3 +197,11 @@ It's basically NATO(Allies) vs The Axis...again. And they are already at war, wi
 The issue is that Russia and China fired the first shots more than a decade ago, when they filled Western society with propaganda and misinformation (and we allowed it). They were so effective that they managed to install a puppet regime in the US, throwing all NATO allies into chaos.
 
 There's no easy way out now, and I believe that's the real reason for the parade...they think they won. And honestly, if you look at the chaotic state of Western society, I would say they did. Hopefully, I'm mistaken."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n7ijg5/trump_admin_warns_gop_demanding_more_epstein/nc85mrg/
+
+yomamma_75 2019-12-12
+
+"The Administration is awfully defensive over a proclaimed hoax, would t you say?"
