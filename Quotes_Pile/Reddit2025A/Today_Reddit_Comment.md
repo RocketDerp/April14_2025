@@ -239,3 +239,21 @@ https://old.reddit.com/r/NoFilterNews/comments/1n7ijg5/trump_admin_warns_gop_dem
 Aggressive_Shoe_7573 2024-05-18
 
 "They aren’t capable of feeling embarrassment about him. No matter what is in the files they won’t believe he did anything. The Russian misinformation machine has them thoroughly brainwashed."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1n7gp55/democrat_sam_liccardo_just_exposed_the_real/nc7m75m/
+
+AngryRobot42 2021-06-09
+
+"Not all of us, but the mental toll of having to point out every single obvious lie is too much. I will add some context, my wife and I are considered upper class in the U.S.. We both make more money than my parents ever could. I still have the hardest time convincing my parents that the country is becoming an oligarchy. No matter how each EO negatively affects them, they believe that Democrats are evil. Why? No idea, considering they support universal health care, and pro-choice. What are they voting for? Lies and problems they never had to deal with. Both retired, both concerned about illegal immigration in a part of the country that had 0 illegal immigrants. Not a single republican can explain how the message during the pandemic shifted from "no one wants to work" to "too many immigrants taking our jobs". How does that even work?"
+
+* :::=== RoundSparrow_Commentary : Nonfiction messages are rejected. Russia won the War Against Reality as described September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1n7gp55/democrat_sam_liccardo_just_exposed_the_real/nc7pgpy/
+
+troveofcatastrophe 2025-05-14 (new this year)
+
+"It’s exhausting and the added ridiculousness of laying out facts and they just parrot blatant lies straight from Trump, his administration, his sycophants and the “news”. All of which are making money off of the lies. Truly a cult."
