@@ -121,3 +121,11 @@ Caftancatfan 2022-05-11
 "This is such a weird in group/out group phenomenon. If it’s one of “us”, there was probably a misunderstanding and do we really want to ruin a man’s future over this, etc.
 
 If it’s one of “them,” set them on fire, piss on them until they’re extinguished, gang rape them, and then set them on fire again."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1n7e1xy/curiouser_and_curiouser/nc79tdq/
+
+welwood 2012-04-11
+
+"The real question is why does reddit allow that sub to still exist? It's clearly nothing but Russian propaganda and a breeding ground for violent extremists, so what does it benefit reddit to keep it open?"
