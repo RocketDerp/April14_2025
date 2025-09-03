@@ -1261,3 +1261,9 @@ https://www.youtube.com/watch?v=RjUcfSVuU1A
 
 Shakespeare vs. James Joyce    
 https://old.reddit.com/r/whenthe/comments/1n6rr2q/zounds/
+
+&nbsp;
+
+PizzaCake    
+USA sudiences fall for the expensive house and hired help content creators.   
+https://old.reddit.com/r/comics/comments/1n7ewuh/trad/
