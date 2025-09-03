@@ -806,3 +806,11 @@ https://old.reddit.com/r/GetNoted/comments/1n7054q/bad_look_for_the_us_secretary
 toodumbtobeAI 2025-04-28 (recent account)
 
 "The note mistakes energy with electricity exactly the way the tweet describes. Fossil fuels are not electric when used in internal combustion engines. Replacing current electrical needs does not equate to replacing all internal combustion engines with electric."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1n6y8e4/carti_b_has_won_the_civil_assault_lawsuit_brought/nc44fgp/
+
+caguru 2010-10-12
+
+"Whoever edited that needs to have their Adderall taken away from them."
