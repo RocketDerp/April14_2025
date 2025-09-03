@@ -23,3 +23,15 @@ Final_boss_1040 2024-12-18 (new this year)
 * :::=== RoundSparrow_Commentary : The problem is **social media amusement-washes / humor-washes all this absurd antics politics**, crowds on meme machines mocking away in predictable fashion to the Surkov techniques / Tony Clifton performance of Trump. July 27, 2016 https://www.politico.com/story/2016/07/trump-putin-no-relationship-226282 - people *LOL LOL LOL LMAO WTF WTF! LOL!* day and night at Donald Trump. The situation we are living in is described in 1985 book by NYU professor Neil Postman, "Amusing Ourselves To Death" - people have lost their ability to not chuckle at absurd surreal antics and Russian media techniques exploit this in the society. https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n7bknm/i_will_never_understand_why_this_happened/nc6avfq/
+
+RidetheSchlange 2017-10-20
+
+"It was because the democrats failed to protect and ultimately save the democracy and the people the democrats serve didn't give a shit and forgot about it. Biden refused to push Garland to make a decision before it was too late and now it's obvious he was worrking with the trump people. All of these court cases that got delayed and such turned out to have been done so because they were soft on or sympathetic towards Trump, thus making it impossible to prosecute him. The problem is that we have institutionalists and it was obvious as far as Biden's win that Trump was going to continue being a power while Biden and the Democrats remained institutionalists. The people of the US preferred to forget, so this became something of no priority which was proven by just a couple days of online outrage when they were pardoned.
+
+If, by any chance, the Dems win 2026 and 2028, which is seemingly impossible, they will not clear the government and the country of the treasonous rot, thus leaving the way open for another in Trump's family to run. The problem also is that what Trump has done to the country will be a generational repair operation. There's no way the people will keep the democrats on long enough to oversee it and with all these terrorists still in the government, it's just going to happen again.
+
+At this point I'm in favor of the US breaking up so russia has less of a cohesive satellite state which is what the US effectively is right now."
+
+* :::=== RoundSparrow_Commentary : When a population can not distinguish fiction from nonfiction, when LOL LOL LOL is all day and night. Reformation of the population is the problem. Media ecology lessons (to become self-aware) are not optional. https://youtu.be/ETUGwC9jXCM?t=217 ===:::
