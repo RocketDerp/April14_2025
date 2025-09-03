@@ -231,3 +231,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1n7ijg5/trump_admin_warns_gop_dem
 Hefty-Sense-8079 2024-06-15
 
 "They're not embarrassed. They're in the Faux News universe."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n7ijg5/trump_admin_warns_gop_demanding_more_epstein/nc82ktj/
+
+Aggressive_Shoe_7573 2024-05-18
+
+"They aren’t capable of feeling embarrassment about him. No matter what is in the files they won’t believe he did anything. The Russian misinformation machine has them thoroughly brainwashed."
