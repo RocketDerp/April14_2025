@@ -129,3 +129,15 @@ https://old.reddit.com/r/AdviceAnimals/comments/1n7e1xy/curiouser_and_curiouser/
 welwood 2012-04-11
 
 "The real question is why does reddit allow that sub to still exist? It's clearly nothing but Russian propaganda and a breeding ground for violent extremists, so what does it benefit reddit to keep it open?"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1n7fo5j/hot_mic_captures_putin_xi_discussing_organ/nc7r0ny/
+
+Ambitious_Zombie8473 2020-10-02
+
+"I guarantee you that 90% (at least) of the people commenting did not read the article.
+
+I see this trend far too often in comment threads."
+
+* :::=== RoundSparrow_Commentary : Framed on Reddit subreddit as "Har Har, Not The Onion" to induce mockery and banal mindsets of egoism that Putin and Xi are dumb stupid idiots and everyone on Reddit consuming media all day understands how billionares mind-fuck them with IRA and modern equivlents. ===:::
