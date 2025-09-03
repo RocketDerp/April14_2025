@@ -21,5 +21,5 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n6rcs3/weekend_at_donnies/
 The hyper reality this past week has been mass mind crazy.     
 https://old.reddit.com/r/politics/comments/1n708pd/trump_brushes_off_health_speculation_its_sort_of/   
 
-Mocking away at the enemy. The other political party. Not asserting truth and goodness, just insulting the egoism in Reddit "better than her" egoism. A pecking order of egoism vs. egoism of media consumers about the sex acts of billionares on private jets and private islands.    
+Mocking away at the enemy. The other political party. Not asserting truth and goodness, just insulting the egoism in Reddit "better than her" egoism. A pecking order of egoism vs. egoism of media consumers about the sex acts of billionares on private jets and private islands. Not the Reddit frame (Medium is the MassAge) of "MURDERED BY WORDS!", we killed Nacy Mace, murder Nacy Mace, come watch the murder!         
 https://old.reddit.com/r/MurderedByWords/comments/1n710lc/shine_the_spotlight_on_me/
