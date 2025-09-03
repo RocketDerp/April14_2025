@@ -55,3 +55,13 @@ Xpointbreak1991x 2024-07-27
 "Because people REALLY wanted cheap eggs, that are still not cheap to this day."
 
 * :::=== RoundSparrow_Commentary :  Twitter-think repeating retweeting shallow superficial ideas over and over. LOL LOL Eggs, people so stupid, dumb, idiot that I disagree with. A total mockery nation. Donald Trump is the messaging leader of a society that values mocking as religion. That more mockery, mock harder, hate harder, will make for a better future. Toxic religion faith systems. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n7bknm/i_will_never_understand_why_this_happened/nc69thy/
+
+KopOut 2010-08-26
+
+"Everyone wants someone else to do the right thing because they don’t want to experience any consequences of that personally.
+
+It’s a dangerous mass cowardice and greed. It’s not just the right either. Look at how many banks and bankers we penalized after the GFC. None."
