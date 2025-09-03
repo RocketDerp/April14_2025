@@ -756,3 +756,15 @@ It’s honestly impressive how easily those idiots are lead around by the nose. 
 That’ll solve the inflationary policy and tariffs busy robbing them blind! What’s a little child rape in the face of REAL issues? Like renaming the Golf of Mexico."
 
 * :::=== RoundSparrow_Commentary : Americans hate Americans. Amercians mock and insult Americans. Americans adopt the media behaviors of role model Donald Trump: insultinga and mocking Americans. https://www.nytimes.com/interactive/2021/01/19/upshot/trump-complete-insult-list.html No way do people consider outlandish insulting to be part of Russian informaiton warfare techniques (it is), and no way do people propose we stop escaliting the mob mentality conditoning and programming that is being done by machine messages. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n6v8xv/i_refuse_to_play_a_reality_game_show_with_donald/
+
+‘I refuse to play a reality game show with Donald Trump’: Gov. JB Pritzker on Chicago threats
+
+* :::=== RoundSparrow_Commentary : At least SOMEONE is describing how the White House is operating. Most people just eat the Surkovian / Surkov techniques without calling-out that it is Reality TV style politics. One step further, call it Surkovian Russian! Cite Peter P! ===:::
+
+&nbsp;
