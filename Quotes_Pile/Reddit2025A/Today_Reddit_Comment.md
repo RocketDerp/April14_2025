@@ -35,3 +35,13 @@ If, by any chance, the Dems win 2026 and 2028, which is seemingly impossible, th
 At this point I'm in favor of the US breaking up so russia has less of a cohesive satellite state which is what the US effectively is right now."
 
 * :::=== RoundSparrow_Commentary : When a population can not distinguish fiction from nonfiction, when LOL LOL LOL is all day and night. Reformation of the population is the problem. Media ecology lessons (to become self-aware) are not optional. https://youtu.be/ETUGwC9jXCM?t=217 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n7bknm/i_will_never_understand_why_this_happened/nc6b955/
+
+TexMurphyPHD 2022-11-29
+
+"A lot of americans hate america."
+
+* :::=== RoundSparrow_Commentary :  Many people, We The People, in USA hate human beings they disagree with. Hate itself motivates membership in tribes. “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Donald Trump acting Tony Cliftion provides constant hate magnet, constant mockery programming content. ===:::
