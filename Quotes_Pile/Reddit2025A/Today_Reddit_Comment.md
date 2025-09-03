@@ -163,3 +163,13 @@ makingkevinbacon 2017-02-03
 He cannot be this dumb or arrogant and those who can do something can't be that hand tied, it feels all so obvious to have zero consequences. And I'm sure the many victims feel the same. I guess when the world's elite could be implicated, they need to act then. I don't have a source, but I remember someone on Reddit saying how the global economy could actually be destroyed by the list getting out and all the people actually punished. Idk the truth to it but I say let it burn"
 
 * :::=== RoundSparrow_Commentary : As a media event, extreme obvious is Tony Clifton technique. Surkov Russian media methods taken to USA media addicts. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1n7kcpi/epstein_survivors_speak_white_house_sends_jets_at/nc849m9/
+
+fushiao 2017-03-05
+
+"And millions of people were cool with it. The sexual assault civil case, the paying a porn Star while preaching bullshit Christian shit, undermining election integrity, trying to overthrow the government, etc. Fuck him and the people who voted for him"
+
+* :::=== RoundSparrow_Commentary : "cool with it" doesn't even begin to describe how obssed population is over the sex lives, houses, of the rich and famous. Doanld Trump's entire takeover os society is fulled by Reality TV addiction / Fox News entertainment addictions. Pizzagate QAnon, endless trash messges off Twitter / Reddit. Commplete abandonment of goodness itself as a nation in favor of constantly messaging about Donald J. Trump and similar entertainers. Trump, Diddy, rock stars, rap stars, Reality TV stars, entertainers of every kind. https://www.taylorring.com/blog/sexual-abuse-of-minors-in-the-entertainment-industry/ ===:::
