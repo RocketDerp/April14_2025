@@ -248,7 +248,7 @@ AngryRobot42 2021-06-09
 
 "Not all of us, but the mental toll of having to point out every single obvious lie is too much. I will add some context, my wife and I are considered upper class in the U.S.. We both make more money than my parents ever could. I still have the hardest time convincing my parents that the country is becoming an oligarchy. No matter how each EO negatively affects them, they believe that Democrats are evil. Why? No idea, considering they support universal health care, and pro-choice. What are they voting for? Lies and problems they never had to deal with. Both retired, both concerned about illegal immigration in a part of the country that had 0 illegal immigrants. Not a single republican can explain how the message during the pandemic shifted from "no one wants to work" to "too many immigrants taking our jobs". How does that even work?"
 
-* :::=== RoundSparrow_Commentary : Nonfiction messages are rejected. Russia won the War Against Reality as described September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+* :::=== RoundSparrow_Commentary : Nonfiction messages and ideas are rejected. Russia won the War Against Reality as described September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
 
 &nbsp;
 
