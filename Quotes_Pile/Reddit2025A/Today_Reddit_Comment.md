@@ -192,3 +192,10 @@ Ovarian_contrarian 2022-05-20
 
 "lol, I’m having a hard time just vibing, but your president is hilarious, as in you guys are absolutely fucked 🍿"
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n8c2k7/trumps_second_presidency_is_most_dangerous_period/ncdslkm/
+
+risky-key 2025-03-26
+
+"It’s wild seeing McConnell say this after all these years of supporting Trump. Feels like everyone in politics is just trying to cover their own ass now. Either way, the next election is gonna be a mess no matter who wins."
