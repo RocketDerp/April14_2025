@@ -183,3 +183,12 @@ https://old.reddit.com/r/politics/comments/1n86o01/donald_trump_has_destroyed_am
 SavedByHisGraceOnly **2025-07-20 (new account)**
 
 "Donald J. Trump has managed to make a laughingstock out of your entire country in the past 9 months or so. There's truly no country in the world that takes you seriously anymore. And even now, you let the orange clown get away with it, without a hint of resistance, it's truly ff-ing unbelievable. Thanks to all the MAGA idiots out there and the ones who thought there wasn't enough at stake to go voting (you really, really should have known better). With regards, the rest of the world."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1n896zs/whoever_did_this_is_getting_deported/ncdsnks/
+
+Ovarian_contrarian 2022-05-20
+
+"lol, I’m having a hard time just vibing, but your president is hilarious, as in you guys are absolutely fucked 🍿"
+
