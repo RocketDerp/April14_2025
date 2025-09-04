@@ -241,3 +241,11 @@ Russia isn't doing well but they still have comparatively infinite manpower to d
 As your defenses are spread wider and wider your lines become thinner, your reinforcements less numerous, and the harder it becomes to move troops or equipment to problem areas.
 
 If the Russians could get enough bodies together to make a truly large scale assault the entire Ukrainian line could collapse and that's more or less what Putin is hoping for, or if the number of troops is simply propaganda they're hoping to intimidate the Ukrainians into coming to the negotiating table before that hypothetical collapse could happen."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n8ar4r/russia_masses_100000_troops_near_pokrovsk_as/ncdt0r6/
+
+DaySecure7642 2021-11-29
+
+"It may be necessary to defeat Russia (not just negotiate), at least partially, in Ukraine to deter further aggressions, the invasion of Taiwan or even WW3. The authoritarian bloc is getting bolder, more aggressive and powerful (see China recent military parade). Pre-WW2 experience dealing with Nazi Germany tells us that appeasement won't stop but encourages further invasions."
