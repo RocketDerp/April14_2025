@@ -1,3 +1,16 @@
+# Thursday Septemberr 4, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n87oyq/rfk_jr_and_the_white_house_buried_a_major_study/nccx38g/
+
+SomewherePresent8204 2024-02-03
+
+"Trump sold Trump branded wine and vodka despite his brother drinking himself to death."
+
+&nbsp;
+
+
 # Wednesday September 3, 2025
 
 &nbsp;
