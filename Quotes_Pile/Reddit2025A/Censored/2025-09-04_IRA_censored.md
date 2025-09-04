@@ -4,7 +4,7 @@ https://old.reddit.com/r/pics/comments/1n86ik8/white_supremacist_at_a_baseball_g
 
 &nbsp;
 
-&nbps;
+&nbsp;
 
 > Turning it into a propaganda machine was part of the transformations that have taken place in reddit over the years
 
