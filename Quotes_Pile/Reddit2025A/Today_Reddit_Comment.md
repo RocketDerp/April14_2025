@@ -109,3 +109,13 @@ https://old.reddit.com/r/law/comments/1n888ze/florida_will_end_all_state_vaccine
 Chippopotanuse 2021-02-03
 
 "I don’t think this guy understands what slavery was actually like if he thinks a child getting an MMR booster shot is comparable."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1n888ze/florida_will_end_all_state_vaccine_mandates/ncd96h0/
+
+bd2999 2023-09-24
+
+"This really is horrific. The conservative movement is going full anti-vaxx here. This will need to nothing but needless suffering. They have no issue ordering people to comply with numerous rulings and ignoring their rights but when it comes to something that is actually a public good than it becomes evil.
+
+Also, they downplay slavery in many respects, so their comparisons get weaker when they are also downplaying the worst things in history. I know there is a push to get rid of public education too but as a requirement to attend school, it does seem very legal. There is a clear public interest in vaccination on top of protecting the kids in the school system itself from needless illness and suffering."
