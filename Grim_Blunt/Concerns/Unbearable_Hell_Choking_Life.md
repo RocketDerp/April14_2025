@@ -30,6 +30,11 @@ and I didn’t speak out because I was not a Jew.
 Then they came for the Catholics,    
 and I didn’t speak out because I was not a Catholic.    
 Then they came for me,    
-and there was no one left to speak for me.    "
+and there was no one left to speak for me."
 
 
+&nbsp;
+
+### "no one left to speak for me"
+
+As an autistic person knowing the history of Nazi behaviors towards autistsm and the language communications issues of being outside the Tower of Babel with autism langauge disorders. Everyhing Donald Trump has been since June 2015 with language, and even before in year 2012 with Donald Trump and language:  https://abcnews.go.com/Politics/donald-trumps-2012-election-tweetstorm-resurfaces-popular-electoral/story?id=43431536
