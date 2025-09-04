@@ -1267,3 +1267,10 @@ https://old.reddit.com/r/whenthe/comments/1n6rr2q/zounds/
 PizzaCake    
 USA sudiences fall for the expensive house and hired help content creators.   
 https://old.reddit.com/r/comics/comments/1n7ewuh/trad/
+
+&nbsp;
+
+Hate media motivates    
+Tony Clifton / Donald Trump audience appeal.    
+Professor of Rock: His Song Was SO AWFUL…It Actually Ended Up KILLING HIM in the Middle of a CONCERT!—Professor of Rock     
+https://www.youtube.com/watch?v=BsGqrJD8tAA
