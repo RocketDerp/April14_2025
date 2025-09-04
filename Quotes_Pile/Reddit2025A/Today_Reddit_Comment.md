@@ -341,3 +341,11 @@ Strawhat_Max 2024-10-10
 Because which state is gonna be the first state to ban people from a red state coming because they don’t want unvaccinated people
 
 Because we know every red state is gonna follow this"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n7vwef/nancy_mace_turns_back_on_epstein_survivors_to/ncawiic/
+
+MrFunktasticc 2020-10-27
+
+"I'd remind everyone that nothing is coming to save us. There's no scenario where "this time Republicans realize how bad it is and do the right thing." Until the tide turns it'll be demonstrative bullshit followed by them rolling over. Every. Time."
