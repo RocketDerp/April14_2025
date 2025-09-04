@@ -163,3 +163,15 @@ wastingtoomuchthyme 2015-02-17
 Putin was able to destroy America for less than a cost of a single naval vessel by simply bribing GOP and select Dem politicians.
 
 Trump knew Giuliani through his real estate business.. Giuliani got paid by the Russian Mafia to get rid of the Italian Mafia. Giuliani introduced Trump to the Russian Mafia who introduced him to the oligarchs who introduced him to the Kremlin.."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n86o01/donald_trump_has_destroyed_american_foreign_policy/nccsphl/
+
+Spanky3703 2024-08-21
+
+"Trump = Odious. Craven. Feckless. Corrupt.
+
+Unfortunately, the US has become untrustworthy, incoherent, unpredictable and unreliable.
+
+The loss of the US’s reputational strength as well as its soft power and influence, will have massive repercussions for the world now and in the future."
