@@ -304,3 +304,16 @@ philium1 2011-11-16
 "It was always funny to me the rhetoric around Trump being this vanguard against the “coastal elites.” I’m from the New York area. There’s a reason New Yorkers hate him - Trump is literally all the worst things about coastal elites wrapped into one fat, ugly package."
 
 * :::=== RoundSparrow_Commentary :  Always amusement to see Donald Trump playing Tony Clifton absurd contradictions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n7u4w0/donald_trump_is_going_downand_he_knows_it/ncad82y/
+
+BenDSover 2018-11-30
+
+"Well said, but it is not luck.
+
+Trump is propped up and empowered precisely because he is so fucking toxic. He is a stupid, explosive handgranade. And the richest people in the world, foreign and domestic, want him to corrupt and destroy the U.S. government - and so do the dumbest people. That is the MAGA coalition currently doing the unthinkable."
+
+* :::=== RoundSparrow_Commentary : Yes. The agreement made November 6, 2012 to mind-fuck the population into self-harm isn't accidental. Putin and Trump meeting in Alaska isn't accidental paradox. Surkovian mind-fuck. It is a **blind spot in our media ecology educaiton to the general poulation, spelled out by Neil Postman's 1985 book "Amusing Ourselves To Death"**.  
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." ===:::
