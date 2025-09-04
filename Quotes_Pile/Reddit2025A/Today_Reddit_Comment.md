@@ -223,3 +223,21 @@ https://old.reddit.com/r/worldnews/comments/1n8ar4r/russia_masses_100000_troops_
 CCLF 2016-12-02
 
 "There are two genocides happening right now, against the Ukrainian people and identity, and the lesser known internal Russian genocide against restive ethnic minorities. Putin absolutely looks at this conflict as a way to "kill two birds with one stone" while making the far-flung Asian territories bear an outsized cost in human life."
+
+* :::=== RoundSparrow_Commentary : Russia's War Against Reality since 2013 is self-harm to domestic Russia. Self-harm to humanity. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n8ar4r/russia_masses_100000_troops_near_pokrovsk_as/nce6bqj/
+
+BadMondayThrowaway17 2017-12-04
+
+"The biggest issue for Ukraine is still manpower and that's why a huge buildup of Russian troops is concerning.
+
+Ukraine has taken extreme casualties throughout the war just as Russia has and the eastern front has been a giant hopelessly fortified meat grinder for 2 years now consuming tens of thousands on both sides.
+
+Russia isn't doing well but they still have comparatively infinite manpower to draw on. Ukraine is literally running out of bodies to send to the front. Every man can only cover so much ground and the front is massive.
+
+As your defenses are spread wider and wider your lines become thinner, your reinforcements less numerous, and the harder it becomes to move troops or equipment to problem areas.
+
+If the Russians could get enough bodies together to make a truly large scale assault the entire Ukrainian line could collapse and that's more or less what Putin is hoping for, or if the number of troops is simply propaganda they're hoping to intimidate the Ukrainians into coming to the negotiating table before that hypothetical collapse could happen."
