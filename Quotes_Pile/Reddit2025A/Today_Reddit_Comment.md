@@ -275,3 +275,22 @@ https://old.reddit.com/r/politics/comments/1n7ktyv/trump_drowns_out_emotional_ep
 robocox87 2012-02-01
 
 "A few months ago, I told my mom, "if I grew up to be like Donald Trump, you would be ashamed of me and feel like a failure as a parent.". Her response was something like "well, someone has to be that guy. At least he's doing what he truly feels is best for our country.". Just maddening."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n7ktyv/trump_drowns_out_emotional_epstein_victims_rally/ncaehvb/
+
+MoonChainer 2017-12-09
+
+<img width="916" height="822" alt="image" src="https://github.com/user-attachments/assets/41e4b0f0-514c-4e73-99aa-5e2d71fdaccc" />
+
+&nbsp;
+
+"People really are going around forming headcanons about the guy. Every one of his supporters have a different man in their heads than the one we all see.
+
+You know that phrase that there are as many types of Christianity as there are Christians? Well, that but for this absurd cult."
+
+* :::=== RoundSparrow_Commentary : I use a disco ball metaphor. A self-reflection of personal egoism. As everyone stares at Donald Trump, or Trump communications, they see a small rectangle of the Disco Ball reflect back their own desires of power and egoism. Russia said they created 5,000 patterns of meme messages to deploy on the Internet.
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." ===:::
