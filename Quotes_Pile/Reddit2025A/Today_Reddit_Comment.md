@@ -317,3 +317,15 @@ Trump is propped up and empowered precisely because he is so fucking toxic. He i
 
 * :::=== RoundSparrow_Commentary : Yes. The agreement made November 6, 2012 to mind-fuck the population into self-harm isn't accidental. Putin and Trump meeting in Alaska isn't accidental paradox. Surkovian mind-fuck. It is a **blind spot in our media ecology education to the general population, spelled out by Neil Postman's 1985 book "Amusing Ourselves To Death"**.  
 "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n7sc09/hostile_to_those_voting_to_release_the_files_said/ncah2nc/
+
+nastyinmytaxxxi 2024-09-10
+
+"When will Redditors finally realize Epstein’s MAGA does not care if he raped kids or not? If anything, it’s a feature. 
+
+Go read about any cult on this exact subject. Followers will rather offer up their own kids to the cult leader."
+
+* :::=== RoundSparrow_Commentary : It's a topic of engagement. Fantasy Island TV fiction show. Private jet / jet set lifestyle. People on social media need to halt entertainment, sustain educaiton and front-page lessons about cult behaviors and cult deprogramming. ===:::
