@@ -294,3 +294,13 @@ You know that phrase that there are as many types of Christianity as there are C
 
 * :::=== RoundSparrow_Commentary : I use a disco ball metaphor. A self-reflection of personal egoism. As everyone stares at Donald Trump, or Trump communications, they see a small rectangle of the Disco Ball reflect back their own desires of power and egoism. Russia said they created 5,000 patterns of meme messages to deploy on the Internet.
 "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n7ktyv/trump_drowns_out_emotional_epstein_victims_rally/nc9h2ul/
+
+philium1 2011-11-16
+
+"It was always funny to me the rhetoric around Trump being this vanguard against the “coastal elites.” I’m from the New York area. There’s a reason New Yorkers hate him - Trump is literally all the worst things about coastal elites wrapped into one fat, ugly package."
+
+* :::=== RoundSparrow_Commentary :  Always amusement to see Donald Trump playing Tony Clifton absurd contradictions. ===:::
