@@ -131,3 +131,23 @@ capaho 2016-12-07
 "He’s destroying constitutional democracy as well with the gleeful support of the dimwits in the Republican Party. The GOP has completely abandoned its traditional principles in support of a TV clown. Power is the only thing that matters."
 
 * :::=== RoundSparrow_Commentary : Thnking was wrecked, non-instrumental reason thinking abandoned. The IRA since March 2013 has manipulated the population to be out-group hate oriented, self-harming the USA in praise of *hate harder* and *mock harder*. A constant mockery and hate attitude in USA. [We The People, our entire nation, Have Ignored The 1954 Equation](../../June4_2025/The_1954_Equation_source_of_compassion.md). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n86o01/donald_trump_has_destroyed_american_foreign_policy/nccmfqm/
+
+ChaskaChanhassen 2020-01-19
+
+"Let me fix that headline for you:
+
+Putin's useful idiot Trump has destroyed American foreign policy"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n86o01/donald_trump_has_destroyed_american_foreign_policy/nccwfo7/
+
+CockBrother 2015-06-19
+
+"Putin convinced the American public that Russia and fascism are cool."
+
+* :::=== RoundSparrow_Commentary : Putin's Internet Research Agency since March 2013 convinced American public that mocking, hate, insulting, dehumanizing Americans was cool. Americans hate Americans and flock to fiction, avoiding nonfiction. ===:::
