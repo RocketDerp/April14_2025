@@ -59,3 +59,11 @@ https://old.reddit.com/r/pics/comments/1n86ik8/white_supremacist_at_a_baseball_g
 Illustrious-Ring-407 2021-05-06
 
 "This site is over 50% bots. So many chatgpt comments"
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n86ik8/white_supremacist_at_a_baseball_game_oc/nccyrwn/
+
+0belvedere 2012-09-18
+
+"It’s almost as if there’s a desire to promote white supremacy in the US as widely as possible, relishing the fact that it gets to appear on everyone’s front page over and over and over again. Meanwhile redditors choose to respond to it by trying to one up each other with cutesy cultural memes instead of refusing to accept this filth. Others ask “genuine questions” to have commenters spell out what’s actually going on here in black and white. This is Propaganda 101, people, and you are being played."
