@@ -199,3 +199,11 @@ https://old.reddit.com/r/politics/comments/1n8c2k7/trumps_second_presidency_is_m
 risky-key 2025-03-26
 
 "It’s wild seeing McConnell say this after all these years of supporting Trump. Feels like everyone in politics is just trying to cover their own ass now. Either way, the next election is gonna be a mess no matter who wins."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n8c2k7/trumps_second_presidency_is_most_dangerous_period/nce45b7/
+
+PhazePyre 2014-01-15
+
+"McConnell will be heavily to blame as well. He guilted Democrats into not picking a new SCOTUS appointee before the end of Obama's term, they didn't return the favour in the same position with Trump, and got themselves a majority. He's a horrible person and none of this will absolve him of his direct contributions to anything that happens. There's a reason people cheer when they hear about health issues for him. He's a monstrous person who has been directly involved in making this "most dangerous period" happen. Nothing you do will change your legacy short of ending the cause of this period yourself. Anything else is an attempt to control the narrative around you but it's too late. Decades of conduct will override a couple weeks of turning on your own."
