@@ -151,3 +151,15 @@ CockBrother 2015-06-19
 "Putin convinced the American public that Russia and fascism are cool."
 
 * :::=== RoundSparrow_Commentary : Putin's Internet Research Agency since March 2013 convinced American public that mocking, hate, insulting, dehumanizing Americans was cool. Americans hate Americans and flock to fiction, avoiding nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n86o01/donald_trump_has_destroyed_american_foreign_policy/ncczq4t/
+
+wastingtoomuchthyme 2015-02-17
+
+"The takeover of the GOP with Trump was a Russian military operation spanning 40 years.. and will be remembered as one of the greatest military campaigns in history..
+
+Putin was able to destroy America for less than a cost of a single naval vessel by simply bribing GOP and select Dem politicians.
+
+Trump knew Giuliani through his real estate business.. Giuliani got paid by the Russian Mafia to get rid of the Italian Mafia. Giuliani introduced Trump to the Russian Mafia who introduced him to the oligarchs who introduced him to the Kremlin.."
