@@ -35,3 +35,9 @@ Guilty_Concept_3003 2021-03-12
 "Every member of project 2025 is an asset of Putin, they are calling the shots. Assets whether they know it or not."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1n7zwm2/opinion_in_deed_the_us_president_is_a_russian/ncckaia/
+
+alec83 2018-09-22
+
+"Clueless that Putin is far smarter than he is yet that's the weakness on Trump, thinking he's the most powerful person in the world when thinking it is not enough you have to act like it yet he does not know how to."
