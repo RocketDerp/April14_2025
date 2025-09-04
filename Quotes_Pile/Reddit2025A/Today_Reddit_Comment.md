@@ -313,3 +313,13 @@ Alarming_Monk8578 2025-01-08 (new this year)
 "Ever since Trump came onto the political scene, his supporters have learned how to lie, who to blame, how to deflect the blame, how to stick to the lies and recycle the lies - on every single topic - for years...until its fades away from people's memories."
 
 * :::=== RoundSparrow_Commentary : It isn't just lies. It's fiction as governing. It's Russian Surkov information warfare. September 9, 2014: "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare" By Peter Pomerantsev - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n8kt6w/rfk_jr_says_covid_response_was_worst_in_the_world/ncfrh3j/
+
+Ralphwiggum911 2013-02-17
+
+"Hes doing exactly what trump and the administration wants him to. Cause chaos and ensure the country is primed for another major pandemic that will cause more protests thus leading to more justification to institute martial law (probably in primarily democratic cities) right around voting time."
+
+* :::=== RoundSparrow_Commentary : You don't need martial law with the whole poulation so addicted to mocking and insulting how dumb / stupid / idiot "the tohers" are in team sports of media machines... that nobody cares any more about realty and nonfiction. Attraction to unreal, addiction to ficiton consumes every topic in society. Generative artificial intelligence can labor away for each person creating science ficiton fantasy. Cults for one, egoism faiths of favorite fiction storytelling.  ===:::
