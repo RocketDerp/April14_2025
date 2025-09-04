@@ -30,3 +30,6 @@ https://old.reddit.com/r/NoShitSherlock/comments/1n7ovri/gavin_newsom_mocks_bumb
 
 age-based mocking topic about Trump, the age of total mockery    
 https://old.reddit.com/r/politics/comments/1n865uf/trump_who_weaponized_agebased_mockery_is_now_its/
+
+Donald Trump is an endless source of amusement and laughing for USA population. People are unable to resist compulsive addiction to mockery and laughing. That is why the USA won't remove Trump, because media addiction to his image and LOL LOL LOL at him FOR OVER TEN YEARS AND TWO MONTHS! IT NEVER FUCKING ENDS!      
+https://old.reddit.com/r/TikTokCringe/comments/1n896zs/whoever_did_this_is_getting_deported/
