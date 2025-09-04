@@ -329,3 +329,15 @@ nastyinmytaxxxi 2024-09-10
 Go read about any cult on this exact subject. Followers will rather offer up their own kids to the cult leader."
 
 * :::=== RoundSparrow_Commentary : It's a topic of engagement. Fantasy Island TV fiction show. Private jet / jet set lifestyle. People on social media need to halt entertainment, sustain educaiton and front-page lessons about cult behaviors and cult deprogramming. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n7tprl/hearing_an_african_person_compare_vaccines_to/nca5x0h/
+
+Strawhat_Max 2024-10-10
+
+"We are gonna head to a civil war at this point
+
+Because which state is gonna be the first state to ban people from a red state coming because they don’t want unvaccinated people
+
+Because we know every red state is gonna follow this"
