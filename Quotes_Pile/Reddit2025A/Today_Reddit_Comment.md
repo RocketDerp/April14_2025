@@ -207,3 +207,11 @@ https://old.reddit.com/r/politics/comments/1n8c2k7/trumps_second_presidency_is_m
 PhazePyre 2014-01-15
 
 "McConnell will be heavily to blame as well. He guilted Democrats into not picking a new SCOTUS appointee before the end of Obama's term, they didn't return the favour in the same position with Trump, and got themselves a majority. He's a horrible person and none of this will absolve him of his direct contributions to anything that happens. There's a reason people cheer when they hear about health issues for him. He's a monstrous person who has been directly involved in making this "most dangerous period" happen. Nothing you do will change your legacy short of ending the cause of this period yourself. Anything else is an attempt to control the narrative around you but it's too late. Decades of conduct will override a couple weeks of turning on your own."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n8c2k7/trumps_second_presidency_is_most_dangerous_period/nce2ylr/
+
+AlliedR2 2020-08-06
+
+"You are one of the pivotal persons who made this happen, who stacked the SCOTUS. You cannot shout out a warning against that you made and then stand as innocent. No McConnell, you will go down in history as an architect of Trumps horrible presidency and the fears, ravages, America is enduring. You did this fucker."
