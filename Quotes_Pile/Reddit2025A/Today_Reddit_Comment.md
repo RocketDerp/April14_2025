@@ -303,3 +303,13 @@ https://old.reddit.com/r/politics/comments/1n8eh0j/rfk_jr_claims_mrna_vaccines_k
 Quiet-Corner6150 **2025-08-15 (new account)**
 
 "And because a good portion of the base are essentially "unreachable", willfully denying any and all reasoning to the contrary, I fully expect a lot of kids are going to suffer, again, from illnesses we formerly had basically eradicated. I lament that I guess it's been "too long" since lots of kids contracted these illnesses regularly just a few decades ago, nobody realizes the horror they're inflicting on their own children. But I imagine they will, eventually..."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n8kt6w/rfk_jr_says_covid_response_was_worst_in_the_world/ncfp35l/
+
+Alarming_Monk8578 2025-01-08 (new this year)
+
+"Ever since Trump came onto the political scene, his supporters have learned how to lie, who to blame, how to deflect the blame, how to stick to the lies and recycle the lies - on every single topic - for years...until its fades away from people's memories."
+
+* :::=== RoundSparrow_Commentary : It isn't just lies. It's fiction as governing. It's Russian Surkov information warfare. September 9, 2014: "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare" By Peter Pomerantsev - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
