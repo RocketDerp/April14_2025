@@ -44,7 +44,7 @@ TexMurphyPHD 2022-11-29
 
 "A lot of americans hate america."
 
-* :::=== RoundSparrow_Commentary :  Many people, We The People, in USA hate human beings they disagree with. Hate itself motivates membership in tribes. “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Donald Trump acting Tony Cliftion provides constant hate magnet, constant mockery programming content. ===:::
+* :::=== RoundSparrow_Commentary :  Many people, We The People, in USA hate human beings they disagree with. Hate itself motivates membership in tribes. “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Donald Trump acting Tony Clifton provides constant hate magnet, constant mockery programming content. ===:::
 
 &nbsp;
 
@@ -98,7 +98,7 @@ ReleaseTheGrease 2025-02-13 (new this year)
 
 "And Americans will read this post, get angry, and do fuck all but watch it happen"
 
-* :::=== RoundSparrow_Commentary : Addiction to *watching* entertainment of Donald Trump mocking and insulting is exactly the society-wide problem. People so addicted to Twitter-length messaging one-line trash talk ideas and conditioned reactions. Unable to defend agisnt the Putin Media Invasion since March 2013. Glued to their touchscreens feeling the vibes of the entertainment streaming memes centered around Donald Trump antics and mind exploits (Surkovian governing media systems). USA will not facef up to entertainment addiction. [Grim_Blunt/Stop_All_Entertainment](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
+* :::=== RoundSparrow_Commentary : Addiction to *watching* entertainment of Donald Trump mocking and insulting is exactly the society-wide problem. People so addicted to Twitter-length messaging one-line trash talk ideas and conditioned reactions. Unable to defend against the Putin Media Invasion since March 2013. Glued to their touchscreens feeling the vibes of the entertainment streaming memes centered around Donald Trump antics and mind exploits (Surkovian governing media systems). USA will not face up to entertainment addiction. [Grim_Blunt/Stop_All_Entertainment](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
 
 &nbsp;
 
@@ -110,7 +110,7 @@ Danominator 2011-10-31 (Halloween)
 
 Legit wild to see so flagrantly and ao fast"
 
-* :::=== RoundSparrow_Commentary : The blatent and most obvious mental manipulation serves as cover fire for people to measure against. An incredibly low bar of measure. People develop egoism of their in-group filter-bubble. A major symptom to watch for is: lack of concern to rescue or rehabilitate those lost to fiction addictions, IRA / CA. https://en.wikipedia.org/wiki/Filter_bubble ===:::
+* :::=== RoundSparrow_Commentary : The latent and most obvious mental manipulation serves as cover fire for people to measure against. An incredibly low bar of measure. People develop egoism of their in-group filter-bubble. A major symptom to watch for is: lack of concern to rescue or rehabilitate those lost to fiction addictions, IRA / CA. https://en.wikipedia.org/wiki/Filter_bubble ===:::
 
 &nbsp;
 
@@ -140,7 +140,7 @@ Ambitious_Zombie8473 2020-10-02
 
 I see this trend far too often in comment threads."
 
-* :::=== RoundSparrow_Commentary : Framed on Reddit subreddit as "Har Har, Not The Onion" to induce mockery and banal mindsets of egoism that Putin and Xi are dumb stupid idiots and everyone on Reddit consuming media all day understands how billionares mind-fuck them with IRA and modern equivlents. ===:::
+* :::=== RoundSparrow_Commentary : Framed on Reddit subreddit as "Har Har, Not The Onion" to induce mockery and banal mindsets of egoism that Putin and Xi are dumb stupid idiots and everyone on Reddit consuming media all day understands how billionaires mind-fuck them with IRA and modern equivalents. ===:::
 
 &nbsp;
 
@@ -150,7 +150,7 @@ TargetAq 2016-11-03
 
 "Or he will convince everyone that he has. Whats the difference between an advanced chatbot that sounds like musk and an actual digital copy of him. To us, anyway."
 
-* :::=== RoundSparrow_Commentary : And there can be a series of systems, post-produciton processes to modify it by living people or rulesets. Especialy for non-interactive media, advanced content creation (even just 1 hour in advance opens many possibility to analyze the content for A/B testing if any unexpected audience reactions raise up). Can be tuned and modified to adopt modern trends and fashions to maintain engagement with a shallow and superficial audience / society. ===:::
+* :::=== RoundSparrow_Commentary : And there can be a series of systems, post-production processes to modify it by living people or rulesets. Especially for non-interactive media, advanced content creation (even just 1 hour in advance opens many possibility to analyze the content for A/B testing if any unexpected audience reactions raise up). Can be tuned and modified to adopt modern trends and fashions to maintain engagement with a shallow and superficial audience / society. ===:::
 
 &nbsp;
 
@@ -172,7 +172,7 @@ fushiao 2017-03-05
 
 "And millions of people were cool with it. The sexual assault civil case, the paying a porn Star while preaching bullshit Christian shit, undermining election integrity, trying to overthrow the government, etc. Fuck him and the people who voted for him"
 
-* :::=== RoundSparrow_Commentary : "cool with it" doesn't even begin to describe how obssed population is over the sex lives, houses, of the rich and famous. Doanld Trump's entire takeover os society is fulled by Reality TV addiction / Fox News entertainment addictions. Pizzagate QAnon, endless trash messges off Twitter / Reddit. Commplete abandonment of goodness itself as a nation in favor of constantly messaging about Donald J. Trump and similar entertainers. Trump, Diddy, rock stars, rap stars, Reality TV stars, entertainers of every kind. https://www.taylorring.com/blog/sexual-abuse-of-minors-in-the-entertainment-industry/ ===:::
+* :::=== RoundSparrow_Commentary : "cool with it" doesn't even begin to describe how obsessed population is over the sex lives, houses, jets, of the rich and famous. Donald Trump's entire takeover of society is fulled by Reality TV addiction / Fox News entertainment addictions. Pizzagate QAnon, endless trash messages off Twitter / Reddit. Complete abandonment of goodness itself as a nation in favor of constantly messaging about Donald J. Trump and similar entertainers. Trump, Diddy, rock stars, rap stars, Reality TV stars, entertainers of every kind. https://www.taylorring.com/blog/sexual-abuse-of-minors-in-the-entertainment-industry/ ===:::
 
 &nbsp;
 
@@ -222,7 +222,7 @@ johnnyribcage 2016-09-10
 
 "They don’t care. Trump pegged them right on the money 10 years ago when he said he could stand on fifth Avenue and blow some random person’s head off and he wouldn’t lose any votes. These are dumb (at best), evil (whether they know they are or not) people."
 
-* :::=== RoundSparrow_Commentary : I, Stephen Gutknecht, think Trump could read the crowd and the outcomes of the Novemer 7, 2012 agreement to create the Internet Research Agency in Saint Petersberg Russia. "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." - https://www.facebook.com/konstantin.rykov/posts/10210621124674610 ... By January 2016 when Trump was in Iowa and made the statement about cult loyalty, the IRA had already been mind-fucking people since Q2 2013. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
+* :::=== RoundSparrow_Commentary : I, Stephen Gutknecht, think Trump could read the crowd and the outcomes of the November 7, 2012 agreement to create the Internet Research Agency in Saint Petersberg Russia. "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." - https://www.facebook.com/konstantin.rykov/posts/10210621124674610 ... By January 2016 when Trump was in Iowa and made the statement about cult loyalty, the IRA had already been mind-fucking people since Q2 2013. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
 
 &nbsp;
 
@@ -315,5 +315,5 @@ BenDSover 2018-11-30
 
 Trump is propped up and empowered precisely because he is so fucking toxic. He is a stupid, explosive handgranade. And the richest people in the world, foreign and domestic, want him to corrupt and destroy the U.S. government - and so do the dumbest people. That is the MAGA coalition currently doing the unthinkable."
 
-* :::=== RoundSparrow_Commentary : Yes. The agreement made November 6, 2012 to mind-fuck the population into self-harm isn't accidental. Putin and Trump meeting in Alaska isn't accidental paradox. Surkovian mind-fuck. It is a **blind spot in our media ecology educaiton to the general poulation, spelled out by Neil Postman's 1985 book "Amusing Ourselves To Death"**.  
+* :::=== RoundSparrow_Commentary : Yes. The agreement made November 6, 2012 to mind-fuck the population into self-harm isn't accidental. Putin and Trump meeting in Alaska isn't accidental paradox. Surkovian mind-fuck. It is a **blind spot in our media ecology education to the general population, spelled out by Neil Postman's 1985 book "Amusing Ourselves To Death"**.  
 "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года.", "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." ===:::
