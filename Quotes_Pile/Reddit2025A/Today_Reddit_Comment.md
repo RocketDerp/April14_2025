@@ -88,9 +88,9 @@ ODen4D 2020-11-10
 
 &nbsp;
 
-TAV63 2022-06-27
-
 https://old.reddit.com/r/law/comments/1n888ze/florida_will_end_all_state_vaccine_mandates/ncd5wbp/
+
+TAV63 2022-06-27
 
 "The problem with this total freedom from the government angle is they also are for stopping women from deciding what to do with their bodies. You can't be anti-choice and then for total freedom."
 
@@ -101,3 +101,11 @@ https://old.reddit.com/r/law/comments/1n888ze/florida_will_end_all_state_vaccine
 Lanky-Respect-8581 2025-05-19 (new this year)
 
 "Man… we are sprinting to the bottom"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1n888ze/florida_will_end_all_state_vaccine_mandates/ncda06v/
+
+Chippopotanuse 2021-02-03
+
+"I don’t think this guy understands what slavery was actually like if he thinks a child getting an MMR booster shot is comparable."
