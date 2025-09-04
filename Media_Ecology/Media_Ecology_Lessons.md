@@ -487,3 +487,9 @@ https://old.reddit.com/r/technology/comments/1n8dat1/lawyer_named_mark_zuckerber
 
 Harry Potter USA vs. UK release    
 https://www.youtube.com/watch?v=jrvih1gSN4w
+
+&nbsp;
+
+### Banning entire media networks
+
+https://old.reddit.com/r/news/comments/1n8lwq6/nepal_bans_facebook_x_youtube_23_other_social/
