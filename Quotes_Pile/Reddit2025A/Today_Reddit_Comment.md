@@ -267,3 +267,11 @@ susibirb 2017-10-10
 "He really is a walking talking conglomeration of what we teach our kids who not to be.
 
 He is petty, vindictive, dishonest, greedy, thin-skinned, impolite, classless, self-centered, self-dealing, and disloyal. This is not an exhaustive list."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n7ktyv/trump_drowns_out_emotional_epstein_victims_rally/nc9s9zy/
+
+robocox87 2012-02-01
+
+"A few months ago, I told my mom, "if I grew up to be like Donald Trump, you would be ashamed of me and feel like a failure as a parent.". Her response was something like "well, someone has to be that guy. At least he's doing what he truly feels is best for our country.". Just maddening."
