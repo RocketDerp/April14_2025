@@ -41,3 +41,13 @@ https://old.reddit.com/r/politics/comments/1n7zwm2/opinion_in_deed_the_us_presid
 alec83 2018-09-22
 
 "Clueless that Putin is far smarter than he is yet that's the weakness on Trump, thinking he's the most powerful person in the world when thinking it is not enough you have to act like it yet he does not know how to."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n7zwm2/opinion_in_deed_the_us_president_is_a_russian/ncchirh/
+
+Lysol3435 2016-03-09
+
+"Because they ran on that before and a huge number of Americans just shrugged and suddenly decided that they love Russia. So the dems had to switch up their messaging"
+
+* :::=== RoundSparrow_Commentary : People can not expalin how advertising, marketing, Edward Bernays 1928 works, let alone modern 2013 Russian and Cambridge Analytica information warafre. People don't recognize that mockery and mocking is Surkovian Russian governing. Putinism is entertainment / mockery: https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/ ===:::
