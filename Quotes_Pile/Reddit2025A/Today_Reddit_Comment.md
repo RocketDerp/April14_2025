@@ -249,3 +249,11 @@ https://old.reddit.com/r/worldnews/comments/1n8ar4r/russia_masses_100000_troops_
 DaySecure7642 2021-11-29
 
 "It may be necessary to defeat Russia (not just negotiate), at least partially, in Ukraine to deter further aggressions, the invasion of Taiwan or even WW3. The authoritarian bloc is getting bolder, more aggressive and powerful (see China recent military parade). Pre-WW2 experience dealing with Nazi Germany tells us that appeasement won't stop but encourages further invasions."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n8ar4r/russia_masses_100000_troops_near_pokrovsk_as/ncee1k3/
+
+kittenTakeover 2014-07-10
+
+"The problem is that authoritarians across the world have identified the West as their enemy because it kind of keeps their corruption, suppression, and exploitation of humanity in check. This is the common thread that binds the Chinese government, the Russian government, and all the other authoritarian governments aligned with them. They want to bring down the democratic west. Guess which side Trump is on?"
