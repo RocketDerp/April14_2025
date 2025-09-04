@@ -1,4 +1,4 @@
-# Thursday Septemberr 4, 2025
+# Thursday September 4, 2025
 
 &nbsp;
 
@@ -7,6 +7,14 @@ https://old.reddit.com/r/politics/comments/1n87oyq/rfk_jr_and_the_white_house_bu
 SomewherePresent8204 2024-02-03
 
 "Trump sold Trump branded wine and vodka despite his brother drinking himself to death."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n877pc/infectious_diseases_expert_sounds_alarm_on_disney/ncd7f0i/
+
+bibliophile224 2019-02-05
+
+"Not to mention how many cruise ships leave from Florida. This is worst case possible epicenter for widespread diseases that will kill people because the more a disease spreads, the greater likelihood of mutation."
 
 &nbsp;
 
