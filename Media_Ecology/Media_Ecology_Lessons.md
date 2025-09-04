@@ -492,4 +492,5 @@ https://www.youtube.com/watch?v=jrvih1gSN4w
 
 ### Banning entire media networks
 
-https://old.reddit.com/r/news/comments/1n8lwq6/nepal_bans_facebook_x_youtube_23_other_social/
+https://old.reddit.com/r/news/comments/1n8lwq6/nepal_bans_facebook_x_youtube_23_other_social/     
+https://old.reddit.com/r/worldnews/comments/1n8fd6a/nepal_moves_to_block_facebook_x_youtube_and_others/
