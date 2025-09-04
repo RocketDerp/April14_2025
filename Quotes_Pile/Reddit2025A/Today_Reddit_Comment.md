@@ -257,3 +257,13 @@ https://old.reddit.com/r/law/comments/1n7gp55/democrat_sam_liccardo_just_exposed
 troveofcatastrophe 2025-05-14 (new this year)
 
 "It’s exhausting and the added ridiculousness of laying out facts and they just parrot blatant lies straight from Trump, his administration, his sycophants and the “news”. All of which are making money off of the lies. Truly a cult."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n7ktyv/trump_drowns_out_emotional_epstein_victims_rally/nc85sr5/
+
+susibirb 2017-10-10
+
+"He really is a walking talking conglomeration of what we teach our kids who not to be.
+
+He is petty, vindictive, dishonest, greedy, thin-skinned, impolite, classless, self-centered, self-dealing, and disloyal. This is not an exhaustive list."
