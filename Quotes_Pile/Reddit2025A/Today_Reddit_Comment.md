@@ -271,3 +271,13 @@ Once that cards out of the deck, putin's window of success in Ukraine drops off 
 For putin, It really is a now or never, but in all honesty it should have been a pack it up and go back home. 
 
 They fucked up the invasion at the getgo, and pouring blood on the trench line isn't going to solve the aftermath of Russias debts."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n8eh0j/rfk_jr_claims_mrna_vaccines_kill_people_in_heated/nceyjc4/
+
+TheKingofHats007 2018-09-14
+
+"Blame our seemingly non-existent health education for allowing conspiracy theorists to completely dominate the narrative about mRna vaccines and convinced a bunch of other people who literally know fuck all about science that they're actually the next coming of the Opioid Crisis.
+
+Now actual doctors with years of education on this topic are less trustworthy to the average moron than some jackass with no training or education but he says he "has a feeling" that MRNA is a problem"
