@@ -51,3 +51,11 @@ Lysol3435 2016-03-09
 "Because they ran on that before and a huge number of Americans just shrugged and suddenly decided that they love Russia. So the dems had to switch up their messaging"
 
 * :::=== RoundSparrow_Commentary : People can not expalin how advertising, marketing, Edward Bernays 1928 works, let alone modern 2013 Russian and Cambridge Analytica information warafre. People don't recognize that mockery and mocking is Surkovian Russian governing. Putinism is entertainment / mockery: https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1n86ik8/white_supremacist_at_a_baseball_game_oc/ncdal46/
+
+Illustrious-Ring-407 2021-05-06
+
+"This site is over 50% bots. So many chatgpt comments"
