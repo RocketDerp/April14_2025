@@ -33,3 +33,8 @@ https://old.reddit.com/r/politics/comments/1n865uf/trump_who_weaponized_agebased
 
 Donald Trump is an endless source of amusement and laughing for USA population. People are unable to resist compulsive addiction to mockery and laughing. That is why the USA won't remove Trump, because media addiction to his image and LOL LOL LOL at him FOR OVER TEN YEARS AND TWO MONTHS! IT NEVER FUCKING ENDS!      
 https://old.reddit.com/r/TikTokCringe/comments/1n896zs/whoever_did_this_is_getting_deported/
+
+&nbsp;
+
+"We Live In the Absurd"on Reddit Entirely unale to state that absurd surreal is Russian information warfare.    
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n8hjtc/we_live_in_the_absurd/
