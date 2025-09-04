@@ -28,6 +28,14 @@ unknown_nut 2019-06-09
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1n7zwm2/opinion_in_deed_the_us_president_is_a_russian/ncbwrn1/
+
+Guilty_Concept_3003 2021-03-12
+
+"Every member of project 2025 is an asset of Putin, they are calling the shots. Assets whether they know it or not."
+
+&nbsp;
+
 # Wednesday September 3, 2025
 
 &nbsp;
