@@ -18,6 +18,15 @@ bibliophile224 2019-02-05
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1n7zwm2/opinion_in_deed_the_us_president_is_a_russian/ncbtkr2/
+
+unknown_nut 2019-06-09
+
+"It's a fact. No evidence other than him constantly bowing to Putin is needed. Even if he wasn't one, he willingly acts like one."
+
+* :::=== RoundSparrow_Commentary : Twitter-think Tweet-message style to say overconfident statements like "It is a fact" and "no evidence needed". ===:::
+
+&nbsp;
 
 # Wednesday September 3, 2025
 
