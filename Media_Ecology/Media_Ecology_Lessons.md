@@ -473,3 +473,10 @@ https://old.reddit.com/r/science/comments/1my1ssb/most_tiktok_videos_about_birth
 
 Retail store background music systems.    
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1n5njj4/i_understand_now/
+
+&nbsp;
+
+### Technical clashes, same name
+
+A world of 8 billion people on the Internet. Owning a trademark of a word "Windows", owning a trademark of a famous person's brand and name recognition. Deliberate impersonation, scammers, parady and satire.     
+https://old.reddit.com/r/technology/comments/1n8dat1/lawyer_named_mark_zuckerberg_sues_meta_after/
