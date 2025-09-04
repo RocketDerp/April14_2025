@@ -90,4 +90,14 @@ ODen4D 2020-11-10
 
 TAV63 2022-06-27
 
+https://old.reddit.com/r/law/comments/1n888ze/florida_will_end_all_state_vaccine_mandates/ncd5wbp/
+
 "The problem with this total freedom from the government angle is they also are for stopping women from deciding what to do with their bodies. You can't be anti-choice and then for total freedom."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1n888ze/florida_will_end_all_state_vaccine_mandates/nccz4oe/
+
+Lanky-Respect-8581 2025-05-19 (new this year)
+
+"Man… we are sprinting to the bottom"
