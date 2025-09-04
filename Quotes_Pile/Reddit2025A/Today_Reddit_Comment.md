@@ -175,3 +175,11 @@ Spanky3703 2024-08-21
 Unfortunately, the US has become untrustworthy, incoherent, unpredictable and unreliable.
 
 The loss of the US’s reputational strength as well as its soft power and influence, will have massive repercussions for the world now and in the future."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n86o01/donald_trump_has_destroyed_american_foreign_policy/ncdcigt/
+
+SavedByHisGraceOnly **2025-07-20 (new account)**
+
+"Donald J. Trump has managed to make a laughingstock out of your entire country in the past 9 months or so. There's truly no country in the world that takes you seriously anymore. And even now, you let the orange clown get away with it, without a hint of resistance, it's truly ff-ing unbelievable. Thanks to all the MAGA idiots out there and the ones who thought there wasn't enough at stake to go voting (you really, really should have known better). With regards, the rest of the world."
