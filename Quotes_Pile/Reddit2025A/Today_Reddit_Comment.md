@@ -295,3 +295,11 @@ Name a better way to destroy America, without a single shot fired…
 Once you start thinking about it, it makes so much sense."
 
 * :::=== RoundSparrow_Commentary : We have factual validated evidence, confirmed by Johns Hopkins University + George Washington University, going back to year 2014 that the Russian IRA has manipulated minds in the USA to be pro-disease https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n8eh0j/rfk_jr_claims_mrna_vaccines_kill_people_in_heated/nceixca/
+
+Quiet-Corner6150 **2025-08-15 (new account)**
+
+"And because a good portion of the base are essentially "unreachable", willfully denying any and all reasoning to the contrary, I fully expect a lot of kids are going to suffer, again, from illnesses we formerly had basically eradicated. I lament that I guess it's been "too long" since lots of kids contracted these illnesses regularly just a few decades ago, nobody realizes the horror they're inflicting on their own children. But I imagine they will, eventually..."
