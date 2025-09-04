@@ -121,3 +121,13 @@ bd2999 2023-09-24
 Also, they downplay slavery in many respects, so their comparisons get weaker when they are also downplaying the worst things in history. I know there is a push to get rid of public education too but as a requirement to attend school, it does seem very legal. There is a clear public interest in vaccination on top of protecting the kids in the school system itself from needless illness and suffering."
 
 * :::=== RoundSparrow_Commentary : We have factual validated evidence, confirmed by Johns Hopkins University, going back to year 2014 that the Russian IRA has manipulated minds in the USA to be pro-disease https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n86o01/donald_trump_has_destroyed_american_foreign_policy/nccng3o/
+
+capaho 2016-12-07
+
+"He’s destroying constitutional democracy as well with the gleeful support of the dimwits in the Republican Party. The GOP has completely abandoned its traditional principles in support of a TV clown. Power is the only thing that matters."
+
+* :::=== RoundSparrow_Commentary : Thnking was wrecked, non-instrumental reason thinking abandoned. The IRA since March 2013 has manipulated the population to be out-group hate oriented, self-harming the USA in praise of *hate harder* and *mock harder*. A constant mockery and hate attitude in USA. [We The People, our entire nation, Have Ignored The 1954 Equation](../../June4_2025/The_1954_Equation_source_of_compassion.md). ===:::
