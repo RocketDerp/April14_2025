@@ -215,3 +215,11 @@ https://old.reddit.com/r/politics/comments/1n8c2k7/trumps_second_presidency_is_m
 AlliedR2 2020-08-06
 
 "You are one of the pivotal persons who made this happen, who stacked the SCOTUS. You cannot shout out a warning against that you made and then stand as innocent. No McConnell, you will go down in history as an architect of Trumps horrible presidency and the fears, ravages, America is enduring. You did this fucker."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n8ar4r/russia_masses_100000_troops_near_pokrovsk_as/ncdwmwc/
+
+CCLF 2016-12-02
+
+"There are two genocides happening right now, against the Ukrainian people and identity, and the lesser known internal Russian genocide against restive ethnic minorities. Putin absolutely looks at this conflict as a way to "kill two birds with one stone" while making the far-flung Asian territories bear an outsized cost in human life."
