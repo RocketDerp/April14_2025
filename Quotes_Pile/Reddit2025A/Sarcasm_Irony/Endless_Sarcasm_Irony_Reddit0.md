@@ -25,3 +25,8 @@ Mocking away at the enemy. The other political party. Not asserting truth and go
 https://old.reddit.com/r/MurderedByWords/comments/1n710lc/shine_the_spotlight_on_me/
 
 https://old.reddit.com/r/NoShitSherlock/comments/1n7ovri/gavin_newsom_mocks_bumbling_idiot_trump_minutes/
+
+&nbsp;
+
+age-based mocking topic about Trump, the age of total mockery    
+https://old.reddit.com/r/politics/comments/1n865uf/trump_who_weaponized_agebased_mockery_is_now_its/
