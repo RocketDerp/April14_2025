@@ -1,7 +1,7 @@
 "I tell you, freedom and human rights in America are doomed.
 The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life."
 
-Osama bin Laden(أسامة بن لادن)
+Osama bin Laden (أسامة بن لادن)     
 Al-Jazeera interview, 21 October 2001
 
 https://autistics.life/@RoundSparrow/115146006799140551    
