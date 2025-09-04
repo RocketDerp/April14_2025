@@ -480,3 +480,10 @@ https://old.reddit.com/r/NonPoliticalTwitter/comments/1n5njj4/i_understand_now/
 
 A world of 8 billion people on the Internet. Owning a trademark of a word "Windows", owning a trademark of a famous person's brand and name recognition. Deliberate impersonation, scammers, parady and satire.     
 https://old.reddit.com/r/technology/comments/1n8dat1/lawyer_named_mark_zuckerberg_sues_meta_after/
+
+&nbsp;
+
+### Different edits of film in other nations
+
+Harry Potter USA vs. UK release    
+https://www.youtube.com/watch?v=jrvih1gSN4w
