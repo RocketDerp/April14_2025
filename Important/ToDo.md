@@ -1274,3 +1274,9 @@ Hate media motivates
 Tony Clifton / Donald Trump audience appeal.    
 Professor of Rock: His Song Was SO AWFUL…It Actually Ended Up KILLING HIM in the Middle of a CONCERT!—Professor of Rock     
 https://www.youtube.com/watch?v=BsGqrJD8tAA
+
+&nbsp;
+
+"Fuck" on 1981 Saturday Night Live ruins life. 2 second mistake.   
+Donald Trump can disgrace a whole nation and people won't shut down entertainment until problems addressed.   
+https://www.youtube.com/watch?v=6nYKBlwfmsA
