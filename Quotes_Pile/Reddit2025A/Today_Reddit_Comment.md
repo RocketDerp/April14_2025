@@ -257,3 +257,17 @@ https://old.reddit.com/r/worldnews/comments/1n8ar4r/russia_masses_100000_troops_
 kittenTakeover 2014-07-10
 
 "The problem is that authoritarians across the world have identified the West as their enemy because it kind of keeps their corruption, suppression, and exploitation of humanity in check. This is the common thread that binds the Chinese government, the Russian government, and all the other authoritarian governments aligned with them. They want to bring down the democratic west. Guess which side Trump is on?"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n8ar4r/russia_masses_100000_troops_near_pokrovsk_as/ncdz5th/
+
+Jester-Kat-Kire 2025-07-01 (recent account)
+
+"The screws are being put onto Donald Trump, and his possible death or imprisonment is getting closer. ⌛ 
+
+Once that cards out of the deck, putin's window of success in Ukraine drops off a cliff. 
+
+For putin, It really is a now or never, but in all honesty it should have been a pack it up and go back home. 
+
+They fucked up the invasion at the getgo, and pouring blood on the trench line isn't going to solve the aftermath of Russias debts."
