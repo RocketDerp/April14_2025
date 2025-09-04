@@ -85,3 +85,9 @@ https://old.reddit.com/r/pics/comments/1n86ik8/white_supremacist_at_a_baseball_g
 ODen4D 2020-11-10
 
 "It's funny how confident they are in america when they know people are either too dumb to work it out or are also nazis."
+
+&nbsp;
+
+TAV63 2022-06-27
+
+"The problem with this total freedom from the government angle is they also are for stopping women from deciding what to do with their bodies. You can't be anti-choice and then for total freedom."
