@@ -89,3 +89,12 @@ jakeupowens 2013-08-25
 "Bill Burr said it better: libraries have the decency to at least categorize things as true and not true."
 
 * :::=== RoundSparrow_Commentary : We are unwilling to face up that Torah / Bible / Quran are in their own special section and not moved to science fiction. Star Wars and Bible are both science fiction storytelling. Quran is a retcon of The Bible: Moses / Adam / Eve / Mary / Jesus / Noah are all in Mohammad's Quran some 600 years later. Book of Mormon year 1830 also a retcon of The Bible: https://en.wikipedia.org/wiki/Book_of_Mormon ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pcmasterrace/comments/1n93vn5/this_is_killing_me/ncjsq89/
+
+Mchlpl 2012-06-12
+
+"It's not. It's faulty SSD firmware"
+
