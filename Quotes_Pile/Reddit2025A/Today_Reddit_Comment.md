@@ -258,3 +258,13 @@ https://old.reddit.com/r/politics/comments/1n933aw/hegseth_declares_he_has_absol
 TheCaptainDamnIt 2012-08-21
 
 "They are loudly broadcasting what they intend to do to refugees trying to come to America if found at sea."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_august_confirming/ncjpfnt/
+
+doneandtired2014 2014-10-30
+
+"Who knew adding import taxes that vary day by day, upending the funding for entire sectors, and throwing policies at a wall like a rabid monkey flinging shit doesn't lead to a booming economy because it 1) has made materials + labor more expensive, 2) has crippled demand, and 3) introduced so much uncertainty no one can forecast or plan for literally anything? /s
+
+I cannot articulate just how fucking stupid and detached from reality anyone who voted for Trump because "he's a great business man!" and "he's good for the economy!" truly is."
