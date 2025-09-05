@@ -310,3 +310,11 @@ Meanwhile he just murdered a boat full of people using little to no evidence, sh
 If you just showed up at your father's house with a blowtorch and told him to wait and see and then started setting things on fire he'd call the police pretty fast, if not just shoot you. Meanwhile Trump is setting the future of this country on fire and we're just supposed to "wait and see" "
 
 * :::=== RoundSparrow_Commentary : The Russian Internet Research Agency since March 2013 has conditioned We The People (population) to watch self-harm and hate unfold in USA. People with free time on social machines, spare time to use social media, mock and insult instead of going to public library and learning and teaching about: **cult deprogramming, mob mentality, mass pshycosis.** "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_august_confirming/ncjv85q/
+
+Omg_Itz_Winke 2014-07-24
+
+"A girl at my work said she voted for him because things were expensive before and he was a businessman who would fix it, I'm so tired of the stupidity 🫠"
