@@ -364,3 +364,17 @@ https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_a
 Dimmed_skyline 2015-06-16 (Bloomsday)
 
 "This country will never heal as long as "news" sources like foxs news,AM talk radio, and online content like Infowars and rightwing podcast are allowed to fester. They are responsible for the last 20 years of insane conspiracies and planted the seeds of trumpism in the publics mind. Trump voters are never going to wake up if they stay plugged into that alternate reality."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n96wdq/at_least_450_people_taken_into_ice_custody_at/nckql8t/
+
+toterra 2010-12-13
+
+"Here is the Korean News article: https://www.businesskorea.co.kr/news/articleView.html?idxno=251200
+
+Basically, aside from illegal workers, they swept up a bunch of South Korean team leaders, managers, and senior staff on business trips from LG Energy Solution headquarters.
+
+This is going to play internationally as DO NOT GO TO THE US, not even for business travel. Considering international tourists are crashing, now expect business travel to crater as well. Not to mention a lot more reluctance on the part of international companies to set up factories in the US.
+
+This is nightmare stuff for international companies. Even the threat of getting arrested by ICE is a huge turnoff."
