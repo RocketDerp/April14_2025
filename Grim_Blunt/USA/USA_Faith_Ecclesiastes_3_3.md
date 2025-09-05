@@ -7,7 +7,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3ly3r3rhsgc2d
 
 Here in USA, people treat fiction Bible as nonfiction.
 
-People are taught by their parents in USA from Bible verse Ecclesiastes 3:3
+People are taught by their parents in USA from [Bible verse Ecclesiastes 3:3](https://www.biblegateway.com/passage/?search=Ecclesiastes+3:1%E2%80%938&version=nkjv)
 
 That there is a "season" for self-harm, a "season" for the Satan / Devil like Donald Trump to lead. This is a terrible education and parenting. That WE MUST have badness to vote into office.
 
