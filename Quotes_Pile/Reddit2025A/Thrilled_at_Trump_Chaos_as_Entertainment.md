@@ -767,3 +767,16 @@ Try2MakeMeBee 2021-12-27
 "The song is a gay anthem.
 
 This is so absurd it rolls into comedy necromancy. So insanely cringe (& unexpected) that I laughed. This is unwell behavior."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/nck4277/
+
+BurtMacklin_MallCop **2025-08-17 (new account)**
+
+"But it's not because the guy that replaced the original guy that said it was has said it isn't.... Which makes absolutely no sense. I wish he would have used Its Raining Men instead. Would have made his "not a gay anthem" bullshit even more laughable."
+
+Meme addiction society constantly craves personalized content. In the future, artificail intelligence (AI) will be able to create custom versions of Trump for every person in society, just to the song preferences of each media addict. Trump inspires constant egoism, a society driven by egomania. Right now we are at the satage of AI generating this Cracker Barrel video for mass society, but dynamic rewrites will be possible where peopel can change the song and dance to fit their personal inner desires (fetish).
+
