@@ -36,6 +36,16 @@ Fmsion 2016-05-29
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n91x0d/donald_trump_laments_loss_of_india_russia_to/ncj9tts/
+
+EnglightenedEmiya 2014-12-08
+
+"China sells Trade, USA under Trump sells bullying and sanctions. It's not rocket science why this shift is happening"
+
+* :::=== RoundSparrow_Commentary : Twitter-length tiny short thinking, thought-terminating "not rcoket science". Out of millions of possible leaders for USA, why Donald Trump? People are completly ignoring the Russian media invasion since March 2013. The detachment from reality isn't just Donald Trump, is the population. Military loss of hearts and minds to self-harm USA and *hate harder* faith systems. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
 
 # Thursday September 4, 2025
 
