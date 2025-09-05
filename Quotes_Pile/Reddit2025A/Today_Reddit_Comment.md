@@ -213,3 +213,11 @@ SunsetHippo 2018-08-11
 Putting it up on tiktok is another thing entirely"
 
 * :::=== RoundSparrow_Commentary : Media addiction, TikTok addiction, Donald Trump antics addiction is driving society. It is no longer optional to teach media ecology. We are "Amusing Ourselves To Death" as described in Neil Postman's 1985 book:  https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1n94ecc/very_swift_and_just_by_the_management/nck843l/
+
+cat-eating-a-salad 2020-09-10
+
+"Exactly. We need to remember there are people who suffer(ed) from abusive situations in their lives, or mental disorders like depression or anxiety where it's already hard enough to get out of bed (let alone make/go to an appointment), who also happen to need to go to the doctor for something potentially already embarrassing. Plus, what if it was your kid/teen being made fun of? That's not a good thing."
