@@ -46,3 +46,12 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n8hjtc/we_live_in_the_absu
 Contradictory Vaudeville uncited by Reddit audience https://www.youtube.com/watch?v=h9_L9GRRsQo . Surreal / Absurd mental inversions are identified but no concern to defend against them and describe the historical outcomes of this portion of the human brain being systematically exploited by Russia and clergy. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
 
 https://old.reddit.com/r/agedlikemilk/comments/1n932vz/no_more_wars_wait/
+
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n9cxpt/this_may_be_one_of_the_greatest_self_owns_ever/
+
+Self-own! Murdered by words! Endless mockery of the seriousness of people being attracted to this surreal entertainment factor of RFK Jr / Surkov Russian governing technique / Kremlin information warfare of absurd surreal communications and contradiction.  
