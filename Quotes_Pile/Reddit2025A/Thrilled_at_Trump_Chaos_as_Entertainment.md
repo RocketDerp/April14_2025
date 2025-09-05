@@ -735,3 +735,11 @@ intronert 2011-01-16
 
 So fucking funny, amusing, hilarious to watch Russia make the USA look stupid and dumb. Tony Clifton acts by Trump are so entertaining!
 “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― [Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business](https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/), 1985
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1n8ufqe/well_played_martina/
+
+Rolling on the floor LAUGHING our assews off, LOL LOL that entertainment people (Trump, "The Apprentice") who dress and look like the film and book "Hunger Games" are creating nonstop entertainment. This is why Donald Trump is running society. Vacinnation topic, people ROTFL that **Russia since year 2014 has mind-fucked the USA on disease topic using social meme systems**! https://www.bbc.com/news/world-us-canada-45294192
