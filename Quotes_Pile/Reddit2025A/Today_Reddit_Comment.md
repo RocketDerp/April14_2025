@@ -20,6 +20,13 @@ Howlyhusky 2017-01-07
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n91x0d/donald_trump_laments_loss_of_india_russia_to/ncjbipe/
+
+spagheddieballs 2020-08-26
+
+"There is a good chance he and the GOP start railing against Asians after the anti Latino rhetoric runs its course and loses effectiveness when rubes start to realize the economy and cost of living hasn't improved a few years from now"
+
+&nbsp;
 
 
 # Thursday September 4, 2025
