@@ -331,3 +331,11 @@ https://old.reddit.com/r/clevercomebacks/comments/1n8lfc6/this_isnt_normal_foy_y
 Bibblegead1412 2019-08-26
 
 "Also, everyone, keep in mind this was decided on by a JURY, of we the people. This is degrading our justice system, as well as trying to rewrite history."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n8lfen/seen_enough_bigname_conservative_joins_calls_to/ncg7hiq/
+
+Ikarian 2011-06-01
+
+"It’s a close race, but I’d argue RFK suffers more from “born on third base” syndrome that even Trump."
