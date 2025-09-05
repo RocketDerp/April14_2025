@@ -21,7 +21,7 @@ This isn't about how smart people are, it's about how much addicted they are to 
 
 &nbsp;
 
-***Year 2014***
+### ***Year 2014***
 
 "Surkov is one of President Putin's advisers, and has helped him maintain his power for 15 years, but he has done it in a very new way.
 
@@ -32,3 +32,16 @@ His aim is to undermine peoples' perceptions of the world, so they never know wh
 Surkov turned Russian politics into a bewildering, constantly changing piece of theater."
 
 https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+### ***Year 1985***
+
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+https://www.youtube.com/watch?v=ETUGwC9jXCM
