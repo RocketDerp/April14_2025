@@ -363,3 +363,19 @@ https://old.reddit.com/r/technology/comments/1n8ne95/rfk_jr_claims_mrna_vaccines
 Peralton 2011-11-10
 
 "A coworker moved to Texas. Came back to the office and was so concerned. He said that while he initially thought it was okay if people wanted to get the vaccine, now that he knows the truth that millions are dying because of it. He feels bad that he encouraged people to do it. These people have lost their minds."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n8oowd/sen_bill_cassidy_do_you_agree_with_me_that/ncgwait/
+
+Fellums2 2018-12-03
+
+<img width="926" height="640" alt="image" src="https://github.com/user-attachments/assets/c32f4de8-1043-4215-beff-3ae8f13d27a0" />
+
+&nbsp;
+
+"He’s not a smart man, obviously. He’s also wearing so much makeup that it almost looks like blackface. Trump has somehow normalized men wearing ridiculously massive amounts of makeup."
+
+* :::=== RoundSparrow_Commentary :  Nobody in USA (We The People) can seem to grasp that it provides constant audience engagement. The book and film "Hunger Games" / "Health Care Games" fiction stories depicts ruling class using exotic style and fashion. Social emdia users can not get enough of mocking how terrible RFK Jr and Trump are, playing Tony Clifton acts on stage. The absurd surreal behavior in the stroy Huger Games is the mechanism of mental exploit, as it is in Russian Surkov governing / White House Tony Clifton techniques. The compusive meme addicts of social machine socities can not recognize that they are being manipulated into a total mockery. Audience constantly mocking how terrible and bad Tony Clifton screenplay performances are.. each hour of each day FOR OVER TEN YEARS AND TWO MONTHS! ===:::
+
+
