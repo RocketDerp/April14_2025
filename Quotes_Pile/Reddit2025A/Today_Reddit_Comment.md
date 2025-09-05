@@ -240,3 +240,13 @@ https://old.reddit.com/r/goodnews/comments/1n94ecc/very_swift_and_just_by_the_ma
 swarthmoreburke 2018-11-06
 
 "The behavior in that video isn't about literacy or education in the usual sense. It's a moral and emotional failure, which I suspect is a much more distributed kind of failure across socioeconomic and education levels."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n933aw/hegseth_declares_he_has_absolute_authority_to/ncjor50/
+
+wubbbalubbadubdub 2014-10-02
+
+"Oh I've seen this one before, this is exactly what Duterte (ex president of the Philippines) said before he killed a bunch of drug dealers, some of which were coincidentally his political opponents."
+
+* :::=== RoundSparrow_Commentary : Fiction icon gumbo. Hollywood has made drug dealers the action excitement baddies. So fiction-creation White House can provide that entertainment that is conditioned in the audience / We The People suck down fiction. ===:::
