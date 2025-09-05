@@ -2131,3 +2131,13 @@ Schwarz_Is_With_You 2021-02-21
 "Eh, actors aren't the brightest bulb in the box. Doesn't surprise me to be honest. If you base all your life decisions on random actors, this is what you get. This administration"
 
 * :::=== RoundSparrow_Commentary : When the primary motivation is fiction, storytelling fiction, you end u p with Donald Trump / RFK Jr / Putin running your life using Surkov governing techniques. If entertainment and mocking out-groups in organized sports is your contant desire, Donald Trump playing Tony Clifton constantly stimulates you into group participation via social machines and in-person conversations about how terrible and bad Tony Clifton is on stage. ====:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/ncjt5hw/
+
+worldscollice 2021-10-10
+
+"Trump needs to be removed from office before more damage is done. If there was ever a time for the 25th Amendment to be invoked, it’s right now. Not just because he’s clearly a pedophile, but he’s completely lost his grip on reality."
+
+* :::=== RoundSparrow_Commentary : Fictoin outsells nonfiction (reality). The entire population, every person age 12 to age 120, in USA is engaged at the total mockery of Donald Trump dong antics politics / Tony Clifton entertainer. ===:::
