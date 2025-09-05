@@ -334,3 +334,26 @@ StJeanMark 2018-11-07
 "I mean, the fix is in. Anyone with a fucking brain knows at this point, there is no media besides right wing media. Even "liberal" media is right wing media. It was obvious when they basically treated every day of Biden like he was shit but outright ignore things everyone saw with their own eyes or heard with their own ears. If they used 0.01% of the energy they did on Biden's age going after Trump he would have folded ten years ago.
 
 Liberal media in America is liberal themed, it is owned by the mega rich that suck Trump's pecker like it's the last source of oxygen on earth."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_august_confirming/nck3io2/
+
+TyrannasaurusGitRekt 2019-09-19
+
+"The trick is though, the GOP stokes the culture war to convince people that Democrats/"the Left" are evil. When you're convinced someone is deeply evil, does their economic policy really matter?"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_august_confirming/nck9r62/
+
+TheVintageJane 2025-03-04 (new this year)
+
+"They have economic anxiety because Fox News has been telling them for 20 years that angry feminists, thugs (see also low income people of color who live in urban environments), LGBTQ perverts, and pretty much any other group who isn’t doing everything “right” is causing their personal economic woes.
+
+They cannot be convinced that billionaires slowly siphoning off capital from working people is to blame, because they aspire to be like the billionaires.
+
+So instead they parrot that Fred and John marrying each other is going to bring about the fall of Rome 2.0."
+
+* :::=== RoundSparrow_Commentary : Fox News is entertaiment fiction, Reddit is entertainment fiction. Nonfiction is no longer popular. Popualarity itself is toxic. Intoxicated by fiction society. ===:::
+
