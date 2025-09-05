@@ -138,3 +138,13 @@ PoopieP 2013-11-02
 "I fucking hate that man"
 
 * :::=== RoundSparrow_Commentary : That's the very basis of Trump's power. Playng Tony Clifton gets this 5-word Twitter-length conditioned thinking, over and over. This has been ongoing for over TEN YEARS AND TWO MONTHS, that social media addicts jump on their touchscreen machines to declare that Donald Trump is the power of hate. Organized hate media. https://www.youtube.com/watch?v=7S8wllPmazM ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/nck34js/
+
+ouijahead 2013-04-13
+
+"I will be handing out water bottles for people who get thirsty, and the people who can’t hold it anymore. They can pee and dump the filled bottle if need be. Seeing as it is a long line though, we do ask that people be quick and not use it as a chance to make tik toks and take selfies. Let’s not flood the internet with your personal “pissed on his majesty “ videos. It’d be like filming fireworks. You just kinda had to be there."
+
+* :::=== RoundSparrow_Commentary : Media fantasy rituals centered around worshiping the Satan (South Park) / Devil Donald Trump character of Tony Clifton. Constant media stimulation by Trump to audience has been going on for over TEN YEARS AND TWO MONTHS. A society that has sold out all goodness so total mockery can be nonstop around Trump. ===:::
