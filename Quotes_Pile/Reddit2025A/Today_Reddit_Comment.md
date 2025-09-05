@@ -357,3 +357,10 @@ So instead they parrot that Fred and John marrying each other is going to bring 
 
 * :::=== RoundSparrow_Commentary : Fox News is entertaiment fiction, Reddit is entertainment fiction. Nonfiction is no longer popular. Popualarity itself is toxic. Intoxicated by fiction society. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_august_confirming/nck0mqi/
+
+Dimmed_skyline 2015-06-16 (Bloomsday)
+
+"This country will never heal as long as "news" sources like foxs news,AM talk radio, and online content like Infowars and rightwing podcast are allowed to fester. They are responsible for the last 20 years of insane conspiracies and planted the seeds of trumpism in the publics mind. Trump voters are never going to wake up if they stay plugged into that alternate reality."
