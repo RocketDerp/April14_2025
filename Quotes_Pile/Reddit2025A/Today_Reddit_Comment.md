@@ -28,6 +28,14 @@ spagheddieballs 2020-08-26
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n91x0d/donald_trump_laments_loss_of_india_russia_to/ncjbj4d/
+
+Fmsion 2016-05-29
+
+"Wow, who could have predicted this when you’re actively trying to make even your closest allies hate you."
+
+&nbsp;
+
 
 # Thursday September 4, 2025
 
