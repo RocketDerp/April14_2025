@@ -1308,3 +1308,7 @@ Russia / Israel / Taliban / Palestine terrorists
 Shoot first, ask questions later, or don't ask questions at all     
 https://old.reddit.com/r/politics/comments/1n933aw/hegseth_declares_he_has_absolute_authority_to/
 
+&nbsp;
+
+CSNY, fragility of human spirit regarding truth.    
+https://youtu.be/bS0px0mp8kQ?t=303
