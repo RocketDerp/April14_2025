@@ -1284,3 +1284,8 @@ https://www.youtube.com/watch?v=6nYKBlwfmsA
 &nbsp;
 
 https://www.youtube.com/post/UgkxGamWWPZ2ofOqCDqvhGuLGrgDjxUEisu6
+
+&nbsp;
+
+Neil Young on corporations. Media systems. Corpocracy.     
+https://www.youtube.com/watch?v=CYYDtLdz1_c
