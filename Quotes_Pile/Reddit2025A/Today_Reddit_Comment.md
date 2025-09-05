@@ -339,3 +339,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1n8lfen/seen_enough_bigname_conse
 Ikarian 2011-06-01
 
 "It’s a close race, but I’d argue RFK suffers more from “born on third base” syndrome that even Trump."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n8lfen/seen_enough_bigname_conservative_joins_calls_to/ncgzynk/
+
+Appropriate-Cat-7623 2023-02-19
+
+"The plan is to tear down the entire government by discrediting every department, crippling the judicial branch with long drug out appeals that don’t get resolved until the damage has been done beyond repair, and to privatize as much as possible including selling off of public lands and resources."
