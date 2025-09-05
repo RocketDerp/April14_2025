@@ -323,3 +323,11 @@ Ralphwiggum911 2013-02-17
 "Hes doing exactly what trump and the administration wants him to. Cause chaos and ensure the country is primed for another major pandemic that will cause more protests thus leading to more justification to institute martial law (probably in primarily democratic cities) right around voting time."
 
 * :::=== RoundSparrow_Commentary : You don't need martial law with the whole poulation so addicted to mocking and insulting how dumb / stupid / idiot "the tohers" are in team sports of media machines... that nobody cares any more about realty and nonfiction. Attraction to unreal, addiction to ficiton consumes every topic in society. Generative artificial intelligence can labor away for each person creating science ficiton fantasy. Cults for one, egoism faiths of favorite fiction storytelling.  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1n8lfc6/this_isnt_normal_foy_you/ncfv1au/
+
+Bibblegead1412 2019-08-26
+
+"Also, everyone, keep in mind this was decided on by a JURY, of we the people. This is degrading our justice system, as well as trying to rewrite history."
