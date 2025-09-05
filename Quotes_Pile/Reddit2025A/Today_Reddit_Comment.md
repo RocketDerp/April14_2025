@@ -131,3 +131,10 @@ scriptingends 2019-08-25
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/ncjrjjo/
+
+PoopieP 2013-11-02
+
+"I fucking hate that man"
+
+* :::=== RoundSparrow_Commentary : That's the very basis of Trump's power. Playng Tony Clifton gets this 5-word Twitter-length conditioned thinking, over and over. This has been ongoing for over TEN YEARS AND TWO MONTHS, that social media addicts jump on their touchscreen machines to declare that Donald Trump is the power of hate. Organized hate media. https://www.youtube.com/watch?v=7S8wllPmazM ===:::
