@@ -98,3 +98,25 @@ Mchlpl 2012-06-12
 
 "It's not. It's faulty SSD firmware"
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n92hfb/thomas_massie_names_the_first_name_from_epsteins/ncjyvur/
+
+shenaniganda 2023-01-03
+
+"Since Trump tries to flood the zone with shit and divert media's attention to something else, this might be a good strat to keep the Epstein list in the news for longer period of time, in every news cycle."
+
+* :::=== RoundSparrow_Commentary : Information Strip Tease. The cultivated QAnon / Q / Pizzagate audience is sitting and waiting on the fedreal goverment. Obdient media consumers. "Since Trump tries to flood the zone with shit", Netflix and HBO Max and Disney Plus do the same with *fiction shit*. So does the Church, which lead Europe for hundreds and hundreds of years using fiction. Surkov won, Russia won, since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n92hfb/thomas_massie_names_the_first_name_from_epsteins/ncjskgo/
+
+NK1337 2011-07-10
+
+"My question is what happens when the names are out. Like let’s saw the names come out and we get someone like Trump front and center. Then what? Is anybody going to actually hold him accountable? Is he going to be removed from power?
+
+Or is everyone just going to clutch their pearls and go “wow that’s wild” while continuing to enable him?"
+
+* :::=== RoundSparrow_Commentary : People are attracted to the private jet lives of the rich and famous TV personalities / media stars. Supporting Malala with free time and spare time on social media addresses the underlying problem on a global basis of young girls being exploited by elderly men who bamboozle with fiction. Alas, social media users with spare time are far more attracted to the rich men's sex games and media content.
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban ===:::
