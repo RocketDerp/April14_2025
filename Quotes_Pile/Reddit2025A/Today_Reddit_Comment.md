@@ -148,3 +148,16 @@ ouijahead 2013-04-13
 "I will be handing out water bottles for people who get thirsty, and the people who can’t hold it anymore. They can pee and dump the filled bottle if need be. Seeing as it is a long line though, we do ask that people be quick and not use it as a chance to make tik toks and take selfies. Let’s not flood the internet with your personal “pissed on his majesty “ videos. It’d be like filming fireworks. You just kinda had to be there."
 
 * :::=== RoundSparrow_Commentary : Media fantasy rituals centered around worshiping the Satan (South Park) / Devil Donald Trump character of Tony Clifton. Constant media stimulation by Trump to audience has been going on for over TEN YEARS AND TWO MONTHS. A society that has sold out all goodness so total mockery can be nonstop around Trump. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/ncjt5bx/
+
+BusterBiggums **2025-08-26 (new account)**
+
+"It adds a really homoerotic tone to it all.
+
+Like, I'm convinced that Trump sucks the dude's dick through a hole in the barrel after that."
+
+* :::=== RoundSparrow_Commentary : Constant sexual fantasy and fetish of having the power and wealth of Donald Trump media star to perform sex domination with laws and the entire military of the United States of America backing you. Endless messages on social media about sexual power of Donald Trump, private jets, private islands, public pride in conqust. The USA population (We The People) can not get enough of Donald Trump sex, poop, body images and fantasy. This is a very sick, media addiciton, lost to Russia IRA media invasion, society. ===:::
+
