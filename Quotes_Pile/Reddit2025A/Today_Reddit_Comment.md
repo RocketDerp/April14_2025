@@ -79,3 +79,13 @@ remunda 2017-12-03
 "When was the Truth era actually? Because I cannot remember 😀"
 
 &nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1n92o2m/interesting_how_this_sub_gives_zero_fucks_about/ncjxim3/
+
+jakeupowens 2013-08-25
+
+"Bill Burr said it better: libraries have the decency to at least categorize things as true and not true."
+
+* :::=== RoundSparrow_Commentary : We are unwilling to face up that Torah / Bible / Quran are in their own special section and not moved to science fiction. Star Wars and Bible are both science fiction storytelling. Quran is a retcon of The Bible: Moses / Adam / Eve / Mary / Jesus / Noah are all in Mohammad's Quran some 600 years later. Book of Mormon year 1830 also a retcon of The Bible: https://en.wikipedia.org/wiki/Book_of_Mormon ===:::
