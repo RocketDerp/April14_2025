@@ -174,3 +174,13 @@ KittyKat1078 2022-09-25
 &nbsp;
 
 "Wtf is happening . Everyday is more and more unbelievable"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/ncjv6ys/
+
+Orpdapi 2022-07-08
+
+"On your fb feed notice which of your family or acquaintances post AI the most. It’s always the magan leaning ones because AI provides them with unrealistic things that they wish were actually real. The AI gives them that false reality so they can sleep better."
+
+* :::=== RoundSparrow_Commentary : A proven system of leadership in Russia for 25 years using Surkov media methods. Middle East lead by science fiction stories; Torah, Bible, Quran. Fox News fiction entertainment news network, etc. ===:::
