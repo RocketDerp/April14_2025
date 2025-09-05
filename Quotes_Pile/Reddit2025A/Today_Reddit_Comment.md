@@ -203,3 +203,13 @@ hot_space_pizza 2024-03-15
 
 * :::=== RoundSparrow_Commentary : For 10 year, Donald Trump has been held up as the role model for business leadership and social media behaviors in USA society. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1n94ecc/very_swift_and_just_by_the_management/nck6a12/
+
+SunsetHippo 2018-08-11
+
+"if someone is talking about my weird medical stuff with their coworkers in the privacy of the break room is one thing    
+Putting it up on tiktok is another thing entirely"
+
+* :::=== RoundSparrow_Commentary : Media addiction, TikTok addiction, Donald Trump antics addiction is driving society. It is no longer optional to teach media ecology. We are "Amusing Ourselves To Death" as described in Neil Postman's 1985 book:  https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
