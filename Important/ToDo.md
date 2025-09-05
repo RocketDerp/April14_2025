@@ -1323,3 +1323,8 @@ https://old.reddit.com/r/worldnews/comments/1n99rbj/talibans_no_skin_contact_wit
 
 Media addicts, inclusive of social media, do the same. Instead of organizing teaching of science medical understanding, just yelling at the Tony Clifton performances of the White House leadership / federal.     
 https://old.reddit.com/r/politics/comments/1n94lq9/senators_prefer_to_yell_at_rfk_jr_instead_of/
+
+&nbsp;
+
+Live events / behaviors / dehumaniztion of audiences towards content creators    
+https://www.youtube.com/watch?v=NJpFOPRHhPE
