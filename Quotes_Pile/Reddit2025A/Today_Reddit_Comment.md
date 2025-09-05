@@ -347,3 +347,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1n8lfen/seen_enough_bigname_conse
 Appropriate-Cat-7623 2023-02-19
 
 "The plan is to tear down the entire government by discrediting every department, crippling the judicial branch with long drug out appeals that don’t get resolved until the damage has been done beyond repair, and to privatize as much as possible including selling off of public lands and resources."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1n8ne95/rfk_jr_claims_mrna_vaccines_kill_people_in_heated/ncgcjxq/
+
+sunflowers_n_footy 2025-05-01 (new this year)
+
+"My mom said I'd be dead within six months of getting the mRNA vaccine and has been suspiciously quiet about it since while still being deeply anti-vax. No amount of being wrong is going to change many of these people's minds"
