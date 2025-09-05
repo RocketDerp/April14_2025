@@ -120,3 +120,14 @@ Or is everyone just going to clutch their pearls and go “wow that’s wild” 
 
 * :::=== RoundSparrow_Commentary : People are attracted to the private jet lives of the rich and famous TV personalities / media stars. Supporting Malala with free time and spare time on social media addresses the underlying problem on a global basis of young girls being exploited by elderly men who bamboozle with fiction. Alas, social media users with spare time are far more attracted to the rich men's sex games and media content.
 “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/ncjtozs/
+
+scriptingends 2019-08-25
+
+"It's so cool how he turned one of the most powerful positions in the world (if not THE most powerful) into an opportunity to shill crypto and troll the world with memes while destroying the lives of tens of millions of people to absolutely no one's advantage whatsoever."
+
+&nbsp;
+
