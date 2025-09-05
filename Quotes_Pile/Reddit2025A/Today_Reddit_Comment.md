@@ -268,3 +268,45 @@ doneandtired2014 2014-10-30
 "Who knew adding import taxes that vary day by day, upending the funding for entire sectors, and throwing policies at a wall like a rabid monkey flinging shit doesn't lead to a booming economy because it 1) has made materials + labor more expensive, 2) has crippled demand, and 3) introduced so much uncertainty no one can forecast or plan for literally anything? /s
 
 I cannot articulate just how fucking stupid and detached from reality anyone who voted for Trump because "he's a great business man!" and "he's good for the economy!" truly is."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_august_confirming/nckpm4r/
+
+doneandtired2014 2014-10-30
+
+"I was raised to be honest regardless of how negative the outcome might be. I was raised to take ownership of my actions, for good or ill. I was raised to value intelligence and critical thinking, to learn and accept when I am proven wrong so that I may grow but to also drink deeply from the well of knowledge because it is infinite. I was raised to show empathy to those less fortunate than myself.
+
+These were the lessons my parents taught me. Though I frequently fall short, I still strive to live by them.
+
+My father betrayed every single one of them and he did so readily.
+
+On one hand, the argument could be made that AM radio and Fox News lobotomized him over time and robbed him of his higher faculties....but that would absolve him of voluntarily submitting himself to the propaganda in the first place.
+
+On the other, the argument could be made that the man who raised me was a mask and what I see now is who he has always actually be. That, perhaps, he has always been an anti-intellectual and bigot but never felt comfortable enough or had the courage to let the mask drop fully and is, instead, keen to rally behind the physical embodiment of his poisonous thoughts.
+
+Neither ultimately matter to me, in the end.
+
+I've said repeatedly elsewhere: I don't care why, I only care that he has.
+
+I alternate between being embarrassed or wrathfully ashamed to even know him.
+
+But what I have made explicitly clear to him is that I will never forgive him. It's not that I won't: I can't. He thought I was joking when I told him that all the way back in last November of 2025 after the election was called. Given how infrequently we talk now and given his surprise when I told him flatly, "I don't care if you leave me a dime when you pass, I just want your will iron clad so I don't have to waste my time or money fighting your other two sons in in court", that smug chuckle of amusement has grown into silence.
+
+It's a pity we have to teach our parents the lesson of permanence."
+
+* :::=== RoundSparrow_Commentary : Social media society has raised people to use anonymous no-idetitity accounts, to self-dehumanize via media machines (Reddit, Twitter, Bluesky). That flashy attractive shit images matter far more than comprehension and understanding. That fiction outsells nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_august_confirming/nckog05/
+
+Andromansis 2011-04-02
+
+"We waited and saw through his first term, we lost somewhere between 1 and 3 million people to a pandemic and won't ever be able to get an accurate count due to the man's poor record keeping, he oversaw one of the largest government handouts since Mansa Musa wandered on the Hajj with this zero oversight PPP.
+
+Meanwhile he just murdered a boat full of people using little to no evidence, should probably get charged by the ICC for that, and is wasting billions of taxpayer dollars by painting a wall on the southern border (a well known construction accounting trick that criminals use to extract huge amounts of money) and fired all the administrative judges that ICE would be using to get warrants after having blocked a bill that would surge the number of those same judges.
+
+If you just showed up at your father's house with a blowtorch and told him to wait and see and then started setting things on fire he'd call the police pretty fast, if not just shoot you. Meanwhile Trump is setting the future of this country on fire and we're just supposed to "wait and see" "
+
+* :::=== RoundSparrow_Commentary : The Russian Internet Research Agency since March 2013 has conditioned We The People (population) to watch self-harm and hate unfold in USA. People with free time on social machines, spare time to use social media, mock and insult instead of going to public library and learning and teaching about: **cult deprogramming, mob mentality, mass pshycosis.** "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M ===:::
