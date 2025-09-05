@@ -743,3 +743,15 @@ So fucking funny, amusing, hilarious to watch Russia make the USA look stupid an
 https://old.reddit.com/r/MurderedByWords/comments/1n8ufqe/well_played_martina/
 
 Rolling on the floor LAUGHING our assews off, LOL LOL that entertainment people (Trump, "The Apprentice") who dress and look like the film and book "Hunger Games" are creating nonstop entertainment. This is why Donald Trump is running society. Vacinnation topic, people ROTFL that **Russia since year 2014 has mind-fucked the USA on disease topic using social meme systems**! https://www.bbc.com/news/world-us-canada-45294192
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n8oowd/sen_bill_cassidy_do_you_agree_with_me_that/ncgs3dg/
+
+Wise-Application-902 2023-08-08
+
+"I enjoyed the many times he said what a Senator was “crazy talk” and “just made that up”. The level of combativeness with Democrats and many Republicans was next level. They could probably impeach him just on the way he was freaking out trying to answer questions. It doesn’t take any fancy footwork when your testimony is all true, because it never changes and can’t negate itself. But these MAGA/MAHA liars are running back and forth trying to hold onto the thread that (loosely at best) ties their lies together. I thought he might hyperventilate a few times."
+
+People enjoy that Donald Trump has created new channels of constant entertainment. Suprise and shock fiction drama as a way of governing provides stimulation for audiences. People aren't resisting the anti-intelelctual fiction takeover, they can't see the absence of promoting reformation (supporting Malala's education efforts for one).
