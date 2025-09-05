@@ -2140,4 +2140,14 @@ worldscollice 2021-10-10
 
 "Trump needs to be removed from office before more damage is done. If there was ever a time for the 25th Amendment to be invoked, it’s right now. Not just because he’s clearly a pedophile, but he’s completely lost his grip on reality."
 
-* :::=== RoundSparrow_Commentary : Fictoin outsells nonfiction (reality). The entire population, every person age 12 to age 120, in USA is engaged at the total mockery of Donald Trump dong antics politics / Tony Clifton entertainer. ===:::
+* :::=== RoundSparrow_Commentary : Fictoin outsells nonfiction (reality). The entire population, every person age 12 to age 120, in USA is engaged at the total mockery of Donald Trump dong antics politics / Tony Clifton entertainer. This is a society with a firm grip on touchscreen meme machins providing constant stimulation from Trumpism / MAGA entertainment addictions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/nck4tym/
+
+ouijahead 2013-04-13
+
+"That’s why I’m all doom and gloom over here. From my point of view the coupe has already happened. We live under this illusion that nothing like that could ever happen here. That only happens to those other countries. America (US) has had it coming for a long time ; living in a bubble where fascists are the outsiders. Now they’re our neighbors, friends, and family."
+
+* :::=== RoundSparrow_Commentary : There are **drastic mesasures** we can take as a population. We can start using social media for nonfiction education om media ecology. Start teaching **NONFICTION** about cults, media addiction behavviors, entertainment addicts support groups. Russain information warfare educatonal topics on social media, etc. [Answers - Grim Blunt: Stop All Entertainment](../../Grim_Blunt/Stop_All_Entertainment.md) ===:::
