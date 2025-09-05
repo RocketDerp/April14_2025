@@ -1298,4 +1298,6 @@ https://www.youtube.com/watch?v=QSa52TR9tCA
 &nbsp;
 
 The phone, the TV, and the News of The World.    
-https://youtu.be/YomrLjdSWiw?t=547
+https://youtu.be/YomrLjdSWiw?t=547     
+clip: https://youtube.com/clip/Ugkx5n5jP07pUOJ7N2pdkEvCbTQ-eTbuql97?si=QkyLYvspGp4sx6VV   
+
