@@ -46,6 +46,31 @@ EnglightenedEmiya 2014-12-08
 
 &nbsp;
 
+https://old.reddit.com/r/interestingasfuck/comments/1n92o2m/interesting_how_this_sub_gives_zero_fucks_about/ncjvtsx/
+
+troublrTRC 2018-06-28
+
+"Ahh, but how will the Internet function without mis/dis-information? That's it's whole shtick. Outrage/traffic cannot be generated without a bit of lies, it's Internet 101 /jk, mostly"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1n92o2m/interesting_how_this_sub_gives_zero_fucks_about/ncjft50/
+
+nankerjphelge 2013-02-10
+
+<img width="948" height="1026" alt="image" src="https://github.com/user-attachments/assets/2c99ea3d-2bbd-43e9-9341-e71d9f2a1647" />
+
+&nbsp;
+
+"We're in the post-truth era. Facts and reality don't matter anymore, only what we wish to believe is true or feels good, fake news is whatever we wish to believe isn't true, and no one has time anymore to bother with fact checking. And it's only going to get worse with AI.
+
+Welcome to the brave new world."
+
+&nbsp;
+
+
 
 # Thursday September 4, 2025
 
