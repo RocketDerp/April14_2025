@@ -36,5 +36,11 @@ https://old.reddit.com/r/TikTokCringe/comments/1n896zs/whoever_did_this_is_getti
 
 &nbsp;
 
-"We Live In the Absurd"on Reddit Entirely unale to state that absurd surreal is Russian information warfare.    
+"We Live In the Absurd" on Reddit Entirely unale to state that absurd surreal is Russian information warfare.    
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1n8hjtc/we_live_in_the_absurd/
+
+&nbssp;
+
+Contradictory Vaudeville uncited by Reddit audience https://www.youtube.com/watch?v=h9_L9GRRsQo . Surreal / Absurd mental inversions are identified but no concern to defend against them and describe the historical outcomes of this portion of the human brain being systematically exploited by Russia and clergy. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/agedlikemilk/comments/1n932vz/no_more_wars_wait/
