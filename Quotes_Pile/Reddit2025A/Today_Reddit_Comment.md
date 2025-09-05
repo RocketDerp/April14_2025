@@ -1,3 +1,18 @@
+# Friday September 5, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1n91x0d/donald_trump_laments_loss_of_india_russia_to/ncjeoh8/
+
+epanek 2021-01-29
+
+"Trump sees geopolitics as a group of personal relationships. China is just xi. Russia is just Putin. He can’t understand geopolitics and strategy.
+
+Why is China doing this right now Donald? Why are they showing the world their military and cooperation? Hmm. Let’s think. Because it stands in stark contrast to you!"
+
+&nbsp;
+
+
 # Thursday September 4, 2025
 
 &nbsp;
