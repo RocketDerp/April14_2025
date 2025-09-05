@@ -1280,3 +1280,7 @@ https://www.youtube.com/watch?v=BsGqrJD8tAA
 "Fuck" on 1981 Saturday Night Live ruins life. 2 second mistake.   
 Donald Trump can disgrace a whole nation and people won't shut down entertainment until problems addressed.   
 https://www.youtube.com/watch?v=6nYKBlwfmsA
+
+&nbsp;
+
+https://www.youtube.com/post/UgkxGamWWPZ2ofOqCDqvhGuLGrgDjxUEisu6
