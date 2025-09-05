@@ -755,3 +755,15 @@ Wise-Application-902 2023-08-08
 "I enjoyed the many times he said what a Senator was “crazy talk” and “just made that up”. The level of combativeness with Democrats and many Republicans was next level. They could probably impeach him just on the way he was freaking out trying to answer questions. It doesn’t take any fancy footwork when your testimony is all true, because it never changes and can’t negate itself. But these MAGA/MAHA liars are running back and forth trying to hold onto the thread that (loosely at best) ties their lies together. I thought he might hyperventilate a few times."
 
 People enjoy that Donald Trump has created new channels of constant entertainment. Suprise and shock fiction drama as a way of governing provides stimulation for audiences. People aren't resisting the anti-intelelctual fiction takeover, they can't see the absence of promoting reformation (supporting Malala's education efforts for one).
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/ncjx52e/
+
+Try2MakeMeBee 2021-12-27
+
+"The song is a gay anthem.
+
+This is so absurd it rolls into comedy necromancy. So insanely cringe (& unexpected) that I laughed. This is unwell behavior."
