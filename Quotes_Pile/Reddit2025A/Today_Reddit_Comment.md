@@ -70,6 +70,15 @@ Welcome to the brave new world."
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1n92o2m/interesting_how_this_sub_gives_zero_fucks_about/ncjoj8p/
+
+remunda 2017-12-03
+
+"When was the Truth era actually? Because I cannot remember 😀"
+
+&nbsp;
 
 
 # Thursday September 4, 2025
