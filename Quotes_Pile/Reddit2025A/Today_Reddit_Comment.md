@@ -386,3 +386,14 @@ https://old.reddit.com/r/politics/comments/1n96wdq/at_least_450_people_taken_int
 startinearly 2018-05-21
 
 "I live in the area. The plant is basically brand new and this will undoubtedly hinder operations. The locals, however, are cheering this raid. A large paper mill just closed, so they are naturally assuming everyone laid off at the paper mill will soon be bolting fenders onto Hyundais."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n9b34u/pentagon_official_trump_boat_strike_was_a/ncls0ws/
+
+dafunkmunk 2016-11-03
+
+"It could go either way. Both sides are full of shit and not trustworthy. It's completely believable that the trump admnin is indiscriminately blowing up boats in international water because they're psycho idiots. It's also just as likely that the trump admin is making stupid AI videos because they're so desperate to look tough and act like they're "accomplishing" something"
+
+* :::=== RoundSparrow_Commentary : How can a person know? September 9, 2014: "Russia and the Menace of Unreality" - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
