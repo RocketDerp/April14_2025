@@ -12,6 +12,15 @@ Why is China doing this right now Donald? Why are they showing the world their m
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1n91x0d/donald_trump_laments_loss_of_india_russia_to/ncjjb1b/
+
+Howlyhusky 2017-01-07
+
+"This very statement by Trump is meant to instill fear and a sense of isolation in Americans. Don't fall for it. Classic abuser behavior."
+
+&nbsp;
+
+
 
 # Thursday September 4, 2025
 
