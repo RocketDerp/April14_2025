@@ -161,3 +161,16 @@ Like, I'm convinced that Trump sucks the dude's dick through a hole in the barre
 
 * :::=== RoundSparrow_Commentary : Constant sexual fantasy and fetish of having the power and wealth of Donald Trump media star to perform sex domination with laws and the entire military of the United States of America backing you. Endless messages on social media about sexual power of Donald Trump, private jets, private islands, public pride in conqust. The USA population (We The People) can not get enough of Donald Trump sex, poop, body images and fantasy. This is a very sick, media addiciton, lost to Russia IRA media invasion, society. ===:::
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_this/ncjteiw/
+
+KittyKat1078 2022-09-25
+
+<img width="882" height="580" alt="image" src="https://github.com/user-attachments/assets/582ea599-eb51-4c00-ae92-608d05231f15" />
+
+&nbsp;
+
+"Wtf is happening . Everyday is more and more unbelievable"
