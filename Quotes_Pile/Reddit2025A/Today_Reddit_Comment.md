@@ -192,3 +192,14 @@ https://old.reddit.com/r/CringeTikToks/comments/1n94anv/our_president_posted_thi
 Mother-Bad9911 2023-02-24
 
 "Some Americans love these shenanigans. Even though would be fired from any job for being half as crazy."
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1n94ecc/very_swift_and_just_by_the_management/ncjvb52/
+
+hot_space_pizza 2024-03-15
+
+"The suspension of disbelief has been broken. People like to think that medical "professionals" don't talk about them behind their backs because it makes it easier to deal with invasive examinations. Nice work you unemployed sobs."
+
+* :::=== RoundSparrow_Commentary : For 10 year, Donald Trump has been held up as the role model for business leadership and social media behaviors in USA society. ===:::
+
