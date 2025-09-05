@@ -318,3 +318,19 @@ https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_a
 Omg_Itz_Winke 2014-07-24
 
 "A girl at my work said she voted for him because things were expensive before and he was a businessman who would fix it, I'm so tired of the stupidity 🫠"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1n943t9/the_us_added_just_22000_jobs_in_august_confirming/nckch2s/
+
+StJeanMark 2018-11-07
+
+<img width="1000" height="1176" alt="image" src="https://github.com/user-attachments/assets/5a5b01ad-0ff3-4cae-9f74-b6a6793de167" />
+
+&nbsp;
+
+"I mean, the fix is in. Anyone with a fucking brain knows at this point, there is no media besides right wing media. Even "liberal" media is right wing media. It was obvious when they basically treated every day of Biden like he was shit but outright ignore things everyone saw with their own eyes or heard with their own ears. If they used 0.01% of the energy they did on Biden's age going after Trump he would have folded ten years ago.
+
+Liberal media in America is liberal themed, it is owned by the mega rich that suck Trump's pecker like it's the last source of oxygen on earth."
