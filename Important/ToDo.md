@@ -1302,4 +1302,9 @@ https://youtu.be/YomrLjdSWiw?t=547
 clip: https://youtube.com/clip/Ugkx5n5jP07pUOJ7N2pdkEvCbTQ-eTbuql97?si=QkyLYvspGp4sx6VV   
 Posted on Bluesky: https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3ly3yxeioes27    
 
+&nbsp;
+
+Russia / Israel / Taliban / Palestine terrorists    
+Shoot first, ask questions later, or don't ask questions at all     
+https://old.reddit.com/r/politics/comments/1n933aw/hegseth_declares_he_has_absolute_authority_to/
 
