@@ -1294,3 +1294,8 @@ https://www.youtube.com/watch?v=CYYDtLdz1_c
 
 Chief Rabbi at Mecca. Elites in USA. Anti-left      
 https://www.youtube.com/watch?v=QSa52TR9tCA
+
+&nbsp;
+
+The phone, the TV, and the News of The World.    
+https://youtu.be/YomrLjdSWiw?t=547
