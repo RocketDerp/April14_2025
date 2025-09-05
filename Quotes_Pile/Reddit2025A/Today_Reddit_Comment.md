@@ -355,3 +355,11 @@ https://old.reddit.com/r/technology/comments/1n8ne95/rfk_jr_claims_mrna_vaccines
 sunflowers_n_footy 2025-05-01 (new this year)
 
 "My mom said I'd be dead within six months of getting the mRNA vaccine and has been suspiciously quiet about it since while still being deeply anti-vax. No amount of being wrong is going to change many of these people's minds"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1n8ne95/rfk_jr_claims_mrna_vaccines_kill_people_in_heated/ncgffq2/
+
+Peralton 2011-11-10
+
+"A coworker moved to Texas. Came back to the office and was so concerned. He said that while he initially thought it was okay if people wanted to get the vaccine, now that he knows the truth that millions are dying because of it. He feels bad that he encouraged people to do it. These people have lost their minds."
