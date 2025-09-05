@@ -1735,3 +1735,13 @@ https://old.reddit.com/r/BlueskySkeets/comments/1n63a11/the_god_emperor_is_dying
 Specialist-Jello7544 2024-02-18
 
 "I have NEVER understood people for idolizing such a horrible “politician” as Trump. This whole adoration of Trump is so gross. How can so many people think that a guy who spouts such vile insane rhetoric is the second coming of Christ?"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1n8oowd/sen_bill_cassidy_do_you_agree_with_me_that/nch1989/
+
+Schwarz_Is_With_You 2021-02-21
+
+"Eh, actors aren't the brightest bulb in the box. Doesn't surprise me to be honest. If you base all your life decisions on random actors, this is what you get. This administration"
+
+* :::=== RoundSparrow_Commentary : When the primary motivation is fiction, storytelling fiction, you end u p with Donald Trump / RFK Jr / Putin running your life using Surkov governing techniques. If entertainment and mocking out-groups in organized sports is your contant desire, Donald Trump playing Tony Clifton constantly stimulates you into group participation via social machines and in-person conversations about how terrible and bad Tony Clifton is on stage. ====:::
