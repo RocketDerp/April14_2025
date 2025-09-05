@@ -1312,3 +1312,9 @@ https://old.reddit.com/r/politics/comments/1n933aw/hegseth_declares_he_has_absol
 
 CSNY, fragility of human spirit regarding truth.    
 https://youtu.be/bS0px0mp8kQ?t=303
+
+&nbsp;
+
+No touch women, lives lost in Afghanistan    
+Support Malala / Assert Malala      
+https://old.reddit.com/r/worldnews/comments/1n99rbj/talibans_no_skin_contact_with_males_rule_leaves/
