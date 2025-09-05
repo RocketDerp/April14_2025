@@ -1328,3 +1328,8 @@ https://old.reddit.com/r/politics/comments/1n94lq9/senators_prefer_to_yell_at_rf
 
 Live events / behaviors / dehumaniztion of audiences towards content creators    
 https://www.youtube.com/watch?v=NJpFOPRHhPE
+
+&nbsp;
+
+Mad Max (original) and faith systems    
+https://www.youtube.com/watch?v=FnD50llAkP4
