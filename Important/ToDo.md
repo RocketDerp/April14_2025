@@ -1292,5 +1292,5 @@ https://www.youtube.com/watch?v=CYYDtLdz1_c
 
 &nbsp;
 
-Chief Rabbi at Mecca. Elites in USA     
+Chief Rabbi at Mecca. Elites in USA. Anti-left      
 https://www.youtube.com/watch?v=QSa52TR9tCA
