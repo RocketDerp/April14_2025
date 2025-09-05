@@ -1289,3 +1289,8 @@ https://www.youtube.com/post/UgkxGamWWPZ2ofOqCDqvhGuLGrgDjxUEisu6
 
 Neil Young on corporations. Media systems. Corpocracy.     
 https://www.youtube.com/watch?v=CYYDtLdz1_c
+
+&nbsp;
+
+Chief Rabbi at Mecca. Elites in USA     
+https://www.youtube.com/watch?v=QSa52TR9tCA
