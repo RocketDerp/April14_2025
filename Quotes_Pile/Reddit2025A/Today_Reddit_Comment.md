@@ -378,3 +378,11 @@ Basically, aside from illegal workers, they swept up a bunch of South Korean tea
 This is going to play internationally as DO NOT GO TO THE US, not even for business travel. Considering international tourists are crashing, now expect business travel to crater as well. Not to mention a lot more reluctance on the part of international companies to set up factories in the US.
 
 This is nightmare stuff for international companies. Even the threat of getting arrested by ICE is a huge turnoff."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1n96wdq/at_least_450_people_taken_into_ice_custody_at/nckhexq/
+
+startinearly 2018-05-21
+
+"I live in the area. The plant is basically brand new and this will undoubtedly hinder operations. The locals, however, are cheering this raid. A large paper mill just closed, so they are naturally assuming everyone laid off at the paper mill will soon be bolting fenders onto Hyundais."
