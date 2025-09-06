@@ -55,3 +55,7 @@ https://old.reddit.com/r/agedlikemilk/comments/1n932vz/no_more_wars_wait/
 https://old.reddit.com/r/MurderedByWords/comments/1n9cxpt/this_may_be_one_of_the_greatest_self_owns_ever/
 
 Self-own! Murdered by words! Endless mockery of the seriousness of people being attracted to this surreal entertainment factor of RFK Jr / Surkov Russian governing technique / Kremlin information warfare of absurd surreal communications and contradiction.  
+
+https://old.reddit.com/r/clevercomebacks/comments/1n9wwzt/how_to_selfown/
+
+Self-own AGAIN hours later, same topic. "Clever comeback" framing. The USA is self-owning with avoidance of NeiL Postamn's 1985 book "Amsuing Ourselves To Death". The brainrot is social media addiction. People who think *owning* the Libs, *owning RFK Jr* with messages is clever. We aare drowning in cleverness as 1940 film Great Dictator speech ddescribes: "Greed has poisoned men’s souls, has barricaded the world with hate, has goose-stepped us into misery and bloodshed. We have developed speed, but we have shut ourselves in. Machinery that gives abundance has left us in want. Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost…" https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
