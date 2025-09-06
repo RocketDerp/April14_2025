@@ -1,3 +1,15 @@
+# Saturday September 6, 2025
+
+https://old.reddit.com/r/worldnews/comments/1na1q0u/reuters_deletes_video_of_xi_and_putin_talking/ncr251q/
+
+Impossible-Topic9558 2025-06-02 (recent account)
+
+"I'm not turning my back on one of the few remaining sources I trust because they are making decisions to continue to provide the valid info they can. If we keep canceling everyone when they cross our personal moral line we will have limited sources to pull from."
+
+* :::=== RoundSparrow_Commentary : The "fly in the soup" imperfection, "bad brand", block-happy / deport-happy society. Instead of identifying the bias in human minds / no-go egoism topics, pepole want to block entire swaths of media venues or media platforms. We aren't standing together in common cause, and if people favor fiction we all drown in fiction. ===:::
+
+&nbsp;
+
 # Friday September 5, 2025
 
 &nbsp;
