@@ -180,3 +180,11 @@ https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_world
 chimarya 2011-05-08
 
 "Hello fellow Chicagoan - I have so much fun telling Michigan folk (usually friends of family)about how we have 77 neighborhoods and only a handful cause the majority of the violent crimes and they are the most poverty stricken areas. Then I tell them that you have a .001 chance of getting shot in Chicago. I love telling them about my diverse block and our fun block parties and how our sweet neighbor cut our lawn for fun out of the blue and invite us over for cookouts. They just give me the funniest look."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_worlds_most_dangerous/ncqtu6m/
+
+jagerbombastic99 2015-05-28
+
+"I thought DC was the most dangerous city in the world according to him?"
