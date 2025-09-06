@@ -62,6 +62,20 @@ IPlayRaunchyMusic 2014-10-21
 
 &nbsp;
 
+https://old.reddit.com/r/Fauxmoi/comments/1na5015/ms_rachel_on_israels_genocide_in_gaza_mariam_is_9/ncrgdwl/
+
+MudBloodLite 2025-05-21 (new this year)
+
+"I will never understand how some people are totally okay justifying (one way or the other) what's happening in Gaza. Or many who just look the other way.
+
+When did empathy become so polarizing?"
+
+* :::=== RoundSparrow_Commentary : QUESTION: "When did empathy become so polarizing?"
+ANSWER: Joseph Campbell lessons for Star Wars audiences filemed by George Lucas in summer of 1986: "Now brotherhood in most of the myths I know of is confined to a bounded community. In bounded communities, aggression is projected outward. For example, the ten commandments say, “Thou shalt not kill.” Then the next chapter says, “Go into Canaan and kill everybody in it.” That is a bounded field. **The myths of participation and love pertain only to the in-group, and the out-group is totally other**. This is the sense of the word “gentile” — the person is not of the same order." (see also Islamic "infidel", Christian "non-believer" terms to match up "gentile") ===:::
+
+
+&nbsp;
+
 
 # Friday September 5, 2025
 
