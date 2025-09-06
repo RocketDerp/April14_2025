@@ -138,3 +138,13 @@ https://old.reddit.com/r/illinois/comments/1na4e4f/uh_guys_i_dont_think_this_is_
 typo180 2008-01-07
 
 "I’m just constantly amazed that somehow we have no viable path for reasonable people to stop the president from breaking laws and just being generally making insane and terrible decisions."
+
+&nbsp;
+
+https://old.reddit.com/r/illinois/comments/1na4e4f/uh_guys_i_dont_think_this_is_gonna_end_well/ncrhnyu/
+
+Skelter_89 2018-09-04
+
+"I'm sick of this man and this country doing nothing about it, it's absolutely exhausting and embarrassing. And the people who support it are equally disgusting"
+
+* :::=== RoundSparrow_Commentary : Media addicts compusively support Donald Trump / Elon Musk / Putin situation since March 2013 by not becoming serious and teaching media ecology / information warfare to rescue Americans from the IRA + CA mind-fucking. Failure to witness how many think Trump is engagement mockery / mocking. Mocking is not resisting Surkov techniques. ===:::
