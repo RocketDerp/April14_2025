@@ -396,3 +396,13 @@ https://old.reddit.com/r/clevercomebacks/comments/1na6etx/this_is_so_embarrassin
 "It’s not embarrassing. It’s fascism.
 
 People don’t start getting more pissed they’re going to amuse and wise crack themselves right into a concentration camp."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1na6etx/this_is_so_embarrassing/ncrw4bo/
+
+ScholarOfYith 2015-08-06
+
+"America is a fucking joke, and a shitty one at that."
