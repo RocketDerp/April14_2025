@@ -370,3 +370,13 @@ kravfoiegras 2017-02-24
 "This was always the point, by the way. Make America a banana republic through online disinformation campaigns orchestrated by the Russian state. With a view to the Kremlin being the dominant player in establishing a new world order.
 
 You lost the second cold war. It's just the history books haven't been written yet."
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1na6etx/this_is_so_embarrassing/ncrx77e/
+
+CrazyStrict1304 2024-06-11
+
+"The problem is that people forget he's a showman. When he puts stuff like this on his account, first off it's a photo that was edited for effect, he's trying to stir his base while also outraging the Democrats to make his base even more mad at the Democrats. He may suck at being president, but when it comes to manipulation he's a pro. He's obviously not declaring war because there already would have been tanks and jets flying over that city the government doesn't announce invasions. He's just doing this because of "ratings". He wants to be on all the news channels tonight and be talked about all over the internet.
+
+The people to actually worry about are the ones he puts in charge of departments that are loose cannons and do whatever they want that aren't talked about until after they put crazy policies in place."
