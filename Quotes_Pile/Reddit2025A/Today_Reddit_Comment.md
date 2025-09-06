@@ -328,3 +328,11 @@ wyvernx02 2012-07-09
 "They are trying to give them entertaining names to distract from the fact they are concentration camps."
 
 * :::=== RoundSparrow_Commentary : Attraction is not distraction. We The People have lost all sense of the word "attraction" and think Donald Trump's power comes from *distraction*. Tony Clifton becomes the center of a toaal mockery. Mocking is not resisting Trump, it is being attracted to mockery. Media addiction, altered behaviors and mindsets is the outcome of Surkovian information techniques. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1na3fn5/floridas_new_immigrant_detention_site_dubbed/ncr7skf/
+
+leee_yum 2021-02-13
+
+"Why are they naming these godawful places like fucking fortnite locations???"
