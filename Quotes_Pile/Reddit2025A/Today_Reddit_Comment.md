@@ -439,3 +439,12 @@ dafunkmunk 2016-11-03
 
 * :::=== RoundSparrow_Commentary : How can a person know? September 9, 2014: "Russia and the Menace of Unreality" - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1na2olv/department_of_war/ncr1iyo/
+
+Particular_Ad_3411 2020-09-01
+
+"I mean in fairness, America has always done that throughout its history slandering whomever is considered the enemy or in the way. Its just that nowadays anyone who doesnt actively kiss the boot constantly is considered an enemy or against Americans in some contrived way."
+
+* :::=== RoundSparrow_Commentary : It isn't just "the boot" of above. If you go onto Reddit or Bluesky or Twitter or other social media in September 2025 and don't hate the out-group as directed by the mob mentality.... virtualized egomania via message systems. ===:::
