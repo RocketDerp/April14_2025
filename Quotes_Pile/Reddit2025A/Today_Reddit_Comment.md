@@ -234,3 +234,11 @@ https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_world
 eeyore134 2011-09-18
 
 "I think we're looking past the fact that he said "in the world." Yet more absolutist rhetoric with zero nuance that you'd expect out of the mouths of a toddler. "It's mostest dangerousest place in the whole entire world!" "
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_critics_erupt_over/ncs78od/
+
+foldingcouch 2011-02-21
+
+"I feel like we're less than 12 months from the headline "Trump orders arrest of all Democratic members of Congress, cancels midterms, and proclaims himself Emperor for Life; critics warn America may be sliding into Totalitarianism" "
