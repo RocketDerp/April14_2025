@@ -120,3 +120,13 @@ https://old.reddit.com/r/illinois/comments/1na4e4f/uh_guys_i_dont_think_this_is_
 nightshift1223 2020-03-27
 
 "How the fuck is the president of the United States actually posting this shit … fucking scary"
+
+&nbsp;
+
+https://old.reddit.com/r/illinois/comments/1na4e4f/uh_guys_i_dont_think_this_is_gonna_end_well/ncrfewb/
+
+The_Vis_Viva 2016-01-31
+
+"What's funny about this is the United States fucking LOST Vietnam. He's AI cosplaying as the side that LOST to the insurgency."
+
+* :::=== RoundSparrow_Commentary : [Ate the Surkovian onions, commenting on the unique flavor of this media exploit of the mind.](Surkovian_Onion_Eating.md). We The People / Audience finds Trump's media messages contradictory, sureal humor, absurd Tony Clifton antics.Unable to cite Surkov Russian informaiton warfare techniques. Unable to imagine their own crowd mind being exploited by juxtoposition mind exploits. ===:::
