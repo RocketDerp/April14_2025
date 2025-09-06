@@ -38,6 +38,29 @@ unicornlocostacos 2012-12-30
 
 &nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1na485a/president_trump_warns_that_chicago_is_about_to/ncryqrs/
+
+RadicalD11 2016-06-15
+
+"Nah, Trump doesn't hate America. Americans hate America."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1na485a/president_trump_warns_that_chicago_is_about_to/ncrcv0n/
+
+IPlayRaunchyMusic 2014-10-21
+
+<img width="950" height="732" alt="image" src="https://github.com/user-attachments/assets/f3c2e097-c47a-4589-8419-bb92f7704909" />
+
+&nbsp;
+
+"January 6th is about to look like child’s play. He’s trying to start a fully combative civil war."
+
+&nbsp;
+
+&nbsp;
 
 
 # Friday September 5, 2025
