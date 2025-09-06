@@ -242,3 +242,27 @@ https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_c
 foldingcouch 2011-02-21
 
 "I feel like we're less than 12 months from the headline "Trump orders arrest of all Democratic members of Congress, cancels midterms, and proclaims himself Emperor for Life; critics warn America may be sliding into Totalitarianism" "
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_critics_erupt_over/ncs1k83/
+
+Aggravating_Money992 2023-06-23
+
+"It's becoming a TV series. Today on Donny trying to distract from the Epstein files, he posts a shitty AI post, hoping this time it works and his MAGA cult forgets"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_critics_erupt_over/ncs3lvd/
+
+SeiCalros 2010-09-13
+
+<img width="1302" height="1382" alt="image" src="https://github.com/user-attachments/assets/b5cca1c7-c267-4680-83c5-3e0b15867989" />
+
+&nbsp;
+
+"you people keep saying this is all a distraction while he is literally sending troops into cities and just last week the military attacked a bunch of civilians on a boat saying that civil felonies - that were never proven in court or even presented to the public - justified miltiary a pre-emptive military strike against a small civilian watercraft
+
+when you realize that this was the plan the whole time its probalby gonna be too late"
