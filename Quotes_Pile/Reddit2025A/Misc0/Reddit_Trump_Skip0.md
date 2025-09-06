@@ -32,3 +32,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1n9oaah/those_good_ol_promises
 
 Oh, it has film fiction content audiences recognize.    
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1n9nz75/we_are_giving_serious_thought_to_taking_away/
+
+https://old.reddit.com/r/BlueskySkeets/comments/1n9eqdg/bring_your_business_hereso_we_can_arrest_your/
+
+https://old.reddit.com/r/law/comments/1n9nii3/trumps_leaked_plan_to_deploy_the_texas_national/
