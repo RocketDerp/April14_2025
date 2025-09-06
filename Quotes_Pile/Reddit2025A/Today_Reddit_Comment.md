@@ -198,3 +198,23 @@ GuyHamburgers 2024-05-20
 "For nearly half the country he is the single source of truth. Documenting these outrageous claims isnt journalism at this point"
 
 * :::=== RoundSparrow_Commentary : For the entire country, Donald Trump is a single source of constant media stimulation. Any time day or night, the Tony Clifton performance of Trump can provide mocking for the audience. A total mockery ongoing for over TEN YEARS AND TWO MONTHS. People glued to their touchscreens fingering away at insulting and mocking the out-groups. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_worlds_most_dangerous/ncr928a/
+
+Umami-Ice-Cream 2025-08-04 (recent account)
+
+"Like how New York was a "shithole." But now that Mamdani is running, it's suddenly "the great New York City."
+
+He will say what he needs to in order to get his way. Even if he contradicts it later."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_worlds_most_dangerous/ncr9tgk/
+
+Serious_Hour9074 2021-07-29
+
+"Not even America, THE WORLD.
+
+Take that, all you South African cities with the highest crime on the planet (that Donald Trump and Elon Musk brought tons of people from), or Memphis (in red Tennessee)."
