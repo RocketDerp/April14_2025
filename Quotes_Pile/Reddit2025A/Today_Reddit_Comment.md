@@ -172,3 +172,11 @@ https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_world
 A_Rabid_Pie 2012-02-21
 
 "I think their obsession with crime is partly just another form of projection. They're over there committing all the crimes and corruption every day and assume their rivals and 'lessers' must be as bad or worse because that's the only context they know. Because they lack perspective or empathy, they assume everyone is just as depraved as they are or worse."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_worlds_most_dangerous/ncqua0i/
+
+chimarya 2011-05-08
+
+"Hello fellow Chicagoan - I have so much fun telling Michigan folk (usually friends of family)about how we have 77 neighborhoods and only a handful cause the majority of the violent crimes and they are the most poverty stricken areas. Then I tell them that you have a .001 chance of getting shot in Chicago. I love telling them about my diverse block and our fun block parties and how our sweet neighbor cut our lawn for fun out of the blue and invite us over for cookouts. They just give me the funniest look."
