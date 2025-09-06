@@ -85,6 +85,28 @@ burnmenowz 2016-01-22
 
 &nbsp;
 
+https://old.reddit.com/r/illinois/comments/1na4e4f/uh_guys_i_dont_think_this_is_gonna_end_well/ncs671x/
+
+Noperest **2025-07-31 (new account)**
+
+"While he is doing that, this isn't for distraction.
+
+This is just part of project '25. Sending red state national guard into blue states to squash dissenters and such.
+
+This was always the plan."
+
+&nbsp;
+
+https://old.reddit.com/r/illinois/comments/1na4e4f/uh_guys_i_dont_think_this_is_gonna_end_well/ncs6d28/
+
+ExternalSize2247 2022-07-06
+
+"I don't know that you can call this a distraction anymore
+
+Past a certain point, even threatening a military invasion on domestic soil becomes more of a legitimate issue than the heads of state being key members of a child trafficking ring operated by the shadowy elite"
+
+&nbsp;
+
 
 # Friday September 5, 2025
 
