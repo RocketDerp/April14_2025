@@ -318,3 +318,13 @@ https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_c
 QuixoticSun 2022-05-02
 
 "What if ... it's not just a distraction, but like throughout history an actual threat that may very well be followed thru in order to actually distract? Difficult to be concerned about files when under actual siege & in combat doing actual fighting, according to historical record. Despots have a penchant for creating problems to "distract" from problems."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1na3fn5/floridas_new_immigrant_detention_site_dubbed/ncr40er/
+
+wyvernx02 2012-07-09
+
+"They are trying to give them entertaining names to distract from the fact they are concentration camps."
+
+* :::=== RoundSparrow_Commentary : Attraction is not distraction. We The People have lost all sense of the word "attraction" and think Donald Trump's power comes from *distraction*. Tony Clifton becomes the center of a toaal mockery. Mocking is not resisting Trump, it is being attracted to mockery. Media addiction, altered behaviors and mindsets is the outcome of Surkovian information techniques. ===:::
