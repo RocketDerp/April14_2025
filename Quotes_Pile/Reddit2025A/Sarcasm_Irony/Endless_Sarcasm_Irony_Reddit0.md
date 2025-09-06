@@ -70,3 +70,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1na04ds/who_actually_believes_
 
 Front page of Reddit. The blind deep faith... that *turning into the wipeout* will save the USA. For over TEN YEARS AND TWO MONTHS, endless faith that more satire and more absurd will address the Surkov public relations techniques, Russian information warfare. That *reality and nonfiction* can be re-asserted with more creative fiction bullshit.      
 https://old.reddit.com/r/pics/comments/1na2c95/oc_found_these_posted_around_san_diego_today/
+
+Humor-washing, LOL-washing, amusement-washing the situation. Constantly promoting that Donald Trump White House / FBI / federal in 2025 is entertainming and thrilling content just like popular baseball sports topics.     
+https://old.reddit.com/r/PoliticalHumor/comments/1na3wqw/mike_johnson_just_announced_that_this_woman_stole/
