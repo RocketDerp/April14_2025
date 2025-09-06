@@ -164,3 +164,11 @@ https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_world
 MayIServeYouWell 2016-01-01 (New Year)
 
 "They literally don't care. The people making the lies have absolutely no regard for truth. The people consuming the lies eat them up like candy. It's a freakishly dysfunctional dynamic."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_worlds_most_dangerous/ncrj7a0/
+
+A_Rabid_Pie 2012-02-21
+
+"I think their obsession with crime is partly just another form of projection. They're over there committing all the crimes and corruption every day and assume their rivals and 'lessers' must be as bad or worse because that's the only context they know. Because they lack perspective or empathy, they assume everyone is just as depraved as they are or worse."
