@@ -336,3 +336,11 @@ https://old.reddit.com/r/news/comments/1na3fn5/floridas_new_immigrant_detention_
 leee_yum 2021-02-13
 
 "Why are they naming these godawful places like fucking fortnite locations???"
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1na6etx/this_is_so_embarrassing/ncrxhxj/
+
+relaxd80 2021-09-12
+
+"I believe you’re correct, but I’m also afraid I’m fooling myself. The things he’s already gotten away with are outrageous to the point that I never would have believed it. If you told me in 2016 that this is the state that America would be in now… the end of the rule of law, the huge drop in ethics and morality, the increasingly state controlled media and the lies, my god the lies!! The war on science. If you would have told me all this was possible in America I would have dismissed you as a crazy conspiracy theorist, I’d have bet everything I have that this scenario is not possible. But here we are and I think I have trauma from it. I’ve lost my confidence in what is possible or not and I have no idea how this is all going to turn out. I think many MAGA including Trump are actually okay with a civil war and it’s so thoroughly disturbing. It seems like he might be finally hitting some roadblocks in his agenda with recent court rulings and finally getting some pushback. I hope you’re right! And I hope we get past this and learn and change some laws to prevent this type of power grab in the future."
