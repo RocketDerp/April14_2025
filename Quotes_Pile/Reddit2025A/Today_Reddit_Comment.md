@@ -30,6 +30,15 @@ CheekiTits 2024-10-06
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1na2olv/department_of_war/ncrarm3/
+
+unicornlocostacos 2012-12-30
+
+"It’s hilarious when he tries it in person with zero charisma, and zero ability to pretend to be a human."
+
+&nbsp;
+
+
 
 # Friday September 5, 2025
 
