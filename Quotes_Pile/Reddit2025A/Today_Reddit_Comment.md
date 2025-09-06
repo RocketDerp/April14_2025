@@ -380,3 +380,19 @@ CrazyStrict1304 2024-06-11
 "The problem is that people forget he's a showman. When he puts stuff like this on his account, first off it's a photo that was edited for effect, he's trying to stir his base while also outraging the Democrats to make his base even more mad at the Democrats. He may suck at being president, but when it comes to manipulation he's a pro. He's obviously not declaring war because there already would have been tanks and jets flying over that city the government doesn't announce invasions. He's just doing this because of "ratings". He wants to be on all the news channels tonight and be talked about all over the internet.
 
 The people to actually worry about are the ones he puts in charge of departments that are loose cannons and do whatever they want that aren't talked about until after they put crazy policies in place."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1na6etx/this_is_so_embarrassing/ncrwaw0/
+
+\_A_Monkey 2023-05-06
+
+<img width="1746" height="376" alt="image" src="https://github.com/user-attachments/assets/570c81f6-7457-4b22-a638-e9b8bf96da83" />
+
+&nbsp;
+
+"It’s not embarrassing. It’s fascism.
+
+People don’t start getting more pissed they’re going to amuse and wise crack themselves right into a concentration camp."
