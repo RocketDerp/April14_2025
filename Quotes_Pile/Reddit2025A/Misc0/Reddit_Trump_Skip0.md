@@ -30,3 +30,5 @@ https://old.reddit.com/r/pics/comments/1n9qxbk/israeli_sniper_aims_at_head_of_pe
 Despite the mass dehumanization being obvious, what's important is mocking and LOL.   
 https://old.reddit.com/r/MurderedByWords/comments/1n9oaah/those_good_ol_promises/
 
+Oh, it has film fiction content audiences recognize.    
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1n9nz75/we_are_giving_serious_thought_to_taking_away/
