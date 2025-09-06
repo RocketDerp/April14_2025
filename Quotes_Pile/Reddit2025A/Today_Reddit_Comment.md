@@ -294,3 +294,27 @@ https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_c
 Old_Duck3322 2023-11-30
 
 "That's the thing. They only know Chicago through TV, how many TV shows have told them for years that Chicago is a hellhole of gangs and violence with shootouts on the daily. They have been fed the Chiraq propaganda for decades now. Everyone thinks the media is just bending over. No, they have been egging on this narrative for more than a generation. This is the payoff from all of the tv shows hey have pumped into our lives. They get one of their own to tear down the villain they built up."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_critics_erupt_over/ncs7uix/
+
+ReadditMan 2017-08-17
+
+<img width="1220" height="1570" alt="image" src="https://github.com/user-attachments/assets/e1e558fc-61ab-44ae-afdc-1654c8a60a21" />
+
+&nbsp;
+
+"Kinda seems like the opposite at this point. Every time he does or says some fucked up shit people downplay it by saying it's an intentional distraction from the Epstein files.
+
+You're so focused on that one issue that you're ignoring everything else, the things he's doing aren't a distraction from the Epstein files, the Epstein files are distraction from everything he's doing."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_critics_erupt_over/ncs6p5v/
+
+QuixoticSun 2022-05-02
+
+"What if ... it's not just a distraction, but like throughout history an actual threat that may very well be followed thru in order to actually distract? Difficult to be concerned about files when under actual siege & in combat doing actual fighting, according to historical record. Despots have a penchant for creating problems to "distract" from problems."
