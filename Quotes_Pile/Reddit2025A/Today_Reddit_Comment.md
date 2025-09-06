@@ -286,3 +286,11 @@ SupaDick 2013-01-30
 "Exactly. Its not a distraction from the files. The files dont matter. He controls the military and is using it to hurt the people who didn't vote for him.
 
 Even if enough people cared about the files what would happen? He controls the military."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_critics_erupt_over/ncs71ri/
+
+Old_Duck3322 2023-11-30
+
+"That's the thing. They only know Chicago through TV, how many TV shows have told them for years that Chicago is a hellhole of gangs and violence with shootouts on the daily. They have been fed the Chiraq propaganda for decades now. Everyone thinks the media is just bending over. No, they have been egging on this narrative for more than a generation. This is the payoff from all of the tv shows hey have pumped into our lives. They get one of their own to tear down the villain they built up."
