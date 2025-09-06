@@ -114,3 +114,9 @@ ButterMyPancakesPlz 2024-07-16
 "Isn't that exactly what Putin wants though? A Russia to the east, a break up of his enemy"
 
 &nbsp;
+
+https://old.reddit.com/r/illinois/comments/1na4e4f/uh_guys_i_dont_think_this_is_gonna_end_well/ncrdy9a/
+
+nightshift1223 2020-03-27
+
+"How the fuck is the president of the United States actually posting this shit … fucking scary"
