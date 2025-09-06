@@ -188,3 +188,13 @@ https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_world
 jagerbombastic99 2015-05-28
 
 "I thought DC was the most dangerous city in the world according to him?"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_worlds_most_dangerous/ncqwql2/
+
+GuyHamburgers 2024-05-20
+
+"For nearly half the country he is the single source of truth. Documenting these outrageous claims isnt journalism at this point"
+
+* :::=== RoundSparrow_Commentary : For the entire country, Donald Trump is a single source of constant media stimulation. Any time day or night, the Tony Clifton performance of Trump can provide mocking for the audience. A total mockery ongoing for over TEN YEARS AND TWO MONTHS. People glued to their touchscreens fingering away at insulting and mocking the out-groups. ===:::
