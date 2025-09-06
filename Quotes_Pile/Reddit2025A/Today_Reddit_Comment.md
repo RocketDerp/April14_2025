@@ -218,3 +218,11 @@ Serious_Hour9074 2021-07-29
 "Not even America, THE WORLD.
 
 Take that, all you South African cities with the highest crime on the planet (that Donald Trump and Elon Musk brought tons of people from), or Memphis (in red Tennessee)."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_worlds_most_dangerous/ncs6frl/
+
+Electrical-Law-5731 **2025-08-24 (new account)**
+
+"I'm sick and tired of the fucking media not calling trump out for his blatant lies and acting like trumps retruths have any basis in reality."
