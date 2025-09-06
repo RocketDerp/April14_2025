@@ -266,3 +266,13 @@ SeiCalros 2010-09-13
 "you people keep saying this is all a distraction while he is literally sending troops into cities and just last week the military attacked a bunch of civilians on a boat saying that civil felonies - that were never proven in court or even presented to the public - justified miltiary a pre-emptive military strike against a small civilian watercraft
 
 when you realize that this was the plan the whole time its probalby gonna be too late"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_critics_erupt_over/ncs9iw3/
+
+fumar 2008-08-03
+
+"It goes back to the early days of MAGA. They all bought into pizza gate. At its core the pizza gate conspiracy revolves around being against pedophiles and the belief that HRC and a lot of prominent Dems were pedophiles at the time."
