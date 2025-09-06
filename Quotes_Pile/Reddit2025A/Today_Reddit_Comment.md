@@ -20,6 +20,16 @@ Solcannon 2012-06-07
 
 &nbsp;
 
+https://old.reddit.com/r/PublicFreakout/comments/1na2a3r/23_year_old_ukrainian_refugee_iryna_zarutska/ncqy0vn/
+
+CheekiTits 2024-10-06
+
+"You didn't. It's just Redditors being Redditors."
+
+* :::=== RoundSparrow_Commentary : Reddit is far from the only media platform to dehumanize with no-identity reactionary thinking. Elon Musk purchased Twitter to further social media mass dehumanization and role models of Donald Trump as social media behavior leader. ===:::
+
+&nbsp;
+
 
 # Friday September 5, 2025
 
