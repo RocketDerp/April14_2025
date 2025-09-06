@@ -64,3 +64,6 @@ Self-own AGAIN hours later, same topic. "Clever comeback" framing. The USA is se
 
 Clowin images, Trump playing Tony Clifton clown acts. And a social media society that entirely will not become serious about QAnon / IRA / Cambridge Analytica and how the rich have weaponized absurd surreal amusement mind exploits.     
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1na2e7s/trumps_ever_changing_story/
+
+More eatign the Surkov onions. No matter how extremely absurd and surreal, nobody can call out Surkov techniques by name. Despite BBC coverage.   
+https://old.reddit.com/r/MurderedByWords/comments/1na04ds/who_actually_believes_this/
