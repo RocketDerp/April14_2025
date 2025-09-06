@@ -226,3 +226,11 @@ https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_world
 Electrical-Law-5731 **2025-08-24 (new account)**
 
 "I'm sick and tired of the fucking media not calling trump out for his blatant lies and acting like trumps retruths have any basis in reality."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_worlds_most_dangerous/ncs2xdg/
+
+eeyore134 2011-09-18
+
+"I think we're looking past the fact that he said "in the world." Yet more absolutist rhetoric with zero nuance that you'd expect out of the mouths of a toddler. "It's mostest dangerousest place in the whole entire world!" "
