@@ -73,6 +73,15 @@ When did empathy become so polarizing?"
 * :::=== RoundSparrow_Commentary : QUESTION: "When did empathy become so polarizing?"
 ANSWER: Joseph Campbell lessons for Star Wars audiences filemed by George Lucas in summer of 1986: "Now brotherhood in most of the myths I know of is confined to a bounded community. In bounded communities, aggression is projected outward. For example, the ten commandments say, “Thou shalt not kill.” Then the next chapter says, “Go into Canaan and kill everybody in it.” That is a bounded field. **The myths of participation and love pertain only to the in-group, and the out-group is totally other**. This is the sense of the word “gentile” — the person is not of the same order." (see also Islamic "infidel", Christian "non-believer" terms to match up "gentile") ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/illinois/comments/1na4e4f/uh_guys_i_dont_think_this_is_gonna_end_well/ncrbprt/
+
+burnmenowz 2016-01-22
+
+"Sounds like treason to me, declaring war on a US City"
+
+* :::=== RoundSparrow_Commentary : Top popular comment on the topic. Note the extremely tiny length of the message, even for Twitter or Bluesky this is extremely short. No context is provided other than reaction-comment popularity itself. No quotes of education, no authors referenced, just tossing words into a soup of hate and mass dehumanization. Twitter-thinking fueling reactionary anti-intellectual anti-education anti-peace mob mentality mindsets. ===:::
 
 &nbsp;
 
