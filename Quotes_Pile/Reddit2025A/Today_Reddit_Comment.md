@@ -276,3 +276,13 @@ https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_c
 fumar 2008-08-03
 
 "It goes back to the early days of MAGA. They all bought into pizza gate. At its core the pizza gate conspiracy revolves around being against pedophiles and the belief that HRC and a lot of prominent Dems were pedophiles at the time."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1na7t4x/unhinged_and_antiamerican_critics_erupt_over/ncs5j2s/
+
+SupaDick 2013-01-30
+
+"Exactly. Its not a distraction from the files. The files dont matter. He controls the military and is using it to hurt the people who didn't vote for him.
+
+Even if enough people cared about the files what would happen? He controls the military."
