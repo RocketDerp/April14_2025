@@ -1338,3 +1338,8 @@ https://www.youtube.com/watch?v=FnD50llAkP4
 
 science fiction storytelling where you don't describe the character to create a sense of mystery.    
 https://old.reddit.com/r/CuratedTumblr/comments/1n9wce1/hes_also_not_a_sphere_glad_we_got_that_out_of_the/
+
+&nbsp;
+
+Implicit bias. Cultural out-group hate in Star Trek DS9.      
+https://youtu.be/M_Y7jsIbic8?t=1012
