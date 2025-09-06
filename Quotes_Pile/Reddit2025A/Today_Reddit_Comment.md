@@ -10,6 +10,17 @@ Impossible-Topic9558 2025-06-02 (recent account)
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1na1q0u/reuters_deletes_video_of_xi_and_putin_talking/ncqzb3r/
+
+Solcannon 2012-06-07
+
+"Trump got a transplant over labor day weekend"
+
+* :::=== RoundSparrow_Commentary : Fixation on one 79 year old man as the source of all problems instead of We The People having a media ecology crisis and loss of information war to Russia since March 2013. The entertainment people have talking about Trump's penis and other body organs, his golf course outings, his clothing and maekup. Constant attraction people show in USA to anything but addressing the mass psychosis problems of society / mass dehumanization group behaviors. ===:::
+
+&nbsp;
+
+
 # Friday September 5, 2025
 
 &nbsp;
