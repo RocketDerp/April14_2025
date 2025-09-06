@@ -1333,3 +1333,8 @@ https://www.youtube.com/watch?v=NJpFOPRHhPE
 
 Mad Max (original) and faith systems    
 https://www.youtube.com/watch?v=FnD50llAkP4
+
+&nbsp;
+
+science fiction storytelling where you don't describe the character to create a sense of mystery.    
+https://old.reddit.com/r/CuratedTumblr/comments/1n9wce1/hes_also_not_a_sphere_glad_we_got_that_out_of_the/
