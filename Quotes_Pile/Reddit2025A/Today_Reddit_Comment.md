@@ -156,3 +156,11 @@ https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_world
 Flopdo 2017-06-20
 
 "Chicago doesn't even crack the top 10, of most violent cities in America."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1na1p7m/trump_claims_chicago_is_worlds_most_dangerous/ncrbijg/
+
+MayIServeYouWell 2016-01-01 (New Year)
+
+"They literally don't care. The people making the lies have absolutely no regard for truth. The people consuming the lies eat them up like candy. It's a freakishly dysfunctional dynamic."
