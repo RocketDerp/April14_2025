@@ -355,3 +355,18 @@ Competitive-Ebb3816 2021-04-08
 
 * :::=== RoundSparrow_Commentary :  1985 when this book was published, Ronald Reagan **ENTERTAINER President** was second term in office. https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death Mob mentality takes over USA when sports / entertainment is driving the White House. Surkov and Putin realized this and enertainment-exploits has kept Putin in power for 25 years. ===:::
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1na6etx/this_is_so_embarrassing/ncsmc8z/
+
+kravfoiegras 2017-02-24
+
+<img width="1626" height="586" alt="image" src="https://github.com/user-attachments/assets/b1f62408-6b40-4492-917b-4cd12ff4f337" />
+
+&nbsp;
+
+"This was always the point, by the way. Make America a banana republic through online disinformation campaigns orchestrated by the Russian state. With a view to the Kremlin being the dominant player in establishing a new world order.
+
+You lost the second cold war. It's just the history books haven't been written yet."
