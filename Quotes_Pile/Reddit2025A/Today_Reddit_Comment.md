@@ -198,3 +198,13 @@ galanoobp 2023-11-07
 "You don't need to be right wing to critize islamic states xdd. If anything muslims from countries like Saudi Arabia are propably THE most rightwing minded people you can meet."
 
 * :::=== RoundSparrow_Commentary : The Quran is science fiction storytelling. Trying to cram everyhing into left vs. right is a modern media behavior. Peole who believe ficiton as raality are a concern, unable to distinguish factual reality about the world. Believing Star Wars and Bible science fiction are factual. Teaching comparative mythology and media ecology subjects is not optional. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1narugc/trump_didnt_notify_congress_about_a_highstakes/ncwh42u/
+
+RecordFirst1055 2021-01-28
+
+"He killed 11 civilians in a boat and posted the vid like an ISIS warlord"
+
+* :::=== RoundSparrow_Commentary :  Donald Trump media empires are catoring to the fiction addicts of television and video games. The video game GTA 6 setting is the fictional U.S. state of Leonida, which is based on Florida, and features the iconic Miami-inspired city of Vice City. Drug lords and dramatic warlord / cartel entertainment audiences. Russian Surkov entertinment-based leadership. ===:::
