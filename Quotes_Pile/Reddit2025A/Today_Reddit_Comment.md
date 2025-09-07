@@ -583,3 +583,19 @@ BretShitmanFart69 2023-03-16
 In their minds things are going great not because of any quantifiable real reason, but because the reality they made for themself is going great. That’s why they love Trump, because they love the delusional version they have of him where he does things like get rid of their taxes and wade through rivers to save drowning children.
 
 It’s a mass psychosis and I am so confused how it happened so quickly."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu6fra/
+
+Hashtagworried 2015-08-02
+
+"Where else? TikTok. They all make up, then spread misinformation, and then based on what the algo thinks it will present you videos you’re most likely to react with."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu8aep/
+
+hunter791 2014-01-15
+
+"I’m sure TikTok is bad but Facebook is the absolute king of far right slop. I use it to advertise for my business and every time I open it and go to the town page where I post (in a blue state, in a blue town) it’s full to the brim with ai far right nonsense being reposted with dozens of people commenting just accepting it with ZERO pushback. I think these older people see that it’s being reposted by people they know, they’ve known their whole lives, it’s the guy who owns the local hardware store or appliance repair shop and they just think oh he’s not one of those nuts, I know him. But these fuckers are nuts, and they’re everywhere."
