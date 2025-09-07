@@ -150,3 +150,13 @@ Even_Establishment95 2020-12-21
 "Also he’s a bumbling idiot with the vocabulary of a toddler who cannot complete a fucking sentence, and they ignore that and try to make him sound coherent with editing, partial quotes and “what he really meant was..” Fucking embarrassing and infuriating."
 
 * :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. Believing that Surkov media techniques that have kept Putin in power for 25 years are "accidental"](Surkovian_Onion_Eating.md). That Trump is clueless about how to draw crowds and exploit human brains with poularity. "Fucking embarrassing and infuriating" is exactly the mechanics of Kremlin information warfare. Denial abounds. Reddit users just can not imagine that surreal absurd Tony Clifton acntics are military weaponzied techniques of Putin. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/ShareMarketupdates/comments/1narqka/trump_intends_to_use_the_united_states_military/ncx360i/
+
+forgettit_ 2024-12-26
+
+"It’s baffling how extremely stupid so much of the American population is who didn’t know."
+
+* :::=== RoundSparrow_Commentary : Everyday people (We The People) can't keep up on topics. Why are the media practitioenrs not using their platforms to repeat and keep repeating NYU's Neil Postman? Example: March 27, 2024 https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
