@@ -1349,4 +1349,6 @@ https://youtu.be/M_Y7jsIbic8?t=1012
 Extreme sports society. Extreme interaction society. The kind of people who dominate on the Internet, clickbait headline outcomes, loss of language. McDonald's "I am loving it! Hamburger Luve!!!" communications parenting / childhood.      
 Even this headline that he is "mad" beause of it, is American clickbait style on Reddit.     
 Not allowed to be observational, self-aware, or feedback... only "mad".     
-https://old.reddit.com/r/TikTokCringe/comments/1nacyfp/guy_mad_because_of_american_fake_kindness/
+https://old.reddit.com/r/TikTokCringe/comments/1nacyfp/guy_mad_because_of_american_fake_kindness/     
+"Or it could be this fake influener personality to hate on something for content. This is why I hate social media. It's terraforming us into monsters"
+
