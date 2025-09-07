@@ -42,3 +42,6 @@ https://old.reddit.com/r/politics/comments/1nay1kg/americans_continue_to_really_
 
 Media ecology reading       
 https://old.reddit.com/r/politics/comments/1naqq0k/is_the_decline_of_reading_making_politics_dumber/
+
+Hitler vs. Trump comparison    
+https://old.reddit.com/r/politics/comments/1nalkj3/six_nobel_laureates_speak_out_against_trump_the/
