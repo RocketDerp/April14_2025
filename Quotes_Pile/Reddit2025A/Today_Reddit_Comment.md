@@ -534,3 +534,13 @@ like, just yesterday, there was a guy claiming that Trump has ended six wars. wh
 I have no doubt that most of these people would be institutionalized if we were still doing that shit."
 
 * :::=== RoundSparrow_Commentary : "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu4qr3/
+
+Jestermace1 2020-07-25
+
+"I honestly can't believe the fucking stupidity in this country."
+
+* :::=== RoundSparrow_Commentary : People can't belive what the Russian IRA has done to the population since March 2013. People do not want to face up that USA was not like this back in 2012 and earlier. Media ecology educaiton is not optional. Junk memes into the mind, this is the outcome. Constant repeating fiction. ===:::
