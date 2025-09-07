@@ -6,7 +6,7 @@ Impossible-Topic9558 2025-06-02 (recent account)
 
 "I'm not turning my back on one of the few remaining sources I trust because they are making decisions to continue to provide the valid info they can. If we keep canceling everyone when they cross our personal moral line we will have limited sources to pull from."
 
-* :::=== RoundSparrow_Commentary : The "fly in the soup" imperfection, "bad brand", block-happy / deport-happy society. Instead of identifying the bias in human minds / no-go egoism topics, pepole want to block entire swaths of media venues or media platforms. We aren't standing together in common cause, and if people favor fiction we all drown in fiction. ===:::
+* :::=== RoundSparrow_Commentary : The "fly in the soup" imperfection, "bad brand", block-happy / deport-happy society. Instead of identifying the bias in human minds / no-go egoism topics, people want to block entire swaths of media venues or media platforms. We aren't standing together in common cause, and if people favor fiction we all drown in fiction. ===:::
 
 &nbsp;
 
@@ -16,7 +16,7 @@ Solcannon 2012-06-07
 
 "Trump got a transplant over labor day weekend"
 
-* :::=== RoundSparrow_Commentary : Fixation on one 79 year old man as the source of all problems instead of We The People having a media ecology crisis and loss of information war to Russia since March 2013. The entertainment people have talking about Trump's penis and other body organs, his golf course outings, his clothing and maekup. Constant attraction people show in USA to anything but addressing the mass psychosis problems of society / mass dehumanization group behaviors. ===:::
+* :::=== RoundSparrow_Commentary : Fixation on one 79 year old man as the source of all problems instead of We The People having a media ecology crisis and loss of information war to Russia since March 2013. The entertainment people have talking about Trump's penis and other body organs, his golf course outings, his clothing and makeup. Constant attraction people show in USA to anything but addressing the mass psychosis problems of society / mass dehumanization group behaviors. ===:::
 
 &nbsp;
 
@@ -71,7 +71,7 @@ MudBloodLite 2025-05-21 (new this year)
 When did empathy become so polarizing?"
 
 * :::=== RoundSparrow_Commentary : QUESTION: "When did empathy become so polarizing?"
-ANSWER: Joseph Campbell lessons for Star Wars audiences filemed by George Lucas in summer of 1986: "Now brotherhood in most of the myths I know of is confined to a bounded community. In bounded communities, aggression is projected outward. For example, the ten commandments say, “Thou shalt not kill.” Then the next chapter says, “Go into Canaan and kill everybody in it.” That is a bounded field. **The myths of participation and love pertain only to the in-group, and the out-group is totally other**. This is the sense of the word “gentile” — the person is not of the same order." (see also Islamic "infidel", Christian "non-believer" terms to match up "gentile") ===:::
+ANSWER: Joseph Campbell lessons for Star Wars audiences filmed by George Lucas in summer of 1986: "Now brotherhood in most of the myths I know of is confined to a bounded community. In bounded communities, aggression is projected outward. For example, the ten commandments say, “Thou shalt not kill.” Then the next chapter says, “Go into Canaan and kill everybody in it.” That is a bounded field. **The myths of participation and love pertain only to the in-group, and the out-group is totally other**. This is the sense of the word “gentile” — the person is not of the same order." (see also Islamic "infidel", Christian "non-believer" terms to match up "gentile") ===:::
 
 &nbsp;
 
@@ -129,7 +129,7 @@ The_Vis_Viva 2016-01-31
 
 "What's funny about this is the United States fucking LOST Vietnam. He's AI cosplaying as the side that LOST to the insurgency."
 
-* :::=== RoundSparrow_Commentary : [Ate the Surkovian onions, commenting on the unique flavor of this media exploit of the mind.](Surkovian_Onion_Eating.md). We The People / Audience finds Trump's media messages contradictory, sureal humor, absurd Tony Clifton antics.Unable to cite Surkov Russian informaiton warfare techniques. Unable to imagine their own crowd mind being exploited by juxtoposition mind exploits. ===:::
+* :::=== RoundSparrow_Commentary : [Ate the Surkovian onions, commenting on the unique flavor of this media exploit of the mind.](Surkovian_Onion_Eating.md). We The People / Audience finds Trump's media messages contradictory, surreal humor, absurd Tony Clifton antics. Unable to cite Surkov Russian information warfare techniques. Unable to imagine their own crowd mind being exploited by juxtaposition mind exploits. ===:::
 
 &nbsp;
 
@@ -147,7 +147,7 @@ Skelter_89 2018-09-04
 
 "I'm sick of this man and this country doing nothing about it, it's absolutely exhausting and embarrassing. And the people who support it are equally disgusting"
 
-* :::=== RoundSparrow_Commentary : Media addicts compusively support Donald Trump / Elon Musk / Putin situation since March 2013 by not becoming serious and teaching media ecology / information warfare to rescue Americans from the IRA + CA mind-fucking. Failure to witness how many think Trump is engagement mockery / mocking. Mocking is not resisting Surkov techniques. ===:::
+* :::=== RoundSparrow_Commentary : Media addicts compulsively support Donald Trump / Elon Musk / Putin situation since March 2013 by not becoming serious and teaching media ecology / information warfare to rescue Americans from the IRA + CA mind-fucking. Failure to witness how many think Trump is engagement mockery / mocking. Mocking is not resisting Surkov techniques. ===:::
 
 &nbsp;
 
@@ -327,7 +327,7 @@ wyvernx02 2012-07-09
 
 "They are trying to give them entertaining names to distract from the fact they are concentration camps."
 
-* :::=== RoundSparrow_Commentary : Attraction is not distraction. We The People have lost all sense of the word "attraction" and think Donald Trump's power comes from *distraction*. Tony Clifton becomes the center of a toaal mockery. Mocking is not resisting Trump, it is being attracted to mockery. Media addiction, altered behaviors and mindsets is the outcome of Surkovian information techniques. ===:::
+* :::=== RoundSparrow_Commentary : Attraction is not distraction. We The People have lost all sense of the word "attraction" and think Donald Trump's power comes from *distraction*. Tony Clifton becomes the center of a total mockery. Mocking is not resisting Trump, it is being attracted to mockery. Media addiction, altered behaviors and mindsets is the outcome of Surkovian information techniques. ===:::
 
 &nbsp;
 
@@ -353,7 +353,7 @@ Competitive-Ebb3816 2021-04-08
 
 "Half a million people, mostly women, including me, marched in Washington on January 21, 2017, to warn about what was coming. I was sending warnings starting in 2015 when he started being taken seriously. I was warning about the danger of Reagan and the Moral Majority when I was 18! This hasn't come out of nowhere."
 
-* :::=== RoundSparrow_Commentary :  1985 when this book was published, Ronald Reagan **ENTERTAINER President** was second term in office. https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death Mob mentality takes over USA when sports / entertainment is driving the White House. Surkov and Putin realized this and enertainment-exploits has kept Putin in power for 25 years. ===:::
+* :::=== RoundSparrow_Commentary :  1985 when this book was published, Ronald Reagan **ENTERTAINER President** was second term in office. https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death Mob mentality takes over USA when sports / entertainment is driving the White House. Surkov and Putin realized this and entertainment-exploits has kept Putin in power for 25 years. ===:::
 
 &nbsp;
 
@@ -425,7 +425,7 @@ RockAtlasCanus 2021-01-23
 
 She rudely and insistently asked for a game ball she wrongly felt was hers. Now people form all over the world know who she is. The punishment doesn’t fit the crime to me."
 
-* :::=== RoundSparrow_Commentary : When Donald Trump is your role model for success. In July 2025, President Donald Trump said Rossie O'Donnell's "She is a Threat to Humanity". The entire world is in danger because of a single person, a woman. https://www.axios.com/2025/07/12/trump-rosie-odonnell-citizenship-threat ===:::
+* :::=== RoundSparrow_Commentary : When Donald Trump is your role model for success. In July 2025, President Donald Trump said Rosie O'Donnell's "She is a Threat to Humanity". The entire world is in danger because of a single person, a woman. https://www.axios.com/2025/07/12/trump-rosie-odonnell-citizenship-threat ===:::
 
 &nbsp;
 
@@ -465,7 +465,7 @@ Revolutionary-Yak-47 2020-06-10
 
 Then Covid happened. Dude. I'm WAY ahead of 2/3 of Americans just because I took AND passed high school biology. I was totally shocked at the lack of reading comprehension and basic science knowledge people had. I'm at least smart enough to phone a friend with a science degree when I don't understand stuff instead of believing Aunt Maud on Facebook ranting at chemtrails."
 
-* :::=== RoundSparrow_Commentary : Reddit social media users do not want to face up that military informaitonw arfare was aged on Reddit / Twitter / Facebook to manipulate minds. How much more obvious can it be that Donald Trump is self-harm? That measles is self harm? FACTUAL EVIDENCE is validated by Johns Hopkins University and George Washngton Unviersity going back to year 2014 - the start of the Ukraine war. https://www.bbc.com/news/world-us-canada-45294192 - way before COVID-19 - and people do not want to face up that multiple nations across the world are reporting these media invasions. Adults do not learn in rectangle classrooms, they learn from trash memes on the Intrnet and trash television news networks. ===:::
+* :::=== RoundSparrow_Commentary : Reddit social media users do not want to face up that military information warfare was aged on Reddit / Twitter / Facebook to manipulate minds. How much more obvious can it be that Donald Trump is self-harm? That measles is self harm? FACTUAL EVIDENCE is validated by Johns Hopkins University and George Washington University going back to year 2014 - the start of the Ukraine war. https://www.bbc.com/news/world-us-canada-45294192 - way before COVID-19 - and people do not want to face up that multiple nations across the world are reporting these media invasions. Adults do not learn in rectangle classrooms, they learn from trash memes on the Internet and trash television news networks. ===:::
 
 &nbsp;
 
@@ -479,7 +479,7 @@ Like there is just something about this guy, that over half this country gravita
 
 He is the most polarizing leader we have ever had in this country and it isn't even close."
 
-* :::=== RoundSparrow_Commentary : Russian IRA, Surkov governing, antics politics. People have no concept of humor, surreal comedy, absurd funny being a mental exploit. Trump doing absurd Twitter / Truth Social memes blows people's minds with mockery mocking faith. Comedy-washing, joke-washing, as Russian informationw warfare. Surkov won, Russia won! ...
+* :::=== RoundSparrow_Commentary : Russian IRA, Surkov governing, antics politics. People have no concept of humor, surreal comedy, absurd funny being a mental exploit. Trump doing absurd Twitter / Truth Social memes blows people's minds with mockery mocking faith. Comedy-washing, joke-washing, as Russian information warfare. Surkov won, Russia won! ...
 “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
 
@@ -543,7 +543,7 @@ Jestermace1 2020-07-25
 
 "I honestly can't believe the fucking stupidity in this country."
 
-* :::=== RoundSparrow_Commentary : People can't belive what the Russian IRA has done to the population since March 2013. People do not want to face up that USA was not like this back in 2012 and earlier. Media ecology educaiton is not optional. Junk memes into the mind, this is the outcome. Constant repeating fiction. ===:::
+* :::=== RoundSparrow_Commentary : People can't believe what the Russian IRA has done to the population since March 2013. People do not want to face up that USA was not like this back in 2012 and earlier. Media ecology education is not optional. Junk memes into the mind, this is the outcome. Constant repeating fiction. ===:::
 
 &nbsp;
 
@@ -614,7 +614,7 @@ bluewallsbrownbed 2019-08-28
 
 "This shit she believes, but not scientists about vaccines. Can we just divide this country up already - the American Experiment has failed."
 
-* :::=== RoundSparrow_Commentary : Messages on Reddit to give up on Ameerica. Give up on fighting information warfare against Russia / China / Iran. Just lay down and let falsehoods from the Internet Research Agency win since year 2014 about vaccines. Ignore Johns Hopkins University, ignore George Washington University - just let Putin win. Use spare time and free time on social machines to say *give up* with Twitter-length Tweet-thinking messages. https://www.bbc.com/news/world-us-canada-45294192 ===:::
+* :::=== RoundSparrow_Commentary : Messages on Reddit to give up on America. Give up on fighting information warfare against Russia / China / Iran. Just lay down and let falsehoods from the Internet Research Agency win since year 2014 about vaccines. Ignore Johns Hopkins University, ignore George Washington University - just let Putin win. Use spare time and free time on social machines to say *give up* with Twitter-length Tweet-thinking messages. https://www.bbc.com/news/world-us-canada-45294192 ===:::
 
 &nbsp;
 
@@ -624,7 +624,7 @@ Zeta8345 2018-01-22
 
 "So is step 1 a Russian propaganda campaign? I can't believe any sane human would start this sort of rumor/story so it's got to be bots, right?"
 
-* :::=== RoundSparrow_Commentary : Twitter-length Tweet-thinking, "bots". People have witnessed widespread brain damage / fouled thinking and can't even name Cambridge Anlytica / Internet Research Agency. Pepole have lost thier ability to be serious, provide citations, read printed books on paper. Everything is Twitter-length kind of reaction comments that age out and disappear from minds and attention. ===:::
+* :::=== RoundSparrow_Commentary : Twitter-length Tweet-thinking, "bots". People have witnessed widespread brain damage / fouled thinking and can't even name Cambridge Analytica / Internet Research Agency. People have lost their ability to be serious, provide citations, read printed books on paper. Everything is Twitter-length kind of reaction comments that age out and disappear from minds and attention. ===:::
 
 &nbsp;
 
