@@ -65,3 +65,13 @@ https://old.reddit.com/r/news/comments/1naqplk/workers_detained_in_hyundai_plant
 Middle-Welder3931 2022-11-25
 
 "This is just the most stupid shit ever. Just the dumbest thing possible, every day, every week of this administration."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1naqplk/workers_detained_in_hyundai_plant_raid_to_be/ncw808f/
+
+PolicyWonka 2019-10-04
+
+"That’s not a “gotcha.” They lied. They know. Their voters know. We know. Lying is the point — they want to downplay it. They will deny reality to downplay it.
+
+The reality is that at best they are creating a two-tier society where all non-whites are subject to scrutiny about their legal status at any time. Employing a non-white will carry risk of disruption and loss of revenue to your business because they will be taken and interrogated for days without notice."
