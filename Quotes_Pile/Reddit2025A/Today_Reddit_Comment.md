@@ -282,3 +282,16 @@ ThatsAllFolksAgain 2025-01-31 (new this year)
 No, I don’t think there’s going to be any backlash. Republicans will perish before they will understand the difference between right and wrong. I’m happy for them."
 
 * :::=== RoundSparrow_Commentary : Reddit messages of happy and thrilled to see USA harmed by media cults of Russian informaiton warfare since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncxn66u/
+
+Scared-Ideal-1483 2023-03-25
+
+"A MAGAfuck told me I was lying about my coffee more than doubling in price. I posted a pic of the shelf price tag, was called a liar who obviously photoshopped the pic because everything is cheaper at his local grocer.
+
+They simply don't care at this point."
+
+* :::=== RoundSparrow_Commentary : Do not be shallow in interpretation. People in USA care a LOT about name-calling "libtards", "MAGAfuck", there are thousands of message cult patterns of out-group dehumanization and hate messaging. This has been gong on FOR OVER TEN YEARS. Endless total mockery centered around the inspiraiton of Donald Trump hate, Trump mocking, Trump dehumznizatin symoblism. ===:::
+* 
