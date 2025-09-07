@@ -26,10 +26,21 @@ LittlePromise4108 2023-08-28
 
 "Lmao how is he president"
 
-* :::=== RoundSparrow_Commentary : LOL LOL LOL meme-speak amused Twiter-thinking 5-word comment messages all over every media system. How is Donald Trump President and ruler of all society media systems behaviors for over TEN YEARS AND TWO MONTHS?
+* :::=== RoundSparrow_Commentary : LOL LOL LOL meme-speak amused Twiter-thinking 5-word comment messages all over every media system. Social media laugh-track messaging. How is Donald Trump President and ruler of all society media systems behaviors for over TEN YEARS AND TWO MONTHS?
 “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
+&nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1naqo8l/has_the_hill_apologized_yet_for_that_opinion_piece/ncwbbir/
+
+craniumcanyon 2020-02-01
+
+"The "you" she is talking to is Democrats and D voters ... and that's what Trump is doing ... and that's why Republicans and MAGA love it and are foaming at the mouth for fascism."
+
+* :::=== RoundSparrow_Commentary : We the people are "foaming at the mouth" for nonstop mocking and insulting. Donald Trump playing acting the Tony Clifton performances (now augmented with others) is Surkov governing techniques of Russia year 2011. People are meme-addeled, drunk on trash mockery of Donald Trump, minds blown by the never-ending total mockery that Putin and Trump create. We The People are uanble to exit the meme stupors and face up that absurd surreal comedy, mind-blowing antics amsuement, are the foundation of Trumpism / MAGA mental exploits. Social machine addicts are **foaming at the mouth** over "karens" and images every day, Putin and Trump have mastered this as a form of governing.
+"Surkov is one of President Putin's advisers, and has helped him maintain his power for 15 years, but he has done it in a very new way. He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - December 31, 2014. BBC, Adam Curtis ===:::
+
+&nbsp;
 
 # Saturday September 6, 2025
 
