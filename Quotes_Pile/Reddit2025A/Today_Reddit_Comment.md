@@ -100,6 +100,10 @@ Hey, I dunno what the downvotes are for. I’m just trying to make this an actua
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1narnbu/stop_acting_like_this_is_normal/ncwj6wm/
+
+KnightDuty 2014-09-02
+
 "There no downside to this game of Chicken. When one side uses a destructive tactic, the other side refusing to use it actually makes the initial use more bearable. If both sides use it, blame is directed st the first party to initiate (if the second party don't fall for the inevitable bait) and the tactic becomes percieved as unsustainable leading to bipartisan reform.
 
 If the second party doesn't use us, the first party will deny it's disruption, claim it's not a problem, and the only side trying to eliminate it as a tactic is the side not benefitting from it.
