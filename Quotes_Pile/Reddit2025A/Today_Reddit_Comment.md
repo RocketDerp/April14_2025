@@ -332,3 +332,11 @@ https://old.reddit.com/r/tennis/comments/1nb118w/trump_gets_bood_at_the_us_open_
 Majkl_94 2018-01-07
 
 "Holy shit, the denial here is unreal."
+
+&nbsp;
+
+https://old.reddit.com/r/tennis/comments/1nb118w/trump_gets_bood_at_the_us_open_during_the/ncycwb9/
+
+PenConscious3302 2022-02-11
+
+"He’s promoting the “Chipocalypse” - literally going to war against my city - and the USTA and Rolex just happy as a clam to fete him. Zero difference between him and Mussolini. I’m sickened."
