@@ -691,3 +691,39 @@ https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_beli
 ScienceWasLove 2014-11-28
 
 "Funny. Cause every white collar worker on Reddit seems obsessed with taking the literal meaning of nearly everything Trumps says so they can proudly proclaim it is wrong."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncukl6w/
+
+thischaosiskillingme 2018-12-12
+
+"These are the most miserable people on the planet. They can't enjoy anything. They have to fantasize that were enraged by it in order to celebrate. This is genuinely sick.
+
+Her first response was not what I thought it was going to be. Even a little bit. When she said "I cannot wait for all--" my brain finished it with "my friends and family to hear the news" because surely she was happy about this? Absurdly so but that is the emotion I was expecting. Nope.
+
+"...for all you blue people" even here I still thought she was going to show the emotion we call happy, maybe a bit of unbecoming smugness, but happiness all the same. "..TO BE PISSED ABOUT IT!"
+
+She then expressed a pretty detailed fantasy of liberal who are engaged at the realization that Trump helped them, and they have to admit that he did. She imagines us having genuine psychological breakdowns at the idea of giving him credit for doing something good. And then, only then, does her smile return.
+
+"I love my country."
+
+Yeah, uh huh, ike an abusive narcissistic parent loves their child. These people make me shudder."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu6noh/
+
+Organic_Witness345 2020-09-13
+
+<img width="1544" height="1382" alt="image" src="https://github.com/user-attachments/assets/5cb08d10-f3e9-4962-be94-be2101a215c9" />
+
+&nbsp;
+
+"I think the mass delusion of what I call “digital adjacency” is very real and very dangerous. Partially due to social engineering and partially due to his weird “authentic” voice, Trump successfully leveraged Facebook and Twitter to propel him to the White House in 2015. People really believed he was “speaking to them,” “telling it like is,” “talking like them.”
+
+Somehow, he continues to mainline his presence into a frightening number of American households via Truth Social - often hourly - employing virtually the same schtick from ten years ago. The dopamine hit MAGA voters feel when they receive a push notification from Donald Trump should never be underestimated. Many of them believe he has a personal relationship with them. Think about the percentage of text messages an average MAGA voter receives on a daily, weekly, yearly basis from Donald J. Trump. Compare that to the number they receive, or don’t, from the other people in their lives.
+
+If we make out of this second term with some semblance of our democracy intact, this decade-and-a-half is going to confound historians for the next 200 years."
