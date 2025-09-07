@@ -426,3 +426,23 @@ RockAtlasCanus 2021-01-23
 She rudely and insistently asked for a game ball she wrongly felt was hers. Now people form all over the world know who she is. The punishment doesn’t fit the crime to me."
 
 * :::=== RoundSparrow_Commentary : When Donald Trump is your role model for success. In July 2025, President Donald Trump said Rossie O'Donnell's "She is a Threat to Humanity". The entire world is in danger because of a single person, a woman. https://www.axios.com/2025/07/12/trump-rosie-odonnell-citizenship-threat ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1naodl8/karma_is_real/ncvzefk/
+
+greenarsehole 2023-09-19
+
+"Only Americans would work themselves up enough to ruin somebody’s life over a baseball.
+
+Yet you’ll happily let your country be run by a fascist wotsit. Weird people."
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1naodl8/karma_is_real/ncw1ynt/
+
+ElectricalStorm47 2025-07-25 (new account)
+
+"This is the part where social media is a really bad thing for our culture. Was she a jerk? Yes.
+
+However, the same group of people, as you stated, that got her fired is the same group supporting domestic terrorism. Americans are dumb in general (I am one, and it’s constantly embarrassing.)"
