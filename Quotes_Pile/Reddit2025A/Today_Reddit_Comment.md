@@ -50,6 +50,16 @@ https://old.reddit.com/r/agedlikemilk/comments/1naqo8l/has_the_hill_apologized_y
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1naqo8l/has_the_hill_apologized_yet_for_that_opinion_piece/ncwr6ba/
+
+nvmenotfound 2018-03-01
+
+"only idiots pretended like these types of warnings were overblown or exaggerated. same idiots keep reporting on what’s going on daily like it’s not the most insane shit."
+
+* :::=== RoundSparrow_Commentary : Fiction addicts are not *pretending* they are addicted to fiction storytelling. Go live and study the Middle East and North Africa like I did during the Arab Sprirng with an eye on media ecology. It isn't pretending! Russian people who believe Putin are not pretending the past 25 years with Surkov fiction-based governing systems. ===:::
+
+&nbsp;
+
 # Saturday September 6, 2025
 
 https://old.reddit.com/r/worldnews/comments/1na1q0u/reuters_deletes_video_of_xi_and_putin_talking/ncr251q/
