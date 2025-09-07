@@ -494,3 +494,43 @@ BretShitmanFart69 2023-03-16
 They all have their own personal Donald Trump and their own personal USA that is completely detached from the truth, and they refuse to give up the delusion. That’s why they have an absolute meltdown when you confront them with something that breaks the illusion, it’s like some kind of psychosis I swear."
 
 * :::=== RoundSparrow_Commentary : The Russian Internet Research Agency since March 2013 has conditioned We The People (population) to watch self-harm and hate unfold in USA. People with free time on social machines, spare time to use social media, mock and insult instead of going to public library and learning and teaching about: cult deprogramming, mob mentality, mass psychosis. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncuvaku/
+
+TummyDrums 2010-11-23
+
+"The problem is they don't construct this in their head, they get it from random bullshit engagement bait on Facebook. I guarantee there she's literally talking about a Facebook post that literally made that shit up to farm clicks.
+
+I can't tell you the number of times my mom tells me some random made up bullshit like "did you hear about blah blah blah???" and I have to say "where did you hear that?"
+
+"Facebook"
+
+"Mom, do I have to explain this again?"
+
+And in my case she's sort of half way starting to get it, but there are a large number of people that don't have anyone close to them to counteract the made up crap they get force fed to them."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncw5lgl/
+
+sgdoug02 2013-08-17
+
+"I tried for years with my grandma, and it worked at first, but over time, they attacked any fact-checking website you could find. So, eventually, I just stopped engaging with her at all."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncw3izw/
+
+extralyfe 2012-12-27
+
+"I watch Parkergetajob on YouTube, and his whole schtick is having folks debate him about why they support Trump. what I've learned watching his channel is that most Trumpers do not understand what a source is - they will frequently make a confident statement, and, when pressed about why they think that's true, they will usually say that they just think it's true. no laws referenced, no executive orders mentioned, just that they're happy Trump is fixing America based off vibes and social media posts.
+
+the most consistent weird thing is that they all "don't agree with everything he does," so they can totally ignore the rape and child trafficking and sexualization of his own daughter and all the other weird or criminal shit, yet, they all believe in their own flavor of Trump who has done imaginary things that they're thrilled about, despite there being no proof about any of it.
+
+like, just yesterday, there was a guy claiming that Trump has ended six wars. when pressed on it, he very confidently mentioned that one of the conflicts Trump ended was the situation in Gaza. this dude - as of yesterday, September 6th, 2025 - said that "it's not even a thing anymore" and that the region has been under a ceasefire since Trump stepped in. when and where did Trump step in? when did he step in? totally unclear. when it was brought up that there was a double-tap explosive attack on a hospital with a bunch of journalists in it just a few days ago, well, actually, nuh-uh.
+
+I have no doubt that most of these people would be institutionalized if we were still doing that shit."
+
+* :::=== RoundSparrow_Commentary : "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
