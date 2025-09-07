@@ -607,3 +607,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_beli
 kingsadboi5811 2022-08-14
 
 "I work with several people who believe and regurgitate shit like this. They hear it from podcasters and youtubers, read it from conspiracy lunatic tweets and posts. They take it all as gospel because they have always been goddamn stupid, then they go scream it to their dumb ass friends, who also lap it up."
+
+&nbsp;
+
+bluewallsbrownbed 2019-08-28
+
+"This shit she believes, but not scientists about vaccines. Can we just divide this country up already - the American Experiment has failed."
+
+* :::=== RoundSparrow_Commentary : Messages on Reddit to give up on Ameerica. Give up on fighting information warfare against Russia / China / Iran. Just lay down and let falsehoods from the Internet Research Agency win since year 2014 about vaccines. Ignore Johns Hopkins University, ignore George Washington University - just let Putin win. Use spare time and free time on social machines to say *give up* with Twitter-length Tweet-thinking messages. https://www.bbc.com/news/world-us-canada-45294192 ===:::
