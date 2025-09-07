@@ -302,3 +302,16 @@ https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/nc
 GrotWeasel 2022-02-17
 
 "What’s the point of them doing that? I’ll never understand why ordinary people deny facts supported by evidence. It makes no sense at all. I get why politicians lie all day long but if I’m getting drilled by inflation then I need to know about that"
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncxhhub/
+
+No_Percentage_5083 2022-09-06
+
+"I hope there is a backlash but, I live in a red state -- like, RUBY RED -- and no one that I know has been anything but proud of this economic mess he has thrown us in to. They are all thrilled with his immigrant policies, government program cuts, and vaccine ridiculousness. They LOVE it.
+
+I really wish I could meet just one person who was sorry they voted for him...............but, not yet."
+
+* :::=== RoundSparrow_Commentary : Addiction to monomyuth storytelling runs incredibly deep in people. Fiction addictions abound in USA. This is the aftermath of Cambridge Analytica and Russia's IRA. Russia wont he War Against Reality as defined Stepmber 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
