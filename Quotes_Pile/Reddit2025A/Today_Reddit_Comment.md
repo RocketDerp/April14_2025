@@ -85,3 +85,18 @@ ancientweasel 2021-03-25 (Mother of Jesus pregnancy day, March 25)
 "What a stupid bunch of theater. These visa issues could have been solved amicably. Now we have embarrassed an ally for no reason."
 
 * :::=== RoundSparrow_Commentary : It was done *for a reason*, entertainment addictions. Addiciton to total mockery that Putin and Trump can provide like no other. Constant delivery of antics events and mockery on every media system known to mankind. Nobody can resist mocking and hate of Donald Trump. ===::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1narnbu/stop_acting_like_this_is_normal/ncwncsa/
+
+Leftblankthistime 2012-11-08
+
+"Oh definitely! That’s definitely a problem! Disenfranchising voters and making it so basically their votes don’t count is very valid.
+
+Hey, I dunno what the downvotes are for. I’m just trying to make this an actual conversation instead of whining, name calling and finger pointing. When we talk about things rationally, we might actually come up with some solutions."
+
+* :::=== RoundSparrow_Commentary : This long-time Reddit user (account created in year 2012 election) finds their message is being supressed by Reddit media systems. They know to call this out in public, not brush it under the rug. Political discourse on authentic nonficiton topics is a target. ===:::
+
+&nbsp;
+
