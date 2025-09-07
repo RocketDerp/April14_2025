@@ -615,3 +615,13 @@ bluewallsbrownbed 2019-08-28
 "This shit she believes, but not scientists about vaccines. Can we just divide this country up already - the American Experiment has failed."
 
 * :::=== RoundSparrow_Commentary : Messages on Reddit to give up on Ameerica. Give up on fighting information warfare against Russia / China / Iran. Just lay down and let falsehoods from the Internet Research Agency win since year 2014 about vaccines. Ignore Johns Hopkins University, ignore George Washington University - just let Putin win. Use spare time and free time on social machines to say *give up* with Twitter-length Tweet-thinking messages. https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncujcsw/
+
+Zeta8345 2018-01-22
+
+"So is step 1 a Russian propaganda campaign? I can't believe any sane human would start this sort of rumor/story so it's got to be bots, right?"
+
+* :::=== RoundSparrow_Commentary : Twitter-length Tweet-thinking, "bots". People have witnessed widespread brain damage / fouled thinking and can't even name Cambridge Anlytica / Internet Research Agency. Pepole have lost thier ability to be serious, provide citations, read printed books on paper. Everything is Twitter-length kind of reaction comments that age out and disappear from minds and attention. ===:::
