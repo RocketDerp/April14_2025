@@ -454,3 +454,43 @@ https://old.reddit.com/r/nottheonion/comments/1nae3pd/doj_says_names_of_two_asso
 Sweatytubesock 2016-08-04
 
 "It’s as equally as huge a hoax as the Russiar Hoax. I.e., no hoax at all."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncuewa4/
+
+Revolutionary-Yak-47 2020-06-10
+
+"I grew up with the "gifted" kids and I honestly thought I was bad at science. Like, not smart enough to "get" it. Most of my friends from school went into stuff like pharmaceutical research and DNA mapping and crazy stuff so I thought I was the slacker. 
+
+Then Covid happened. Dude. I'm WAY ahead of 2/3 of Americans just because I took AND passed high school biology. I was totally shocked at the lack of reading comprehension and basic science knowledge people had. I'm at least smart enough to phone a friend with a science degree when I don't understand stuff instead of believing Aunt Maud on Facebook ranting at chemtrails."
+
+* :::=== RoundSparrow_Commentary : Reddit social media users do not want to face up that military informaitonw arfare was aged on Reddit / Twitter / Facebook to manipulate minds. How much more obvious can it be that Donald Trump is self-harm? That measles is self harm? FACTUAL EVIDENCE is validated by Johns Hopkins University and George Washngton Unviersity going back to year 2014 - the start of the Ukraine war. https://www.bbc.com/news/world-us-canada-45294192 - way before COVID-19 - and people do not want to face up that multiple nations across the world are reporting these media invasions. Adults do not learn in rectangle classrooms, they learn from trash memes on the Intrnet and trash television news networks. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncusuxx/
+
+bNoaht 2015-03-15
+
+"It's not just the dumb ones though. My brother is extremely intelligent. He went from campaigning for bernie to a die hard trumper. My other brother is a moron, but he went from Obama to Trump.
+
+Like there is just something about this guy, that over half this country gravitates towards and the other half cannot fucking figure out what it is. To us it is the dumbest most ridiculous cartoon villain bullshit we have ever seen. And to the other half, he is some personal lord and savior. 
+
+He is the most polarizing leader we have ever had in this country and it isn't even close."
+
+* :::=== RoundSparrow_Commentary : Russian IRA, Surkov governing, antics politics. People have no concept of humor, surreal comedy, absurd funny being a mental exploit. Trump doing absurd Twitter / Truth Social memes blows people's minds with mockery mocking faith. Comedy-washing, joke-washing, as Russian informationw warfare. Surkov won, Russia won! ...
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu8rtq/
+
+BretShitmanFart69 2023-03-16
+
+"I said this in another comment. But part of the problem is these people genuinely construct an entire reality in their head and then believe that over actual reality.
+
+They all have their own personal Donald Trump and their own personal USA that is completely detached from the truth, and they refuse to give up the delusion. That’s why they have an absolute meltdown when you confront them with something that breaks the illusion, it’s like some kind of psychosis I swear."
+
+* :::=== RoundSparrow_Commentary : The Russian Internet Research Agency since March 2013 has conditioned We The People (population) to watch self-harm and hate unfold in USA. People with free time on social machines, spare time to use social media, mock and insult instead of going to public library and learning and teaching about: cult deprogramming, mob mentality, mass psychosis. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M ===:::
