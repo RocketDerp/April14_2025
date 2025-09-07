@@ -100,3 +100,13 @@ Hey, I dunno what the downvotes are for. I’m just trying to make this an actua
 
 &nbsp;
 
+"There no downside to this game of Chicken. When one side uses a destructive tactic, the other side refusing to use it actually makes the initial use more bearable. If both sides use it, blame is directed st the first party to initiate (if the second party don't fall for the inevitable bait) and the tactic becomes percieved as unsustainable leading to bipartisan reform.
+
+If the second party doesn't use us, the first party will deny it's disruption, claim it's not a problem, and the only side trying to eliminate it as a tactic is the side not benefitting from it.
+
+We need to think of the government the same way we think of driving: It's better to act predictsbly than to act polite. If somebody gerrymanders, you gerrymander back to demonstrate live why it's an unsustainable disenfranchising tactic so we can end it. If somebody shuts down the government, you shut it down back for the same reason. If somebody weaponizes the DoJs you do the same. Don't act nice. act predictably, and more and more problems will be resolved."
+
+* :::=== RoundSparrow_Commentary : Reddit messages saying it is better to act predictably Russian, pro-Putin, as long as it is predictable. Better to be a driver who runs over every child, hits every other car, because that's what is expected in a smash-up-derby. Entirely avoiding the Russian information warfare and anti-reality mental states that abound since the Kremlins started the War Against Reality (on Reddit inclusive) since March 2013. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ...
+“It turns out that Republicans can accept a batshit insane candidate, so long as it’s consistent insanity.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, year 2019, page 71. https://planspace.org/20221029-mindf*ck_by_wylie/
+===:::
