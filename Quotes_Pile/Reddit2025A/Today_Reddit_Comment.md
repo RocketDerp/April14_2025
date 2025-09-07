@@ -340,3 +340,15 @@ https://old.reddit.com/r/tennis/comments/1nb118w/trump_gets_bood_at_the_us_open_
 PenConscious3302 2022-02-11
 
 "He’s promoting the “Chipocalypse” - literally going to war against my city - and the USTA and Rolex just happy as a clam to fete him. Zero difference between him and Mussolini. I’m sickened."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nazfhn/florida_surgeon_general_says_he_didnt_study/ncyg7cy/
+
+code_archeologist 2016-04-18
+
+"Ignorance is a choice.
+
+We live in a time where we all have access to the largest most efficient repository of human knowledge ever to exist. Therefore being ignorant is a choice.
+
+This guy should lose his ability to practice medicine. Every person who is infected with a disease in Florida that could have been prevented with a vaccine should sue him for malpractice. And if a single person dies as a result of his policies, he should be prosecuted for manslaughter by gross negligence."
