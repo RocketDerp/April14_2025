@@ -323,4 +323,12 @@ Bos2BaynTraveling 2024-05-25
 
 "Rolex has a suite and invited him to attend. Gave USTA little notice and that is what the shit show is happening where half the audience is still trying to get through heightened security measures. So it’s all on Rolex. I’m all in for a boycott"
 
-* :::=== RoundSparrow_Commentary : Status Symbolism gumbo. Trump is a matster of symbolism manipulation of audiences. Tony Clifton antics. Trump inspires hate and mockery. ===:::
+* :::=== RoundSparrow_Commentary : Status Symbolism gumbo. Trump is a matster of symbolism manipulation of audiences. Tony Clifton antics. Trump inspires hate and mockery. David Foster Wallace's Infinite Jest V Tennis media society mind-fuck. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/tennis/comments/1nb118w/trump_gets_bood_at_the_us_open_during_the/ncy9hdc/
+
+Majkl_94 2018-01-07
+
+"Holy shit, the denial here is unreal."
