@@ -42,6 +42,14 @@ craniumcanyon 2020-02-01
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1naqo8l/has_the_hill_apologized_yet_for_that_opinion_piece/ncwtmdi/
+
+"You could do a whole psychology degree on if Trump is immoral or amoral."
+
+* :::=== RoundSparrow_Commentary : One person could get an education degree. The problem is the entire population age 12 to age 120, but fixation on only Donald Trump as status symbol and icon of society has everyone adopt Trumpism egoism. The addiction to fiction, the avoidance of nonfiction, explains MAGA / Trump / USA September 2025. In fiction, you can be immoral and amoral both - just like the Middle East values fiction above all else (Scince fiction stories of Torah / Quran / Bible). ===:::
+
+&nbsp;
+
 # Saturday September 6, 2025
 
 https://old.reddit.com/r/worldnews/comments/1na1q0u/reuters_deletes_video_of_xi_and_putin_talking/ncr251q/
