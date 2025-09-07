@@ -160,3 +160,11 @@ forgettit_ 2024-12-26
 "It’s baffling how extremely stupid so much of the American population is who didn’t know."
 
 * :::=== RoundSparrow_Commentary : Everyday people (We The People) can't keep up on topics. Why are the media practitioenrs not using their platforms to repeat and keep repeating NYU's Neil Postman? Example: March 27, 2024 https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/ShareMarketupdates/comments/1narqka/trump_intends_to_use_the_united_states_military/ncwezo1/
+
+chitphased 2019-03-03
+
+"Comments and thinking like this is one of the reasons we are here."
