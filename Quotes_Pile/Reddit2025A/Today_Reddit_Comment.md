@@ -544,3 +544,16 @@ Jestermace1 2020-07-25
 "I honestly can't believe the fucking stupidity in this country."
 
 * :::=== RoundSparrow_Commentary : People can't belive what the Russian IRA has done to the population since March 2013. People do not want to face up that USA was not like this back in 2012 and earlier. Media ecology educaiton is not optional. Junk memes into the mind, this is the outcome. Constant repeating fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu6n59/
+
+Shoddy_Nectarine_441 2024-12-17
+
+"I remember being in middle school (I’m 30 now) and people talking weird shit about politics, conspiracies, etc and I genuinely thought it was a joke. Those peers fuckin vote and believe anything they hear unless it goes against their “morals”. It’s actually kind of crazy. Also some of my previously super liberal relatives are now trump supporters and hate everyone. I don’t get it"
+
+* :::=== RoundSparrow_Commentary : People have not studied the mechanics of Cambridge Analytica.
+the outcomes of the November 7, 2012 agreement to create the Internet Research Agency in Saint Petersberg Russia. "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." - https://www.facebook.com/konstantin.rykov/posts/10210621124674610
+"Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+===:::
