@@ -599,3 +599,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_beli
 hunter791 2014-01-15
 
 "I’m sure TikTok is bad but Facebook is the absolute king of far right slop. I use it to advertise for my business and every time I open it and go to the town page where I post (in a blue state, in a blue town) it’s full to the brim with ai far right nonsense being reposted with dozens of people commenting just accepting it with ZERO pushback. I think these older people see that it’s being reposted by people they know, they’ve known their whole lives, it’s the guy who owns the local hardware store or appliance repair shop and they just think oh he’s not one of those nuts, I know him. But these fuckers are nuts, and they’re everywhere."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncudtye/
+
+kingsadboi5811 2022-08-14
+
+"I work with several people who believe and regurgitate shit like this. They hear it from podcasters and youtubers, read it from conspiracy lunatic tweets and posts. They take it all as gospel because they have always been goddamn stupid, then they go scream it to their dumb ass friends, who also lap it up."
