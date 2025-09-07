@@ -315,3 +315,12 @@ I really wish I could meet just one person who was sorry they voted for him.....
 
 * :::=== RoundSparrow_Commentary : Addiction to monomyuth storytelling runs incredibly deep in people. Fiction addictions abound in USA. This is the aftermath of Cambridge Analytica and Russia's IRA. Russia wont he War Against Reality as defined Stepmber 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/tennis/comments/1nb118w/trump_gets_bood_at_the_us_open_during_the/ncyjrr5/
+
+Bos2BaynTraveling 2024-05-25
+
+"Rolex has a suite and invited him to attend. Gave USTA little notice and that is what the shit show is happening where half the audience is still trying to get through heightened security measures. So it’s all on Rolex. I’m all in for a boycott"
+
+* :::=== RoundSparrow_Commentary : Status Symbolism gumbo. Trump is a matster of symbolism manipulation of audiences. Tony Clifton antics. Trump inspires hate and mockery. ===:::
