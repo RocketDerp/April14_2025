@@ -560,8 +560,26 @@ the outcomes of the November 7, 2012 agreement to create the Internet Research A
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu4rge/
 
 todumbtorealize 2017-04-19
 
+<img width="1190" height="1480" alt="image" src="https://github.com/user-attachments/assets/eb455e0a-0687-45cd-a866-318025f212df" />
+
+&nbsp;
+
 "Man I hate reality. People are so fucking dumb. Where do you even get this kinda bullshit information."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu87j8/
+
+BretShitmanFart69 2023-03-16
+
+"And the big problem is, they kind of construct their own reality and then they simply believe the delusion more than reality.
+
+In their minds things are going great not because of any quantifiable real reason, but because the reality they made for themself is going great. That’s why they love Trump, because they love the delusional version they have of him where he does things like get rid of their taxes and wade through rivers to save drowning children.
+
+It’s a mass psychosis and I am so confused how it happened so quickly."
