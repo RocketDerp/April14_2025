@@ -140,3 +140,13 @@ Yes, stop acting like this is normal.
 Or it will become normal."
 
 * :::=== RoundSparrow_Commentary : Social media **amusement-washes Trumpism / MAGA. Endless humor-washing of Trump.** Ha ha ha, LOL LOL amsuement mills - Bluesky / Reddit / Twitter / Facebook. Constantly mocking and insulting Trump: golf outings, poop diapers, orange skin, LOL LOL LOL amusement. Just as Neil Postman described about Ronald Reagan's second term in office in 1985 about entertainner leadership. Sickening how easily people will sell out goodness for surrael absurd Tony Clifton entertainment by Trump and supporters. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1narnbu/stop_acting_like_this_is_normal/ncwlz5o/
+
+Even_Establishment95 2020-12-21
+
+"Also he’s a bumbling idiot with the vocabulary of a toddler who cannot complete a fucking sentence, and they ignore that and try to make him sound coherent with editing, partial quotes and “what he really meant was..” Fucking embarrassing and infuriating."
+
+* :::=== RoundSparrow_Commentary : [Eating the Surkovian onions. Believing that Surkov media techniques that have kept Putin in power for 25 years are "accidental"](Surkovian_Onion_Eating.md). That Trump is clueless about how to draw crowds and exploit human brains with poularity. "Fucking embarrassing and infuriating" is exactly the mechanics of Kremlin information warfare. Denial abounds. Reddit users just can not imagine that surreal absurd Tony Clifton acntics are military weaponzied techniques of Putin. ===:::
