@@ -114,3 +114,11 @@ We need to think of the government the same way we think of driving: It's better
 “It turns out that Republicans can accept a batshit insane candidate, so long as it’s consistent insanity.”
 ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, year 2019, page 71. https://planspace.org/20221029-mindf*ck_by_wylie/
 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1narnbu/stop_acting_like_this_is_normal/ncwanir/
+
+KidKilobyte 2017-03-16
+
+"Democrats shutting down the government would be the fall guy for the coming recession Trump has orchestrated."
