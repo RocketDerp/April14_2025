@@ -75,3 +75,13 @@ PolicyWonka 2019-10-04
 "That’s not a “gotcha.” They lied. They know. Their voters know. We know. Lying is the point — they want to downplay it. They will deny reality to downplay it.
 
 The reality is that at best they are creating a two-tier society where all non-whites are subject to scrutiny about their legal status at any time. Employing a non-white will carry risk of disruption and loss of revenue to your business because they will be taken and interrogated for days without notice."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1naqplk/workers_detained_in_hyundai_plant_raid_to_be/ncwh2rp/
+
+ancientweasel 2021-03-25 (Mother of Jesus pregnancy day, March 25)
+
+"What a stupid bunch of theater. These visa issues could have been solved amicably. Now we have embarrassed an ally for no reason."
+
+* :::=== RoundSparrow_Commentary : It was done *for a reason*, entertainment addictions. Addiciton to total mockery that Putin and Trump can provide like no other. Constant delivery of antics events and mockery on every media system known to mankind. Nobody can resist mocking and hate of Donald Trump. ===::
