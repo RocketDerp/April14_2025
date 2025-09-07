@@ -769,3 +769,13 @@ heatwavecold 2016-05-29
 "People are clueless. I was talking to someone about how tariffs increased the price of coffee, and they asked, "Why don't we grow coffee here?" I had to explain that the climate in Vermont doesn't support coffee plants."
 
 * :::=== RoundSparrow_Commentary : Beyond the shallow reaciton of calling other people clueless. How does coffee being grown in other parts of the world and sold to us in USA a crisis. Why would you not want access to the best products from all over the world. Why would you not want to travel and visit South America, Middle East, Asia... why do you want to have jet airplanes and only stay in USA and never experience life in other places. Why would you only want beer, wine, coffee to ONLY from USA and your store have no freedom of choice. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncutptt/
+
+ResponsibleAd2404 2020-10-01
+
+"The economy is quickly taking a nose dive. Jobs are cratering. Farmers are going bankrupt at a record pace. Tourism is declining. ICE just raided and shut down the Hyundai plant and are going to deport 450 Korean nationals, scuttling a multibillion investment from overseas companies. Trump and Hegseth committed a war crime by unilaterally blowing up a civilian Venezuela ship.
+
+Yeah, trumps doing a bang up job of everything."
