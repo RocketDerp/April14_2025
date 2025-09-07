@@ -293,5 +293,12 @@ Scared-Ideal-1483 2023-03-25
 
 They simply don't care at this point."
 
-* :::=== RoundSparrow_Commentary : Do not be shallow in interpretation. People in USA care a LOT about name-calling "libtards", "MAGAfuck", there are thousands of message cult patterns of out-group dehumanization and hate messaging. This has been gong on FOR OVER TEN YEARS. Endless total mockery centered around the inspiraiton of Donald Trump hate, Trump mocking, Trump dehumznizatin symoblism. ===:::
-* 
+* :::=== RoundSparrow_Commentary : Do not be shallow in interpretation. People in USA care a LOT about name-calling "libtards", "MAGAfuck", there are thousands of message cult patterns of out-group dehumanization and hate messaging. This has been gong on FOR OVER TEN YEARS. Endless total mockery centered around the inspiraiton of Donald Trump hate, Trump mocking, Trump dehumznizatin symoblism, electric message cults / media addictions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncxtawl/
+
+GrotWeasel 2022-02-17
+
+"What’s the point of them doing that? I’ll never understand why ordinary people deny facts supported by evidence. It makes no sense at all. I get why politicians lie all day long but if I’m getting drilled by inflation then I need to know about that"
