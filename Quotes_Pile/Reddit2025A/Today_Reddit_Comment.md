@@ -446,3 +446,11 @@ ElectricalStorm47 2025-07-25 (new account)
 "This is the part where social media is a really bad thing for our culture. Was she a jerk? Yes.
 
 However, the same group of people, as you stated, that got her fired is the same group supporting domestic terrorism. Americans are dumb in general (I am one, and it’s constantly embarrassing.)"
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1nae3pd/doj_says_names_of_two_associates_epstein_wired/nctnl4q/
+
+Sweatytubesock 2016-08-04
+
+"It’s as equally as huge a hoax as the Russiar Hoax. I.e., no hoax at all."
