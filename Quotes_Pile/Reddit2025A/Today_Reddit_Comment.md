@@ -625,3 +625,21 @@ Zeta8345 2018-01-22
 "So is step 1 a Russian propaganda campaign? I can't believe any sane human would start this sort of rumor/story so it's got to be bots, right?"
 
 * :::=== RoundSparrow_Commentary : Twitter-length Tweet-thinking, "bots". People have witnessed widespread brain damage / fouled thinking and can't even name Cambridge Anlytica / Internet Research Agency. Pepole have lost thier ability to be serious, provide citations, read printed books on paper. Everything is Twitter-length kind of reaction comments that age out and disappear from minds and attention. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncvkjvk/
+
+Cheshire_Jester 2014-03-22
+
+<img width="964" height="1044" alt="Screenshot from 2025-09-07 07-00-30" src="https://github.com/user-attachments/assets/78eb9b99-a61d-41b2-a7cc-ce3e5ae9a74e" />
+
+&nbsp;
+
+"Social media. It’s what happens when you see a video like hers and choose to believe it rather than look into reputable sources. Because you believe that journalists are all liars.
+
+So she sees a video, or fake image macro, makes her own video, then it’s dual sourced, and someone else makes another video.
+
+Also, anything disproving her will not only be fake news, it will also be AI. Welcome to the future where multiple realities exist simultaneously. And they all suck"
