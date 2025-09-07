@@ -557,3 +557,11 @@ Shoddy_Nectarine_441 2024-12-17
 the outcomes of the November 7, 2012 agreement to create the Internet Research Agency in Saint Petersberg Russia. "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." - https://www.facebook.com/konstantin.rykov/posts/10210621124674610
 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu4rge/
+
+todumbtorealize 2017-04-19
+
+"Man I hate reality. People are so fucking dumb. Where do you even get this kinda bullshit information."
