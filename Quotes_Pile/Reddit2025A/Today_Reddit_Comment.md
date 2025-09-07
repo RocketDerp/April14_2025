@@ -269,4 +269,16 @@ Any-Variation4081 2021-03-27
 
 "His cult doesnt care. They just deny reality as usual. Or say things like "prices are in line for this time last year....this is normal". Meanwhile less than a year ago they couldn't stop crying and whining about the price of bacon eggs and gas. The maga cult does not care that trump costs them more money. Trump being "better" for the economy and their wallets was just an excuse they used to support a lying felon billionare pedophile. They said it was for money instead of the truth. They support him bc he hates and attacks the same people they hate. Its as simple as that"
 
-* :::=== RoundSparrow_Commentary : Media cult of Redit "They support ~~him~~ Reddit bc he hates and attacks the same people they hate", same with Twitter media cult, Fox News media cult, Bluesky media cult, etc, etc, etc. A hate-group messaging system. Like Mosque media venue vs. Church media venue out-group infidel, hate the non-believer. ===:::
+* :::=== RoundSparrow_Commentary : Media cult of Redit "They support ~~him~~ Reddit bc he hates and attacks the same people they hate", same with Twitter media cult, Fox News media cult, Bluesky media cult, etc, etc, etc. A hate-group messaging system. Like Mosque media venue vs. Church media venue out-group infidel, hate the non-believer. "Its as simple as that" Twitter-thinking short-length Tweeting-thinking. Thought-terminaing phrase, "Its as simple as that"!!! Completely ignorant of the Internet Research Agency and Cambridge Analytica working together since November 7, 2025. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncxeupc/
+
+ThatsAllFolksAgain 2025-01-31 (new this year)
+
+"Cults don’t die so easily. Over 70% of republicans are happy with the rise in prices for everything they buy. They are happy to lose healthcare because they think the democrats were misusing heal insurance. They are happy with RFK cutting vaccines because they don’t think the science is right.
+
+No, I don’t think there’s going to be any backlash. Republicans will perish before they will understand the difference between right and wrong. I’m happy for them."
+
+* :::=== RoundSparrow_Commentary : Reddit messages of happy and thrilled to see USA harmed by media cults of Russian informaiton warfare since March 2013. ===:::
