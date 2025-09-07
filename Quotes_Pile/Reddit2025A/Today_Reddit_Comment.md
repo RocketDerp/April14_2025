@@ -253,3 +253,10 @@ noonesaidityet 2023-07-05
 
 &nbsp;
 
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncyd5xl/
+
+Woody_L 2016-01-06
+
+"I think that if enough people turn against him, he will start to crumble. The problem is that he still has far more support than he should. People are idiots."
+
+* :::=== RoundSparrow_Commentary : We The People USA are media addictions. Constantly using spare time and free time on social machines calling people: libtards, idiots, stupid, dumb, moron. Every group in USA calling every other group idiots. Over and over. Trump is a magnet for name-calling, hate, dehumannization, mocking. Anti-education, anti-teaching, people just want to mock and insult. ===:::
