@@ -1352,3 +1352,7 @@ Not allowed to be observational, self-aware, or feedback... only "mad".
 https://old.reddit.com/r/TikTokCringe/comments/1nacyfp/guy_mad_because_of_american_fake_kindness/     
 "Or it could be this fake influener personality to hate on something for content. This is why I hate social media. It's terraforming us into monsters"
 
+&nbsp;
+
+Age 11 girl gives birth     
+https://old.reddit.com/r/news/comments/1nb4zud/grandmother_charged_after_11yearold_girl_gives/
