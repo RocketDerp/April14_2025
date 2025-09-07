@@ -406,3 +406,11 @@ https://old.reddit.com/r/clevercomebacks/comments/1na6etx/this_is_so_embarrassin
 ScholarOfYith 2015-08-06
 
 "America is a fucking joke, and a shitty one at that."
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1naodl8/karma_is_real/ncw31jc/
+
+twig123456789 2021-05-07
+
+"It's important that you hate this woman and not other stuff that's way more deserving of hate"
