@@ -667,3 +667,13 @@ pissoutmybutt 2024-02-02
 He goes, “just wait, you’ll see!”
 
 Then he just moves on, never demanding the admin follows through with any of it, and gets hyped into the next line of bullshit that he forgets aboot as it never comes to fruition."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncw1bdt/
+
+Cool_Twist4494 2021-01-10
+
+"I don't think people will ever understand what high regards Americans had for their news networks up until now. It was all used against us. Dumb people think the TV can't lie, I wish I was making this up."
+
+* :::=== RoundSparrow_Commentary : Media ecology educaiton is not optional. Every person age 12 to age 120 needs remedial learning. Neil Postman's 1985 book "Amusing Ourselves To Death" is only 184 pages and is essential to comprehending the role entertainment plays in media addiction. ===:::
