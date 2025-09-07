@@ -122,3 +122,21 @@ https://old.reddit.com/r/politics/comments/1narnbu/stop_acting_like_this_is_norm
 KidKilobyte 2017-03-16
 
 "Democrats shutting down the government would be the fall guy for the coming recession Trump has orchestrated."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1narnbu/stop_acting_like_this_is_normal/ncwctro/
+
+AINonsense 2023-05-22
+
+"Maybe the media shouldn’t have legitimised and sane-washed him for the last decade and a half. Remember all that ‘birther’ bullshit? Remember even farther back to the Central Park 5?
+
+Remember that the news media has protection in the constitution?
+
+How about demonstrating why.
+
+Yes, stop acting like this is normal.
+
+Or it will become normal."
+
+* :::=== RoundSparrow_Commentary : Social media **amusement-washes Trumpism / MAGA. Endless humor-washing of Trump.** Ha ha ha, LOL LOL amsuement mills - Bluesky / Reddit / Twitter / Facebook. Constantly mocking and insulting Trump: golf outings, poop diapers, orange skin, LOL LOL LOL amusement. Just as Neil Postman described about Ronald Reagan's second term in office in 1985 about entertainner leadership. Sickening how easily people will sell out goodness for surrael absurd Tony Clifton entertainment by Trump and supporters. https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley  ===:::
