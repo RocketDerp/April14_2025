@@ -747,3 +747,15 @@ gustache 2010-03-26
 "interesting theory. I was in line in the post office a few months back and an old white lady was on the phone with someone who was obviously in distress. she kept saying, "don't worry about it. just pray about it. trump's gonna fix all of this." I wanted to slap the phone out of her hand, like, *lady, trump doesn't give a shit about you or your quotidian problems. unless the person on the phone is distraught because they just got caught embezzling money and fucking kids, trump is not concerned about it, and is most certainly not in the business of making it better*
 
 but it does point to what you're saying: these people seem to really think trump is *in* their lives, like, actively intervening. what a shitshow."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncvki1k/
+
+stewiecookie 2018-07-27
+
+"And what do you do? It's seriously like a religion. There is no argument against it. A group of people support him because he said so. That's it. You can't convince any of them otherwise because he is right and anyone who doesn't believe him is wrong. End of story. Their lives literally need to crumble, they need to lose everything, they need to see everything they've ever hoped for completely fall apart and then maybe, a strong maybe, some of them will come to the realization but I'm convinced they would all follow him to their dying breaths.
+
+The lack of education is the other MAJOR factor along with everything you said. Listen to how he speaks. He has the vocabulary of a 3rd grader and the solutions to problems of one too. He speaks in a way they can all understand and his solutions to anything are so simple minded that they make sense to anyone who lacks actual problem solving skills and critical thinking. Ask a 3rd grader how to fix something and they'll give you a solution that would never even come close to working and they'll tell you confidently because on a basic level it seems obvious to them. That's as far as these people can think and they shout it from the rooftops as if everyone else is just blind to it.
+
+It's not just that they feel like there's some special connection, everything he says and does is designed to create it. The republicans genuinely said, enough of the population is dumb enough that we can get the dumbest person we can find, put them in office, and do whatever we want. They targeted every supporter because they knew how dumb they were.They've all been insultingly played and they are overjoyed about it. You cannot do a single thing to change it and you're absolutely right it will be baffling to anyone who reads about it in a history book(if those are still allowed by then)"
