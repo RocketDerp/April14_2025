@@ -8,6 +8,16 @@ willflameboy 2012-06-06
 
 "Good god. If there are Americans who still are not ashamed of this shitclown, then the country truly is lost."
 
+* :::=== RoundSparrow_Commentary : Media addiction rules the USA population. We The People can not resist mocking and insulting Tony Clifton acts of the Trump White House. Endless mockery and name-claling ("shitclown') for over TEN YEARS AND TWO MONTHS. Amusement entertainment addiction, media machine addiciton to endless streaming antics. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1naqo8l/has_the_hill_apologized_yet_for_that_opinion_piece/ncwfqw3/
+
+tristand666 2018-12-27
+
+"Epstein is a distraction from his unconstitutional orders and actions at this point. Traitors get a rope."
+
 &nbsp;
 
 
