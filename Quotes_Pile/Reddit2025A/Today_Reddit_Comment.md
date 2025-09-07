@@ -1,3 +1,17 @@
+# Sunday, September 7, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1naqo8l/has_the_hill_apologized_yet_for_that_opinion_piece/ncwd0p1/
+
+willflameboy 2012-06-06
+
+"Good god. If there are Americans who still are not ashamed of this shitclown, then the country truly is lost."
+
+&nbsp;
+
+
+
 # Saturday September 6, 2025
 
 https://old.reddit.com/r/worldnews/comments/1na1q0u/reuters_deletes_video_of_xi_and_putin_talking/ncr251q/
