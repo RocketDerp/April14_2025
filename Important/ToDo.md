@@ -1343,3 +1343,10 @@ https://old.reddit.com/r/CuratedTumblr/comments/1n9wce1/hes_also_not_a_sphere_gl
 
 Implicit bias. Cultural out-group hate in Star Trek DS9.      
 https://youtu.be/M_Y7jsIbic8?t=1012
+
+&nbsp;
+
+Extreme sports society. Extreme interaction society. The kind of people who dominate on the Internet, clickbait headline outcomes, loss of language. McDonald's "I am loving it! Hamburger Luve!!!" communications parenting / childhood.      
+Even this headline that he is "mad" beause of it, is American clickbait style on Reddit.     
+Not allowed to be observational, self-aware, or feedback... only "mad".     
+https://old.reddit.com/r/TikTokCringe/comments/1nacyfp/guy_mad_because_of_american_fake_kindness/
