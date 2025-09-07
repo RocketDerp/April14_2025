@@ -208,3 +208,27 @@ RecordFirst1055 2021-01-28
 "He killed 11 civilians in a boat and posted the vid like an ISIS warlord"
 
 * :::=== RoundSparrow_Commentary :  Donald Trump media empires are catoring to the fiction addicts of television and video games. The video game GTA 6 setting is the fictional U.S. state of Leonida, which is based on Florida, and features the iconic Miami-inspired city of Vice City. Drug lords and dramatic warlord / cartel entertainment audiences. Russian Surkov entertinment-based leadership. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncxd734/
+
+IfJohnBrownHadAMecha **2025-08-18 (new account)**
+
+"He pretty much does the opposite of the right decision on literally every issue."
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncy3602/
+
+The_Lost_Jedi 2018-07-03
+
+"Too many people weren't paying attention.
+
+Too many people believed the lies he was telling, or at least gave them far more weight than they'd proved deserving of.
+
+Too many people ignored the warnings, acted like Democrats and others were just being hyperbolic or sensational, "crying wolf" etc.
+
+Trump is the culmination of long-standing Republican efforts to drag discourse into the mud, to turn everything into a politicized mess, so they can say or do anything and people will just make it into an equal issue, no matter how bad/awful/criminal/horrific the Republican position is."
+
+* :::=== RoundSparrow_Commentary : Too many people don't grasp media addiction behaviors. Donald Trump provides entertainment and mockery unlike any other leader. ===:::
