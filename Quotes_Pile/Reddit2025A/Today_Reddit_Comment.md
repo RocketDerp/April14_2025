@@ -188,3 +188,13 @@ BringBackBoshi 2015-01-22
 "Which is hilarious considering they're the least American people you can find. Totally fine with the Constitution being used as toilet paper."
 
 * :::=== RoundSparrow_Commentary :  So funny, so amusing, so entertaining to people. Human brain encounters a paradox message pattern and finds it hilarious! In 1985, NUU professor Neil Postman published a book with the title "Amusing Ourselves To Death" on the problem. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/mapporncirclejerk/comments/1naukcf/mosques_in_germany_vs_churches_in_saudi_arabia/ncxq3c7/
+
+galanoobp 2023-11-07
+
+"You don't need to be right wing to critize islamic states xdd. If anything muslims from countries like Saudi Arabia are propably THE most rightwing minded people you can meet."
+
+* :::=== RoundSparrow_Commentary : The Quran is science fiction storytelling. Trying to cram everyhing into left vs. right is a modern media behavior. Peole who believe ficiton as raality are a concern, unable to distinguish factual reality about the world. Believing Star Wars and Bible science fiction are factual. Teaching comparative mythology and media ecology subjects is not optional. ===:::
