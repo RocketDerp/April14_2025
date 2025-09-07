@@ -232,3 +232,24 @@ Too many people ignored the warnings, acted like Democrats and others were just 
 Trump is the culmination of long-standing Republican efforts to drag discourse into the mud, to turn everything into a politicized mess, so they can say or do anything and people will just make it into an equal issue, no matter how bad/awful/criminal/horrific the Republican position is."
 
 * :::=== RoundSparrow_Commentary : Too many people don't grasp media addiction behaviors. Donald Trump provides entertainment and mockery unlike any other leader. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncy9yzb/
+
+Global_Crew3968 2021-04-06
+
+"That's what is so bewildering about conservatives in general - they are on the wrong side of every single issue, almost reflexively. They have developed such a hatred of empathy and education that they now just take whatever the wrong position is and stay there to spite the other side. Vaccines? Equal rights? Climate change? For fucks sake, these people are on the side of big game trophy hunters and pedophiles and against food stamps and higher wages lol."
+
+* :::=== RoundSparrow_Commentary : Sports game addict, video game speedrunner addicts, people who abandon reality in favor of fiction storytelling of sports game concern / famous Donald Trump Reality TV "The Apprentice" concern. No other leader can provide the fiction storytelling like Donald Trump to meme addict society. Middle East / Levant values of Torah fiction / Quan fiction / Bible fiction. People die for their favorite fiction storytelling. Fox News fiction is thrilling and exciting like sports coverge, not boring like learning nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncyb6cg/
+
+noonesaidityet 2023-07-05
+
+"I give myself 10 minutes in the morning before I go to work to go over the news of what new fresh hell I've woken up to. There is something every single day that makes me shake my head in disbelief."
+
+&nbsp;
+
