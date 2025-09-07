@@ -759,3 +759,13 @@ stewiecookie 2018-07-27
 The lack of education is the other MAJOR factor along with everything you said. Listen to how he speaks. He has the vocabulary of a 3rd grader and the solutions to problems of one too. He speaks in a way they can all understand and his solutions to anything are so simple minded that they make sense to anyone who lacks actual problem solving skills and critical thinking. Ask a 3rd grader how to fix something and they'll give you a solution that would never even come close to working and they'll tell you confidently because on a basic level it seems obvious to them. That's as far as these people can think and they shout it from the rooftops as if everyone else is just blind to it.
 
 It's not just that they feel like there's some special connection, everything he says and does is designed to create it. The republicans genuinely said, enough of the population is dumb enough that we can get the dumbest person we can find, put them in office, and do whatever we want. They targeted every supporter because they knew how dumb they were.They've all been insultingly played and they are overjoyed about it. You cannot do a single thing to change it and you're absolutely right it will be baffling to anyone who reads about it in a history book(if those are still allowed by then)"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncuifpl/
+
+heatwavecold 2016-05-29
+
+"People are clueless. I was talking to someone about how tariffs increased the price of coffee, and they asked, "Why don't we grow coffee here?" I had to explain that the climate in Vermont doesn't support coffee plants."
+
+* :::=== RoundSparrow_Commentary : Beyond the shallow reaciton of calling other people clueless. How does coffee being grown in other parts of the world and sold to us in USA a crisis. Why would you not want access to the best products from all over the world. Why would you not want to travel and visit South America, Middle East, Asia... why do you want to have jet airplanes and only stay in USA and never experience life in other places. Why would you only want beer, wine, coffee to ONLY from USA and your store have no freedom of choice. ===:::
