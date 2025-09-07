@@ -727,3 +727,23 @@ Organic_Witness345 2020-09-13
 Somehow, he continues to mainline his presence into a frightening number of American households via Truth Social - often hourly - employing virtually the same schtick from ten years ago. The dopamine hit MAGA voters feel when they receive a push notification from Donald Trump should never be underestimated. Many of them believe he has a personal relationship with them. Think about the percentage of text messages an average MAGA voter receives on a daily, weekly, yearly basis from Donald J. Trump. Compare that to the number they receive, or don’t, from the other people in their lives.
 
 If we make out of this second term with some semblance of our democracy intact, this decade-and-a-half is going to confound historians for the next 200 years."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncuvo83/
+
+Busy_Special_9397 2025-07-21 (new account)
+
+"Any platform. During his first presidency, instagram and twitter even the official whitehouse pages were filled with insane commentary and obvious bots. People were falling for it then. During Biden, it got worse. Every post, every announcement, every bill, every holiday and completely ordinary happenings were bombarded and filled with insane comments all upvoted by thousands. Insane shit. Mind bending nonsense. Democrats were cloning people, top comments around the time the IVF bill was being put forward. Ukraine funding and giving control of American soldiers drafted over to Zelenskyy remarks on any issue in Congress even when the bills and transcripts were readily available to read in full copies never mentioned any of these things or even the word Ukraine became truth. Completely astroturfed with disinformation. Dont even begin to scrape into pizzagate, Hunter Biden, and COVID conspiracies. These people believe all of it.
+
+They fucking believed JFK Jr was coming back from the grave. That wasnt some tiny sect of MAGA Qanon shit. Its widespread across the country now. Jan 6 was an appetizer"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncvarij/
+
+gustache 2010-03-26
+
+"interesting theory. I was in line in the post office a few months back and an old white lady was on the phone with someone who was obviously in distress. she kept saying, "don't worry about it. just pray about it. trump's gonna fix all of this." I wanted to slap the phone out of her hand, like, *lady, trump doesn't give a shit about you or your quotidian problems. unless the person on the phone is distraught because they just got caught embezzling money and fucking kids, trump is not concerned about it, and is most certainly not in the business of making it better*
+
+but it does point to what you're saying: these people seem to really think trump is *in* their lives, like, actively intervening. what a shitshow."
