@@ -414,3 +414,15 @@ https://old.reddit.com/r/SipsTea/comments/1naodl8/karma_is_real/ncw31jc/
 twig123456789 2021-05-07
 
 "It's important that you hate this woman and not other stuff that's way more deserving of hate"
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1naodl8/karma_is_real/ncw366q/
+
+RockAtlasCanus 2021-01-23
+
+"It’s pretty wild, and honestly kind of concerning. She acted like a real asshole at the game, and should be ashamed for sure. I feel kind of bad for her though. How widespread her infamy has gone and the hate she’s getting is pretty wild. People saying they hope she loses her job, saying all kinds of really hateful shit based on a 60 second snippet of her life.
+
+She rudely and insistently asked for a game ball she wrongly felt was hers. Now people form all over the world know who she is. The punishment doesn’t fit the crime to me."
+
+* :::=== RoundSparrow_Commentary : When Donald Trump is your role model for success. In July 2025, President Donald Trump said Rossie O'Donnell's "She is a Threat to Humanity". The entire world is in danger because of a single person, a woman. https://www.axios.com/2025/07/12/trump-rosie-odonnell-citizenship-threat ===:::
