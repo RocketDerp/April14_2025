@@ -59,3 +59,9 @@ nvmenotfound 2018-03-01
 * :::=== RoundSparrow_Commentary : Fiction addicts are not *pretending* they are addicted to fiction storytelling. Go live and study the Middle East and North Africa like I did during the Arab Sprirng with an eye on media ecology. It isn't pretending! Russian people who believe Putin are not pretending the past 25 years with Surkov fiction-based governing systems. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1naqplk/workers_detained_in_hyundai_plant_raid_to_be/ncwjjg5/
+
+Middle-Welder3931 2022-11-25
+
+"This is just the most stupid shit ever. Just the dumbest thing possible, every day, every week of this administration."
