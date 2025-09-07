@@ -643,3 +643,15 @@ Cheshire_Jester 2014-03-22
 So she sees a video, or fake image macro, makes her own video, then it’s dual sourced, and someone else makes another video.
 
 Also, anything disproving her will not only be fake news, it will also be AI. Welcome to the future where multiple realities exist simultaneously. And they all suck"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncu8uiy/
+
+MrDillon369 2025-01-03 (new this year)
+
+"This.
+
+Trump realized he can say anything and they will never fact check him.
+
+If it escalates, use the "Fake news!" card"
