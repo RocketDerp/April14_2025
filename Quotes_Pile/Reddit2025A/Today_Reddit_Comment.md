@@ -168,3 +168,13 @@ https://old.reddit.com/r/ShareMarketupdates/comments/1narqka/trump_intends_to_us
 chitphased 2019-03-03
 
 "Comments and thinking like this is one of the reasons we are here."
+
+&nbsp;
+
+https://old.reddit.com/r/ShareMarketupdates/comments/1narqka/trump_intends_to_use_the_united_states_military/ncwgww0/
+
+coolmist23 2023-03-11
+
+"Exactly! His supporters believe everything he says. The obvious truth doesn't matter."
+
+* :::=== RoundSparrow_Commentary : It isn't magic. These ideas do not come out of thin air. They consume the same fiction media content and believe the same fiction ideas. Just like living in an Islamic nation and every mosque on every corner teaches Mohammad's Quran story. They believe what they are handed as appealing fiction storytelling. We The People of the USA are not facing up to fiction addictions, media ecology. ===:::
