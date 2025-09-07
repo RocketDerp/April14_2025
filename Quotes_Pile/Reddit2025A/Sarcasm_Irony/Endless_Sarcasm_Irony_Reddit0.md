@@ -73,3 +73,8 @@ https://old.reddit.com/r/pics/comments/1na2c95/oc_found_these_posted_around_san_
 
 Humor-washing, LOL-washing, amusement-washing the situation. Constantly promoting that Donald Trump White House / FBI / federal in 2025 is entertainming and thrilling content just like popular baseball sports topics.     
 https://old.reddit.com/r/PoliticalHumor/comments/1na3wqw/mike_johnson_just_announced_that_this_woman_stole/
+
+&nbsp;
+
+Fiction TV "Columbo" content in White House image with Trump. And describing paradox. But completely unable to articulate that paradox / surreal / absurd is Russian information warfare. Ameicans eat this paradox mind-fucking shit up.        
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nauhrk/just_one_more_thing/
