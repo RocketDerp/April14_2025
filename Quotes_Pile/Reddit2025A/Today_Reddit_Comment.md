@@ -260,3 +260,13 @@ Woody_L 2016-01-06
 "I think that if enough people turn against him, he will start to crumble. The problem is that he still has far more support than he should. People are idiots."
 
 * :::=== RoundSparrow_Commentary : We The People USA are media addictions. Constantly using spare time and free time on social machines calling people: libtards, idiots, stupid, dumb, moron. Every group in USA calling every other group idiots. Over and over. Trump is a magnet for name-calling, hate, dehumannization, mocking. Anti-education, anti-teaching, people just want to mock and insult. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/inflation/comments/1nax9ky/his_economy_is_a_disaster/ncxgcwd/
+
+Any-Variation4081 2021-03-27
+
+"His cult doesnt care. They just deny reality as usual. Or say things like "prices are in line for this time last year....this is normal". Meanwhile less than a year ago they couldn't stop crying and whining about the price of bacon eggs and gas. The maga cult does not care that trump costs them more money. Trump being "better" for the economy and their wallets was just an excuse they used to support a lying felon billionare pedophile. They said it was for money instead of the truth. They support him bc he hates and attacks the same people they hate. Its as simple as that"
+
+* :::=== RoundSparrow_Commentary : Media cult of Redit "They support ~~him~~ Reddit bc he hates and attacks the same people they hate", same with Twitter media cult, Fox News media cult, Bluesky media cult, etc, etc, etc. A hate-group messaging system. Like Mosque media venue vs. Church media venue out-group infidel, hate the non-believer. ===:::
