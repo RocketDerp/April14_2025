@@ -655,3 +655,15 @@ MrDillon369 2025-01-03 (new this year)
 Trump realized he can say anything and they will never fact check him.
 
 If it escalates, use the "Fake news!" card"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncuavrh/
+
+pissoutmybutt 2024-02-02
+
+"lol when I told my union coworker “there is no way in hell they will actually eliminate overtime taxes. They will never cut taxes long term for the working class. Ever.”
+
+He goes, “just wait, you’ll see!”
+
+Then he just moves on, never demanding the admin follows through with any of it, and gets hyped into the next line of bullshit that he forgets aboot as it never comes to fruition."
