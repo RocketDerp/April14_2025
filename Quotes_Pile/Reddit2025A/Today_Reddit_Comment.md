@@ -779,3 +779,14 @@ ResponsibleAd2404 2020-10-01
 "The economy is quickly taking a nose dive. Jobs are cratering. Farmers are going bankrupt at a record pace. Tourism is declining. ICE just raided and shut down the Hyundai plant and are going to deport 450 Korean nationals, scuttling a multibillion investment from overseas companies. Trump and Hegseth committed a war crime by unilaterally blowing up a civilian Venezuela ship.
 
 Yeah, trumps doing a bang up job of everything."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nah8dw/maga_voter_actually_believes_that_trump/ncv43ho/
+
+zyrkseas97 2020-05-07
+
+"These idiots want a leftwing President so bad they hallucinate that Trump is one. These fucks think big business is paying all the taxes now and they don’t have a tax bill when the opposite is true and the taxes for the rich fucks keeps going down while working class Americans lose their benefits."
+
+* :::=== RoundSparrow_Commentary : Bi-poloar one-bit thinking that the entire world should be interpreted as left vs. right. Which the Founding Fathers of the United States of America made no such reference in Decleration of Independence, The Constitution, etc. In fact, the year 1776 Great Seal of the United States of America has "front and back" of a pyermid (old world order / new world order) and "low and high" (13th step to the eye), nothing at all with "left and right" thinking sysems. Fiction vs. nonfiction is what the USA was founded on, not "old world order" of mythological Mecca / Quran / Bible / Torah systems from the Levant informing a King. ===:::
+
