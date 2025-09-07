@@ -36,3 +36,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1n9nz75/we_are_giving_serio
 https://old.reddit.com/r/BlueskySkeets/comments/1n9eqdg/bring_your_business_hereso_we_can_arrest_your/
 
 https://old.reddit.com/r/law/comments/1n9nii3/trumps_leaked_plan_to_deploy_the_texas_national/
+
+Tony Clifton audiences are blued to hate Trump. People compusively mock Trump. Glued to media.     
+https://old.reddit.com/r/politics/comments/1nay1kg/americans_continue_to_really_dislike_trump_and/
+
