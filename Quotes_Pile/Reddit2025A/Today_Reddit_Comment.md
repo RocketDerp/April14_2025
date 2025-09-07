@@ -20,6 +20,15 @@ tristand666 2018-12-27
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikemilk/comments/1naqo8l/has_the_hill_apologized_yet_for_that_opinion_piece/ncwii5c/
+
+LittlePromise4108 2023-08-28
+
+"Lmao how is he president"
+
+* :::=== RoundSparrow_Commentary : LOL LOL LOL meme-speak amused Twiter-thinking 5-word comment messages all over every media system. How is Donald Trump President and ruler of all society media systems behaviors for over TEN YEARS AND TWO MONTHS?
+“Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
 
 
 # Saturday September 6, 2025
