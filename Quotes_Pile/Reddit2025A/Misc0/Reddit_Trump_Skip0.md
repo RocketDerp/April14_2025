@@ -40,3 +40,5 @@ https://old.reddit.com/r/law/comments/1n9nii3/trumps_leaked_plan_to_deploy_the_t
 Tony Clifton audiences are blued to hate Trump. People compusively mock Trump. Glued to media.     
 https://old.reddit.com/r/politics/comments/1nay1kg/americans_continue_to_really_dislike_trump_and/
 
+Media ecology reading       
+https://old.reddit.com/r/politics/comments/1naqq0k/is_the_decline_of_reading_making_politics_dumber/
