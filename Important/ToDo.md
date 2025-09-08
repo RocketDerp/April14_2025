@@ -1371,3 +1371,8 @@ https://youtu.be/q5-b7v6EIzc?t=745
 
 Car race roadies are disposable people for the rock stars. Roger Waters knew this and put it into lyrics of "Amsuing Ourselves To Death" about racing cars. Sports fan mentality of machine more important than worker human.        
 https://old.reddit.com/r/formula1/comments/1nbkbe4/former_red_bull_mechanic_calum_nicholas_responds/
+
+&nbsp;
+
+Torah fiction media vs. Film Industry fiction media.    
+https://old.reddit.com/r/movies/comments/1nbmvju/yorgos_lanthimos_olivia_colman_ayo_edebiri_and/
