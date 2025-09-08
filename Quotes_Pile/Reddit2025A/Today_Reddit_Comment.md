@@ -40,6 +40,16 @@ People like this need to be barred from taking part in elections, for life. The 
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nbhq1c/putin_allegedly_has_in_his_possession_video_of/nd2cn5s/
+
+Imaginary-Snow-7031 2021-02-06
+
+"I agree. Also, I'm not sure we care so much about kids in this country, just look at our gun laws. It might be a huge scandal but nothing will change until the general population stops giving in to the rhetoric and demand that everyone be treated with respect and dignity."
+
+* :::=== RoundSparrow_Commentary : Some people recognize we are in a mass dehumanization event. Lust for technology and status symbols exceeds desire for human persons or multiple species on Earth. ===:::
+
+&nbsp;
+
 
 # Sunday, September 7, 2025
 
