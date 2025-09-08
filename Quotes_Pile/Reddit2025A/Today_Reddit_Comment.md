@@ -373,3 +373,13 @@ umlaut 2010-01-02
 While I appreciate the new feature that allows you to hide your history on your profile, it also makes it harder to know who you are talking to."
 
 * :::=== RoundSparrow_Commentary : Context bewilderment abounds. A stream of meme messages from thousands of different authors that people forget in 12 hours with the latest refresh of Bluesky and Reddit home page. Serious topics don't sustain, only the meme decorations / amusement style. Neil Postman was correct in his 1985 book. :::====
+
+&nbsp;
+
+https://old.reddit.com/r/dontyouknowwhoiam/comments/1nbkoxv/he_literally_wrote_the_book_on_it/nd3f0dw/
+
+Hillbilly_ingenue **2025-08-11 (new account)**
+
+"It's the anonymity. When no-one is anyone, then everyone is no-one.
+
+I've enjoyed it, but it may be time to move back in the other direction."
