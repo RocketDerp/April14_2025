@@ -419,3 +419,11 @@ Yuzumi 2015-11-24
 "As is tradition.
 
 Modern conservatism was born out of the aristocracy trying to maintain power during the rise of democracy. It's inherently anti-democratic and anti-worker."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nbmkqp/bidenera_noncompete_ban_collapses_as_ftc/nd31oyq/
+
+micmea1 2012-01-16
+
+"This is just kicking people when they're already down and unable to find new jobs."
