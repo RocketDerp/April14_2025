@@ -78,3 +78,7 @@ https://old.reddit.com/r/PoliticalHumor/comments/1na3wqw/mike_johnson_just_annou
 
 Fiction TV "Columbo" content in White House image with Trump. And describing paradox. But completely unable to articulate that paradox / surreal / absurd is Russian information warfare. Ameicans eat this paradox mind-fucking shit up.        
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nauhrk/just_one_more_thing/
+
+Entertainment-washing what is going on via Reddit memes    
+Yes, compaed to Clergy / King, 1776 USA was liberal. New World Order. Not God Dictatorship.     
+https://old.reddit.com/r/AdviceAnimals/comments/1nbqqif/i_had_no_idea_that_the_us_constitution_was_a/
