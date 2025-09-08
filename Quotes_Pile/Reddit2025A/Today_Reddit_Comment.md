@@ -483,3 +483,11 @@ https://old.reddit.com/r/worldnews/comments/1nbiwhr/shooting_attack_at_jerusalem
 Jdjd-22 2019-08-08
 
 "Reddit is so brain rot they literally forgot that HAMAS is a terrorist group"
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1nbnff0/sabrina_carpenter_sends_clear_political_message/nd3920v/
+
+Shigglyboo 2008-10-20
+
+"Yeah for real. It doesn’t make any sense. It should really be the YouTube Video Music awards. What’s MTV got to do with music videos anymore?!?"
