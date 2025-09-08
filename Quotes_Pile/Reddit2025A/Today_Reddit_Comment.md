@@ -77,6 +77,14 @@ SourceBrilliant4546 2025-06-26 (recent account)
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2vceb/
+
+Empty-Complaint-1302 2023-02-07
+
+"So when's all this bad stuff going to happen? No recession, economy is good, border is getting under control and illegals are leaving. I'd say life is a lot better than the last administration wouldn't you?"
+
+&nbsp;
+
 
 # Sunday, September 7, 2025
 
