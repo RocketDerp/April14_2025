@@ -1391,5 +1391,5 @@ https://www.youtube.com/watch?v=9HORuCSsDLI
 
 &nbsp;
 
-Canada, coming MAGA hate     
+Canada, coming MAGA hate, Facebook usage tied to hate of outsiders     
 https://www.youtube.com/watch?v=nkVR5S-oYo8
