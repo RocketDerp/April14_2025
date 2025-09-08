@@ -1356,3 +1356,8 @@ https://old.reddit.com/r/TikTokCringe/comments/1nacyfp/guy_mad_because_of_americ
 
 Age 11 girl gives birth     
 https://old.reddit.com/r/news/comments/1nb4zud/grandmother_charged_after_11yearold_girl_gives/
+
+&nbsp;
+
+Neil deGrasse Tyson on Science vs. marketing, science vs. religion    
+https://www.youtube.com/watch?v=7GsfckziNCU
