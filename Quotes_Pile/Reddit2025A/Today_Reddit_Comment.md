@@ -245,3 +245,21 @@ tawondasmooth 2016-07-21
 "You’re 100% right. Anyone who has ever been in an abusive relationship and has any degree of clarity on this situation knows what the insults and the steamrolling are. His whole administration does it, too. I can only imagine that a lot of his supporters grew up in situations like this and have never done the self-exploration required to know that the dynamic is not normal or good even when the bile isn’t being spewed at you personally."
 
 * :::=== RoundSparrow_Commentary : It is normal on Reddit front page ("Leopards Ate My Face" club) to mock and insult MAGA for being mind-fucked by CA and Russian IRA since March 2013. Zero concern to defend USA and NATO against Putin, just cheering on that Americans are mentally injured by Surkovian media techniques. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd1hadx/
+
+SpoonyDinosaur 2010-11-12
+
+"He's an adjudicated rapist and convicted felon. Why are we still posting this shit. "Trump was himself to a reporter." He could rape a child on live TV and it would literally be a 9 minute news cycle, our country is screwed.
+
+I'm nihilistic and numb, this is no different than 2016. We need the country to feel pain to wake the fuck up.
+
+These are a doom scroll circle jerk; "let me grab yours, you grab mine and let's angrily stroke."
+
+But where the hell has everyone been. This isn't news, this is the fucking president. He's normalized, voters don't care if we continue to enrage ourselves. MAGAlodytes *enjoy* our frustration, they think "we're" crazy.
+
+Just vote and tell everyone you know to vote in 2026. Dude eats McDonald's every day, he won't make it two years. We lost because of apathy but we beat him once because of how much he was hated; we'll do it again."
+
+* :::=== RoundSparrow_Commentary : It is normal on Reddit front page ("Leopards Ate My Face" media club) to mock and insult MAGA for being mind-fucked by CA and Russian IRA since March 2013. Zero concern to defend USA and NATO against Putin, just cheering on that Americans are mentally injured by Surkovian media techniques. ===:::
