@@ -235,3 +235,13 @@ National_Big_9508 2025-06-17 (recent account)
 "Oh my god dude someone put this guy in a fucking home, he has the emotional regulation of a 5 year old child."
 
 * :::=== RoundSparrow_Commentary : Constant social media messages of moralty-washing. Trump is an innocent child of age 5, not responsible for his choices, put him in a nice care home. "dude", top voted popular comment on the toptic today. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd15gxr/
+
+tawondasmooth 2016-07-21
+
+"You’re 100% right. Anyone who has ever been in an abusive relationship and has any degree of clarity on this situation knows what the insults and the steamrolling are. His whole administration does it, too. I can only imagine that a lot of his supporters grew up in situations like this and have never done the self-exploration required to know that the dynamic is not normal or good even when the bile isn’t being spewed at you personally."
+
+* :::=== RoundSparrow_Commentary : It is normal on Reddit front page ("Leopards Ate My Face" club) to mock and insult MAGA for being mind-fucked by CA and Russian IRA since March 2013. Zero concern to defend USA and NATO against Putin, just cheering on that Americans are mentally injured by Surkovian media techniques. ===:::
