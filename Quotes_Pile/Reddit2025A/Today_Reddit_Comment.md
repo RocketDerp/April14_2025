@@ -12,6 +12,35 @@ There is no bottom"
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nbhq1c/putin_allegedly_has_in_his_possession_video_of/nd2dtky/
+
+sundae_diner 2017-04-01
+
+<img width="1088" height="700" alt="image" src="https://github.com/user-attachments/assets/729aa595-181c-4f2f-a4e8-ac66ee0676d2" />
+
+&nbsp;
+
+"I think people would actually be more upset if he killed a dog than killed a child."
+
+* :::=== RoundSparrow_Commentary : A cat or a dog. A human child is considered an annoyance in USA (a future Karen / etc), a cherished pet image incon of meme addiction social machine (content worship) society. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nbhq1c/putin_allegedly_has_in_his_possession_video_of/nd2f501/
+
+indorock 2006-06-02 (long time account)
+
+"There are literally tweets of MAGA mothers who said if Trump would rape their daughters they would be upset but they'd still vote for him. It's really far beyond the realm of anything resembling rational thinking.
+
+People like this need to be barred from taking part in elections, for life. The age of the right to vote is over."
+
+&nbsp;
+
+
 # Sunday, September 7, 2025
 
 &nbsp;
