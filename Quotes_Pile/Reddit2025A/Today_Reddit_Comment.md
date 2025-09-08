@@ -410,3 +410,12 @@ airduster_9000 2015-01-03
 
 When intelligence is seen as a bad thing it gets so much easier to scam and gaslight people."
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nbmkqp/bidenera_noncompete_ban_collapses_as_ftc/nd3a780/
+
+Yuzumi 2015-11-24
+
+"As is tradition.
+
+Modern conservatism was born out of the aristocracy trying to maintain power during the rise of democracy. It's inherently anti-democratic and anti-worker."
