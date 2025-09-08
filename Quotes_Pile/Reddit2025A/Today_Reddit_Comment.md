@@ -333,3 +333,13 @@ rmlopez 2013-03-26
 all I'm saying is I like it better when the presidents social media was irrelevant."
 
 * :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal Twitter usage](Surkovian_Onion_Eating.md). Constant media entertainment being the Russian technique that has kept Putin in power for 25 years. Obivious to the situation, treating it as a minor annoyance and not the very neans of Russia defeating USA in information warfare. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd1e4uj/
+
+StrengthThin9043 2022-10-07
+
+"Yes. In any normal country this guy had been impeached and removed a long time ago."
+
+* :::=== RoundSparrow_Commentary : We did remove Donald Trump, replced him with Joe Biden for four years. And peopel were bored to death without having constant Tony Clifton entertainment on the main stages of every media system created by mankind. Without constant mocking and insutling of Donald Trump, people did everything they could to be entertained and amused, but only Trump can provide fiction government that engages hearts and minds for Putin. *Normal* is considered borinng, nonfiction is boring to a society of media machine addicts craving constant stimulation. ===:::
