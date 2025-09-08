@@ -360,3 +360,21 @@ https://old.reddit.com/r/ukraine/comments/1nb4516/why_a_romanian_stand_up_comedi
 dafeiviizohyaeraaqua 2019-10-18
 
 "Finnish children get an education in bullshit detection. Poland has a television show called "Break the Fake". The entire free world needs to follow that lead."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nbhq1c/putin_allegedly_has_in_his_possession_video_of/nd1yg5q/
+
+the_hucumber 2019-12-20
+
+"I still don't get how this is leverage
+
+We have victim statements saying he abused them. He's settled numerous lawsuits of sexual harassment out of court. He's literally on tape saying he sexually assaults women multiple times. He was best friends with like the biggest pedophile of our time.
+
+Anyone who cannot see Trump is a pedophile is choosing to ignore the overwhelming evidence because of their own agenda (either a pedophile themselves or racist willing give power to a pedophile because he hurt minorities).
+
+So Russia has a video, add that to the mountain of evidence and watch it change literally not one of his supporters' minds."
+
+* :::=== RoundSparrow_Commentary : The mystury itself is psychological leverage over the crowd. The ambiguity itself exploits the human mind. Surkov monomyth foundation. ...
+"I mean that whatever is ultimate is beyond the categories of being and nonbeing. Is it or is it not? As the Buddha is reported to have said: “It both is and is not; neither is, nor is not.” God as the ultimate **mystery** of being is beyond thinking." - Joseph Campbell, age 83.
+"n intense experience of mystery is what one has to regard as the ultimate religious experience." - Joseph Campbell ===:::
