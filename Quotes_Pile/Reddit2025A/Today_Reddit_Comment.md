@@ -427,3 +427,11 @@ https://old.reddit.com/r/technology/comments/1nbmkqp/bidenera_noncompete_ban_col
 micmea1 2012-01-16
 
 "This is just kicking people when they're already down and unable to find new jobs."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nbqzaz/trump_implies_that_he_might_have_to_take_horrible/nd3ph0u/
+
+unbalancedcheckbook 2021-08-28
+
+"Or are the Epstein files a distraction from Trump literally taking over American cities with the fucking military?"
