@@ -1,3 +1,17 @@
+# Monday, September 8, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nbhq1c/putin_allegedly_has_in_his_possession_video_of/nd2anju/
+
+Polymorphic-X 2015-09-16
+
+"At this point he could live broadcast video showing him being a necrophilic pedo cannibal and his base would either claim it's AI or that Democrats are somehow worse.
+
+There is no bottom"
+
+&nbsp;
+
 # Sunday, September 7, 2025
 
 &nbsp;
