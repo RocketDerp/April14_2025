@@ -263,3 +263,15 @@ But where the hell has everyone been. This isn't news, this is the fucking presi
 Just vote and tell everyone you know to vote in 2026. Dude eats McDonald's every day, he won't make it two years. We lost because of apathy but we beat him once because of how much he was hated; we'll do it again."
 
 * :::=== RoundSparrow_Commentary : It is normal on Reddit front page ("Leopards Ate My Face" media club) to mock and insult MAGA for being mind-fucked by CA and Russian IRA since March 2013. Zero concern to defend USA and NATO against Putin, just cheering on that Americans are mentally injured by Surkovian media techniques. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd2mpj6/
+
+stroopwafelscontigo 2025-08-03 (recent account)
+
+"No, we all know he is. 
+
+That’s why I pointed that out. I’m tired of people dismissing him as a “toddler” when he’s really a *monster*."
+
+* :::=== RoundSparrow_Commentary :  It isn't humor that they call him a todler. it is a symptom of being mentally manipulated by CA and IRA. People have lost the War Against Reality that started by Russia in March 2013. Detachment from the reality of the situation (in favor of feeding egoism that they are smarter than symbolism of POTUS, eating the Surkovian mockery onions). https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
