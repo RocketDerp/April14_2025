@@ -513,3 +513,15 @@ vaper 2012-03-15
 "This always gets me. I'm kind of a closeted christian. I enjoy reading the bible before bed for fun. I find a lot of the scripture pretty insightful and profound. And it makes me so annoyed how christianity has this colloquial equality with the republican party. They are so wildly incongruous yet that's largely unnoticed by both the left and right. So much of what is taught in the Bible is directly contrasted by this government. Love your neighbor. Do not kill. Donate your money. Etc etc."
 
 * :::=== RoundSparrow_Commentary : "largely unnoticed by both the left and right" - media ecology is a crisis all-inclusive. We can't read the Bible as inspirational science fiction (like Star Wars inspires people) even after 2,000 years. What hope do we have with Fox News and Reddit if people still can't face up the influence Bible fiction has on our human lives throughout history? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nbv6nl/ice_announces_launch_of_operation_midway_blitz_to/nd4kh57/
+
+Mustard_Jam 2019-12-18
+
+"The US having one of the best propaganda states in the entire world does not get enough attention and I don't mean just under the Trump admin. It's genuinely on par with countries like Russia at this point.
+
+They've actually managed to convince a massive chunk of the population that other poor people are a bigger problem than the rich oligarchs pulling all the strings. They've convinced most of the population that taking from the rich to help the poor is somehow bad and communist.
+
+And this has been going on for decades. I will NEVER play "both sides are the same" card but the US democrats have for the most part peddled the same bullshit talking points when it comes to this specific issue."
