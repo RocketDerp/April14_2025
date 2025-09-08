@@ -296,3 +296,10 @@ singlePayerNow69 **2025-08-21 (new account)**
 
 * :::=== RoundSparrow_Commentary :  We The People find Donald Trump so entertaining when he is Twitter Tweeting. When Trump Tweets, the audience goes "LMAO" like this Reddit message of [turd tasting / turd rating society](../../Grim_Blunt/Society_of_grading_and_ranking_turds.md). Trickle down Tony Clifton performance from White House and Kremlin. ===:::
  
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd1bwk2/
+
+DrinkNWRobinWilliams 2022-09-12
+
+"The German public didn’t begin to lose confidence in der Fuhrer until British bombs began falling on their heads and the Russians started sending their children back home to be buried."
