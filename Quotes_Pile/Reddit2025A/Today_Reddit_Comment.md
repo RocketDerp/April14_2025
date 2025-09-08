@@ -465,3 +465,13 @@ Lets_Kick_Some_Ice 2016-04-01
 "This idiot lives inside right wing propaganda, where Chicago is this weird fixation. Chicago barely cracks the top 10 in murder rates. You will find higher rates in cities in red states like Louisiana, Missouri, Ohio, and Tennessee."
 
 * :::=== RoundSparrow_Commentary : [Everything is Media Ecology. Analyze people's addiction to media platforms and inability to discuss mob mentality and you start to grasp how Putin and Trump are motivated / motivating to population.](../../Media_Ecology/Everything_is_ME.md) - Agreement with Trump and Putin is often a symptom of consuming the same media content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nbqzaz/trump_implies_that_he_might_have_to_take_horrible/nd3yksg/
+
+trentreynolds 2012-10-12
+
+"A criminal pretending to care about crime as a justification for sending the military against Americans in American cities.
+
+If you're still supporting this, you're betraying everything this country is supposed to stand for. Nothing else to say, this is the most unAmerican administration we've ever had and it is not close. If you like what they do, you hate America."
