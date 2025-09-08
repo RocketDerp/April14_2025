@@ -85,6 +85,16 @@ Empty-Complaint-1302 2023-02-07
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2vfr4/
+
+thr3sk 2012-10-17
+
+"No, it was mostly the economy and while I think Biden did a good job people were still feeling economic pain and she basically said she would just keep doing what he was doing which a lot of people didn't understand had been working. Trump spoke to a lot of people's economic frustrations, and people also remember the economy being better under him at least up until covid (which I would argue was mostly just him riding Obama's coattails but yeah doesn't change people's memories of better times)."
+
+* :::=== RoundSparrow_Commentary : I agree: "Trump spoke to a lot of people's economic frustrations" - that greed and rich people need more. That's the frustrations of Trump media addicts. That the rich people don't make fancy enough films or war footage and things need to be more Reality TV / fiction Internet meme like all the time. Economic frustrations that the wealthy don't get enough free speech. Economic frustrations that Putin can't just take Ukraine and anything he wishes. What good is wealth and power if you can't do everything your nightmares tell you to do? "it was mostly the economy"... no, it is all about entertainment addiction. Trump provides Tony Clifton mockery and hate. The economy of memes, the economy of media content addictions. ===:::
+
+&nbsp;
+
 
 # Sunday, September 7, 2025
 
