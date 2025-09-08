@@ -780,3 +780,18 @@ BurtMacklin_MallCop **2025-08-17 (new account)**
 
 Meme addiction society constantly craves personalized content. In the future, artificail intelligence (AI) will be able to create custom versions of Trump for every person in society, just to the song preferences of each media addict. Trump inspires constant egoism, a society driven by egomania. Right now we are at the satage of AI generating this Cracker Barrel video for mass society, but dynamic rewrites will be possible where peopel can change the song and dance to fit their personal inner desires (fetish).
 
+&nbsp;
+
+&nbsp;
+
+# Monday September 8, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/dontyouknowwhoiam/comments/1nbkoxv/he_literally_wrote_the_book_on_it/nd2jgh3/
+
+Subject-Tank-6851 2024-11-26
+
+"Always love the fellas that try to correct the authors of books."
+
+Constantly entertained and thrilled that people create media messages on media systems that promote ignorance and misunderstandings. Thrilled at Russian information warfare content.
