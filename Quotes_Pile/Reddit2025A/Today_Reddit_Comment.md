@@ -173,3 +173,25 @@ https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2v4dt/
 Goldenrah 2015-10-22
 
 "I'm gonna be honest here, if the threat of a Trump destroying the country isn't enough to unite Democrat voters, maybe they deserve to get eaten by that particular leopard. That's Democracy in a nutshell, you don't vote for the candidate you like the most, you vote for the one who you dislike the least and work on getting someone better in the future."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2hkgi/
+
+evangelist-789 2025-03-09 (new this year)
+
+<img width="1682" height="794" alt="image" src="https://github.com/user-attachments/assets/5a3cd0f6-e9cb-4421-bdd1-105a5c49d45c" />
+
+"Dems were sabotaged by the mass media and foreign governments. Voters are gullible as shit."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2iwcn/
+
+Ayn_Rambo 2025-03-18 (new this year)
+
+"It was frustrating watching Kamala lay out specific policy proposals with figures and details and right afterwards, the talking heads would say that her policies were vague.
+
+And they’d do it again and again."
