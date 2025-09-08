@@ -316,3 +316,8 @@ Schmichael-22 2021-11-06
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd1q6ai/
+
+jaybyrrd 2012-09-05
+
+"I get what you are saying but whether it was him or his staffer, it reflects upon him. It’s his administration and that includes his staff and their behavior. When they or he do something on his official accounts, the world assumes it comes from him and that’s the effect. As a country we need someone who handles something as basic as their social media more responsibly, let alone everything else."
