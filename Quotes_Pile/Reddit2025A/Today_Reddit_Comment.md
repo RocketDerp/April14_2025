@@ -153,3 +153,15 @@ Trump: I'm going to destroy the economy on purpose
 Republican voters: He's going to be great for the economy!"
 
 * :::=== RoundSparrow_Commentary : Reddit meme adicts think that *rural uneducated Trump supporters* did it to themselves and Rupert Murdoch has no role in it. Media ecology educaiton is not optional, every person age 12 to age 120 needs to face up to Neil Postman's library of published books about media ecology. We are "Amsuing Ourselves To Death" on Reddit and Fox News. Rupert Murdoch is predatory, Trump Social (Trump) is predatory. They didn't *delude their own self*. See also: Church / Mosque / Torah / Bible / Quran. Indoctrination into Fox News fiction, indoctrination into Bible fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2b08r/
+
+Yawanoc 2018-08-30
+
+"Dems have high key been fumbling elections for years now.  Reddit hates having this conversation, but there’s nothing unifying the left.  Every election has people at each other’s throats until they finally decide on a candidate, only for people to just straight up not vote because it wasn’t the Democratic candidate that *they* wanted.
+
+Hopefully these next two years can finally get people to the polls because, for as much as I thought Biden did a fine job, there hasn’t been a strong Democratic competitor since Obama."
+
+* :::=== RoundSparrow_Commentary : New corporations come up all the time. Reddit itself was created, a technology startup. Why do Reddit community members think the only possible answer in democracy / free society is to "Democrats party". Why not create a list of things you want, post it on Reddit, and show that people actually desire goodness itself. Alas, people do indeed do this, and find that the audience is addicted to left vs. right one-bit logic thinking. Which the Founding Fathers did not promote in the Decleration of Independence, Great Seal, or Constitution. The boundless faith that there are TWO and ONLY TWO sides to every problem: Republican vs Democrat!  One-bbit thinking. Which the Founding Fathers recognized and in year 1776 created the Great Seal of the United States of America as a teching tool. Fiction vs. nonfiction. Mythology vs. scieence. Not left vs. right logic. Not single-bit, but 13-steps on the pyramid up the Great Seal. "there hasn’t been a strong Democratic competitor since Obama" - which is declaring that Donald Trump is a great competititor. Trump selling fiction, Donald Trump and Fox News sell fiction. Fiction outsells nonfiction. Obama was the *last* before the Internet Research Agency (IRA, Russia) took over Reddit / Twitter / everyone mindsets. Fiction addiction vs. science reality. We have normalized a Russian supporter (Trump and Tucker Carlson and many others) as a healthy candidate for President. We The People lost a mind-fuck war without even realizing, zero self-awareness of the situation. "Dems have high key been fumbling elections for years now" is WRONG - CORRECTED: the Pentagon has fumbled hybrid warfare since March 2013. ===:::
