@@ -69,6 +69,14 @@ ahelinski 2016-07-27
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2k9cw/
+
+SourceBrilliant4546 2025-06-26 (recent account)
+
+"When you believe in a afterlife that's better it leaves little incentive to deal compassionately with today's issues."
+
+&nbsp;
+
 
 # Sunday, September 7, 2025
 
