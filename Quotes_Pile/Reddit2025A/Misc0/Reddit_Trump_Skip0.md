@@ -45,3 +45,8 @@ https://old.reddit.com/r/politics/comments/1naqq0k/is_the_decline_of_reading_mak
 
 Hitler vs. Trump comparison    
 https://old.reddit.com/r/politics/comments/1nalkj3/six_nobel_laureates_speak_out_against_trump_the/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nb843s/society_hates_christian_conservatives_because/
+
+https://old.reddit.com/r/technology/comments/1nb87bl/top_harvard_mathematician_liu_jun_leaves_us_for/
+
