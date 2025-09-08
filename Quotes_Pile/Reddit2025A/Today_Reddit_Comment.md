@@ -435,3 +435,13 @@ https://old.reddit.com/r/law/comments/1nbqzaz/trump_implies_that_he_might_have_t
 unbalancedcheckbook 2021-08-28
 
 "Or are the Epstein files a distraction from Trump literally taking over American cities with the fucking military?"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nbqzaz/trump_implies_that_he_might_have_to_take_horrible/nd3t9vo/
+
+RedditTab 2018-06-28
+
+"I really believe this.
+
+They're doing as much bad stuff as they can as quickly as they can and people are calling everything else a distraction is really just a distraction against everything else going on at this point."
