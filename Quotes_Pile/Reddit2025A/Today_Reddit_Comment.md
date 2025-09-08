@@ -383,3 +383,19 @@ Hillbilly_ingenue **2025-08-11 (new account)**
 "It's the anonymity. When no-one is anyone, then everyone is no-one.
 
 I've enjoyed it, but it may be time to move back in the other direction."
+
+&nbsp;
+
+https://old.reddit.com/r/dontyouknowwhoiam/comments/1nbkoxv/he_literally_wrote_the_book_on_it/nd2pcni/
+
+noshowthrow 2023-02-25
+
+"Tom IS an expert on that...
+
+Although, after having been a Republican his entire life up until Trump - supporting all the policies and people who are now kissing Trump's balls (people like Rubio, Graham and Roberts and Alito and the rest of the SCOTUS 6 and on and on and on), the fact that he blames Democrats for "crying wolf" as the cause of Trump is so unbelievably fucking weak it almost defies description.
+
+Guy literally supported the building of the shitcastle in which we're living and now has the balls to try and blame the people who said it would turn into a shitcastle for his work?
+
+Fuck that guy.
+
+But yes, maritime warfare he is an expert."
