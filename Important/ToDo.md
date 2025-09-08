@@ -1376,3 +1376,8 @@ https://old.reddit.com/r/formula1/comments/1nbkbe4/former_red_bull_mechanic_calu
 
 Torah fiction media vs. Film Industry fiction media.    
 https://old.reddit.com/r/movies/comments/1nbmvju/yorgos_lanthimos_olivia_colman_ayo_edebiri_and/
+
+&nbsp;
+
+Popularity / meme-o-matick 6900    
+https://old.reddit.com/r/comics/comments/1nbkmfm/art/
