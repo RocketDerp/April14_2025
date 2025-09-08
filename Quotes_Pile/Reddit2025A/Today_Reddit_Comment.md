@@ -376,5 +376,4 @@ Anyone who cannot see Trump is a pedophile is choosing to ignore the overwhelmin
 So Russia has a video, add that to the mountain of evidence and watch it change literally not one of his supporters' minds."
 
 * :::=== RoundSparrow_Commentary : The mystury itself is psychological leverage over the crowd. The ambiguity itself exploits the human mind. Surkov monomyth foundation. ...
-"I mean that whatever is ultimate is beyond the categories of being and nonbeing. Is it or is it not? As the Buddha is reported to have said: “It both is and is not; neither is, nor is not.” God as the ultimate **mystery** of being is beyond thinking." - Joseph Campbell, age 83.
-"n intense experience of mystery is what one has to regard as the ultimate religious experience." - Joseph Campbell ===:::
+"I mean that whatever is ultimate is beyond the categories of being and nonbeing. Is it or is it not? As the Buddha is reported to have said: “It both is and is not; neither is, nor is not.” God as the ultimate **mystery** of being is beyond thinking." - Joseph Campbell, age 83. "An intense experience of mystery is what one has to regard as the ultimate religious experience." - Joseph Campbell ===:::
