@@ -475,3 +475,11 @@ trentreynolds 2012-10-12
 "A criminal pretending to care about crime as a justification for sending the military against Americans in American cities.
 
 If you're still supporting this, you're betraying everything this country is supposed to stand for. Nothing else to say, this is the most unAmerican administration we've ever had and it is not close. If you like what they do, you hate America."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nbiwhr/shooting_attack_at_jerusalem_bus_stop_kills_5/nd39smk/
+
+Jdjd-22 2019-08-08
+
+"Reddit is so brain rot they literally forgot that HAMAS is a terrorist group"
