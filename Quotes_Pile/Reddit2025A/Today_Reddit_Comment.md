@@ -50,6 +50,25 @@ Imaginary-Snow-7031 2021-02-06
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nbhq1c/putin_allegedly_has_in_his_possession_video_of/nd1z6xp/
+
+ahelinski 2016-07-27
+
+<img width="986" height="1108" alt="image" src="https://github.com/user-attachments/assets/b009da19-cbe6-4a6e-a1e4-c1ceb08c3af7" />
+
+&nbsp;
+
+"Nah, they don't care. One of the analysts that I listen to often says that Russia uses a "post-truth" propaganda approach. They don't care about secrets because they systematically decrease the value of truth and fight against our ability to believe in anything. They would just spread multiple conflicting rumours on any important subject, until your only option is to believe what you like, not what is supported by evidence."
+
+* :::=== RoundSparrow_Commentary : This is an INCREDIBLY PROVEN system. In The Bible monomyth science fiction story: Matthew / Mark / Luke / John write multiple rumors that becomes a *choose your own adventure* to afterlife heaven rewards story. Extremely compelling and Surkov and Putin mastered this 25 years ago and have adapted it to Reddit / Bluesky / Twitter / meme addict society of USA since March 2013. Create 5,000 variations of Matthew / Mark / Luke / John. My entire repeating repeat repeat repeating media ecology assertions ("Wake Indra" opera) about Surkov / McLuhan / Postman / Campbell / Enter Shikari / Pomerantsev is based on *moving beyond* King Trump / King Putin and this model. ...
+"II.4, portraying the drunken and sleeping Earwicker's dream, chronicles the spying of four old men (Matthew, Mark, Luke and John) on Tristan and Iseult's journey. The short chapter portrays "an old man like King Mark being rejected and abandoned by young lovers who sail off into a future without him", while the four old men observe Tristan and Isolde, and offer four intertwining commentaries on the lovers and themselves which are "always repeating themselves"." - https://en.wikipedia.org/wiki/Finnegans_Wake ===:::
+
+&nbsp;
+
+&nbsp;
+
 
 # Sunday, September 7, 2025
 
