@@ -103,3 +103,19 @@ PopularDemand213 2022-01-13
 
 * :::=== RoundSparrow_Commentary : We The People of Reddit / Bluesky don't ever learn. People act like "learning the hard way" is a proven system of understanding and comprehension. If that were **true true**, then the Middle East would have leanred the hard way how many thousands of years ago? Toxic poluarity is not evidence of popularity being good. Democracy does not work when people toss compassion and love into the trash in favor of meme addictions on Reddit. A meme society unwilling to study media ecology and Russian information warfare thinking this situation is only domestic USA elections and not global information war. Apparently, there isn't enough Trump praising Putin in public for Reddit community to go read nonfiction books about how Russia actually operates. Reddit infiltrated by Kremlin mind-fuck.
 [**All of you guys out there in the Middle East are out of the same Melting Pot. And you're all as crazy as a butterfly on absenth**. I don't know whether you're all Canaanites at the base or you're all Jews at the base or out of the land of Nod or whatever the hell you were at the get go. Semites or whatnot, but **you've been fighting there now for something like 8,000 years. And you've never had 5 minutes of quiet and peace. You're forever killing each other and sticking knives at each other and burning babies and the world has had to suffer with this.** Great things have come out of the Middle East. Great things like the rubat of Omar kayam but stupidity seems to be your chief export. Stupidity and violence are your cash crops all you. And **this was before September 11th** and I said my solution to the problem in the Middle East is this:](../../Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2dhnj/
+
+GreenFBI2EB 2020-09-07
+
+"I don’t think people are grasping the gravity of the situation: the tariffs Trump has placed, have already put the farming and steel industry in a very precarious position.
+
+This is the bubble with a needle inches away from popping it. This isn’t a “this will definitely happen in x amount of time!” It’s in the “if a gust of air hits this bubble, there’s a very real and very tangible chance it’s floating not only in the direction of that needle, but directly into it.”
+
+Economically, it would not seem to take a large fumble to set in motion a catastrophe in similar proportions to what happened in 2008.
+
+Very much a “not a question of ‘if’ but ‘when’” "
+
+* :::=== RoundSparrow_Commentary : I don't think people are grasping the gravity of the situation. Fiction addiction is EVERY DAY all the time, not just the economy. Medical truth is abandoned in favor of Russain fiction storytelling, etc. People are willing to die for fiction stories. EVER DAY, not just election days. This has been gong on since year 2014: https://www.bbc.com/news/world-us-canada-45294192 ===:::
