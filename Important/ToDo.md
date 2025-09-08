@@ -1374,8 +1374,9 @@ https://old.reddit.com/r/formula1/comments/1nbkbe4/former_red_bull_mechanic_calu
 
 &nbsp;
 
-Torah fiction media vs. Film Industry fiction media.    
+Torah science fiction media vs. modern film Industry fiction media.    
 https://old.reddit.com/r/movies/comments/1nbmvju/yorgos_lanthimos_olivia_colman_ayo_edebiri_and/
+https://old.reddit.com/r/Fauxmoi/comments/1nbmn4w/1200_film_workers_pledge_not_to_work_with_israeli/    
 
 &nbsp;
 
