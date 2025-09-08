@@ -50,3 +50,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1nb843s/society_hates_christian_
 
 https://old.reddit.com/r/technology/comments/1nb87bl/top_harvard_mathematician_liu_jun_leaves_us_for/
 
+https://old.reddit.com/r/politics/comments/1nbuhcn/trump_implies_that_domestic_violence_isnt_a_real/
+
+https://old.reddit.com/r/politics/comments/1nbl7wh/kennedy_family_rfk_jr_is_threat_to_wellbeing_of/
+
