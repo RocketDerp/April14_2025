@@ -342,4 +342,14 @@ StrengthThin9043 2022-10-07
 
 "Yes. In any normal country this guy had been impeached and removed a long time ago."
 
-* :::=== RoundSparrow_Commentary : We did remove Donald Trump, replced him with Joe Biden for four years. And peopel were bored to death without having constant Tony Clifton entertainment on the main stages of every media system created by mankind. Without constant mocking and insutling of Donald Trump, people did everything they could to be entertained and amused, but only Trump can provide fiction government that engages hearts and minds for Putin. *Normal* is considered borinng, nonfiction is boring to a society of media machine addicts craving constant stimulation. ===:::
+* :::=== RoundSparrow_Commentary : We did remove Donald Trump, replaced him with Joe Biden for four years. And peopel were bored to death without having constant Tony Clifton entertainment on the main stages of every media system created by mankind. Without constant mocking and insutling of Donald Trump, people did everything they could to be entertained and amused, but only Trump can provide fiction government that engages hearts and minds for Putin. *Normal* is considered borinng, nonfiction is boring to a society of media machine addicts craving constant stimulation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd15j9u/
+
+pinewind108 2018-06-23
+
+"It's going to hell because the entire Republican party is apparently 100% fine with this. So many people just standing by and watching is the real problem. It's like none of them actually care about the importance of the separation of powers or the importance of corruption free government."
+
+* :::=== RoundSparrow_Commentary : People (We The People) don't even care that Russia won an informationw warfare. We are living in the fallout / aftermath of IRA and CA. ===:::
