@@ -274,7 +274,7 @@ stroopwafelscontigo 2025-08-03 (recent account)
 
 That’s why I pointed that out. I’m tired of people dismissing him as a “toddler” when he’s really a *monster*."
 
-* :::=== RoundSparrow_Commentary :  It isn't humor that We The People call Trump a todler. Fixated on one and only one person, igoring NATO wide reports since year 2014. It is a symptom of being mentally manipulated by CA and IRA. People have lost the War Against Reality that started by Russia in March 2013. Detachment from the reality of the situation (in favor of feeding egoism that they are smarter than symbolism of POTUS, eating the Surkovian mockery onions). https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+* :::=== RoundSparrow_Commentary :  It isn't humor that We The People call Trump a toddler. Fixated on one and only one person, igoring NATO wide reports since year 2014. It is a symptom of being mentally manipulated by CA and IRA. People have lost the War Against Reality that started by Russia in March 2013. Detachment from the reality of the situation (in favor of feeding egoism that they are smarter than symbolism of POTUS, eating the Surkovian mockery onions). https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
 
 &nbsp;
 
@@ -285,3 +285,14 @@ MysticKoolaid808 2016-07-02
 "Exactly.  And a gaslighter.  "I didn't say that thing that you're now asking questions on; you're just bad at listening and that's why you suck at your job too!"
 
 These people are just fucking evil, seriously.  And I've never been a fan of that religiously loaded word, but there really is just no other term for it.  The more they start getting messy with their words and actions, it just becomes clearer than ever."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd101cs/
+
+singlePayerNow69 **2025-08-21 (new account)**
+
+"He literally tweeted "you are going to find out why I call it the department of war" lmao. He's such a pansy ass bitch and liar"
+
+* :::=== RoundSparrow_Commentary :  We The People find Donald Trump so entertaining when he is Twitter Tweeting. When Trump Tweets, the audience goes "LMAO" like this Reddit message of [turd tasting / turd rating society](../../Grim_Blunt/Society_of_grading_and_ranking_turds.md). Trickle down Tony Clifton performance from White House and Kremlin. ===:::
+ 
