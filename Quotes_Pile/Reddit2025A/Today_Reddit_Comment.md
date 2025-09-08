@@ -205,3 +205,14 @@ Merreck1983 2019-09-05
 "Sure, because as we all know voters- be they MAGA or people that stayed home- have utterly no agency or responsibility for their own actions and decisions. They're just helpless bystanders that only act at the behest of external forces.
 
 Kinda like how if I get arrested for running someone over while driving drunk, the judge and jury will absolutely accept my excuse that the real culprit is my friend at the bar that couldn't convince me not to drink and drive."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2wqyo/
+
+Made_Human_Music 2025-08-12 (new account)
+
+"That’s says more about the intelligence or morality of the citizens than the quality of Democrats
+
+Democrats are far from perfect but anyone who chose Trump over Kamala is stupid or evil. And anyone who didn’t vote because they thought both sides are the same or they wanted to send a message is just stupid"
+
