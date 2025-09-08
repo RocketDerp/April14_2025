@@ -353,3 +353,11 @@ pinewind108 2018-06-23
 "It's going to hell because the entire Republican party is apparently 100% fine with this. So many people just standing by and watching is the real problem. It's like none of them actually care about the importance of the separation of powers or the importance of corruption free government."
 
 * :::=== RoundSparrow_Commentary : People (We The People) don't even care that Russia won an informationw warfare. We are living in the fallout / aftermath of IRA and CA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/dontyouknowwhoiam/comments/1nbkoxv/he_literally_wrote_the_book_on_it/nd37an5/
+
+Messyfingers 2017-10-17
+
+"He sort of loves it I think. The man is a curmudgeon and does seem to relish any opportunity to flex his old man muscles."
