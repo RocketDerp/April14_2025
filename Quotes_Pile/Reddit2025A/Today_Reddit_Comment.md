@@ -491,3 +491,25 @@ https://old.reddit.com/r/Music/comments/1nbnff0/sabrina_carpenter_sends_clear_po
 Shigglyboo 2008-10-20
 
 "Yeah for real. It doesn’t make any sense. It should really be the YouTube Video Music awards. What’s MTV got to do with music videos anymore?!?"
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1nbnff0/sabrina_carpenter_sends_clear_political_message/nd39hat/
+
+HyperlinksAwakening 2019-04-24
+
+"There are 2 genders: male and political
+
+2 sexual preferences: straight and political
+
+2 races: white and political"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nbv6nl/ice_announces_launch_of_operation_midway_blitz_to/nd4tnf0/
+
+vaper 2012-03-15
+
+"This always gets me. I'm kind of a closeted christian. I enjoy reading the bible before bed for fun. I find a lot of the scripture pretty insightful and profound. And it makes me so annoyed how christianity has this colloquial equality with the republican party. They are so wildly incongruous yet that's largely unnoticed by both the left and right. So much of what is taught in the Bible is directly contrasted by this government. Love your neighbor. Do not kill. Donate your money. Etc etc."
+
+* :::=== RoundSparrow_Commentary : "largely unnoticed by both the left and right" - media ecology is a crisis all-inclusive. We can't read the Bible as inspirational science fiction (like Star Wars inspires people) even after 2,000 years. What hope do we have with Fox News and Reddit if people still can't face up the influence Bible fiction has on our human lives throughout history? ===:::
