@@ -445,3 +445,13 @@ RedditTab 2018-06-28
 "I really believe this.
 
 They're doing as much bad stuff as they can as quickly as they can and people are calling everything else a distraction is really just a distraction against everything else going on at this point."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nbqzaz/trump_implies_that_he_might_have_to_take_horrible/nd3qz9s/
+
+BitterFuture 2018-02-14
+
+"The idea that you respond to brutality with brutality, to crime with crime, is an argument against the entire concept of law itself.
+
+Fascism apes civilization, but when you come down to it, the drives and motivations of fascists are incompatible with civilization."
