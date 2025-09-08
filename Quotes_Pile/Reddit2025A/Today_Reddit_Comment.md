@@ -352,3 +352,11 @@ code_archeologist 2016-04-18
 We live in a time where we all have access to the largest most efficient repository of human knowledge ever to exist. Therefore being ignorant is a choice.
 
 This guy should lose his ability to practice medicine. Every person who is infected with a disease in Florida that could have been prevented with a vaccine should sue him for malpractice. And if a single person dies as a result of his policies, he should be prosecuted for manslaughter by gross negligence."
+
+&nbsp;
+
+https://old.reddit.com/r/ukraine/comments/1nb4516/why_a_romanian_stand_up_comedian_is_upset_on/nczge0g/
+
+dafeiviizohyaeraaqua 2019-10-18
+
+"Finnish children get an education in bullshit detection. Poland has a television show called "Break the Fake". The entire free world needs to follow that lead."
