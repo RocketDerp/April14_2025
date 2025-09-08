@@ -95,3 +95,11 @@ thr3sk 2012-10-17
 
 &nbsp;
 
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2stky/
+
+PopularDemand213 2022-01-13
+
+"She was worse than status quo. She was a historically unpopular, gun toting, genocide supporting moderate that campaigned with Republicans. But we were supposed to vote for her because she's black and a woman. The DNC learned the hard way that identity politics and whataboutisms don't win elections."
+
+* :::=== RoundSparrow_Commentary : We The People of Reddit / Bluesky don't ever learn. People act like "learning the hard way" is a proven system of understanding and comprehension. If that were **true true**, then the Middle East would have leanred the hard way how many thousands of years ago? Toxic poluarity is not evidence of popularity being good. Democracy does not work when people toss compassion and love into the trash in favor of meme addictions on Reddit. A meme society unwilling to study media ecology and Russian information warfare thinking this situation is only domestic USA elections and not global information war. Apparently, there isn't enough Trump praising Putin in public for Reddit community to go read nonfiction books about how Russia actually operates. Reddit infiltrated by Kremlin mind-fuck.
+[**All of you guys out there in the Middle East are out of the same Melting Pot. And you're all as crazy as a butterfly on absenth**. I don't know whether you're all Canaanites at the base or you're all Jews at the base or out of the land of Nod or whatever the hell you were at the get go. Semites or whatnot, but **you've been fighting there now for something like 8,000 years. And you've never had 5 minutes of quiet and peace. You're forever killing each other and sticking knives at each other and burning babies and the world has had to suffer with this.** Great things have come out of the Middle East. Great things like the rubat of Omar kayam but stupidity seems to be your chief export. Stupidity and violence are your cash crops all you. And **this was before September 11th** and I said my solution to the problem in the Middle East is this:](../../Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years) ===:::
