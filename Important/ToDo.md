@@ -1388,3 +1388,8 @@ https://old.reddit.com/r/comics/comments/1nbkmfm/art/
 ELZIA effect. Voice of magical God.     
 Religion+Dishonesty+AI = A Recipe For Success???    
 https://www.youtube.com/watch?v=9HORuCSsDLI
+
+&nbsp;
+
+Canada, coming MAGA hate     
+https://www.youtube.com/watch?v=nkVR5S-oYo8
