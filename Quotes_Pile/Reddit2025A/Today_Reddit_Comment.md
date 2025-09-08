@@ -361,3 +361,15 @@ https://old.reddit.com/r/dontyouknowwhoiam/comments/1nbkoxv/he_literally_wrote_t
 Messyfingers 2017-10-17
 
 "He sort of loves it I think. The man is a curmudgeon and does seem to relish any opportunity to flex his old man muscles."
+
+&nbsp;
+
+https://old.reddit.com/r/dontyouknowwhoiam/comments/1nbkoxv/he_literally_wrote_the_book_on_it/nd3of3v/
+
+umlaut 2010-01-02
+
+"That's why I used to always check someone's profile before replying. I was arguing about a subject that I am an expert in and the person I was responding to was a kid in high school that regularly posted on subreddits dedicated to shoplifting and hard drugs.
+
+While I appreciate the new feature that allows you to hide your history on your profile, it also makes it harder to know who you are talking to."
+
+* :::=== RoundSparrow_Commentary : Context bewilderment abounds. A stream of meme messages from thousands of different authors that people forget in 12 hours with the latest refresh of Bluesky and Reddit home page. Serious topics don't sustain, only the meme decorations / amusement style. Neil Postman was correct in his 1985 book. :::====
