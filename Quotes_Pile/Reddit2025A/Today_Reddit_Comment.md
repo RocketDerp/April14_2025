@@ -129,3 +129,11 @@ https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2k60q/
 "And he has absolutely murdered international relations with long term allies. Canada has essentially collectively boycotted all American product, and ceased all tourism, bankrupting cities that rely on it. Even other countries hesitate due to the very real chance of getting detained on the border for weeks then either sent back home or disappeared to Alligator Auschwitz without a word. These aren’t issues that can easily be fixed with time."
 
 * :::=== RoundSparrow_Commentary : No, time alone isn't going to fix it. People, WE THE PEOPLE, need to admit to a foundation error in our behaviors. That media addiction / meme addiction / trash media consumption of ficton has wrecked goodness itself. That The Middle East Bible is science fiction and we are not equating the 2,000 year old Bible poblem to Fox News / Newsmax / Reddit / Bluesky fiction addiction problem in modern mediums. We have "Amusing Ourselves To Death" as described in 1985 by Neil Postman. We the PEOPLE addressing that Donald Trump playing Tony Clifton is mockery addiciton, mocking and insulting how terrile and bad Clifton is at being on stage. ADMITTING IT, every single person getting on social media age 12 to age 120, and memorizing and reciting Neil Postman's short 184 page book! Stand up for Jen Senko! Stand up for self-awareness of media addiction behavior to Donald Trump antics. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2x671/
+
+AugustusTheWhite 2025-08-10 (new account)
+
+"She also didn't go on the Joe Rogan Experience. Absolutely unacceptable behavior from a "presidential candidate"."
