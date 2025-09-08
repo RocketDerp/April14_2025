@@ -216,3 +216,12 @@ Made_Human_Music 2025-08-12 (new account)
 
 Democrats are far from perfect but anyone who chose Trump over Kamala is stupid or evil. And anyone who didn’t vote because they thought both sides are the same or they wanted to send a message is just stupid"
 
+&nbsp;
+
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2jw4t/
+
+SourceBrilliant4546 2025-06-26 (recent account)
+
+"That's the plan. Farms foreclosed sold to big agra, homes foreclosed sold to Blackstone all clearly laid out in HF 2025. The companies will serve at the behest of the White Christian Nationalist Autocracy. This is probably the one thing more relevant then the Epstein files. If you don't read the rules, you don't understand the game. Once you do you realize that isolation and tariffs are part of the plan to get rid of any independent fed and hand complete control to the executive branch because as directly stated democracy is Marxist and runs counter to the reboot of Christian America 2.0. And no, Im not making this shit up. They have said it will be a bloodless coup if we allow it. Breaking the bank of us middle and lower class cogs makes us the cheap labor to work until we die."
+
+* :::=== RoundSparrow_Commentary : No links, no citations, no author names. ===:::
