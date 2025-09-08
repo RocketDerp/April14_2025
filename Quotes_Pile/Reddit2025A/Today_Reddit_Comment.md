@@ -455,3 +455,13 @@ BitterFuture 2018-02-14
 "The idea that you respond to brutality with brutality, to crime with crime, is an argument against the entire concept of law itself.
 
 Fascism apes civilization, but when you come down to it, the drives and motivations of fascists are incompatible with civilization."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nbqzaz/trump_implies_that_he_might_have_to_take_horrible/nd3utdh/
+
+Lets_Kick_Some_Ice 2016-04-01
+
+"This idiot lives inside right wing propaganda, where Chicago is this weird fixation. Chicago barely cracks the top 10 in murder rates. You will find higher rates in cities in red states like Louisiana, Missouri, Ohio, and Tennessee."
+
+* :::=== RoundSparrow_Commentary : [Everything is Media Ecology. Analyze people's addiction to media platforms and inability to discuss mob mentality and you start to grasp how Putin and Trump are motivated / motivating to population.](../../Media_Ecology/Everything_is_ME.md) - Agreement with Trump and Putin is often a symptom of consuming the same media content. ===:::
