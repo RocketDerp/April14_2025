@@ -321,3 +321,15 @@ https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_c
 jaybyrrd 2012-09-05
 
 "I get what you are saying but whether it was him or his staffer, it reflects upon him. It’s his administration and that includes his staff and their behavior. When they or he do something on his official accounts, the world assumes it comes from him and that’s the effect. As a country we need someone who handles something as basic as their social media more responsibly, let alone everything else."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd2u2n5/
+
+rmlopez 2013-03-26
+
+"You know what was great about Presidents that aren't Trump? They don't tweet their half baked policies and ideas first and then try to implement them later.
+
+all I'm saying is I like it better when the presidents social media was irrelevant."
+
+* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal Twitter usage](Surkovian_Onion_Eating.md). Constant media entertainment being the Russian technique that has kept Putin in power for 25 years. Obivious to the situation, treating it as a minor annoyance and not the very neans of Russia defeating USA in information warfare. ===:::
