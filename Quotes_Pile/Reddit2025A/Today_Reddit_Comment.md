@@ -303,3 +303,16 @@ https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_c
 DrinkNWRobinWilliams 2022-09-12
 
 "The German public didn’t begin to lose confidence in der Fuhrer until British bombs began falling on their heads and the Russians started sending their children back home to be buried."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nbawru/be_quiet_trump_throws_a_fit_calls_reporter/nd2bdmx/
+
+Schmichael-22 2021-11-06
+
+"So he called his own Twitter account fake news?"
+
+* :::=== RoundSparrow_Commentary : December 2014: "Everything we're told by journalists and politicians is **confusing and contradictory**. Of course, there is no Mr. Surkov in charge, but it is an odd, non-linear world that plays into the hands of those in power." - https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html - works EVERY TIME on USA media addicts. Year 2014, I can't emphasize ENOUGH, YEAR 2014 published. We The People can not make connection with Surkov. No defense has been found to this tactic. People fall in line with the total mockery. Russia won, Surkov won. ===:::
+
+&nbsp;
+
