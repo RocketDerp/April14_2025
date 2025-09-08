@@ -195,3 +195,13 @@ Ayn_Rambo 2025-03-18 (new this year)
 "It was frustrating watching Kamala lay out specific policy proposals with figures and details and right afterwards, the talking heads would say that her policies were vague.
 
 And they’d do it again and again."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2trli/
+
+Merreck1983 2019-09-05
+
+"Sure, because as we all know voters- be they MAGA or people that stayed home- have utterly no agency or responsibility for their own actions and decisions. They're just helpless bystanders that only act at the behest of external forces.
+
+Kinda like how if I get arrested for running someone over while driving drunk, the judge and jury will absolutely accept my excuse that the real culprit is my friend at the bar that couldn't convince me not to drink and drive."
