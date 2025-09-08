@@ -399,3 +399,14 @@ Guy literally supported the building of the shitcastle in which we're living and
 Fuck that guy.
 
 But yes, maritime warfare he is an expert."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nbmkqp/bidenera_noncompete_ban_collapses_as_ftc/nd2rrw0/
+
+airduster_9000 2015-01-03
+
+"Republicans have always been the simps of billionaires - doing their bidding - often without realizing it.
+
+When intelligence is seen as a bad thing it gets so much easier to scam and gaslight people."
+
