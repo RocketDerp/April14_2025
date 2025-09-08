@@ -1361,3 +1361,8 @@ https://old.reddit.com/r/news/comments/1nb4zud/grandmother_charged_after_11yearo
 
 Neil deGrasse Tyson on Science vs. marketing, science vs. religion    
 https://www.youtube.com/watch?v=7GsfckziNCU
+
+&nbsp;
+
+Red Letter Media. Being meta and over audience head.     
+https://youtu.be/q5-b7v6EIzc?t=745
