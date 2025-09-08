@@ -137,3 +137,19 @@ https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2x671/
 AugustusTheWhite 2025-08-10 (new account)
 
 "She also didn't go on the Joe Rogan Experience. Absolutely unacceptable behavior from a "presidential candidate"."
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikewine/comments/1nbk5o4/they_were_right/nd2xr74/
+
+Chaotic-Catastrophe 2017-04-06
+
+"Especially because he's doing exactly what he promised. He didn't delude his voters, they deluded themselves.
+
+Harris: He's going to destroy the economy on purpose
+
+Trump: I'm going to destroy the economy on purpose
+
+Republican voters: He's going to be great for the economy!"
+
+* :::=== RoundSparrow_Commentary : Reddit meme adicts think that *rural uneducated Trump supporters* did it to themselves and Rupert Murdoch has no role in it. Media ecology educaiton is not optional, every person age 12 to age 120 needs to face up to Neil Postman's library of published books about media ecology. We are "Amsuing Ourselves To Death" on Reddit and Fox News. Rupert Murdoch is predatory, Trump Social (Trump) is predatory. They didn't *delude their own self*. See also: Church / Mosque / Torah / Bible / Quran. Indoctrination into Fox News fiction, indoctrination into Bible fiction. ===:::
