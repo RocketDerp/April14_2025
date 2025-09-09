@@ -58,6 +58,14 @@ fumat 2017-02-14
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1ncizwh/oc_israel_bombed_qatar/nd9j97u/
+
+Crowseye021 2016-06-05
+
+"Shit, here we go. I thought this was satire. These gulf countries are supposed to be untouchable"
+
+&nbsp;
+
 # Monday, September 8, 2025
 
 &nbsp;
