@@ -400,3 +400,25 @@ https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and
 Funkycoldmedici 2019-03-30
 
 "These are the people who held a press conference in a landscaper’s parking lot because they thought they had called the Four Seasons hotel and could not admit they fucked up."
+
+&nbps;
+
+https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndbafuq/
+
+"This will never not be funny.
+
+Hello is the four seasons?
+
+Sure is!
+
+We need to book a press conference Asap. It's for the president.
+
+A what now?
+
+A press conference. Stop messing around this is urgent. Well pay the usual xxx amount(more than the place sees in a week) but it has to happen today.
+
+Sure let's get right on that. Heres our address.....
+
+Did these guys ever get paid?"
+
+* :::=== RoundSparrow_Commentary : Americans can not resist absurd surreal mind exploits. Information warfare of inverting status symbols / POTUS icons. Donald Trump / Rudy G playing Tony Clifton acts is irresistible to the media addict population of USA. We The People eat it up every time, Surkovian Russian techniques year 2011. "This will never not be funny", predictable brain exploit. ===:::
