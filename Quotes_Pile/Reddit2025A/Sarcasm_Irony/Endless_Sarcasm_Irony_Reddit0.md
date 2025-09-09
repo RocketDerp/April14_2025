@@ -103,3 +103,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ncgghv/thank_you_for_your_
 
 Epstein List. October 7 (Putin Birthday) 2024     
 https://old.reddit.com/r/agedlikemilk/comments/1nckqma/then_what_happened/
+
+&nbsp;
+
+Reddit fiction addicts can't face up that Trump is fiction, Fox News is fiction, Bible is fiction, etc. We have a massive media ecology problem, defined in "Amusing Ourselves to Death" book published in 1985.     
+https://old.reddit.com/r/CringeTikToks/comments/1ncjiy0/trumps_spiritual_advisor_paula_white_to_say_no_to/
