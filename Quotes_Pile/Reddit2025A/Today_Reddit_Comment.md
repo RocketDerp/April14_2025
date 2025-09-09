@@ -555,3 +555,23 @@ DrAstralis 2012-12-18
 "It really is. To use a tenuous comparison its like dealing with flat earth. You can either try to explain all the observable phenomenon with 100 different explanation that have to patchwork to make any sense at all on a flat earth, and that still fail most tests.... (everyone trying to claim trump isnt a Russian asset), or you can have one theory that neatly and accurately explains all those same observable phenomenon, a globe earth (in this case its that trump is OBVIOUSLY a Russian asset).
 
 tl;dr; Trump being a Russian asset neatly explains the VAST majority of the actions he's taken since 2016, and 1000% more so since Jan 2025."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd92eof/
+
+iwasnotarobot 2012-09-12
+
+<img width="1370" height="872" alt="Screenshot from 2025-09-09 06-36-15" src="https://github.com/user-attachments/assets/4c9be692-0f52-493b-b8c2-c962dcb52bae" />
+
+&nbsp;
+
+"You’re not hearing about this stuff for the same reason that you’re not hearing about all the “music festivals” (anti-ICE protests) in the United States.
+
+Social media companies have been completely captured by tech oligarchs. Musk, Zuckerberg, Thiel, and the rest don’t want an uprising. So certain topic and keywords are suppressed.
+
+The Nepali government completely shut social media down. Watch for that happening in your neighbourhood when oligarchs start to feel threatened."
+
+* :::=== RoundSparrow_Commentary : I've been in social media since 1983, published author, IBM social media ambassador. Bluesky is the newest of the well-known platforms and the filter-bubble behavior https://en.wikipedia.org/wiki/Filter_bubble is extreme. People on Bluesky dehumanize each other with deportation / blocking at the drop of a hat. Mass dehumanization is popular and cheered in USA Bluesky. ===:::
