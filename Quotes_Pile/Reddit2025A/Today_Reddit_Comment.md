@@ -18,6 +18,36 @@ BarkerBarkhan 2020-01-02
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1ncizwh/oc_israel_bombed_qatar/nd9m2hn/
+
+M0hawk_Mast3r 2019-04-23
+
+"you guys are stupid if you think the United States has any control over what Israel does. The relationship does not work like that, Israel doesn't know whatever it wants with American tax payer money. Then uses the United States to clean it up"
+
+* :::=== RoundSparrow_Commentary : Israel and USA population consumes the same science fiction story "Torah" with Adam / Eve / Moses (Bible front section, "Old Testiment" in the $59.99 Donald Trump Bible) and think they have common values and grounds. It is like the audience of fiction Fox News finding themselves in agreement because people watched the same entertainment Fox News story that same week. There is an absence of media ecology self-awareness of how media consumption (John 1:1) influences feelings of having something in common with mindsets. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncizwh/oc_israel_bombed_qatar/nd9k5wr/
+
+upbeatchief 2019-04-23
+
+"Man this is vile
+
+They are trying to sabotage the hostage deal. By launching an attack on qatari soil (qatar is an intermediator between hamas/israel) they want the qatari to pull out of the negotiations and thus the israeli can say qatar is to blame for the hostages not being released.
+
+https://www.timesofisrael.com/security-chiefs-negotiators-us-said-all-blaming-netanyahu-for-tanking-hostage-talks/
+
+Article: Security chiefs, negotiators, US all said blaming Netanyahu for tanking hostage talks
+
+This has happened before. The hostages could have been home over a year ago. But the Israelis want the genocide to continue.
+
+This also covers up yesterday drone attack in the sumud flotilla. I wouldn't be surprised if the had a third attack in bound to iran or somewhere else.
+
+Edit: its confirmed, they killed the hamas head negotiator."
+
+&nbsp;
+
 # Monday, September 8, 2025
 
 &nbsp;
