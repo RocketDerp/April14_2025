@@ -316,3 +316,11 @@ https://old.reddit.com/r/pics/comments/1ncisp5/disturbing_drawing_from_the_epste
 Kootsiak 2013-12-11
 
 "This can't be real? This is cartoonishly evil, it would be silly if it were a visual gag in a Family Guy episode."
+
+&nbsp;
+
+https://old.reddit.com/r/europe/comments/1nckxis/new_balance_of_power_michael_de_adder/ndasvt2/
+
+CoffeeDrinkerMao 2019-12-28
+
+"Feelings are secondary, the US, Russia, and China can literally decimate any other country or powerblock. Economically and Militarily. There is nobody left."
