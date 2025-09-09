@@ -286,3 +286,25 @@ jumpinpuddles 2012-01-20
 "Wow. Another commenter said the building looks like Mar a Lago, just googled Mar a Lago and Epstein’s island house. The building looks a lot like Mar a Lago and nothing like the island house. 😳 The jet being that specific makes me think its likely meant to be a specific building and not some random background."
 
 &nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncisp5/disturbing_drawing_from_the_epstein_birthday_book/ndalwdu/
+
+UpperApe 2023-12-10
+
+"I'm confused by people surprised by this.
+
+Conservatives are *literally* the party of slavers and nazis. They've been against civil rights, women's rights, equal rights, labour rights, gay rights, trans rights, etc. the entirety of their existence. They are literally the group who rose up when monarchies fell and democracy rose to fight FOR the nobles retaining their (unfair and unearned) privileges and power. They are *literally* the party of social/cultural hierarchies.
+
+Y'all are surprised that they support Trump?
+
+Trump isn't an anomaly of conservatism, he's the inevitability of conservatism. He's the whole fucking point."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncisp5/disturbing_drawing_from_the_epstein_birthday_book/nd9hewu/
+
+Str4425 2019-04-26
+
+"This is a celebration of pedophilia. 
+
+If real, it means it was indeed well known and widespread what was going on."
