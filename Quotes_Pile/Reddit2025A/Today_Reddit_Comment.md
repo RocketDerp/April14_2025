@@ -401,7 +401,7 @@ Funkycoldmedici 2019-03-30
 
 "These are the people who held a press conference in a landscaper’s parking lot because they thought they had called the Four Seasons hotel and could not admit they fucked up."
 
-&nbps;
+&nbsp;
 
 https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndbafuq/
 
@@ -422,3 +422,11 @@ Sure let's get right on that. Heres our address.....
 Did these guys ever get paid?"
 
 * :::=== RoundSparrow_Commentary : Americans can not resist absurd surreal mind exploits. Information warfare of inverting status symbols / POTUS icons. Donald Trump / Rudy G playing Tony Clifton acts is irresistible to the media addict population of USA. We The People eat it up every time, Surkovian Russian techniques year 2011. "This will never not be funny", predictable brain exploit. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndatlgx/
+
+BallAccomplished5733 2025-04-26 (new this year)
+
+"Where do you think writers for these shows get their ideas from? The storylines are often perceived as too absurd to ever be real, and yet if someone were to follow this circle of people around for a few years, you could have seasons worth of material in no time."
