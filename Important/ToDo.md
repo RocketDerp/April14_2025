@@ -1403,3 +1403,8 @@ https://youtu.be/Wm8qRQ6OGdY?t=511
 
 PlayItEssays is Over     
 https://www.youtube.com/watch?v=yYHL4uJiT-I
+
+&nbsp;
+
+Choice marriage honesty. Boring spouse candidates.   
+https://old.reddit.com/r/SipsTea/comments/1ncp6t9/basically/
