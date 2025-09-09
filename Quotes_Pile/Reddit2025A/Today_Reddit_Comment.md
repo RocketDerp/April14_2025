@@ -176,3 +176,11 @@ https://old.reddit.com/r/law/comments/1ncm9c2/mike_johnson_yield_man_let_the_tro
 PRESIDENTG0D 2021-04-01
 
 "Exactly this. What is the national guard gonna do? Solve all the cases for detectives? Troops on the street isn’t supposed to be a thing in the United States. That’s what happens in full dictatorships, and I can’t believe that there’s anyone ok with it regardless of political affiliation."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncm9c2/mike_johnson_yield_man_let_the_troops_come_into/nda7t27/
+
+modix 2007-10-26
+
+"The SotH telling a governor to submit sovereignty to the president in order to violate posse comitus. What the fuck timeline is this? Doesn't even make sense to use military for policing. They're not even trained at it. They're trained to kill and defend."
