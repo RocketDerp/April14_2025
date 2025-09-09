@@ -348,3 +348,11 @@ https://old.reddit.com/r/TikTokCringe/comments/1ncpi4t/texas_am_student_is_asked
 Temporary_Ad9362 2021-11-17
 
 "transgender people are fake but Sky Daddy who does magic is real."
+
+&nbsp;
+
+https://old.reddit.com/r/dankmemes/comments/1nckcoe/anticorruption_youths_just_set_the_palace_ablaze/nda9nxw/
+
+am_dragon 2019-01-10
+
+"Jesus the poeple on reddit are so fucking stupid. They burned a woman while she was still alive."
