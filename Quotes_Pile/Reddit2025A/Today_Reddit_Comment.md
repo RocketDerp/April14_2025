@@ -160,3 +160,19 @@ https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_updat
 mojizus 2013-09-03
 
 "It would be real cool if people could start talking about this war again. Almost seems like it fell out of fashion a year or so ago."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd938zi/
+
+Mysterious-Prompt212 2024-09-27
+
+"As an American I am sick of Tramp getting all his marching orders from Putin. Tramp is in full swing right now destroying the US from within and democracy worldwide. The EU better step up because the US is compromised."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncm9c2/mike_johnson_yield_man_let_the_troops_come_into/nda7bhb/
+
+PRESIDENTG0D 2021-04-01
+
+"Exactly this. What is the national guard gonna do? Solve all the cases for detectives? Troops on the street isn’t supposed to be a thing in the United States. That’s what happens in full dictatorships, and I can’t believe that there’s anyone ok with it regardless of political affiliation."
