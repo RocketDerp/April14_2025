@@ -131,3 +131,11 @@ ClearlyNotMeAtAll 2024-08-06
 https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd8l8wi/
 
 "This is exactly what Russia is doing since day one, but people thought it was due because of faulty Russian equipment."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd8noj8/
+
+castion5862 2023-04-04
+
+"Putin is a murderer and Trump is his enabler. Shame on world leaders poor pensioners blown up by psychopaths"
