@@ -10,6 +10,14 @@ The people who complain about something "not being covered by western media" are
 
 &nbsp;
 
+https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd8wu3u/
+
+BarkerBarkhan 2020-01-02
+
+"Yes, one of the many tragic features of the current regime in DC is that its propaganda makes the world feel so small, like the only thing that matters is that fucking guy."
+
+&nbsp;
+
 # Monday, September 8, 2025
 
 &nbsp;
