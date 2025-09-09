@@ -308,3 +308,11 @@ Str4425 2019-04-26
 "This is a celebration of pedophilia. 
 
 If real, it means it was indeed well known and widespread what was going on."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncisp5/disturbing_drawing_from_the_epstein_birthday_book/nd9fsdm/
+
+Kootsiak 2013-12-11
+
+"This can't be real? This is cartoonishly evil, it would be silly if it were a visual gag in a Family Guy episode."
