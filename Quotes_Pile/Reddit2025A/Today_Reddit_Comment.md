@@ -226,3 +226,11 @@ JakeTravel27 2024-05-02
 "this will be the maga mantra - safety. fox propaganda has spent decades scaring their gullible base out of their minds about those scary cities, scary minorities, scary gay people. They will try to keep their base scared so they can justify deploying the military against US citizens"
 
 * :::=== RoundSparrow_Commentary : Donald Trump can not tell tht The Bible from the Levant is science fiction. Donald Trump can not tell that Fox News is fiction entertainment. We have a media ecology crisis, we ar "Amusing Ourselves To Death" with fiction content. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ncit5m/explosion_heard_in_qatars_capital_as_israel_says/nd9nfh9/
+
+meeplewirp 2020-04-11
+
+"I think there is no point in looking at online discourse related to this issue as it is undoubtedly comprised of 50% bots"
