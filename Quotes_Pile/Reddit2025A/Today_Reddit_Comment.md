@@ -382,3 +382,13 @@ Strength-Speed 2016-03-03
 "It seems like no mistake. Trump very frequently accuses others of what he is doing. It seems to be a strategy of intentional obfuscation of one's own crimes and psychological projection.
 
 Beyond that this whole R wing sphere of disinformation doesn't seem totally organic to me. Is this guided by Russian psyop operatives, or wealthy insiders with paychological warfare experience? Because there seems to be some design, organization behind all this duping of America."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndap1eu/
+
+BadHombreSinNombre 2017-02-13
+
+"There has got to be some missing context here because there is absolutely no way that someone would have a giant novelty check printed for the purposes of committing human trafficking, that’s like George Bluth Sr territory of stupid."
