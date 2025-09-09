@@ -184,3 +184,11 @@ https://old.reddit.com/r/law/comments/1ncm9c2/mike_johnson_yield_man_let_the_tro
 modix 2007-10-26
 
 "The SotH telling a governor to submit sovereignty to the president in order to violate posse comitus. What the fuck timeline is this? Doesn't even make sense to use military for policing. They're not even trained at it. They're trained to kill and defend."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncm9c2/mike_johnson_yield_man_let_the_troops_come_into/ndaahm2/
+
+Key-Guarantee595 2025-01-01 (New Year, new this year)
+
+"There have been a lot of firsts for our country since January. The speaker of the house is nothing but a brown nosing wishy washy dwarf named sleepy or dopey, take your pick either applies. He really needs a back bone for crying out loud."
