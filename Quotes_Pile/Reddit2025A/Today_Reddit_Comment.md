@@ -450,3 +450,27 @@ Darko33 2010-02-20
 "The issue with American politics is that once all this is normalized, there's no going back anymore. You think anyone is going to give two shits about a tan suit or a weird yell or even an intern scandal anymore? Ha. Sorry, that ship has sailed and it ain't ever coming back."
 
 * :::=== RoundSparrow_Commentary : Media addicts often can't tolerate films or TV shows from earlier generations. They need them remade in the current fashion and style. Same with clothing / music, once addicted to a certain style - media addiction driven socities are very conformity oriented. Russia the past 20 years, Middle East, etc. ====:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndartyj/
+
+VolitupRoge 2018-07-25
+
+<img width="870" height="464" alt="image" src="https://github.com/user-attachments/assets/7bd5cb9c-726a-4bda-8b14-725d8d1ac0ae" />
+
+&nbsp;
+
+"The overwhelming majority of Americans are okay with this. They are either actively or passively supporting a russian agent and sex trafficker to hold their highest office."
+
+* :::=== RoundSparrow_Commentary : People aren't *okay* with this, they are entirely addicted to the mockery that Donald Trump originates. The nonstop media stimulation feeds media addictions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndaznim/
+
+joebleaux 2007-12-05
+
+"Everything they don't like is fake now. Turns out just going "nuh uuh" is enough of a defense for them now and all of their supporters and most of congress are fine with that."
