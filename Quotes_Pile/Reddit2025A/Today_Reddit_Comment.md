@@ -340,3 +340,11 @@ https://old.reddit.com/r/TikTokCringe/comments/1ncpi4t/texas_am_student_is_asked
 Pleasant-Visit-8640 2022-08-23
 
 "Seriously, like imagine being that person who is transgender who spoke up in that class… Imagine having your identity analyzed and devalued from the lens of a rapist felon president that has become increasingly normalized and pervasive. I can’t begin to imagine the fear, sadness and frustration that would prompt in daily life."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1ncpi4t/texas_am_student_is_asked_to_leave_a_class_after/ndb0qb9/
+
+Temporary_Ad9362 2021-11-17
+
+"transgender people are fake but Sky Daddy who does magic is real."
