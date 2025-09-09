@@ -525,3 +525,13 @@ Mustard_Jam 2019-12-18
 They've actually managed to convince a massive chunk of the population that other poor people are a bigger problem than the rich oligarchs pulling all the strings. They've convinced most of the population that taking from the rich to help the poor is somehow bad and communist.
 
 And this has been going on for decades. I will NEVER play "both sides are the same" card but the US democrats have for the most part peddled the same bullshit talking points when it comes to this specific issue."
+
+&nbsp
+
+https://old.reddit.com/r/worldnews/comments/1nbrn5i/south_koreans_feel_betrayed_after_hundreds_of/nd4xxo0/
+
+DrAstralis 2012-12-18
+
+"It really is. To use a tenuous comparison its like dealing with flat earth. You can either try to explain all the observable phenomenon with 100 different explanation that have to patchwork to make any sense at all on a flat earth, and that still fail most tests.... (everyone trying to claim trump isnt a Russian asset), or you can have one theory that neatly and accurately explains all those same observable phenomenon, a globe earth (in this case its that trump is OBVIOUSLY a Russian asset).
+
+tl;dr; Trump being a Russian asset neatly explains the VAST majority of the actions he's taken since 2016, and 1000% more so since Jan 2025."
