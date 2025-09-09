@@ -474,3 +474,11 @@ https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and
 joebleaux 2007-12-05
 
 "Everything they don't like is fake now. Turns out just going "nuh uuh" is enough of a defense for them now and all of their supporters and most of congress are fine with that."
+
+&nbsp;
+
+https://old.reddit.com/r/ShareMarketupdates/comments/1ncodau/every_republican_on_the_house_rules_committee/ndb1ckn/
+
+sir-chefs-alot420 2025-05-24 (recent account)
+
+"The sheer lack of transparency in a matter as damning as this is clearly an admission of guilt. There is literally no other reason to hide the information, unless that information has negative repercussions for those who have seen it. There is no moral high ground "protecting" us from this information like it's dangerous or traumatizing to the victims. It's not wanting to admit guilt or association because you know who's guilty. Any single person, left right, or otherwise, against full transparency releasing the documents is complicit in the offense or cover-up thereafter. Burn them all."
