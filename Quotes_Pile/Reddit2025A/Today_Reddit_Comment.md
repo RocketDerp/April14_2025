@@ -123,3 +123,11 @@ https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_updat
 Konpochiro 2021-12-13
 
 "I will never forget this pos rolling out the red carpet and clapping for Putin after treating Zelensky like shit. Fuck him, Vance and all his lackeys and enablers. Zelensky is a better man than they could even comprehend."
+
+&nbsp;
+
+ClearlyNotMeAtAll 2024-08-06
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd8l8wi/
+
+"This is exactly what Russia is doing since day one, but people thought it was due because of faulty Russian equipment."
