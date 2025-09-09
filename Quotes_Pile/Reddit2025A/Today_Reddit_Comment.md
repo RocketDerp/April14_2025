@@ -208,3 +208,11 @@ https://old.reddit.com/r/law/comments/1ncm9c2/mike_johnson_yield_man_let_the_tro
 thatfookinschmuck 2011-06-22
 
 "So clearly kayfabe. Works amazingly against idiots though gotta admit."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncm9c2/mike_johnson_yield_man_let_the_troops_come_into/nda9gab/
+
+AlarmingSpecialist88 2020-08-08
+
+"No one would dispute that authoritarianism can reduce street crime.  The problem is the government commits inherent crimes against its own citizens in the process, and there is no justice for that."
