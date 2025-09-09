@@ -91,3 +91,13 @@ https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_updat
 Snapphane88 2025-07-25 (new account)
 
 "No they aren't next. Putin has been prepping a Baltic invasion for many years, has been clear on his aspirations. Even before Finland joined nato, Baltics was always next. Its not really up for discussion, we know what he wants. Baltics have much larger Russian populations than Finland, that's probably the biggest reason. They also fit better in line with his their tactical aspirations, joining st Petersburg up with Kalinigrad. Then there are historic reasons, returning the Soviet block."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd8m3bi/
+
+MaximinusDrax 2016-08-15
+
+"It's kind of the same for my country (Israel). Far-right/Jewish supremacist/fascist people (whichever way you may want to address them) were gleeful when the US election results came out, and became far more open about their views/goals (they were always genocidal morons).
+
+I think it's happening in many other nations, sadly."
