@@ -54,3 +54,5 @@ https://old.reddit.com/r/politics/comments/1nbuhcn/trump_implies_that_domestic_v
 
 https://old.reddit.com/r/politics/comments/1nbl7wh/kennedy_family_rfk_jr_is_threat_to_wellbeing_of/
 
+Bible Satan Trump, but no Bible literacy teaching on social     
+https://old.reddit.com/r/MurderedByWords/comments/1ncgc46/trump_is_more_satanic_than_the_mtv_awards/
