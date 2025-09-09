@@ -440,3 +440,13 @@ Delicious_Tea3999 2023-06-01
 "Any of it would have! I don’t understand why Trump gets a pass on evvvvverything, it boggles my mind"
 
 * :::=== RoundSparrow_Commentary : Russian information warfare since March 2013 is the most potent mind-fucking / boggles minds ever created by humanity. No defense has been found against using absurd surreal antics mind exploits. Putin has been in power for 25 years. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndb8i6h/
+
+Darko33 2010-02-20
+
+"The issue with American politics is that once all this is normalized, there's no going back anymore. You think anyone is going to give two shits about a tan suit or a weird yell or even an intern scandal anymore? Ha. Sorry, that ship has sailed and it ain't ever coming back."
+
+* :::=== RoundSparrow_Commentary : Media addicts often can't tolerate films or TV shows from earlier generations. They need them remade in the current fashion and style. Same with clothing / music, once addicted to a certain style - media addiction driven socities are very conformity oriented. Russia the past 20 years, Middle East, etc. ====:::
