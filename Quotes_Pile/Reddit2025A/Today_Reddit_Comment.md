@@ -260,3 +260,13 @@ brannock_ 2014-01-20
 "At this point it's clear that Israel is exactly what we were propagandized into believing North Korea was. A genocidal rogue state armed with nuclear weapons and persistently trying to start multiple regional wars with its neighbors."
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1ncit5m/explosion_heard_in_qatars_capital_as_israel_says/nd9ntpb/
+
+Dr0me 2012-11-28
+
+"ITT apologists crying about terrorist leaders who embezzled billions of aid money meant for Gaza and refused to tell hamas to surrender and return the hostages to end the war.
+
+The USA and Israel told Qatar they were going to do this and Qatar signed off. They are just going to release a press release condemning it to save face but will do nothing. This was long overdue. Hamas refused to surrender and now Gaza city will be taken by force. Play stupid games win stupid prizes."
+
+&nbsp;
