@@ -575,3 +575,15 @@ Social media companies have been completely captured by tech oligarchs. Musk, Zu
 The Nepali government completely shut social media down. Watch for that happening in your neighbourhood when oligarchs start to feel threatened."
 
 * :::=== RoundSparrow_Commentary : I've been in social media since 1983, published author, IBM social media ambassador. Bluesky is the newest of the well-known platforms and the filter-bubble behavior https://en.wikipedia.org/wiki/Filter_bubble is extreme. People on Bluesky dehumanize each other with deportation / blocking at the drop of a hat. Mass dehumanization is popular and cheered in USA Bluesky. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd8y5bk/
+
+OneFineBoi 2021-08-12
+
+"https://september-8-nepal.vercel.app
+
+This contains so many clips and photos of todays incident. Pls share this as much as you can
+
+NSFL"
