@@ -48,6 +48,16 @@ Edit: its confirmed, they killed the hamas head negotiator."
 
 &nbsp;
 
+https://old.reddit.com/r/pics/comments/1ncizwh/oc_israel_bombed_qatar/nd9kkbu/
+
+fumat 2017-02-14
+
+"In this political chaos nobody seems to give a flying fuck anymore. It’s only going to get worse."
+
+* :::=== RoundSparrow_Commentary : Of course **people care**, this bullshit of "nobody seems to give a flying fuck anymore" is incredibly shallow and lacking self-awareness. Social media users are flocking to the topic like flies to shit. War and action violence is entertainment to people who avoid serious discussion of the education / comprehension problems in society. Media addicts of Reddit can't wait to get notification of breaking news events to engage on social machines of Reddit. People give a HUGE SHIT to it like sporting events and famous entertainers like Reality TV star "The Apprentice" show coverage. Sports team Torah vs. sports team Quran live coverage! Fiction story vs. fiction story fighting it out! Sports fanatics with sports mentality. ===:::
+
+&nbsp;
+
 # Monday, September 8, 2025
 
 &nbsp;
