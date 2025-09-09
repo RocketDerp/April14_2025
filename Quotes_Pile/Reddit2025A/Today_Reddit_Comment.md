@@ -365,4 +365,20 @@ Pb_ft 2012-12-08
 
 "Here it is. This is what we've been missing about the "owning the libs" motivation. It's rhetorical heroin."
 
-* :::=== RoundSparrow_Commentary : Levant tradition. Orthodox believers *own the liberals* Torah vs. Bible. Then Bible vs. Quran. A hates B, B hates C, C hates A. Out-group hate. Hate motivates, murdering and killing the out-group deepest faith people hold. Been going on for thousands and thousands of years, clergy able to draw fiction addict audiences with out-group hate messages. ===:::
+* :::=== RoundSparrow_Commentary : Levant media tradition. Orthodox believers *own the liberals* Torah vs. Bible. Then Bible vs. Quran. A hates B, B hates C, C hates A. Out-group hate. Hate motivates, murdering and killing the out-group deepest faith people hold. Been going on for thousands and thousands of years, clergy able to draw fiction addict audiences with out-group hate messages. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndas1kv/
+
+Strength-Speed 2016-03-03
+
+<img width="1252" height="852" alt="Screenshot from 2025-09-09 13-29-34" src="https://github.com/user-attachments/assets/729ac7ee-93f8-4b15-a37b-6ee97fd8101f" />
+
+&nbsp;
+
+"It seems like no mistake. Trump very frequently accuses others of what he is doing. It seems to be a strategy of intentional obfuscation of one's own crimes and psychological projection.
+
+Beyond that this whole R wing sphere of disinformation doesn't seem totally organic to me. Is this guided by Russian psyop operatives, or wealthy insiders with paychological warfare experience? Because there seems to be some design, organization behind all this duping of America."
