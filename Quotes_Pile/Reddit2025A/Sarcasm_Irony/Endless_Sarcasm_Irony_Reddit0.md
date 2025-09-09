@@ -88,3 +88,8 @@ https://old.reddit.com/r/AdviceAnimals/comments/1nbqqif/i_had_no_idea_that_the_u
 A fake picture of Donald Trump, entertainment fixation of America, on front page of Reddit.   
 Trump doesn't produce enough fiction entertainment for USA media addicts, so people create their own fan ficiton of Donald Trump. Media addiction runs USA society, and Trump is the addiction We The People have.    
 https://old.reddit.com/r/BlueskySkeets/comments/1ncgwqp/this_is_solid_work/
+
+&nbsp;
+
+Front page of Reddit: "Donald Trump has no moral compass" - you have to be BLIND to not see that Trump is attracted to fiction. Trump's moral compass points to: **fiction, badness itself**. If We The People think Trump just blindly finds service to Putin... We The People completely do not grasp Surkov techniques of Kremlin year 2011. Donald Trump is not directinless / meandering. He is doing agressive marching in pro-Russia direction since March 2013!        
+https://old.reddit.com/r/NoShitSherlock/comments/1ncicgm/crockett_he_trump_doesnt_have_a_moral_compass_why/
