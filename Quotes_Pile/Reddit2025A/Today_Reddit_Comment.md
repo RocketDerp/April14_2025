@@ -324,3 +324,11 @@ https://old.reddit.com/r/europe/comments/1nckxis/new_balance_of_power_michael_de
 CoffeeDrinkerMao 2019-12-28
 
 "Feelings are secondary, the US, Russia, and China can literally decimate any other country or powerblock. Economically and Militarily. There is nobody left."
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1ncpi4t/texas_am_student_is_asked_to_leave_a_class_after/ndb54id/
+
+LeftyLiberalDragon 2025-07-07 (recent account)
+
+"Religion and sycophancy are a fucking fentanyl level drug."
