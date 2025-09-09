@@ -270,3 +270,11 @@ Dr0me 2012-11-28
 The USA and Israel told Qatar they were going to do this and Qatar signed off. They are just going to release a press release condemning it to save face but will do nothing. This was long overdue. Hamas refused to surrender and now Gaza city will be taken by force. Play stupid games win stupid prizes."
 
 &nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncl51j/nepal_expms_wife_burned_alive_during_nepal_genz/nda2orn/
+
+Kent_Knifen 2016-05-23
+
+"Putting my tinfoil cap on, I can't help but feel it's a deliberate effort to trivialize and belittle people standing up to government corruption. Almost like they're wary of that being done in other countries...."
+
+&nbsp;
