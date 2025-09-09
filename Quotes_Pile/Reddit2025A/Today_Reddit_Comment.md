@@ -101,3 +101,17 @@ MaximinusDrax 2016-08-15
 "It's kind of the same for my country (Israel). Far-right/Jewish supremacist/fascist people (whichever way you may want to address them) were gleeful when the US election results came out, and became far more open about their views/goals (they were always genocidal morons).
 
 I think it's happening in many other nations, sadly."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd94q4h/
+
+xPrimer13 2012-03-28
+
+<img width="872" height="620" alt="Screenshot from 2025-09-09 08-49-00" src="https://github.com/user-attachments/assets/31fcee93-a205-4bdb-8725-67d78e0fdf76" />
+
+&nbsp;
+
+"The disconnect from reality of this comment is genuinely concerning. He literally was emboldened enough to invade under Biden and there were hundreds of civilian strikes. Reddit has lost the plot."
