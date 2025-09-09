@@ -535,3 +535,21 @@ Southern Redeemers and Confederate propagandists won the cultural Civil War over
 While the rest of the country was becoming a modern pluralistic democracy from the 1870s to the 1960s, the South was inventing the modern idea of apartheid. When Trump and modern Republicans speak of "retribution," they are talking about taking revenge on the rest of us who believe in democracy and universal suffrage. They are still mad about Reconstruction (which failed within 10 years anyway), Brown v. Board of Education, the Civil Rights era, and the Voting Rights Act (which they already dismantled). We are entering a new "reconstruction" in which people of Southern worldview are the new "carpetbaggers" imposing their ideal of apartheid and white slave power oligarchy on the rest of the country.
 
 Reconstruction failed and Southern Redeemers were allowed to take hold of the media over the course of the 20th century, and here we are. The Right always talks about a mythical "woke" leftwing Hollywood, because historically the exact opposite is true. From The Birth of a Nation which developed many of the modern Hollywood cinematography techniques, to Gone with the Wind, to the Hollywood Blacklist, John Wayne and Roy Rogers' "cowboy frontier thesis mythology" which Ronald Reagan effectively weaponized in his fascist rise to power, to reality television and the rise of Donald Trump. The media is built around placating the sensibilities of Southern teenagers. The rest of us never had a chance."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndc0eum/
+
+bravelittleslytherin 2018-04-28
+
+"As a Christian, it's hard to sit back and watch someone who claims to be a Christian act this way. I take care of my dad who is a staunch Trump supporter and no amount of evidence or proof is enough to convince him that Trump is not who he says he is; it's all "lies from the Democrats" and anything that isn't outright supportive of Trump must be manufactured because he can do no wrong.
+
+There are issues going on in this country that are not partisan issues, but those in power keep making them partisan issues to keep the people divided, because if the people actually united the the people in power would actually pay for their crimes and have to answer to the people they're supposed to be working for not against . In the end Trump will face judgment, if not in this life, then in the next, and he will have to answer for everything he's done and said and he won't be able to con, threaten, and weasel a deal with the Almighty."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndc7swr/
+
+tigerhawkvok 2011-04-16
+
+"Too many people chant "I'm not into politics" like it's a fucking mantra. EVERYTHING is politics, including the roof over your head, floor beneath your feet, air you breathe, water you drink, and food you eat."
