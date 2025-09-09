@@ -490,3 +490,12 @@ https://old.reddit.com/r/politics/comments/1ncp6as/donald_jeffrey_the_nsfw_versi
 Hungry_Culture 2020-04-08
 
 "My work has Fox on in the break room and floor all day. On America's Newsroom this morning, they were saying that the signature on the letter was a forgery (they showed comparable images to his current signature) and this whole book was before Epstein bought the island, so there's no way Trump could have known what Epstein was up to at the time if he did contribute to that book."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ncvxxk/as_incriminating_evidence_mounts_trump_calls/ndcdrt0/
+
+Candid_Ad69 2020-10-20
+
+"America has quite literally performed a flawless any% speedrun of ruining every international relation they've spent the last hundred years cultivating. I have a strong feeling America will try to distance itself from this movement à la de-Nazification, scrambling at every turn to claw back even a shred of trust among its allies.    
+I fear you’re right—but I hope not a single tax dollar will ever again be wasted on the single greatest stain of shame in modern American history."
