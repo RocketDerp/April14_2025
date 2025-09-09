@@ -1393,3 +1393,8 @@ https://www.youtube.com/watch?v=9HORuCSsDLI
 
 Canada, coming MAGA hate, Facebook usage tied to hate of outsiders     
 https://www.youtube.com/watch?v=nkVR5S-oYo8
+
+&nbsp;
+
+October 7 confused for October 17 (visual shows correction)     
+https://youtu.be/Wm8qRQ6OGdY?t=511
