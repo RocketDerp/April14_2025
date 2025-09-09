@@ -115,3 +115,11 @@ xPrimer13 2012-03-28
 &nbsp;
 
 "The disconnect from reality of this comment is genuinely concerning. He literally was emboldened enough to invade under Biden and there were hundreds of civilian strikes. Reddit has lost the plot."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd9884i/
+
+Konpochiro 2021-12-13
+
+"I will never forget this pos rolling out the red carpet and clapping for Putin after treating Zelensky like shit. Fuck him, Vance and all his lackeys and enablers. Zelensky is a better man than they could even comprehend."
