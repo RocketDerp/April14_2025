@@ -499,3 +499,15 @@ Candid_Ad69 2020-10-20
 
 "America has quite literally performed a flawless any% speedrun of ruining every international relation they've spent the last hundred years cultivating. I have a strong feeling America will try to distance itself from this movement à la de-Nazification, scrambling at every turn to claw back even a shred of trust among its allies.    
 I fear you’re right—but I hope not a single tax dollar will ever again be wasted on the single greatest stain of shame in modern American history."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndbpy94/
+
+DynastyFan85 2019-03-19
+
+"I don’t understand why NOBODY does anything about anything he does. It will reach a tipping point and by then it will be too late.
+
+People claimed that other candidates weren’t “presidential” enough. For F sake can someone define this for me?!
+
+How the F is this presidential?!"
