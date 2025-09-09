@@ -153,3 +153,10 @@ The sooner we accept this harsh truth the sooner we can admit the only way this 
 * :::=== RoundSparrow_Commentary : Reddit messages saying that people actually enjoy murder and killing and it just be supported by brainwashed Russian people. Putin has been in power for 25 years using Surkov media techniques. Reddit users can't discuss the IRA since March 2013 invading Reddit itself.
 "if the ordinary Russian citizen is made to know terror" - oh, so if the ordinary Israel person is made to known terror on the morning of October 7, 2023 - then Palestine will solve the problem! Faith in terrorism being messaged on dehumanizing machines of Reddit. Fatih in murdering humans. "The simple fact" - everything is very very very simple messaging on Reddit. Murder and terrorize the everyday people of Russia! Teach them that war and terrorism is the answer to pass down to their children. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd9qgwq/
+
+mojizus 2013-09-03
+
+"It would be real cool if people could start talking about this war again. Almost seems like it fell out of fashion a year or so ago."
