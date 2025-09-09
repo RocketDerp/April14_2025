@@ -1398,3 +1398,8 @@ https://www.youtube.com/watch?v=nkVR5S-oYo8
 
 October 7 confused for October 17 (visual shows correction)     
 https://youtu.be/Wm8qRQ6OGdY?t=511
+
+&nbsp;
+
+PlayItEssays is Over     
+https://www.youtube.com/watch?v=yYHL4uJiT-I
