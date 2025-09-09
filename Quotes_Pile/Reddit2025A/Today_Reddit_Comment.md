@@ -569,3 +569,13 @@ https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndbtnhf/
 Over_Whole6492 2022-04-16
 
 "Trump packed the Supreme Court, GAME OVER GO HOME WE AINT GETTING OUR COUNTRY BACK"
+
+&nbsp;
+
+https://old.reddit.com/r/NoShitSherlock/comments/1ncoraz/trump_claim_the_epstein_situation_is_a_hoax/
+
+BuyBitcoinWhileItsL0 2023-02-16
+
+"PS: This hit the front page via this sub yesterday and was at 15K upvotes slated to hit the top 10 reddit posts of the front page, about to make it so no one can ignore this interview and pretend it doesn't exist. The mods inexplicably took it down without reason, so trying this again. Here's a link to the original post the mods removed yesterday before it could break into top ten reddit front page post momentum: https://np.reddit.com/r/NoShitSherlock/comments/1nc4pzn/trump_claims_the_epstein_situation_is_a_hoax/ "
+
+
