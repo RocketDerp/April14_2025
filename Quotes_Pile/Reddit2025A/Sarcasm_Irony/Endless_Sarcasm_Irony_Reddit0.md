@@ -82,3 +82,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nauhrk/just_one_more_thing
 Entertainment-washing what is going on via Reddit memes    
 Yes, compaed to Clergy / King, 1776 USA was liberal. New World Order. Not God Dictatorship.     
 https://old.reddit.com/r/AdviceAnimals/comments/1nbqqif/i_had_no_idea_that_the_us_constitution_was_a/
+
+&nbsp;
+
+A fake picture of Donald Trump, entertainment fixation of America, on front page of Reddit.   
+Trump doesn't produce enough fiction entertainment for USA media addicts, so people create their own fan ficiton of Donald Trump. Media addiction runs USA society, and Trump is the addiction We The People have.    
+https://old.reddit.com/r/BlueskySkeets/comments/1ncgwqp/this_is_solid_work/
