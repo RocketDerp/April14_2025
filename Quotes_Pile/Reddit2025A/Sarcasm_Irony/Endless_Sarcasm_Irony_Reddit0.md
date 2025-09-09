@@ -98,3 +98,8 @@ https://old.reddit.com/r/NoShitSherlock/comments/1ncicgm/crockett_he_trump_doesn
 
 Media addicts of America cheer on every Donald Trump media content topic. We The People entirely unable to resist the antics politics, symbolism, status symbol, POTUS icon. Endless parade of trash media content mockery in a national policy of Toatl Mockery governing. Surkov won, Russia won since March 2013.    
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ncgghv/thank_you_for_your_attention_to_this_matter/
+
+&nbsp;
+
+Epstein List. October 7 (Putin Birthday) 2024     
+https://old.reddit.com/r/agedlikemilk/comments/1nckqma/then_what_happened/
