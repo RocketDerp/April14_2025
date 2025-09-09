@@ -430,3 +430,13 @@ https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and
 BallAccomplished5733 2025-04-26 (new this year)
 
 "Where do you think writers for these shows get their ideas from? The storylines are often perceived as too absurd to ever be real, and yet if someone were to follow this circle of people around for a few years, you could have seasons worth of material in no time."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndaxifq/
+
+Delicious_Tea3999 2023-06-01
+
+"Any of it would have! I don’t understand why Trump gets a pass on evvvvverything, it boggles my mind"
+
+* :::=== RoundSparrow_Commentary : Russian information warfare since March 2013 is the most potent mind-fucking / boggles minds ever created by humanity. No defense has been found against using absurd surreal antics mind exploits. Putin has been in power for 25 years. ===:::
