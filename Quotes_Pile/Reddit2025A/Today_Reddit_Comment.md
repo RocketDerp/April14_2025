@@ -139,3 +139,17 @@ https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_updat
 castion5862 2023-04-04
 
 "Putin is a murderer and Trump is his enabler. Shame on world leaders poor pensioners blown up by psychopaths"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd92qxv/
+
+Hellstorm901 2022-05-30
+
+"The simple fact is Putin and Russia are just evil and the fact that you don’t see large scale protests in Russia against Russia’s unprovoked invasion is not because Russians are in fear of Putin’s SS, it’s because the average Russian is perfectly fine with exterminating Ukraine and any other country or race Putin puts up on the pedestal as the “enemy of Russia”
+
+The sooner we accept this harsh truth the sooner we can admit the only way this war can end is if the ordinary Russian citizen is made to know terror just as the Germans and Japanese were so they beg their government to stop the war"
+
+* :::=== RoundSparrow_Commentary : Reddit messages saying that people actually enjoy murder and killing and it just be supported by brainwashed Russian people. Putin has been in power for 25 years using Surkov media techniques. Reddit users can't discuss the IRA since March 2013 invading Reddit itself.
+"if the ordinary Russian citizen is made to know terror" - oh, so if the ordinary Israel person is made to known terror on the morning of October 7, 2023 - then Palestine will solve the problem! Faith in terrorism being messaged on dehumanizing machines of Reddit. Fatih in murdering humans. "The simple fact" - everything is very very very simple messaging on Reddit. Murder and terrorize the everyday people of Russia! Teach them that war and terrorism is the answer to pass down to their children. ===:::
+
