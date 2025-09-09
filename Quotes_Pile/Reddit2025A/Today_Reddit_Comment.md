@@ -234,3 +234,11 @@ https://old.reddit.com/r/news/comments/1ncit5m/explosion_heard_in_qatars_capital
 meeplewirp 2020-04-11
 
 "I think there is no point in looking at online discourse related to this issue as it is undoubtedly comprised of 50% bots"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ncit5m/explosion_heard_in_qatars_capital_as_israel_says/nd9qkm3/
+
+masterap85 2020-08-20
+
+"50%!? The non-bots gets removed unless it follows a narrative I say 80-90%"
