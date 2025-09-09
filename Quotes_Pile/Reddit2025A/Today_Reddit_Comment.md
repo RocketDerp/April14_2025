@@ -242,3 +242,11 @@ https://old.reddit.com/r/news/comments/1ncit5m/explosion_heard_in_qatars_capital
 masterap85 2020-08-20
 
 "50%!? The non-bots gets removed unless it follows a narrative I say 80-90%"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ncit5m/explosion_heard_in_qatars_capital_as_israel_says/nda85sz/
+
+zyzzjan 2016-12-30
+
+"By now, most people see his true goal. Why else would Gaza be leveled to the ground? Because terrorists are in one area, does that justify destroying every building, car, hospital, everything, in a place where two million people live? Israel hasn’t just destroyed lives, it has obliterated the very area those two million people call home. And this while having, together with the U.S., some of the most advanced intelligence capabilities in the world, yet they choose to carpet-bomb Gaza as if it were 1942."
