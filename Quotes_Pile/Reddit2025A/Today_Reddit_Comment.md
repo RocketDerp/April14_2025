@@ -278,3 +278,11 @@ Kent_Knifen 2016-05-23
 "Putting my tinfoil cap on, I can't help but feel it's a deliberate effort to trivialize and belittle people standing up to government corruption. Almost like they're wary of that being done in other countries...."
 
 &nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncisp5/disturbing_drawing_from_the_epstein_birthday_book/nd9m7j4/
+
+jumpinpuddles 2012-01-20
+
+"Wow. Another commenter said the building looks like Mar a Lago, just googled Mar a Lago and Epstein’s island house. The building looks a lot like Mar a Lago and nothing like the island house. 😳 The jet being that specific makes me think its likely meant to be a specific building and not some random background."
+
+&nbsp;
