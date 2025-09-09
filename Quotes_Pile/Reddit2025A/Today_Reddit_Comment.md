@@ -553,3 +553,11 @@ https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndc7swr/
 tigerhawkvok 2011-04-16
 
 "Too many people chant "I'm not into politics" like it's a fucking mantra. EVERYTHING is politics, including the roof over your head, floor beneath your feet, air you breathe, water you drink, and food you eat."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndbnwt3/
+
+aaaaaaaa1273 2022-09-02
+
+"So in the meantime.. you all just gotta lie down and take it as a half senile pedophile and his cronies disappear your loved ones, ruin your economy further, and make your country look like a laughing stock? Okay then.."
