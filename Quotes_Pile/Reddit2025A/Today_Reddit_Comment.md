@@ -521,3 +521,17 @@ Ketzeph 2012-07-28
 "Because a large chunk of the US wants a dictatorship and a Nazi style regime to obliterate their enemies, tell them climate change isn’t real, that the world is just as old as the Christian god said, and that they’ll disappear all gay people.
 
 A large chunk of the US are basically akin to diehards of the Nazi party in the 30s. As long as they haunt the US nothing can really be fixed"
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndbxgtp/
+
+braintrustinc 2011-04-25
+
+"These people navigate their lives by social proof and mindless consumerism, and they absolutely need a media caricature of a righteous power daddy to tell them what to do, think, and feel. We live in an age of media zombies. These people live in a top-down, paternalistic hyperreal fever dream, and would trust the reality TV guy over their own dear little granny or next door neighbor. Nothing is real unless it is on TV, and their [Prosperity Gospel](https://en.wikipedia.org/wiki/Prosperity_theology) reinforces that the wealthy and powerful can do no wrong.
+
+Southern Redeemers and Confederate propagandists won the cultural Civil War over the course of the 20th century. We are living in a country in which the Yankee ideal of liberty and rule of law has been defeated. These paleo-conservatives are not only taking us back to a time before the American Revolution, they want to erase the Enlightenment from history all together.
+
+While the rest of the country was becoming a modern pluralistic democracy from the 1870s to the 1960s, the South was inventing the modern idea of apartheid. When Trump and modern Republicans speak of "retribution," they are talking about taking revenge on the rest of us who believe in democracy and universal suffrage. They are still mad about Reconstruction (which failed within 10 years anyway), Brown v. Board of Education, the Civil Rights era, and the Voting Rights Act (which they already dismantled). We are entering a new "reconstruction" in which people of Southern worldview are the new "carpetbaggers" imposing their ideal of apartheid and white slave power oligarchy on the rest of the country.
+
+Reconstruction failed and Southern Redeemers were allowed to take hold of the media over the course of the 20th century, and here we are. The Right always talks about a mythical "woke" leftwing Hollywood, because historically the exact opposite is true. From The Birth of a Nation which developed many of the modern Hollywood cinematography techniques, to Gone with the Wind, to the Hollywood Blacklist, John Wayne and Roy Rogers' "cowboy frontier thesis mythology" which Ronald Reagan effectively weaponized in his fascist rise to power, to reality television and the rise of Donald Trump. The media is built around placating the sensibilities of Southern teenagers. The rest of us never had a chance."
