@@ -356,3 +356,13 @@ https://old.reddit.com/r/dankmemes/comments/1nckcoe/anticorruption_youths_just_s
 am_dragon 2019-01-10
 
 "Jesus the poeple on reddit are so fucking stupid. They burned a woman while she was still alive."
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1ncm2v2/welp/ndahb7q/
+
+Pb_ft 2012-12-08
+
+"Here it is. This is what we've been missing about the "owning the libs" motivation. It's rhetorical heroin."
+
+* :::=== RoundSparrow_Commentary : Levant tradition. Orthodox believers *own the liberals* Torah vs. Bible. Then Bible vs. Quran. A hates B, B hates C, C hates A. Out-group hate. Hate motivates, murdering and killing the out-group deepest faith people hold. Been going on for thousands and thousands of years, clergy able to draw fiction addict audiences with out-group hate messages. ===:::
