@@ -1,3 +1,15 @@
+# Tuesday, September 9, 2025
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd91otr/
+
+Morgn_Ladimore 2018-09-14
+
+"This is just plain false. This is absolutely being covered by major western media networks.
+
+The people who complain about something "not being covered by western media" are usually the ones who don't even watch the news or read online newspapers. Often, they only get their news from Reddit or other social media, so when something isn't on the front page of Reddit or being spammed on Twitter, they think nobody else is covering it."
+
+&nbsp;
+
 # Monday, September 8, 2025
 
 &nbsp;
