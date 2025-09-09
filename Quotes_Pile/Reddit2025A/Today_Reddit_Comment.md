@@ -511,3 +511,13 @@ DynastyFan85 2019-03-19
 People claimed that other candidates weren’t “presidential” enough. For F sake can someone define this for me?!
 
 How the F is this presidential?!"
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndbrgbi/
+
+Ketzeph 2012-07-28
+
+"Because a large chunk of the US wants a dictatorship and a Nazi style regime to obliterate their enemies, tell them climate change isn’t real, that the world is just as old as the Christian god said, and that they’ll disappear all gay people.
+
+A large chunk of the US are basically akin to diehards of the Nazi party in the 30s. As long as they haunt the US nothing can really be fixed"
