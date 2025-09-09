@@ -795,3 +795,15 @@ Subject-Tank-6851 2024-11-26
 "Always love the fellas that try to correct the authors of books."
 
 Constantly entertained and thrilled that people create media messages on media systems that promote ignorance and misunderstandings. Thrilled at Russian information warfare content.
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndc1u8r/
+
+PalpitationNew2896 2024-12-03
+
+"This whole situation goes between being so obsurd it's funny is a dark way, to being so shameful and depressing that I want to close myself off in my basement and not emerge until it's all over in whatever way.
+
+Like, 250 years later, America gets its first to take a crack at the dictator game and *this disgusting blob of a human being* is the best we can offer? Does he reflect the American culture in some twisted way? I suppose so."
+
+Reddit society / Twitter society can't imagine Russian information warfare is based on absurd surreal humor, Eats it up every time.
