@@ -66,6 +66,18 @@ Crowseye021 2016-06-05
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1ncg8xr/donald_trumps_mass_deportation_agenda_has_a/nd9kh1i/
+
+tostilocos 2013-05-02
+
+"It’s not an air fleet. It’s a glorified gas station.
+
+This article is idiotic. They’d be just as justified writing an article calling out Shell for letting ice vans get gas at their stations."
+
+* :::=== RoundSparrow_Commentary : The story has major name recognition, status symbol icons in the mind. Popularity. Media addicts are not self-aware of their own compusive attraction to language symbolism / brand names / big names. ===:::
+
+&nbsp;
+
 # Monday, September 8, 2025
 
 &nbsp;
