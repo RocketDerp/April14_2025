@@ -77,3 +77,17 @@ This article is idiotic. They’d be just as justified writing an article callin
 * :::=== RoundSparrow_Commentary : The story has major name recognition, status symbol icons in the mind. Popularity. Media addicts are not self-aware of their own compusive attraction to language symbolism / brand names / big names. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd8jfxl/
+
+c0xb0x 2012-12-13
+
+"After Trump became president, Putin has become emboldened to carry out strikes against civilians at a whole new level because he knows Trump will never retaliate."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ncehw0/zelensky_shares_tragic_update_after_savage/nd9iitt/
+
+Snapphane88 2025-07-25 (new account)
+
+"No they aren't next. Putin has been prepping a Baltic invasion for many years, has been clear on his aspirations. Even before Finland joined nato, Baltics was always next. Its not really up for discussion, we know what he wants. Baltics have much larger Russian populations than Finland, that's probably the biggest reason. They also fit better in line with his their tactical aspirations, joining st Petersburg up with Kalinigrad. Then there are historic reasons, returning the Soviet block."
