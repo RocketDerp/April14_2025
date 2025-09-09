@@ -482,3 +482,11 @@ https://old.reddit.com/r/ShareMarketupdates/comments/1ncodau/every_republican_on
 sir-chefs-alot420 2025-05-24 (recent account)
 
 "The sheer lack of transparency in a matter as damning as this is clearly an admission of guilt. There is literally no other reason to hide the information, unless that information has negative repercussions for those who have seen it. There is no moral high ground "protecting" us from this information like it's dangerous or traumatizing to the victims. It's not wanting to admit guilt or association because you know who's guilty. Any single person, left right, or otherwise, against full transparency releasing the documents is complicit in the offense or cover-up thereafter. Burn them all."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ncp6as/donald_jeffrey_the_nsfw_version_of_the_epstein/ndbcv0v/
+
+Hungry_Culture 2020-04-08
+
+"My work has Fox on in the break room and floor all day. On America's Newsroom this morning, they were saying that the signature on the letter was a forgery (they showed comparable images to his current signature) and this whole book was before Epstein bought the island, so there's no way Trump could have known what Epstein was up to at the time if he did contribute to that book."
