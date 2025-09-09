@@ -561,3 +561,11 @@ https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndbnwt3/
 aaaaaaaa1273 2022-09-02
 
 "So in the meantime.. you all just gotta lie down and take it as a half senile pedophile and his cronies disappear your loved ones, ruin your economy further, and make your country look like a laughing stock? Okay then.."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncsrix/our_great_dictator/ndbtnhf/
+
+Over_Whole6492 2022-04-16
+
+"Trump packed the Supreme Court, GAME OVER GO HOME WE AINT GETTING OUR COUNTRY BACK"
