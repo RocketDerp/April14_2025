@@ -392,3 +392,11 @@ https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and
 BadHombreSinNombre 2017-02-13
 
 "There has got to be some missing context here because there is absolutely no way that someone would have a giant novelty check printed for the purposes of committing human trafficking, that’s like George Bluth Sr territory of stupid."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ncocjt/this_is_a_photograph_of_3_men_and_a_girl_holding/ndaudes/
+
+Funkycoldmedici 2019-03-30
+
+"These are the people who held a press conference in a landscaper’s parking lot because they thought they had called the Four Seasons hotel and could not admit they fucked up."
