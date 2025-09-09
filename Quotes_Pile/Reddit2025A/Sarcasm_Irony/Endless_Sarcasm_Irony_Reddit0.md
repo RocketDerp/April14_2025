@@ -93,3 +93,8 @@ https://old.reddit.com/r/BlueskySkeets/comments/1ncgwqp/this_is_solid_work/
 
 Front page of Reddit: "Donald Trump has no moral compass" - you have to be BLIND to not see that Trump is attracted to fiction. Trump's moral compass points to: **fiction, badness itself**. If We The People think Trump just blindly finds service to Putin... We The People completely do not grasp Surkov techniques of Kremlin year 2011. Donald Trump is not directinless / meandering. He is doing agressive marching in pro-Russia direction since March 2013!        
 https://old.reddit.com/r/NoShitSherlock/comments/1ncicgm/crockett_he_trump_doesnt_have_a_moral_compass_why/
+
+&nbsp;
+
+Media addicts of America cheer on every Donald Trump media content topic. We The People entirely unable to resist the antics politics, symbolism, status symbol, POTUS icon. Endless parade of trash media content mockery in a national policy of Toatl Mockery governing. Surkov won, Russia won since March 2013.    
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ncgghv/thank_you_for_your_attention_to_this_matter/
