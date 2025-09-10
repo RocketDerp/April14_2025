@@ -1439,3 +1439,8 @@ https://youtu.be/53rYybJ9sz4?t=415
 
 All hate bad. All gun violence bad. In modern words.    
 https://old.reddit.com/r/TikTokCringe/comments/1ndrjqp/dean_withers_statement_about_charlie_kirks_death/
+
+&nbsp;
+
+Concerns of Finnegans Wake, meaning of "word" / John 1:1 in languages    
+youtube.com/watch?v=tfnANe2YUwM
