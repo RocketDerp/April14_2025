@@ -586,3 +586,10 @@ WanderlustZero 2017-12-15
 
 "Because Hamas has the world's biggest PR machine"
 
+&nbsp;
+
+https://old.reddit.com/r/LasVegas/comments/1ncmobu/as_the_mayor_of_las_vegas_im_telling_everybody_in/ndabj7j/
+
+BebophoneVirtuoso 2023-08-18
+
+"Look at Canadian actress Jasmine Mooney, detained in a cell by ICE for nearly 2 weeks when trying to renew her work visa. Who in their right mind would want to risk that?"
