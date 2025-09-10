@@ -180,3 +180,19 @@ IcySomewhere5437 2025-04-06 (new this year)
 "You can't hate boomers enough."
 
 * :::=== RoundSparrow_Commentary : Twitter-think, Tweet-logic Tweeting-length short message. Constant Reddit / social media messages to promote that *hate harder* will improve the USA sitaution. Donald Trump inpsires nonstop hate as religion. Eeepest sustained faith that *hate will make* the world a better palce, that what the USA needs is more and more hate messages and hate behaviors (Trup as role model of hate leadership). Foundaiton of Russian mind manipulation to believe hate will improve humanity globally. [USA already knows this is a mistake, The 1954 Equation](../Martin_Luther_King_Jr_quotes0.md). Hate is self-harm, a self-own of the nation conditioned by Putin since March 2013 with IRA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1ndhd5p/boomers_can_no_longer_be_trusted_to_effectively/ndgwfms/
+
+Vishnej 2012-11-25
+
+"Once upon a time, we built a system of Enlightenment reasoning and discussion. If you refrained from participating in that, if you insisted on telling bald-faced lies that nobody including yourself actually believed, if you did not respect evidence, if you were openly predatory, you were professionally ostracized, personally shunned, reviled, no benefit of the doubt granted. It was a matter of honor, of basic social conduct. It was justification for reprisal. Either you're somebody we can have a conversation with, or you're a dangerous lunatic who infringed on our society that we must be rid of as soon as possible.
+
+"Stop hitting yourself, stop hitting yourself, stop hitting yourself" said your senior leadership.
+
+Yes sir, said you. And then went to post about how they might not have your best interest in mind on Reddit.
+
+These aren't beliefs, they're thin pretenses. He doesn't believe these stories that he is telling literally. Your boss isn't telling you he doesn't believe in inflation, he's telling you "Fuck you! And don't you dare say another word about your pathetic weakness to me. I'm a winner, I deserve it because of who I am!"
+
+Your response to that can be varying degrees of violent or procedural, but it absolutely needs to become malicious and effective if you are to survive in this world."
