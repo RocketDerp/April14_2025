@@ -140,12 +140,7 @@ Entertaiment-washing of murder and killing. As if people who cheer on gun killin
 
 &nbsp;
 
-https://old.reddit.com/r/news/comments/1ndpxk8/conservative_activist_charlie_kirk_dies_after/ndir99j/
+Social media influencer killed, social media addicts go wild on media systems.    
+https://old.reddit.com/r/PoliticalHumor/comments/1ndprhb/my_social_media_feed_rn/
 
-Silver_Foxx 2011-02-21
 
-"See what they're trying to do?
-
-This rhetoric doesn't benefit conservatives, and it doesn't benefit liberals, all it does is stir up more hatred and division. The only ones who benefit from this sort of thing are the powers out there who oppose America.
-
-Do not fall for this unfortunately extremely effective propaganda."
