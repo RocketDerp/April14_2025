@@ -703,3 +703,29 @@ https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_po
 dollarstoresim 2025-03-21 (new this year)
 
 "Erosion of democracy , crickets. Block GTA 6 and riots in the streets. America is insane."
+
+* :::=== RoundSparrow_Commentary : Nonfiction unpppular, crickets. Fiction video game content, fiction addicts go crazy. Joe Biden was more nonfiction than fiction, too boring. RFK Jr provides fiction excitement to a society that lost an information war to Russia. The war against nonfiction. This article from September 9, 2014 describes Trumpism / MAGA, addiction to fiction: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_possible_cause_for_mass/ndeaeib/
+
+bombayblue 2011-11-10
+
+<img width="1418" height="620" alt="image" src="https://github.com/user-attachments/assets/6fecb22f-fb1b-46f4-9537-8349b3d4d04c" />
+
+&nbsp;
+
+"Whatever gets Gen Z guys to realize that Trump isn’t worth the memes."
+
+* :::=== RoundSparrow_Commentary : IRA / CA created addiciton to fiction. Donald Trump antics are a constant source of memes. Joe Biden didn't have fiction content to mock. Trump playung Tony Clifton is constant meme fiction trash content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_possible_cause_for_mass/ndehfi2/
+
+AI_Renaissance 2024-04-14 (new this year)
+
+"It's like we fucking told these chuds this would happen. He largley won because of gamers too upset about the wrong people."
