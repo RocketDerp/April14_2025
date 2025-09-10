@@ -593,3 +593,18 @@ https://old.reddit.com/r/LasVegas/comments/1ncmobu/as_the_mayor_of_las_vegas_im_
 BebophoneVirtuoso 2023-08-18
 
 "Look at Canadian actress Jasmine Mooney, detained in a cell by ICE for nearly 2 weeks when trying to renew her work visa. Who in their right mind would want to risk that?"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncz1rv/trump_denies_that_its_his_signature_on_the/ndczbir/
+
+fastinserter 2017-05-02
+
+" "Grab em by the pussy" guy doesn't talk like this?
+
+Guy who sold a bunch of his doodles doesn't doodle?
+
+Guy who has a recognizable signature says this is a fake that some time traveler went back in time to plant 22 years ago?
+
+Guy who has been adjudicated as having penetrated someone's vagina against their will didn't associate with a child rapist?"
+
