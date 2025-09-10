@@ -133,3 +133,7 @@ https://old.reddit.com/r/simpsonsshitposting/comments/1ndnf1a/just_learned_of_ch
 
 Reddit amusement-washing cult murders, fiction media street gang murders.     
 https://old.reddit.com/r/therewasanattempt/comments/1ndnbeo/to_talk_at_a_college_without_being_shot/
+
+&nbsp;
+
+Entertaiment-washing of murder and killing. As if people who cheer on gun killings don't get their own. As people who promote mock thy enemy don't get mocked. As if people who don't promote *hate thy enemy* don't get hated. Russia won an informaiton war since March 2013 to make Americans hate Americans and nobody is resisting (teaching about, educating, able to describe in any meaningful detail that demonstrates comprehension) Putin's informaiotn warfare. People are eating up Russia's hate. As long as there are humans to keep hating, out-group hate patterns are cheered on.         https://old.reddit.com/r/reactiongifs/comments/1ndprw8/mrw_a_racist_bigot_get_a_taste_of_his_own_medicine/
