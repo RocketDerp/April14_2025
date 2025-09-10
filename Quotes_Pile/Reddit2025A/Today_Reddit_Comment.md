@@ -129,3 +129,6 @@ https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_m
 Future_Khai 2018-12-01
 
 "It's too late and they won't. The bourgeoise convincing the rest of us to focus on left vs right was the game plan all along. The right is screaming about gender and race and the left is trying to move on from that but being held down by the same issues over and over again."
+
+* :::=== RoundSparrow_Commentary : The formal announcement was made December 2013, right before the February 2014 Ukraine invasion.
+"Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." " - https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ ===:::
