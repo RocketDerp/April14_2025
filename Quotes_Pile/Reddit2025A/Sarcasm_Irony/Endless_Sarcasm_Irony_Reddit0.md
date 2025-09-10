@@ -118,3 +118,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ndcy40/it_was_an_open_book
 
 Front page of Reddit, eating up the absurd surreal messaging of the White House and Kremlin. Absolutely adoring and flocking to Trump as a source of entertainment.    
 https://old.reddit.com/r/MurderedByWords/comments/1ndf7lu/our_brave_dear_leader_everyone/
+
+&nbsp;
+
+Front page of Reddit, 3 words **"more of this"** (Bluesky embed) message - and what *this* is? Pizzagate / QAnon / Epstein private jet / rich white men in private jet sex acts media stimulation. **Social media, Reddit, is not calling for removal of Donald Trump from office - an end to fiction-driven antics politics*** - social media is calling for more Epstein sex content of the lifestyles of the rich and famous entertainment. Not calling for more women to speak up against absuers on social media, but alling for more about the [magical list that was TEASED by Donald Trump Jr. before the 2024 elections. Information strip tease by Donald Trump Jr](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html) since July year 2023.    
+https://old.reddit.com/r/BlueskySkeets/comments/1ndl5aq/the_plot_thickens_more/
+
