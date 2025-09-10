@@ -685,3 +685,11 @@ pat8u3 2016-03-21
 "Trump's election win really was this unholy alliance of wildly different interest groups"
 
 * :::=== RoundSparrow_Commentary : Russia said **5,000 different patterns were devised*** (and there are reactionary anti-patterns of hate groups to every hate pattern). "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_possible_cause_for_mass/ndenl7d/
+
+Tomatillo12475 2025-04-29
+
+"I hate how he won for a variety of different reasons that all revolve around bullshit conservative talking points. If voters were required to take a civics test, Democrats would win everywhere in a landslide"
