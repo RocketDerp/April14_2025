@@ -690,6 +690,16 @@ pat8u3 2016-03-21
 
 https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_possible_cause_for_mass/ndenl7d/
 
-Tomatillo12475 2025-04-29
+Tomatillo12475 2025-04-29 (new this year)
 
 "I hate how he won for a variety of different reasons that all revolve around bullshit conservative talking points. If voters were required to take a civics test, Democrats would win everywhere in a landslide"
+
+* :::=== RoundSparrow_Commentary : Trump is ficiton addiction personified. Fox News is fiction. People in USA continue to act as if the Russian "War Against Reality" did not start with the Ukraine war back in year 2013, year 2014. This article from September 9, 2014 describes Trumpism / MAGA, addiction to fiction: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_possible_cause_for_mass/ndeac0j/
+
+dollarstoresim 2025-03-21 (new this year)
+
+"Erosion of democracy , crickets. Block GTA 6 and riots in the streets. America is insane."
