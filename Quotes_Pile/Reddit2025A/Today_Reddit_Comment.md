@@ -313,3 +313,19 @@ toscomo 2013-07-24
 "I wonder if Senator Mike Lee thinks this is a joke worthy as he thought the assassination of Minnesota lawmakers was."
 
 * :::=== RoundSparrow_Commentary :  "Mike Lee outrages Minnesota politicians with social media jabs about lawmaker’s murder" - this killing today of Charlike Kirk was in Utah, where Mile Lee is from. Utah News Dispatch: https://utahnewsdispatch.com/2025/06/16/mike-lee-minnesota-shooting-social-media-posts/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ndmobl/charlie_kirk_shot_at_utah_event/ndhxzyg/
+
+CrotalusHorridus 2013-12-12
+
+"Social media and certain politicians have been pushing us harder and harder in this direction. I'm very scared of the next 5-10 years in this country."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ndmobl/charlie_kirk_shot_at_utah_event/ndi24nj/
+
+borsalino_port 2021-01-29
+
+"Also he was in a massive crowd, at his own event, shot in broad daylight with tons of video."
