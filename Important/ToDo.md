@@ -1413,3 +1413,8 @@ https://old.reddit.com/r/SipsTea/comments/1ncp6t9/basically/
 
 Monotheisum God meme    
 https://old.reddit.com/r/HistoryMemes/comments/1ndca9y/interpretatio_graeca/
+
+&nbsp;
+
+Parenting in palestine. Choice marriage honesty. Planned parenting.     
+https://old.reddit.com/r/Adulting/comments/1ndayji/some_people_collect_kids_i_collect_quiet_evenings/
