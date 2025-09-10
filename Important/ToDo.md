@@ -1429,3 +1429,8 @@ https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_m
 
 Sexual lust is the softest punishment in Hell with Europe interpretation.  Troubadour values.   
 https://www.youtube.com/watch?v=7T6EZtYV91U
+
+&nbsp;
+
+Cinematic language of sports events coverage    
+https://youtu.be/53rYybJ9sz4?t=415
