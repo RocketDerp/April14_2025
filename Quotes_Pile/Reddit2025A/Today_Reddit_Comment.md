@@ -275,9 +275,15 @@ CptKoons 2013-07-08
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndh51cg/
 
 Vincenzobeast 2023-06-25
+
+<img width="1012" height="428" alt="Screenshot from 2025-09-10 11-05-00" src="https://github.com/user-attachments/assets/4f42ca6e-016c-4167-afbd-f776472948dc" />
+
+&nbsp;
 
 "You are absolutely correct, they have weaponized valid concerns or criticisms of our shared western political establishment by commingling truth with falsehoods."
 
