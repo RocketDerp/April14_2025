@@ -115,3 +115,11 @@ Rapper_Laugh 2016-01-03
 "There isn’t. When the left-right spectrum came into being it was describing constitutional monarchists vs. outright absolutist monarchists. Those terms have literally always been flexible, because they describe political realities, not a specific set of political policies."
 
 &nbsp;
+
+https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_media_hails/ndgehb6/
+
+apoca1ypse12 2016-10-27
+
+"Thats not what the people above wants us to think. the right targets those who are vulnerable and poor to manipulate so that they can be used as a shield to continue to accumulate massive wealth and power. Just look at what fox news is doing. They lie all day and hide the truth and faces no consequence."
+
+&nbsp;
