@@ -639,3 +639,11 @@ harbison215 2012-12-27
 So fuck em. People that allow this do not deserve a civilized first world society"
 
 * :::=== RoundSparrow_Commentary : Since March 2013, the IRA working wtih CA mind-fucked the poorly educated rural population. Messages on Reddit say to give up on Americans and let Russia contine to win psycological war that Russia and China are still winning. Teach nothing about information warfare, learn nothing about media ecology self-awareness, just give up. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncz1rv/trump_denies_that_its_his_signature_on_the/ndd5c32/
+
+thatguy52 2012-01-07
+
+"And it’s fucking worked….. this is what I hate so much. It literally teaches ppl not to have class or decency because I can ascend to insane heights if u just commit hard enough to lies and deception. Fucking breaks my heart."
