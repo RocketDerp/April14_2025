@@ -290,3 +290,15 @@ Vincenzobeast 2023-06-25
 * :::=== RoundSparrow_Commentary : We have comingled fiction and nonfiction. As described in 1985 by NYU media ecology teacher Neil Postman:
 **“It is not that television is entertaining but that it has made entertainment itself the natural format for the representation of all experience. … The problem is not that television presents us with entertaining subject matter but that all subject matter is presented as entertaining. (87)”**
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985. Apply that to **meme machines**, smartphones / iPhone / iPad too. As much as we worry about labeling things as NSFW / adult content, we should be worried about fact-checking validation. Every bit of information could have a protocol for fact-checking. Every sentence ever created could be tied to a Wiki style system. Instead, we mock and avoid nonficiton and insult those who provide citations and name-drop authors who expound on complex subjects. Donald Trump and RFK Jr are *entertaining* as Neil Postamn described, people enjoy mocking and insulting Trump and RFK Jr. Total mockery of nonfiction with citations and references. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndgvee1/
+
+howmuchistheborshch 2014-08-31
+
+"It's not undermining, it's (sometimes deliberately, sometimes not) flooding multiple versions of the same story to uphold the russian moniker "there is no absolute truth". Contradiction, inconclusivity and doubt is part of the systematic dismantling of perceived reality.
+
+Chaos helps only russia."
+
+* :::=== RoundSparrow_Commentary : "flooding multiple versions of the same story" ... 5,000 or more versions of artificial realty. A media screen game (TV news screen, social media screen) of choose your own anti-reality patterns. Avoid nonficiton, fock to the fiction addictions. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." https://www.facebook.com/konstantin.rykov/posts/10210643558675446 ===:::
