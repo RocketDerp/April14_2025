@@ -377,3 +377,15 @@ aneomon 2011-08-03
 "Nope, they’re already blaming the left like a fucking hivemind.
 
 Weird how they believe the left is somehow weak and unarmed and also heavily armed and ready to murder a conservative at any moment."
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1ndnvd1/claims_to_be_pro_life/ndimfw5/
+
+UnsureAndUnqualified 2022-10-28
+
+"The article was 2 days ago. It seems the curse was performed around the 23rd of August and the witch promised results "within 2-3 weeks". This was 2.5 weeks ago.
+
+So not the immediate turnaround time of two days but delivered exactly as promised. And I can appreciate meeting a forecasted deadline."
+
+* :::=== RoundSparrow_Commentary : A society or killing and hate provices the entertainment people crave. Donald Trump being a role model for entertainment and Truth Social content. ===:::
