@@ -24,6 +24,16 @@ And then he gets upset that people don't accept his lies and he reacts as if he 
 
 &nbsp;
 
+https://old.reddit.com/r/AdviceAnimals/comments/1ndawxo/trumps_lies_and_denials_about_the_birthday_letter/ndfkemt/
+
+Chemical_Fee_7148 **2025-09-01 (new account)**
+
+"Lol, gotta say man, half the stuff comin' outta Trump's mouth feels like it'd fit better in a stand-up comedy show than a political platform."
+
+* :::=== RoundSparrow_Commentary : Surkovian. Donald Trump (+ supporting cast) playing Tony Clifton. ===:::
+
+&nbsp;
+
 # Tuesday, September 9, 2025
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd91otr/
