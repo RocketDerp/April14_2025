@@ -222,3 +222,20 @@ fearless-fossa 2024-08-10
 "I know plenty of people who have this opinion IRL. They come from every kind of political direction, their one and only combining factor is that they lack any kind of critical thought and instead just take whatever is the current opinion of the people around them and take a position that is 180° to them because they're so much more special than their fellow humans."
 
 * :::=== RoundSparrow_Commentary : Egomania abounds. Donald Trump, Rupert Murdoch, Elon Musk are all egoism role models of success. Putin too, egomania. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndh1jhf/
+
+Warmso24 2019-06-21
+
+"It certainly does. I like having healthy political discussions with my dad as we are quite opposite when it comes to a lot of recent issues.
+
+He mentioned to me he was listening to a podcast (can’t remember which one) and they were talking about how the real reason Russia invaded Ukraine was because of NATO encroachment that went against established treaties.
+
+He explained he is anti-Russia but could understand this justification, at least.
+
+I had to explain to him how that is purposefully misleading half truth that leaves out all the treaties Russia repeatedly broke which led NATO trying to expand its influence.
+
+He’s one of the smartest people I know and he even fell for the propaganda initially, before knowing the full context."
+
