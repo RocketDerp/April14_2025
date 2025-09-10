@@ -239,3 +239,12 @@ I had to explain to him how that is purposefully misleading half truth that leav
 
 He’s one of the smartest people I know and he even fell for the propaganda initially, before knowing the full context."
 
+* :::=== RoundSparrow_Commentary : USA **We The People have been raised their entire life to know that Russia is the enemy**. Yet, somehow, people can't identify that since March 2013 when the Internet Research Agency went online - Americans (USA) suddenly find Russia as the good guy with a Ukraine war that started in February 2014.  June 2, 2014 at 10:48 am : https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndhcqko/
+
+EnvironmentalCut6789 2024-05-19
+
+"It's good that you can have healthy discourse and debate with your dad, and hopefully not fall out. Since Trump has come on the political scene, I have read so many comments from presumably US located redditors who give anecdotal comments that current US politics has caused long lasting rifts within families and friendships. I'm sure it's been somewhat of a 'thing' for generations, but this last decade seems to have been hugely polarising."
