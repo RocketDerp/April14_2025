@@ -729,3 +729,14 @@ https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_po
 AI_Renaissance 2024-04-14 (new this year)
 
 "It's like we fucking told these chuds this would happen. He largley won because of gamers too upset about the wrong people."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_possible_cause_for_mass/ndeoy75/
+
+Black_RL 2013-06-13
+
+"Not mental health, not lack of education, not lack of empathy, not violent media, not violent books, movies, shows, music, and certainly not guns.
+
+Video Games, video games are the problem."
+
