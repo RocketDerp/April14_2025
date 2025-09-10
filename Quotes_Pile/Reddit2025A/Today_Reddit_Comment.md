@@ -1,6 +1,6 @@
 # Wednesday, September 10, 2025
 
-&nbps;
+&nbsp;
 
 https://old.reddit.com/r/AdviceAnimals/comments/1ndawxo/trumps_lies_and_denials_about_the_birthday_letter/ndganp8/
 
@@ -11,6 +11,16 @@ hungryhungryhydras8 **2025-08-18 (new account)**
 In order to beat them, you need to understand them. They just truly, honestly somehow believe it's a conspiracy and lies. They've lied to themselves that thoroughly.
 
 That's why arguing with them about it seems like you're arguing against a brick wall. Because to them you are spouting nonsense. That's what they hear."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1ndawxo/trumps_lies_and_denials_about_the_birthday_letter/ndfht41/
+
+Lakridspibe 2013-09-16
+
+"Trump lies about the weather when we can all see the rain with our own eyes, and feel the raindrops falling on our heads.
+
+And then he gets upset that people don't accept his lies and he reacts as if he is the the victim of betrayal."
 
 &nbsp;
 
