@@ -272,3 +272,15 @@ CptKoons 2013-07-08
 "It's not as dumb as you think. The purpose of propaganda like this is to introduce an amount of doubt to the narrative, not to disprove it. Modern Russian propaganda is a "doubt" machine. It's shockingly effective. Just look at how destabilized US politics have become because of "doubt." "
 
 * :::=== RoundSparrow_Commentary : Russian information warfare / social media propaganda is about *doubting Reality itself*, to be against nonfiction and attracted to fiction. Notice this Reddit message provides no author names, no book names, nothing to back up their claim. Just sounds-good feels-good short message with no backing. September 9, 2014 - which is ELEVEN YEARS AGO AND ONE DAY - Russian information warfare was described as *doubt* about real / nonfiction / truth / science: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndh51cg/
+
+Vincenzobeast 2023-06-25
+
+"You are absolutely correct, they have weaponized valid concerns or criticisms of our shared western political establishment by commingling truth with falsehoods."
+
+* :::=== RoundSparrow_Commentary : We have comingled fiction and nonfiction. As described in 1985 by NYU media ecology teacher Neil Postman:
+**“It is not that television is entertaining but that it has made entertainment itself the natural format for the representation of all experience. … The problem is not that television presents us with entertaining subject matter but that all subject matter is presented as entertaining. (87)”**
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985. Apply that to **meme machines**, smartphones / iPhone / iPad too. As much as we worry about labeling things as NSFW / adult content, we should be worried about fact-checking validation. Every bit of information could have a protocol for fact-checking. Every sentence ever created could be tied to a Wiki style system. Instead, we mock and avoid nonficiton and insult those who provide citations and name-drop authors who expound on complex subjects. Donald Trump and RFK Jr are *entertaining* as Neil Postamn described, people enjoy mocking and insulting Trump and RFK Jr. Total mockery of nonfiction with citations and references. ===:::
