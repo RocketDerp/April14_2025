@@ -78,6 +78,16 @@ LongTimesGoodTimes 2024-02-24
 
 &nbsp;
 
+https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_media_hails/ndg5enq/
+
+theseus1234 2011-03-01
+
+"The conflict isn't left vs right. It's up vs down
+
+EDIT: I acknowledge that many people on the right are duped into supporting the rich by wedge social issues. I can only hope they realize they're being used before it's too late"
+
+&nbsp;
+
 # Tuesday, September 9, 2025
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd91otr/
