@@ -98,6 +98,16 @@ More than that, though, its that people do not understand the system, don't care
 
 &nbsp;
 
+https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_media_hails/ndgg2e9/
+
+Wavenian 2020-02-29
+
+"This is a blinkered view of political analysis. It's not a "purity test" or egotistical to evaluate the political valence of a particular political party in a world historical perspective. With your framework,  it's impossible to say that the dominant political parties have drifted rightwards. 
+
+Saying up vs down is more accurate is absurd. There are plenty of right wing narratives that use this format and they are 100% wrong."
+
+&nbsp;
+
 # Tuesday, September 9, 2025
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd91otr/
