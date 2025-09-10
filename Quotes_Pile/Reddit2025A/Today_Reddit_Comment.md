@@ -413,3 +413,15 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ndot5u/republicans_in_utah_
 BugAdministrative683 2021-09-03
 
 "Why the fuck do you need guns in a college? For fuck's sake America!"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ndpxk8/conservative_activist_charlie_kirk_dies_after/ndir99j/
+
+Silver_Foxx 2011-02-21
+
+"See what they're trying to do?
+
+This rhetoric doesn't benefit conservatives, and it doesn't benefit liberals, all it does is stir up more hatred and division. The only ones who benefit from this sort of thing are the powers out there who oppose America.
+
+Do not fall for this unfortunately extremely effective propaganda."
