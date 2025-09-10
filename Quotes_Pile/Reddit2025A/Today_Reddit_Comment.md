@@ -647,3 +647,11 @@ https://old.reddit.com/r/law/comments/1ncz1rv/trump_denies_that_its_his_signatur
 thatguy52 2012-01-07
 
 "And it’s fucking worked….. this is what I hate so much. It literally teaches ppl not to have class or decency because I can ascend to insane heights if u just commit hard enough to lies and deception. Fucking breaks my heart."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncz1rv/trump_denies_that_its_his_signature_on_the/ndd5cxb/
+
+Jokong 2015-03-09
+
+"The time travel aspect is what gets me. Someone 22 years ago thought to fake a birthday card from Trump to Epstein? Why? It's complete bullshit."
