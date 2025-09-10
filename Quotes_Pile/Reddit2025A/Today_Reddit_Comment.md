@@ -150,3 +150,14 @@ dyals_style 2015-10-12
 "The dumbest people in the world run every company and our government. They have no perspective or empathy outside themselves it's truly baffling"
 
 * :::=== RoundSparrow_Commentary : We The People are baffled as to the mechanics and outcomes of the Russian Internet Research Agency and Cambridge Analytica since March 2013. Unable to find nonfiction learning about Kremlin information warfare and techniques. Bewidlered population unable to grasp why empahty has disappeared, what CA did to the society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1ndhd5p/boomers_can_no_longer_be_trusted_to_effectively/ndh1b8w/
+
+haliblix 2010-10-25
+
+"People are just now realizing how much of a colossal idiot Steve Ballmer is with the latest Clippers debacle. He was CEO of one of the largest companies ever for over a decade and nearly every public facing decision he made was marked by absolute ignorance and unearned self assurance. He continuously shat the bed and M$ lost market share on so many platforms and still was rewarded."
+
+* :::=== RoundSparrow_Commentary : Recency bias abounds. News this week about Steve Balmer, but Elon Musk D.O.G.E. no longer popular topic. ===:::
+
