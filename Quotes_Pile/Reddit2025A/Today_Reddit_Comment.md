@@ -608,3 +608,22 @@ Guy who has a recognizable signature says this is a fake that some time traveler
 
 Guy who has been adjudicated as having penetrated someone's vagina against their will didn't associate with a child rapist?"
 
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncz1rv/trump_denies_that_its_his_signature_on_the/ndd97lh/
+
+1OO1OO1S0S 2022-12-03
+
+"He knew that the religious right already fell for a cult once, and they'd do it again.
+
+Religious people ignore all the facts and evidence around them because they want to believe in God/heaven/Jesus/hell etc.
+
+Now people want to believe the voted for a good guy. So they'll just chooses to believe it, despiyall the evidence to the contrary"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncz1rv/trump_denies_that_its_his_signature_on_the/ndd85ec/
+
+fastinserter 2017-05-02
+
+"That's true, but frankly that's true across the board down to his supporters when they say people have TDS and stuff like that. I have TDS? Mfer, Trump could eat a baby on TV and you'd still defend him, I am not deranged over Trump at all, you are."
