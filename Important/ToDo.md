@@ -1408,3 +1408,8 @@ https://www.youtube.com/watch?v=yYHL4uJiT-I
 
 Choice marriage honesty. Boring spouse candidates.   
 https://old.reddit.com/r/SipsTea/comments/1ncp6t9/basically/
+
+&nbsp;
+
+Monotheisum God meme    
+https://old.reddit.com/r/HistoryMemes/comments/1ndca9y/interpretatio_graeca/
