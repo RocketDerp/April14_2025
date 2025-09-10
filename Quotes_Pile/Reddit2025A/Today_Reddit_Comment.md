@@ -140,3 +140,13 @@ https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_m
 BrannEvasion 2024-05-06
 
 "I know a lot of VC and tech guys, and even the biggest tech bro you'll ever meet admits Balmer is a clown and owes his entire fortune to the housing selection committee at Harvard. Microsoft under his direction was adrift and his tenure was the era that Apple took over the consumer hardware space after being reduced to the absolute fringes previously. I have never heard anyone talk about Balmer and some sort of visionary."
+
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1ndhd5p/boomers_can_no_longer_be_trusted_to_effectively/ndgqnep/
+
+dyals_style 2015-10-12
+
+"The dumbest people in the world run every company and our government. They have no perspective or empathy outside themselves it's truly baffling"
+
+* :::=== RoundSparrow_Commentary : We The People are baffled as to the mechanics and outcomes of the Russian Internet Research Agency and Cambridge Analytica since March 2013. Unable to find nonfiction learning about Kremlin information warfare and techniques. Bewidlered population unable to grasp why empahty has disappeared, what CA did to the society. ===:::
