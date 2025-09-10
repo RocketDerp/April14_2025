@@ -196,3 +196,29 @@ Yes sir, said you. And then went to post about how they might not have your best
 These aren't beliefs, they're thin pretenses. He doesn't believe these stories that he is telling literally. Your boss isn't telling you he doesn't believe in inflation, he's telling you "Fuck you! And don't you dare say another word about your pathetic weakness to me. I'm a winner, I deserve it because of who I am!"
 
 Your response to that can be varying degrees of violent or procedural, but it absolutely needs to become malicious and effective if you are to survive in this world."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndgqdp4/
+
+Xist3nce 2014-09-14
+
+"Report to who? The owner of this site supports the Russian puppets anyway."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndh1qy1/
+
+finder787 2013-07-09
+
+"And Reddit will threaten to perma-ban your account long before they bother taking action against the dis-info bots."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndh2t73/
+
+fearless-fossa 2024-08-10
+
+"I know plenty of people who have this opinion IRL. They come from every kind of political direction, their one and only combining factor is that they lack any kind of critical thought and instead just take whatever is the current opinion of the people around them and take a position that is 180° to them because they're so much more special than their fellow humans."
+
+* :::=== RoundSparrow_Commentary : Egomania abounds. Donald Trump, Rupert Murdoch, Elon Musk are all egoism role models of success. Putin too, egomania. ===:::
