@@ -655,3 +655,33 @@ https://old.reddit.com/r/law/comments/1ncz1rv/trump_denies_that_its_his_signatur
 Jokong 2015-03-09
 
 "The time travel aspect is what gets me. Someone 22 years ago thought to fake a birthday card from Trump to Epstein? Why? It's complete bullshit."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_possible_cause_for_mass/ndebw8e/
+
+that1prince 2013-11-11
+
+"Other countries have video games. Why don’t they have as many mass shootings in school?
+
+Other countries have mental health issues - the human brain is the same. Why don’t they have as many mass shootings?
+
+Other countries have large minority immigrant populations. Why don’t they have as many mass shootings?
+
+Other countries have gays, lesbians and trans people Why don’t they have as many mass shootings?
+
+Other countries have poverty and wealth inequality, why don’t they have as many mass shootings?
+
+Hmmmm I wonder what it could be? Perhaps a culture that glamorizes violence coupled with easy access to firearms?"
+
+* :::=== RoundSparrow_Commentary : observations about USA military vs. other countries (Canada / Australia) and USA health care system vs. other countries. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nd53ee/rfk_jr_comes_up_with_new_possible_cause_for_mass/ndf3v7b/
+
+pat8u3 2016-03-21
+
+"Trump's election win really was this unholy alliance of wildly different interest groups"
+
+* :::=== RoundSparrow_Commentary : Russia said **5,000 different patterns were devised*** (and there are reactionary anti-patterns of hate groups to every hate pattern). "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." ===:::
