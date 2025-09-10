@@ -159,5 +159,24 @@ haliblix 2010-10-25
 
 "People are just now realizing how much of a colossal idiot Steve Ballmer is with the latest Clippers debacle. He was CEO of one of the largest companies ever for over a decade and nearly every public facing decision he made was marked by absolute ignorance and unearned self assurance. He continuously shat the bed and M$ lost market share on so many platforms and still was rewarded."
 
-* :::=== RoundSparrow_Commentary : Recency bias abounds. News this week about Steve Balmer, but Elon Musk D.O.G.E. no longer popular topic. ===:::
+* :::=== RoundSparrow_Commentary : Recency bias abounds. News this week about Steve Balmer, but Elon Musk D.O.G.E. no longer popular (not currently, may revive) topic. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1ndhd5p/boomers_can_no_longer_be_trusted_to_effectively/ndh40kx/
+
+anspee 2014-01-01 (New years)
+
+"Sociopathy and doublethink are the most valuable assets of anyone laboring under capitalism. Wealth is built on the backs of everyone else and you cant stop to consider the ethics of it or the whole fucking thing falls apart."
+
+* :::=== RoundSparrow_Commentary : Social media addicts are not using social media to teach steady courses of remedial ethics, remedial morality. Just reactiong to the billionares, not taking social media iniative to address the adult education problems in USA. Social media community priority is constantly "fresh" messages of entertianment and mocking Donald Trump mockery. Efforts to rescue and use social media to be serious sustained about comprehension and understanding problems are considered boring. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1ndhd5p/boomers_can_no_longer_be_trusted_to_effectively/ndgpbbw/
+
+IcySomewhere5437 2025-04-06 (new this year)
+
+"You can't hate boomers enough."
+
+* :::=== RoundSparrow_Commentary : Twitter-think, Tweet-logic Tweeting-length short message. Constant Reddit / social media messages to promote that *hate harder* will improve the USA sitaution. Donald Trump inpsires nonstop hate as religion. Eeepest sustained faith that *hate will make* the world a better palce, that what the USA needs is more and more hate messages and hate behaviors (Trup as role model of hate leadership). Foundaiton of Russian mind manipulation to believe hate will improve humanity globally. [USA already knows this is a mistake, The 1954 Equation](../Martin_Luther_King_Jr_quotes0.md). Hate is self-harm, a self-own of the nation conditioned by Putin since March 2013 with IRA. ===:::
