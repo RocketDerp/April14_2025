@@ -329,3 +329,21 @@ https://old.reddit.com/r/news/comments/1ndmobl/charlie_kirk_shot_at_utah_event/n
 borsalino_port 2021-01-29
 
 "Also he was in a massive crowd, at his own event, shot in broad daylight with tons of video."
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ndn0zg/charlie_kirk_shot_in_utah/ndi1ori/
+
+Striking-Bell5460 2020-11-11
+
+"This 100 percent. I'm surprised it hasn't happened sooner to a lot of these people that are pure hatred. They're poisoning our country with all of their hatred for anything that is not them."
+
+&nbsp;
+
+https://old.reddit.com/r/whenthe/comments/1ndngnn/this_is_not_a_drill/ndi5bj4/
+
+Different-Case-6859 2021-01-05
+
+"I honestly prefer it this way. It softens the blow of terrible news with "funny" meme and makes good news even better"
+
+* :::=== RoundSparrow_Commentary :  USA media addicts embrace any idea if it is wrapped on Donald Trump amusement and meme format. That's why we have had Donald Trump center of attention for over a decade. Neil Postmanw was correct in his 1985 book "Amusing Ourselves To Death". People *prefer* fiction, outsells. That's why Fox News fiction entertainment outsells nonfiction reality. That's why Putin's fiction-based warfare keeps winning over USA media addiction society. ===:::
