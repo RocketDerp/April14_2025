@@ -62,6 +62,14 @@ Hang out with one when a high school lets out. Watch their eyes."
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1ndfd3c/senate_investigating_peter_thiels_money_ties_to/ndgdwca/
+
+ColdFusion27 2025-05-03 (new this year)
+
+"Our government has willfully given the controls of the masses to a few oligarchs and intelligence officials. Our democracy is dead. We are nothing but a legally hallowed out corpse that sociopathic oligarchs get to wear and parade around as a mask."
+
+&nbsp;
+
 # Tuesday, September 9, 2025
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd91otr/
