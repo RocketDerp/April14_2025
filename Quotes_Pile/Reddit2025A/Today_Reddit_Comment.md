@@ -389,3 +389,11 @@ UnsureAndUnqualified 2022-10-28
 So not the immediate turnaround time of two days but delivered exactly as promised. And I can appreciate meeting a forecasted deadline."
 
 * :::=== RoundSparrow_Commentary : A society or killing and hate provices the entertainment people crave. Donald Trump being a role model for entertainment and Truth Social content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ndqv66/shooting_at_a_colorado_school_more_important_than/ndix1sj/
+
+thatscringee 2021-06-21
+
+"America really is cooked huh. We’re at the point where we’re arguing which shooting of the day is worse. This country is not safe"
