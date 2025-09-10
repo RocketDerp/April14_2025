@@ -366,4 +366,14 @@ shartnado3 2018-01-16
 
 "Nope. my right leaning buddy is already texting our group chats "FUCK THE LEFT". When I brought up, to my knowledge, we don't know who did it, so why rush to assumptions? He told me "depends on what news you watch". Can't reason with them. Just nod and move on."
 
-* :::=== RoundSparrow_Commentary : Reddit media messages saying: *give up on reason thinking*, give up on education, give up on teaching. Just nod (falsely, manipulate and lie), and move on. Just let brainrot keep spreading like it has, let Russia keep winning the information warfare since March 2013. Do not work together to address the Kremlin information warfare brainrot outcomes, just move on like social media addicts have done since this was disclosed public September 9l 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - let fiction and falsehoods and deception consume the United States of America. Let truth be erased and nod. ===:::
+* :::=== RoundSparrow_Commentary : Reddit media messages saying: *give up on reason thinking*, give up on education, give up on teaching. Just nod (falsely, manipulate and lie), and move on. Just let brainrot keep spreading like it has, let Russia keep winning the information warfare since March 2013. Do not work together to address the Kremlin information warfare brainrot outcomes, just move on like social media addicts have done since this was disclosed public September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - let fiction and falsehoods and deception consume the United States of America. Let truth be erased and nod. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1ndnbeo/to_talk_at_a_college_without_being_shot/ndi5naj/
+
+aneomon 2011-08-03
+
+"Nope, they’re already blaming the left like a fucking hivemind.
+
+Weird how they believe the left is somehow weak and unarmed and also heavily armed and ready to murder a conservative at any moment."
