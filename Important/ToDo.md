@@ -1424,3 +1424,8 @@ https://old.reddit.com/r/Adulting/comments/1ndayji/some_people_collect_kids_i_co
 Reminder: i worked for Microsoft co-founder Paul Allen, in electric media systems, was on the team to purchase the Seattle Seahawks as a staff consulting for Allen / Jody Allen / Paul Allen Group. Steve Balmer / Bill Gates / Paul Allen circle / Microsoft board of directors.   
 "Bloom: Ballmer’s scandal shows how media hails billionaires as visionaries while their fortunes rest on monopoly, exploitation and illusion. If journalism is to serve the public, it must puncture the myths of genius and demand accountability from those who profit most from monopoly and exploitation"    
 https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_media_hails/
+
+&nbsp;
+
+Sexual lust is the softest punishment in Hell with Europe interpretation.  Troubadour values.   
+https://www.youtube.com/watch?v=7T6EZtYV91U
