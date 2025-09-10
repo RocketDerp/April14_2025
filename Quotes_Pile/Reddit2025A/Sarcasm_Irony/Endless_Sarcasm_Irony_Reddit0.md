@@ -128,3 +128,8 @@ https://old.reddit.com/r/BlueskySkeets/comments/1ndl5aq/the_plot_thickens_more/
 
 Satire / absurd  / surreal TV show The Simpsons morality-washes anything with humor-washing.    
 https://old.reddit.com/r/simpsonsshitposting/comments/1ndnf1a/just_learned_of_charlie_kirk_getting_shot_and_for/
+
+&nbsp;
+
+Reddit amusement-washing cult murders, fiction media street gang murders.     
+https://old.reddit.com/r/therewasanattempt/comments/1ndnbeo/to_talk_at_a_college_without_being_shot/
