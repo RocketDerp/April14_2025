@@ -123,3 +123,9 @@ apoca1ypse12 2016-10-27
 "Thats not what the people above wants us to think. the right targets those who are vulnerable and poor to manipulate so that they can be used as a shield to continue to accumulate massive wealth and power. Just look at what fox news is doing. They lie all day and hide the truth and faces no consequence."
 
 &nbsp;
+
+https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_media_hails/ndgndbh/
+
+Future_Khai 2018-12-01
+
+"It's too late and they won't. The bourgeoise convincing the rest of us to focus on left vs right was the game plan all along. The right is screaming about gender and race and the left is trying to move on from that but being held down by the same issues over and over again."
