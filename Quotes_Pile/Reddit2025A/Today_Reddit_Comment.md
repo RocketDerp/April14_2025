@@ -347,3 +347,13 @@ Different-Case-6859 2021-01-05
 "I honestly prefer it this way. It softens the blow of terrible news with "funny" meme and makes good news even better"
 
 * :::=== RoundSparrow_Commentary :  USA media addicts embrace any idea if it is wrapped on Donald Trump amusement and meme format. That's why we have had Donald Trump center of attention for over a decade. Neil Postmanw was correct in his 1985 book "Amusing Ourselves To Death". People *prefer* fiction, outsells. That's why Fox News fiction entertainment outsells nonfiction reality. That's why Putin's fiction-based warfare keeps winning over USA media addiction society. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1ndnbeo/to_talk_at_a_college_without_being_shot/ndi1sop/
+
+DIO_over_Za_Warudo 2021-08-18
+
+"Taking bets now, the shooter will be another right-wing Republican nutjob that the Right will proclaim to be another "Trans Antifa Leftist 'insert buzz word here'" despite them being a straight white male who's voted Republican his whole life."
+
+* :::=== RoundSparrow_Commentary : Media addicts thrilled with the pending media covrage. Bullshit and chaos of Trumpism provides constant entertainment. Normal intelligent thoughtful leaders don't inpsire nonstop media addict stimulation / sports mentality. ===:::
