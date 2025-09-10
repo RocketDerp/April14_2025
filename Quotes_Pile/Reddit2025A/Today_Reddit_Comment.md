@@ -88,6 +88,16 @@ EDIT: I acknowledge that many people on the right are duped into supporting the 
 
 &nbsp;
 
+https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_media_hails/ndghek9/
+
+Thunderhorse74 2016-08-03
+
+"I think too many believe the system is fine, its just they are getting a raw deal through bad luck, conspiracy against them, whatever. We are prolific at manufacturing excuses.
+
+More than that, though, its that people do not understand the system, don't care to learn, and just accept it is what it is and try to figure out how to fill their lives with copes and distractions enough to deaden the pain of failure and apathy. Ironic we're discussing this in a venue for hyper plugged in NBA fans who need constant discussion to get their fix."
+
+&nbsp;
+
 # Tuesday, September 9, 2025
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd91otr/
