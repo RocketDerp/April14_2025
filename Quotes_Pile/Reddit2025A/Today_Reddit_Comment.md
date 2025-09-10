@@ -578,4 +578,11 @@ BuyBitcoinWhileItsL0 2023-02-16
 
 "PS: This hit the front page via this sub yesterday and was at 15K upvotes slated to hit the top 10 reddit posts of the front page, about to make it so no one can ignore this interview and pretend it doesn't exist. The mods inexplicably took it down without reason, so trying this again. Here's a link to the original post the mods removed yesterday before it could break into top ten reddit front page post momentum: https://np.reddit.com/r/NoShitSherlock/comments/1nc4pzn/trump_claims_the_epstein_situation_is_a_hoax/ "
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nc65sx/israel_is_not_committing_genocide_in_gaza_uk/nd7v397/
+
+WanderlustZero 2017-12-15
+
+"Because Hamas has the world's biggest PR machine"
 
