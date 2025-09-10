@@ -108,6 +108,14 @@ Saying up vs down is more accurate is absurd. There are plenty of right wing nar
 
 &nbsp;
 
+https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_media_hails/ndglek3/
+
+Rapper_Laugh 2016-01-03
+
+"There isn’t. When the left-right spectrum came into being it was describing constitutional monarchists vs. outright absolutist monarchists. Those terms have literally always been flexible, because they describe political realities, not a specific set of political policies."
+
+&nbsp;
+
 # Tuesday, September 9, 2025
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd91otr/
