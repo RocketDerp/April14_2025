@@ -302,3 +302,14 @@ howmuchistheborshch 2014-08-31
 Chaos helps only russia."
 
 * :::=== RoundSparrow_Commentary : "flooding multiple versions of the same story" ... 5,000 or more versions of artificial reality. A media screen game (TV news screen, social media screen) of choose your own anti-reality patterns. Avoid nonfiction, flock to the fiction addictions. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." https://www.facebook.com/konstantin.rykov/posts/10210643558675446 ===:::
+
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ndmobl/charlie_kirk_shot_at_utah_event/ndi0qws/
+
+toscomo 2013-07-24
+
+"I wonder if Senator Mike Lee thinks this is a joke worthy as he thought the assassination of Minnesota lawmakers was."
+
+* :::=== RoundSparrow_Commentary :  "Mike Lee outrages Minnesota politicians with social media jabs about lawmaker’s murder" - this killing today of Charlike Kirk was in Utah, where Mile Lee is from. Utah News Dispatch: https://utahnewsdispatch.com/2025/06/16/mike-lee-minnesota-shooting-social-media-posts/ ===:::
