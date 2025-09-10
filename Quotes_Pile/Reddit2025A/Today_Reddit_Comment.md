@@ -70,6 +70,14 @@ ColdFusion27 2025-05-03 (new this year)
 
 &nbsp;
 
+https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_media_hails/ndg3y4q/
+
+LongTimesGoodTimes 2024-02-24
+
+"Yeah I don't know how anyone can think that Ballmer is some kind of visionary. A lot of mythos around tech billionaires is way overstated in general but many of them at least actually did build something. Ballmer was just an early employee that rose to the top of an already very successful company and his wealth is predicated not only on the working class like many others but on other people's visions as well."
+
+&nbsp;
+
 # Tuesday, September 9, 2025
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd91otr/
