@@ -132,3 +132,11 @@ Future_Khai 2018-12-01
 
 * :::=== RoundSparrow_Commentary : The formal announcement was made December 2013, right before the February 2014 Ukraine invasion.
 "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of the West's "genderless and infertile" liberalism in his annual state-of-the-nation address last week was just the latest example of Putin attempting to place himself at the vanguard of a new "Conservative International." " - https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nba/comments/1nden3b/bloom_ballmers_scandal_shows_how_media_hails/ndg8yvx/
+
+BrannEvasion 2024-05-06
+
+"I know a lot of VC and tech guys, and even the biggest tech bro you'll ever meet admits Balmer is a clown and owes his entire fortune to the housing selection committee at Harvard. Microsoft under his direction was adrift and his tenure was the era that Apple took over the consumer hardware space after being reduced to the absolute fringes previously. I have never heard anyone talk about Balmer and some sort of visionary."
