@@ -627,3 +627,15 @@ https://old.reddit.com/r/law/comments/1ncz1rv/trump_denies_that_its_his_signatur
 fastinserter 2017-05-02
 
 "That's true, but frankly that's true across the board down to his supporters when they say people have TDS and stuff like that. I have TDS? Mfer, Trump could eat a baby on TV and you'd still defend him, I am not deranged over Trump at all, you are."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ncz1rv/trump_denies_that_its_his_signature_on_the/ndd7nfo/
+
+harbison215 2012-12-27
+
+"It’s fucking putrid and the plebs of this idiotic country deserve every consequence of it. And I have trouble even calling it deception because he’s not deceiving them, he’s telling them right to their face “yea I did it but back me up on this” and they are.
+
+So fuck em. People that allow this do not deserve a civilized first world society"
+
+* :::=== RoundSparrow_Commentary : Since March 2013, the IRA working wtih CA mind-fucked the poorly educated rural population. Messages on Reddit say to give up on Americans and let Russia contine to win psycological war that Russia and China are still winning. Teach nothing about information warfare, learn nothing about media ecology self-awareness, just give up. ===:::
