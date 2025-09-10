@@ -46,9 +46,21 @@ SashimiSqueaks **2025-08-26 (new account, two new accounts interacting)**
 
 * :::=== RoundSparrow_Commentary : "What this film is going to suggest is that that defeatist response has become a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time. Surkov is one of President Putin's advisers, and has helped him maintain his power for 15 years, but he has done it in a very new way. He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - December 31, 2014 - more than a decade ago. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
 
-&nbps;
+&nbsp;
 
-&nbps;
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1ndawxo/trumps_lies_and_denials_about_the_birthday_letter/ndg2y5j/
+
+pedantic-medic 2025-03-10 (new this year)
+
+"His supporters admire him for it.
+
+The same far right-wing people I knew had no issues lusting after high schoolers and talking about their friend's daughters' looks or breasts.
+
+Hang out with one when a high school lets out. Watch their eyes."
+
+&nbsp;
 
 # Tuesday, September 9, 2025
 
