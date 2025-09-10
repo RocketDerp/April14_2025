@@ -1,3 +1,19 @@
+# Wednesday, September 10, 2025
+
+&nbps;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1ndawxo/trumps_lies_and_denials_about_the_birthday_letter/ndganp8/
+
+hungryhungryhydras8 **2025-08-18 (new account)**
+
+"There's gotta be an element of extreme cognitive dissonance involved. I refuse to believe that close to 50% of voters are ok with child abuse.
+
+In order to beat them, you need to understand them. They just truly, honestly somehow believe it's a conspiracy and lies. They've lied to themselves that thoroughly.
+
+That's why arguing with them about it seems like you're arguing against a brick wall. Because to them you are spouting nonsense. That's what they hear."
+
+&nbsp;
+
 # Tuesday, September 9, 2025
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1ncg89c/nepal_parliament_set_on_fire_by_genz_protesters/nd91otr/
@@ -739,4 +755,6 @@ Black_RL 2013-06-13
 "Not mental health, not lack of education, not lack of empathy, not violent media, not violent books, movies, shows, music, and certainly not guns.
 
 Video Games, video games are the problem."
+
+&nbsp;
 
