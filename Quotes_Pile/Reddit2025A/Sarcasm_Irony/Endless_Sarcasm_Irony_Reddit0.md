@@ -143,4 +143,8 @@ Entertaiment-washing of murder and killing. As if people who cheer on gun killin
 Social media influencer killed, social media addicts go wild on media systems.    
 https://old.reddit.com/r/PoliticalHumor/comments/1ndprhb/my_social_media_feed_rn/
 
+&nbsp;
+
+The entire United States of America is a "missed media event" under Donald Trump values. Donald Trump role model of antics politics, constant media events, people glued to their social devices.    
+https://old.reddit.com/r/whenthe/comments/1ndosn1/i_missed_it/
 
