@@ -1434,3 +1434,8 @@ https://www.youtube.com/watch?v=7T6EZtYV91U
 
 Cinematic language of sports events coverage    
 https://youtu.be/53rYybJ9sz4?t=415
+
+&nbsp;
+
+All hate bad. All gun violence bad. In modern words.    
+https://old.reddit.com/r/TikTokCringe/comments/1ndrjqp/dean_withers_statement_about_charlie_kirks_death/
