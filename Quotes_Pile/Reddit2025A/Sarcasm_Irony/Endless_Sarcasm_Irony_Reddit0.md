@@ -124,3 +124,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1ndf7lu/our_brave_dear_leader_
 Front page of Reddit, 3 words **"more of this"** (Bluesky embed) message - and what *this* is? Pizzagate / QAnon / Epstein private jet / rich white men in private jet sex acts media stimulation. **Social media, Reddit, is not calling for removal of Donald Trump from office - an end to fiction-driven antics politics*** - social media is calling for more Epstein sex content of the lifestyles of the rich and famous entertainment. Not calling for more women to speak up against absuers on social media, but alling for more about the [magical list that was TEASED by Donald Trump Jr. before the 2024 elections. Information strip tease by Donald Trump Jr](https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html) since July year 2023.    
 https://old.reddit.com/r/BlueskySkeets/comments/1ndl5aq/the_plot_thickens_more/
 
+&nbsp;
+
+Satire / absurd  / surreal TV show The Simpsons morality-washes anything with humor-washing.    
+https://old.reddit.com/r/simpsonsshitposting/comments/1ndnf1a/just_learned_of_charlie_kirk_getting_shot_and_for/
