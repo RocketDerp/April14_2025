@@ -397,3 +397,19 @@ https://old.reddit.com/r/pics/comments/1ndqv66/shooting_at_a_colorado_school_mor
 thatscringee 2021-06-21
 
 "America really is cooked huh. We’re at the point where we’re arguing which shooting of the day is worse. This country is not safe"
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ndot5u/republicans_in_utah_passed_a_law_allowing_guns_on/ndihovt/
+
+AdHopeful3801 2021-12-24
+
+"The irony is going to get so heavy it develops an event horizon."
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ndot5u/republicans_in_utah_passed_a_law_allowing_guns_on/ndikz4e/
+
+BugAdministrative683 2021-09-03
+
+"Why the fuck do you need guns in a college? For fuck's sake America!"
