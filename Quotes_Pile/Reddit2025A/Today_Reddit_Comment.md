@@ -239,7 +239,7 @@ I had to explain to him how that is purposefully misleading half truth that leav
 
 He’s one of the smartest people I know and he even fell for the propaganda initially, before knowing the full context."
 
-* :::=== RoundSparrow_Commentary : USA **We The People have been raised their entire life to know that Russia is the enemy**. Yet, somehow, people can't identify that since March 2013 when the Internet Research Agency went online - Americans (USA) suddenly find Russia as the good guy with a Ukraine war that started in February 2014.  June 2, 2014 at 10:48 am : https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
+* :::=== RoundSparrow_Commentary : USA **We The People have been raised their entire life to know that Russia is the enemy**. Yet, somehow, people can't identify that since March 2013 when the Internet Research Agency went online - Americans (USA) suddenly find Russia as the good guy with a Ukraine war that started in February 2014.  Social media users can't recall June 2, 2014 at 10:48 am : https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america ===:::
 
 &nbsp;
 
@@ -248,3 +248,27 @@ https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response
 EnvironmentalCut6789 2024-05-19
 
 "It's good that you can have healthy discourse and debate with your dad, and hopefully not fall out. Since Trump has come on the political scene, I have read so many comments from presumably US located redditors who give anecdotal comments that current US politics has caused long lasting rifts within families and friendships. I'm sure it's been somewhat of a 'thing' for generations, but this last decade seems to have been hugely polarising."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndh6p1n/
+
+NotSoFastLady 2018-03-16
+
+"People seem to lack any kind of comprehension of how methodically social media has been gamed. People think it's just some bad actors like Russia or China doing this. Plenty of groups within America are involved in disinformation.
+
+Please remember that just because their is a name and maybe a face, that you have no idea if that is an actual person. They still barely try to hide these accounts because so many people lack any form of critical thinking skills.
+
+Part of the solution, as I see it, is to unplug. Stop watching TV. This is why they're actively attacking unbiased sources like NPR and other public news sources. "Liberal bias" is such a scam. Big business owns 98% of media both traditional and non. They control the narratives based on money. The same can be said about places like reddit. We need to find and setup other means of publishing the truth. Otherwise we are all fucked."
+
+* :::=== RoundSparrow_Commentary : Notice this Reddit social message does not cite any authors, provide any links, any books, etc. Christopher Wylie, Adam Curtis, Peter Pomerantsev all uncited / ignored. Entertaining words - but just scrolls past the tourchscreen and on to the next entertainment meme for social media addicts. There is no call to intellectual education arms, no call to Neil Postman's library of media ecology teachings. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ndglhy/russia_issues_fresh_response_to_poland_over_drone/ndgpvz4/
+
+CptKoons 2013-07-08
+
+"It's not as dumb as you think. The purpose of propaganda like this is to introduce an amount of doubt to the narrative, not to disprove it. Modern Russian propaganda is a "doubt" machine. It's shockingly effective. Just look at how destabilized US politics have become because of "doubt." "
+
+* :::=== RoundSparrow_Commentary : Russian information warfare / social media propaganda is about *doubting Reality itself*, to be against nonfiction and attracted to fiction. Notice this Reddit message provides no author names, no book names, nothing to back up their claim. Just sounds-good feels-good short message with no backing. September 9, 2014 - which is ELEVEN YEARS AGO AND ONE DAY - Russian information warfare was described as *doubt* about real / nonfiction / truth / science: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
