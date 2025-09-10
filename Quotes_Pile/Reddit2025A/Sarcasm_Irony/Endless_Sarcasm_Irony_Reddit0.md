@@ -113,3 +113,8 @@ https://old.reddit.com/r/CringeTikToks/comments/1ncjiy0/trumps_spiritual_advisor
 
 Front page of Reddit on topics of: Epstein / QAnon and Pizzagate. Not a mention of QAnon being supported by Russian military information warfare.     
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ndcy40/it_was_an_open_book_test_and_qanon_and_maga_failed/
+
+&nbsp;
+
+Front page of Reddit, eating up the absurd surreal messaging of the White House and Kremlin. Absolutely adoring and flocking to Trump as a source of entertainment.    
+https://old.reddit.com/r/MurderedByWords/comments/1ndf7lu/our_brave_dear_leader_everyone/
