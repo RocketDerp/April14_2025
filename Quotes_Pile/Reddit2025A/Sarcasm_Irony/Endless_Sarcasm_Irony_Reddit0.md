@@ -108,3 +108,8 @@ https://old.reddit.com/r/agedlikemilk/comments/1nckqma/then_what_happened/
 
 Reddit fiction addicts can't face up that Trump is fiction, Fox News is fiction, Bible is fiction, etc. We have a massive media ecology problem, defined in "Amusing Ourselves to Death" book published in 1985.     
 https://old.reddit.com/r/CringeTikToks/comments/1ncjiy0/trumps_spiritual_advisor_paula_white_to_say_no_to/
+
+&nbsp;
+
+Front page of Reddit on topics of: Epstein / QAnon and Pizzagate. Not a mention of QAnon being supported by Russian military information warfare.     
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ndcy40/it_was_an_open_book_test_and_qanon_and_maga_failed/
