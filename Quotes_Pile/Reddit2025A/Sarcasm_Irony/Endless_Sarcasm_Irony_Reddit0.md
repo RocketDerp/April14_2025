@@ -202,3 +202,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1neaiva/the_party_of_hypocr
 
 We The People addicted to non-stop mocking of Trump. Won't stop entertainment and call for removal of Trump sustained on social media, instead use all spare time and free time on social media for mocking.    
 https://old.reddit.com/r/therewasanattempt/comments/1neipio/to_have_a_major_stroke_at_a_911_event/
+
+&nbsp;
+
+Irresponsible. But to high-speed media addiction society, it's entertaining, amusing as defined in 1985 book by Neil Postman "Amusing Ourselves To Death".  It is content for social machines to publish.    
+https://old.reddit.com/r/MurderedByAOC/comments/1nehnb5/aoc_they_have_not_caught_the_assailant_there_is/
