@@ -457,3 +457,11 @@ LadenWithSorrow 2024-06-09
 The flag should really only be lowered for high ranking officials or in remembrance of a national tragedy.
 
 Today there was also a shooting at a school in Colorado but the flag wasn’t lowered for that. It’s normally only lowered for the day of 9/11 and it’s going to be lowered for 4 days one of which covers 9/11?"
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1ndskqc/why_do_you_think_president_trump_ordered_all_us/ndjcq5u/
+
+chaos8803 2011-11-10
+
+"Its the least he could do for ordering a hit on a high profile MAGA to distract from Epstein."
