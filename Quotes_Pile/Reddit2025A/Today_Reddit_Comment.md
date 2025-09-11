@@ -525,3 +525,11 @@ https://old.reddit.com/r/LivestreamFail/comments/1ndqpn8/megyn_kelly_finds_out_w
 Aloha5OClockCharlie 2020-05-07
 
 "It only adds to the depression too when you realize the people supposedly on your side are so brutally unforgiving. The political landscape is an absolute mess, I honestly can't see how we get out of this anymore. Look at all the downvotes you're accumulating for being a sensible person. We're cooked."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1ndpsgr/donald_trump_confirms_that_charlie_kirk_has_died/ndimkk0/
+
+orangefreshy 2011-09-27
+
+"Yeah even hours ago the rhetoric against “the violent liberals” was already unhinged. So exhausting as it’s just like… not true by and large"
