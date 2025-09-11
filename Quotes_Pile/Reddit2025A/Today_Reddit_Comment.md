@@ -545,3 +545,13 @@ saeculacrossing 2016-10-01
 It just saddens me that when we are fearful, we get mocked, and when they are fearful we know that likely more people are at risk of being hurt."
 
 * :::=== RoundSparrow_Commentary : Faith in mocking. Mockery is proven. Donald Trump mocks science, and Bluesky and Reddit moock back. People are not counting up that ALL SIDES agree: 1) hate harder, 2) mock harder. A total mockery. People who mock Donald Trump (playing Tony Clifton) are not RESISTING Donald Trump. Mocking Trump is doing exactly what Trump represents: faith in mocking itself. Mocking reality. Putin / Surkov / Russian techniques that has worked for 25 years in domestic Russia and exported since March 2013 by the IRA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1ndpsgr/donald_trump_confirms_that_charlie_kirk_has_died/ndinw26/
+
+Duosion 2013-01-13
+
+"I’ve had this pit in my stomach since trump got elected, it is like a mounting dread that won’t go away."
+
+* :::=== RoundSparrow_Commentary :Denial abounds. Russia won an information war since March 2013 and this is so much larger than MAGA and Trump and people are not looking at all of NATO / China / Russia. The Internet Research Agency is attacking REALITY ITSELF, truth, and nonfiction is being discarded. This is an information war unlie any in all human history: September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
