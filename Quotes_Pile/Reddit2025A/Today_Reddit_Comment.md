@@ -669,3 +669,13 @@ https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_n
 Vindheim 2025-08-11 (recent account)
 
 "Thought it was satire, I could be wrong."
+
+&nbsp;
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndl6nhn/
+
+javasux 2017-12-26
+
+"No one seams to mention the irony of him being shot while taking a question about mass shootings."
+
+* :::=== RoundSparrow_Commentary : Claiming no one seems to mention what so many clever mockery people mention on Reddit. The entertainment aspect of unique aspects of news events. ===:::
