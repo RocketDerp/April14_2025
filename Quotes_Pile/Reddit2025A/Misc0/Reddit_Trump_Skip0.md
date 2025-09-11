@@ -56,3 +56,5 @@ https://old.reddit.com/r/politics/comments/1nbl7wh/kennedy_family_rfk_jr_is_thre
 
 Bible Satan Trump, but no Bible literacy teaching on social     
 https://old.reddit.com/r/MurderedByWords/comments/1ncgc46/trump_is_more_satanic_than_the_mtv_awards/
+
+https://old.reddit.com/r/politics/comments/1ne5so8/america_is_gripped_by_political_violence_and/
