@@ -483,3 +483,17 @@ https://old.reddit.com/r/LivestreamFail/comments/1ndqpn8/megyn_kelly_finds_out_w
 ryeyen 2018-08-14
 
 "I’m really disappointed by all of the evil on Reddit and this country in general. All of these vitriolic, pious frauds are just as bad as they claim him to be. I did not support Charlie whatsoever, but the true colors of the pseudo empathic community here are showing and I’m just tired of it. Literally proving his quote about empathy to be correct."
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1ndqpn8/megyn_kelly_finds_out_while_streaming_her_friend/ndje34s/
+
+PokeMets 2025-05-11 (new this year)
+
+"The left and right literally just turn into eachother whenever they have the chance to make fun of the other or make the other look bad.
+
+When the Minnesota lawmakers were murdered the right made so many jokes out of it and made fun of them. Trump said that it wasn’t even worth calling to offer condolences.
+
+But I’m sure now it will be about how awful the left is, just as then it was about how awful the right was
+
+All this is to say we are the same people that fall into the same traps and do the same things over and over. The right thinks the left is evil and the left thinks the right is evil. But they both act the same given the same circumstances"
