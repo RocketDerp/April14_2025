@@ -1444,3 +1444,8 @@ https://old.reddit.com/r/TikTokCringe/comments/1ndrjqp/dean_withers_statement_ab
 
 Concerns of Finnegans Wake, meaning of "word" / John 1:1 in languages    
 youtube.com/watch?v=tfnANe2YUwM
+
+&nbsp;
+
+Crisis out hole experience    
+https://old.reddit.com/r/comics/comments/1nefxbp/hotline_oc/
