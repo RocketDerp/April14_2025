@@ -183,3 +183,8 @@ https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_starte
 
 QAnon / Pizzagate / Epsten conspiracy fiction addictions running on Front Page of Reddit.    
 https://old.reddit.com/r/NoFilterNews/comments/1neblwb/charlie_kirk_had_called_for_the_full_release_of/
+
+&nbsp;
+
+More hyper-reality fiction entertainment on Reddit to frame the topics of Charlie Kirk killing.   
+https://old.reddit.com/r/freefolk/comments/1nec56c/please_stop_making_fun_of_this_a_man_is_dead_and/
