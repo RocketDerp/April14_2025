@@ -58,7 +58,7 @@ Described 15 years later by BBC / Adam Curtis at the very end of year 2014:
 
 * "a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time. Surkov is one of President Putin's advisers, and has helped him maintain his power for 15 years, but he has done it in a very new way. He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics. His aim is to undermine peoples' perceptions of the world, so they never know what is really happening. Surkov turned Russian politics into a bewildering, constantly changing piece of theater."
 
-* This is a video presentation: https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+This quote is from a video presentation: https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
 &nbsp;
 
