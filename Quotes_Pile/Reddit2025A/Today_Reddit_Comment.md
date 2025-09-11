@@ -20,6 +20,21 @@ If we all stopped accepting convenient lies and instead sought the truth, where 
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndmjqhu/
+
+SunrayBran 2025-04-23 (new this year)
+
+"I could dive straight down into the fiery ashes of hell and bring Kirk back myself, and MAGA would still shit on the left.
+
+There is no world in which the Right wasn't going to villify the Left over this.
+
+Almost like it was intended to be so?"
+
+* :::=== RoundSparrow_Commentary : By saying Kirk is in (fiction) Hell, this reddit comment message vilifies "the right" with Satan / Devil fiction. Everything is right vs. left, left vs. right, and all the 5,000 patterns of media alternate reality games that Cambridge Analytica and the Internet Research Agency deployed since March 2013. Russia won the infromationo war, Surkov won. "**Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета".
+Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.**" - https://www.facebook.com/konstantin.rykov/posts/10210643558675446 ===:::
+
+&nbsp;
+
 
 # Wednesday, September 10, 2025
 
