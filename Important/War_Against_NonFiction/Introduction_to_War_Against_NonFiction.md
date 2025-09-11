@@ -16,7 +16,7 @@ In 1985, the second term of entertainer President in White House, a book was pub
 
 This was *outside* the relam of weaponized / media invasion. This is strictly domestic USA technology of change from printing press for newspapers and magazines over to television.
 
-Andrew Postamn, son of Neil Postman, came out in public on Febuary 2, 2017 to confirm that this (1985 media ecology theory) was the root of our USA situation: https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+Andrew Postman, son of Neil Postman, **came out in public on Febuary 2, 2017** to confirm that this (1985 media ecology theory) was the root of our USA situation: https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
 
 &nbsp;
 
