@@ -1,5 +1,10 @@
 # War Against NonFiction
 
+Key reference and context on this subject and naming:
+
+"This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda
+
+&nbsp;
 
 ## Background 1985
 
