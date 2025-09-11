@@ -87,3 +87,13 @@ LakersTommyG 2016-12-07
 "Yep, Trump tweeted a meme about loving the smell of deportations in the morning but I’m the one who supposed to cry tears over Charlie Kirk’s death? Fuck that"
 
 * :::=== RoundSparrow_Commentary : Short-message Twitter-thinking Tweet-logic polarity. Two sides and only two sides, "both sides", even when both are wrong - just compare siplistic options and don't recogonize the Russian information warfare and how Donald Trump is "tweeted a meme" is Surkovian governing / Kremlin antics absurd surreal politics. Avoiding nonfiction learning, just engaging the Twitter-framing of society, a crude short-message interpretaiton, fiction-framed simualcra. Recency bias abounds, people on Reddit meme machine sites can't see beyond Twitter meme machiene sites to what USA society was like in year 2012 before the IRA media invaison of Reddit / Twitter / Facebook / etc since March 2013. Sucked into the media addictions of media fiction vs media fiction (Reddit vs. Twitter). Nonfiction of media ecology avoided: 1985 book "Amusing Ourselves To Death" - https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1neblwb/charlie_kirk_had_called_for_the_full_release_of/ndni8ty/
+
+look_under 2025-06-27 (recent account)
+
+"Your biggest clue, is trump commented about all this almost immediately and continued to fuel the flames of hate for the rest of the day."
+
+* :::=== RoundSparrow_Commentary : Twitter-length tweet short message thiking. Biggist clue of *runaway fiction addiction* is that media addicts on Reddit are glued to a 79 year old Donald Trump media addict who created his own social media platform out of addiction to fiction leadership. The 1985 book by Neil Postman titled "Amuisng Ourselves To Death" explains the media ecology of Donald Trumpism / media addiction behavior problems on a national scale. ===:::
