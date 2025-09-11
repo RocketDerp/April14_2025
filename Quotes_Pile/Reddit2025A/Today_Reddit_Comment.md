@@ -173,3 +173,13 @@ TheDecepticonIdeal 2019-08-08
 "The leader of the US is the biggest con-man the world has ever seen. A shame so many fawn over him."
 
 * :::=== RoundSparrow_Commentary : Fiction addicts adore that a 79 year old man can use a touch device and message on social meme systems. Addiction to fiction drives the USA society. Donald Trump provides a constant concentration of hate and mocking. People can not resist the mocking and hate of Trump playing Tony Clifton antics. Russian Surkov techniques of governing. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/chaoticgood/comments/1ned8rh/morgan_freeman_has_a_fucking_point/ndosvev/
+
+Blackops606 2011-06-01
+
+"This definitely needs to be more towards the top and exactly why people get fed and relay wrongful information.
+
+"I saw a reddit post today with Morgan Freeman talking about how the assassination was a distraction for the Epstein files!" "
