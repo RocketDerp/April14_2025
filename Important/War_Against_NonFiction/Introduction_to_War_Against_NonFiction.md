@@ -18,6 +18,8 @@ This was *outside* the relam of weaponized / media invasion. This is strictly do
 
 Andrew Postman, son of Neil Postman, **came out in public on Febuary 2, 2017** to confirm that this (1985 media ecology theory) was the root of our USA situation: https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
 
+Many independent media practitioners have raised the same concerns and pionted to Neil Postman's 1985 book, such as this **March 27, 2024 assertion**: https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+
 &nbsp;
 
 
