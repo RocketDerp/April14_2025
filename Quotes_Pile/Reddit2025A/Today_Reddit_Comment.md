@@ -641,3 +641,23 @@ https://old.reddit.com/r/law/comments/1ndugu2/us_attacked_boat_near_venezuela_mu
 Durian881 2019-01-17
 
 "Seemed like we're hurdling into war with new Axis: US attacking Venezuela boat, Israel bombing Qatar, ally of its ally, to stave off another peace deal, and Russia sending drones into Poland."
+
+&nbsp;
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndl3cf6/
+
+BeanBurritoJr 2024-08-06
+
+"Imagine celebrating liberal suffering and death in MAGA safe spaces and then acting like a chased nun in public forums.
+
+MAGA people are not a serious people.
+
+They are not genuine.
+
+They are not trustworthy.
+
+They are not authentic.
+
+Listening to them is a waste of your time. Talking to them is an even bigger waste of your time because they will just be encouraged to talk more."
+
+* :::=== RoundSparrow_Commentary : Machine messages saying: *give up on Americans, don't rescue from Russian information warfare, don't rescue from Rupert Murdoch Fox News, just let Putin and others wreck the world. Don't waste your time with education and teaching. ===:::
