@@ -217,3 +217,8 @@ https://old.reddit.com/r/rupaulsdragrace/comments/1nebbgb/npb_weighs_in/
 
 Reality war, Americans hate Americans, Russia conditioned people since March 2013 to be addicted to fiction content creators (Charlike Kirk, Donald Trump, Fox News, Newsmax, Reddit trash, Elon Musk Twitter, Bluesky trash, Tiktok hate message trash, etc) and hate humanism / hate human beings. Mutliple NATO nations are reporting pro-Russia anti-humanism pro-Kremoin media invasions since 2013.    
 https://old.reddit.com/r/CringeTikToks/comments/1nekcyf/threatens_half_the_country_with_death_i_have_no/
+
+&nbsp;
+
+"Irony" on front page of Reddit. Nobody discussing that the NRA was documented to have worked with / infiltrated by Russia in information war. That Russia manipulated anti-vaccination. USA has had ass kicked in information war documented by multiple NATO nations, and all people can do is hate upon the mentally injured and manipulated that Putin won. That's exactly what the informaiton warfare conditiones: Americans hate upon Americans and avoid Russsia learning / avoid studying information warfare (and media ecology) itsef.    
+https://old.reddit.com/r/BlueskySkeets/comments/1nekk60/the_irony/
