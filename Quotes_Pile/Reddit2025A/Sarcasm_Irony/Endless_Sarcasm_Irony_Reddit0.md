@@ -171,3 +171,5 @@ https://old.reddit.com/r/IThinkYouShouldLeave/comments/1nduz9c/whats_the_joke_th
 
 "Every libtard commentator" on front page of Reddit. And community just accepts this kind of "liberals are mentally retarded" social media without discussing it. Pure reactionary A hates B, b hates A.  Muslim vs. Jewish hate each other back and forth. Wihtout love and compassion, life is shit. People have non sense that Nazi  Germany was first and foremost an absence of love. Competitive hate of human persons.    
 https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/
+It did get discussion, but no discussion of all the "GOP" insults / MAGA world insults, etc.    
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndkx6n5/
