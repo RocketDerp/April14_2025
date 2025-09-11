@@ -785,3 +785,11 @@ Historical-Egg3243 2020-10-17
 "it doesn't matter. They're all at risk. They're desperately trying to make it look like left vs right because they don't want to hear the truth: every person they run into could potentially shoot them, because all these politicians have been screwing us over for decades. The country is armed to the teeth and the hatred for the government gets stronger every day."
 
 * :::=== RoundSparrow_Commentary :  Machine weapons vs. human beings. Egomania vs. love and compassion messages. Donald Trump is a messege system creator of hate and mass dehumanization. Those who mock and hate Trump are not resisting the hate and mockery. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndml5gq/
+
+stark_eclipse 2019-03-19
+
+"This. I can’t fathom the amount of social media posts people are making that are so 1 dimensional in how this event can be viewed."
