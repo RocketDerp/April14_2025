@@ -775,3 +775,13 @@ https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_n
 "The relationship Americans have with right wing psychopaths is like one with a violent, delusional BPD partner"
 
 * :::=== RoundSparrow_Commentary : The relationship Americans have with nonfiction ... the relationship Americans have with honesty / sincerity / science learning / science study in year 2025 ... ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndmkqlu/
+
+Historical-Egg3243 2020-10-17
+
+"it doesn't matter. They're all at risk. They're desperately trying to make it look like left vs right because they don't want to hear the truth: every person they run into could potentially shoot them, because all these politicians have been screwing us over for decades. The country is armed to the teeth and the hatred for the government gets stronger every day."
+
+* :::=== RoundSparrow_Commentary :  Machine weapons vs. human beings. Egomania vs. love and compassion messages. Donald Trump is a messege system creator of hate and mass dehumanization. Those who mock and hate Trump are not resisting the hate and mockery. ===:::
