@@ -195,3 +195,5 @@ USA fiction content creators vs. fiction content creators is so etertaining. Red
 https://old.reddit.com/r/onionheadlines/comments/1ne8nbg/kirk_loses_gun_debate_by_long_shot/
 
 https://old.reddit.com/r/politics/comments/1nedmxk/no_i_wont_be_shedding_any_tears_for_charlie_kirk/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1neaiva/the_party_of_hypocrisy/
