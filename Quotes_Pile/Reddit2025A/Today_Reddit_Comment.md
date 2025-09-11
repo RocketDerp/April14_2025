@@ -517,3 +517,11 @@ BucketsOnly29 2016-05-01
 "Really, really disgusting people on this app. Truly evil & I hope each& every one of them finds the help they need in this life"
 
 * :::=== RoundSparrow_Commentary : As if Twitter is better than Reddit and Truth Social is better than Reddit, Facebook better than Reddit, etc. People only see tree and not the forest of the situation and how long it has been gong on. The USA is in self-harm mindsets. Not just *one* media platform, media community. It's in the White House with elders who did not *grow up* on Reddit and YouTube. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1ndqpn8/megyn_kelly_finds_out_while_streaming_her_friend/ndjr2bd/
+
+Aloha5OClockCharlie 2020-05-07
+
+"It only adds to the depression too when you realize the people supposedly on your side are so brutally unforgiving. The political landscape is an absolute mess, I honestly can't see how we get out of this anymore. Look at all the downvotes you're accumulating for being a sensible person. We're cooked."
