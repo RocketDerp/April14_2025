@@ -188,3 +188,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1neblwb/charlie_kirk_had_called_f
 
 More hyper-reality fiction entertainment on Reddit to frame the topics of Charlie Kirk killing.   
 https://old.reddit.com/r/freefolk/comments/1nec56c/please_stop_making_fun_of_this_a_man_is_dead_and/
+
+&nbsp;
+
+USA fiction content creators vs. fiction content creators is so etertaining. Reddit fiction vs. Charlie Kirk fiction.    
+https://old.reddit.com/r/onionheadlines/comments/1ne8nbg/kirk_loses_gun_debate_by_long_shot/
