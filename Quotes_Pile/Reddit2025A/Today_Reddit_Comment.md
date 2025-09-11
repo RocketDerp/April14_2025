@@ -183,3 +183,11 @@ Blackops606 2011-06-01
 "This definitely needs to be more towards the top and exactly why people get fed and relay wrongful information.
 
 "I saw a reddit post today with Morgan Freeman talking about how the assassination was a distraction for the Epstein files!" "
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nelts0/everything_about_charlie_kirks_public_murder/ndpp4u2/
+
+WittsandGrit 2016-09-12
+
+"My guess is just based on the not so dog whistle rhetoric from the leaders on the right that there's going to be a violent retaliation/escalation from someone random on the right against liberals, the reaction and response to that will dictate how far this goes. Once we enter the tit for tat cycle this whole country can fall apart pretty rapidly"
