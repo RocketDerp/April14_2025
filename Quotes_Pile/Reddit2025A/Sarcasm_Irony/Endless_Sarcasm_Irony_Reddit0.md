@@ -197,3 +197,8 @@ https://old.reddit.com/r/onionheadlines/comments/1ne8nbg/kirk_loses_gun_debate_b
 https://old.reddit.com/r/politics/comments/1nedmxk/no_i_wont_be_shedding_any_tears_for_charlie_kirk/
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1neaiva/the_party_of_hypocrisy/
+
+&nbsp;
+
+We The People addicted to non-stop mocking of Trump. Won't stop entertainment and call for removal of Trump sustained on social media, instead use all spare time and free time on social media for mocking.    
+https://old.reddit.com/r/therewasanattempt/comments/1neipio/to_have_a_major_stroke_at_a_911_event/
