@@ -121,3 +121,11 @@ OPtheOG 2013-12-03
 "i have my own opinions on this. but i will say, trump did say that voting to release the epstein files would be seen as an act of war. how close to the timing of the vote was charlie kirk killed?"
 
 * :::=== RoundSparrow_Commentary : Context reminder... a 3-day holiday weekend at the start of the month was full of social media messaging that Donald Trump had died and that the fiction "Weekend at Bernies" movie was running the White House. https://www.newsweek.com/donald-trump-photographed-labor-day-amid-baseless-death-rumors-2122752 Now less than 24 hours after a killing of Charlie Kirk, social media society is engaged in wild magical epstein stories. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1neblwb/charlie_kirk_had_called_for_the_full_release_of/ndnp4bc/
+
+dej0ta 2015-01-13
+
+"This entire mindset and take requires the truth to be relevant. Its not. The fight you describe was lost in 2016. What I dont understand is how many of us delude ourselves into thinking we have any power or say in what comes next. Except to take the law into our own hands of course. At least nobody has found a better idea yet."
