@@ -699,3 +699,13 @@ PrinceEntrapto 2024-02-29
 Makes me start to think Kirk was set up to die in such a public manner, right down to how openly exposed he was with such a clear line of sight, no security presence at all, and somehow a sniper dressed in all black is seen multiple times moving across the rooftop, makes it down without incident and disappears without a trace"
 
 * :::=== RoundSparrow_Commentary : Fiction outsells nonfiction is a major theme of my commentary and media ecology emphasis. This is a major media event in a nation of media addicts who elected an entertainment media Reality TV star because normalreality is now considered boring and unattractive. Exciting thrilling Surkov Russian styule of governing with abandonment of science thinking and abandonment of empathy / compassion in favor of team sports violence. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndkwrd9/
+
+Wattaday 2018-06-15
+
+"Can’t wait to find out the shooter was a republican who is so upset about the way the constitution is being crapped on."
+
+* :::=== RoundSparrow_Commentary : Media addicts can't wait to geet the latest inforamtion that Russia had mind-fucked the population into "hate thy enemy" and "hate harder" answers to problems. SOcial machines delivering Americans gun shooter information, people waiting for the latest. Sports consumer / sports fanatic mentality. ===:::
