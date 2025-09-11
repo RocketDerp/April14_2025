@@ -166,3 +166,8 @@ https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_migh
 &nbsp;
 
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1nduz9c/whats_the_joke_that_a_bigot_who_made_an_entire/
+
+&nbsp;
+
+"Every libtard commentator" on front page of Reddit. And community just accepts this kind of "liberals are mentally retarded" social media without discussing it. Pure reactionary A hates B, b hates A.  Muslim vs. Jewish hate each other back and forth. Wihtout love and compassion, life is shit. People have non sense that Nazi  Germany was first and foremost an absence of love. Competitive hate of human persons.    
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/
