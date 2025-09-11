@@ -162,3 +162,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1ndu8jp/the_left_has_never_bee
 
 Reddit community is having a front-page drinking celebration of public murder of a media content creator they don't like. Reddit vs. Talking Point media. Fiction vs. fiction addicts. Russia IRA mind-fucked everyone since March 2013 with 5,000 patterns of out-group hate.   
 https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_might_do_a_little/
+
+&nbsp;
+
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1nduz9c/whats_the_joke_that_a_bigot_who_made_an_entire/
