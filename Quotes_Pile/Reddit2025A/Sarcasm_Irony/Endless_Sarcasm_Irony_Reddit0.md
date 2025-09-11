@@ -157,3 +157,8 @@ https://old.reddit.com/r/CuratedTumblr/comments/1ndthk2/whoopsie/
 
 This month, at the start, Reddit and Bluesky was full of death-wishing Donald Trump. It was a constant topic for the entire 3 day holiday weekend. Whatever "the left" means to people. Russia won, Surkov won since year 2013.    
 https://old.reddit.com/r/MurderedByWords/comments/1ndu8jp/the_left_has_never_been_hateful_in_the_first_place/
+
+&nbsp;
+
+Reddit community is having a front-page drinking celebration of public murder of a media content creator they don't like. Reddit vs. Talking Point media. Fiction vs. fiction addicts. Russia IRA mind-fucked everyone since March 2013 with 5,000 patterns of out-group hate.   
+https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_might_do_a_little/
