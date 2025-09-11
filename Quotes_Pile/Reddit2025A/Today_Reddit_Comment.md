@@ -709,3 +709,13 @@ Wattaday 2018-06-15
 "Can’t wait to find out the shooter was a republican who is so upset about the way the constitution is being crapped on."
 
 * :::=== RoundSparrow_Commentary : Media addicts can't wait to geet the latest inforamtion that Russia had mind-fucked the population into "hate thy enemy" and "hate harder" answers to problems. SOcial machines delivering Americans gun shooter information, people waiting for the latest. Sports consumer / sports fanatic mentality. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndm7uxk/
+
+bigfudge_drshokkka 2019-02-09
+
+"It’s wild how Trump had his friend killed in a false flag to distract us from the fact that he raped kids on that island."
+
+* :::=== RoundSparrow_Commentary : Fiction addicts, QAnon Pizzagate stroytelling addicts, can't get enough of hybrid warfare against reality. This is a synptom. How can any person in USA since July 7, 2025 not know of these sex rumors? Nobody is distracted. What people are doing is keeping Trump in place to get more "Epstein" information, information strip tease. Not remoivng Trump from office because media addictions matters more than real life USA science and real life USA humanism. ===:::
