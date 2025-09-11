@@ -157,3 +157,11 @@ NeenerNeaner 2023-07-03
 "We've seen their motivation literally doesn't matter though. The guy that shot at Trump was literally a registered Republican with his classmates saying he was far right. Pro Maga signs on the front lawn. They're still calling it a left wing attack. what do his motivations matter when reality doesn't?"
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1ne9f7n/highpowered_rifle_recovered_amid_manhunt_for/ndniv4m/
+
+boogs_23 2012-06-12
+
+"It's insane to me that anyone in government sends out tweets that are more than just "Happy Holidays". It's like typing "first" on a youtube video, but in regards to a politically motivated killing."
+
+&nbsp;
