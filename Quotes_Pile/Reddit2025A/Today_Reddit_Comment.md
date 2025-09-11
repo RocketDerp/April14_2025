@@ -434,4 +434,26 @@ InterestingHashBrown 2017-07-13
 
 "The flags are requested to be down at half-staff for a longer period of time for Charlie Kirk’s death than they are for 9/11"
 
-* :::=== RoundSparrow_Commentary : [Everything is now Media Ecology](../../Media_Ecology/Everything_is_ME.md) under Trump/Surkov hybrid reality governing. A media star (who sells fiction storytelling like Bible and Fox News), Charlie Kirk, is more important than a world religion conflict (fictions storytelling Quran vs. Bible) that killed thousands of people. ===:::
+* :::=== RoundSparrow_Commentary : [Everything is now Media Ecology](../../Media_Ecology/Everything_is_ME.md) under Trump/Surkov hybrid reality governing. A media star (who sells fiction storytelling like Bible and Fox News), Charlie Kirk, is more important **state event** than a world religion conflict (fiction storytelling Quran fiction vs. Bible fiction conflicts) that killed thousands of people. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1ndskqc/why_do_you_think_president_trump_ordered_all_us/ndjotnz/
+
+xenthum 2012-04-19
+
+"Nothing has ever been successfully changed in the history of society without political violence. Like it or not."
+
+* :::=== RoundSparrow_Commentary : Regardless of humor or sarcasm. Twitter think logic. Without violence, there is nothing ever changed. I guess society moved from books to Internet sites like Reddit in the past 20 years because of violence! A statement of unreality that is a message of pro-violence encouragment. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1ndskqc/why_do_you_think_president_trump_ordered_all_us/ndje9zd/
+
+LadenWithSorrow 2024-06-09
+
+"I’m glad to see other people upset by this because I’m honestly affronted by the lowering of the flag for a right wing media head.
+
+The flag should really only be lowered for high ranking officials or in remembrance of a national tragedy.
+
+Today there was also a shooting at a school in Colorado but the flag wasn’t lowered for that. It’s normally only lowered for the day of 9/11 and it’s going to be lowered for 4 days one of which covers 9/11?"
