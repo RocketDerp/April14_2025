@@ -55,3 +55,12 @@ stark_eclipse 2019-03-19
 "This. I can’t fathom the amount of social media posts people are making that are so 1 dimensional in how this event can be viewed."
 
 &nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndmmqfh/
+
+RogueMaven 2020-09-17
+
+"I feel like we are in an era of intellectual reductionism. Being reduced to a singular state-approved POV."
+
+* :::=== RoundSparrow_Commentary :  We are in an era of Russian information warfare since March 2013 with zero self-awareness of media ecology, filter bubble, Cambridge Analytica psycological mechanics, etc. Trumpism and MAGA is an abandonment of nonfiction, giving up on science, and returning to mythological (fiction) based governing. ===:::
+
