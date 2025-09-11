@@ -165,3 +165,11 @@ boogs_23 2012-06-12
 "It's insane to me that anyone in government sends out tweets that are more than just "Happy Holidays". It's like typing "first" on a youtube video, but in regards to a politically motivated killing."
 
 &nbsp;
+
+https://old.reddit.com/r/news/comments/1ne9f7n/highpowered_rifle_recovered_amid_manhunt_for/ndniv2o/
+
+TheDecepticonIdeal 2019-08-08
+
+"The leader of the US is the biggest con-man the world has ever seen. A shame so many fawn over him."
+
+* :::=== RoundSparrow_Commentary : Fiction addicts adore that a 79 year old man can use a touch device and message on social meme systems. Addiction to fiction drives the USA society. Donald Trump provides a constant concentration of hate and mocking. People can not resist the mocking and hate of Trump playing Tony Clifton antics. Russian Surkov techniques of governing. ===:::
