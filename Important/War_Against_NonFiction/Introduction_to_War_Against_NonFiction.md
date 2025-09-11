@@ -50,7 +50,7 @@ year 1995 media 10-second sound bites == year 2025 Bluesky and Twitter media rea
 
 &nbsp;
 
-### In 1999, a new method of governing
+## Year 1999, a new method of governing
 
 Year 1999 brought about a radical change in government and govenring to the world.
 
