@@ -111,3 +111,13 @@ And I really hate the cowards with nefarious intent that will use this to fan ad
 The USA died months ago, just waiting for reality to catch up."
 
 * :::=== RoundSparrow_Commentary : I will point out the elephants in the room being avoided in September 2025. Information warfare attacks on Canada as forced "51st state", information warfare attacks on Greenland. Avoidance of defending Ukraine and meeting with Putin in Alaska and a pro-Kremlin stance and messaging. Avoidance of ever mentioning the "Internet Research Agency" and avoidance of mentioning Jen Senko's 2015 film about Fox News audience branwashing (nonfiction film). Avoidance of declaring we have runaway media addiction problems and that Donald Trump and many around him seem entirely addicted to paterns of Kremlin information. Instead, a constant sustained focus on magical private jet sex acts / "Epstein" / Pizzagate / QAnon level fiction. Instead of claling for science-based comprehension and understanding of reality, people are calling for a magical wildcard "list" of Epstein... which will just lead to more and more calling for more and more rich white men sex lives information. Meanwhile, women being given a voice like Malala's efforts globaly (not just domestic USA) are ignored and avoided. Girls are not empired, but nonstop focus on magical sex acts of rich old white elder rules (just like the Taliban in Swat Valley, Pakistain dicating to little girls like Malala and nobody wanting to hear the girls voices on the subject of sexaul domination by male elders). How does one describe that Pizzagate style addiciton to white men sex lives is driving the entire Epstein stopic engagement? While Canada is being attacked in anti-NATO pro-Russia fashion in 2025? ====:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1neblwb/charlie_kirk_had_called_for_the_full_release_of/ndnu54z/
+
+OPtheOG 2013-12-03
+
+"i have my own opinions on this. but i will say, trump did say that voting to release the epstein files would be seen as an act of war. how close to the timing of the vote was charlie kirk killed?"
+
+* :::=== RoundSparrow_Commentary : Context reminder... a 3-day holiday weekend at the start of the month was full of social media messaging that Donald Trump had died and that the fiction "Weekend at Bernies" movie was running the White House. https://www.newsweek.com/donald-trump-photographed-labor-day-amid-baseless-death-rumors-2122752 Now less than 24 hours after a killing of Charlie Kirk, social media society is engaged in wild magical epstein stories. ===:::
