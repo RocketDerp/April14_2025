@@ -633,3 +633,11 @@ craigdahlke 2014-08-03
 Even if you truly felt he deserved this, his children didn’t.
 
 Do better guys, seriously."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ndugu2/us_attacked_boat_near_venezuela_multiple_times_to/ndk4oib/
+
+Durian881 2019-01-17
+
+"Seemed like we're hurdling into war with new Axis: US attacking Venezuela boat, Israel bombing Qatar, ally of its ally, to stave off another peace deal, and Russia sending drones into Poland."
