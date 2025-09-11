@@ -213,3 +213,37 @@ MsNatCat 2015-12-31 (NYE)
 They care who was killed. Not that a killing occurred. One of their “in” group was killed.
 
 If your discussion with them isn’t centered on this, then you’re having a dishonest conversation."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nekzkq/i_disagreed_with_charlie_kirk_but_violence_is/ndpgv2h/
+
+FantasticJacket7 2023-03-23
+
+"This is objectively wrong. Violence is a solution to a multitude of problems.
+
+In fact, I would argue that violence has been the solution to more things throughout history than anything else."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nekzkq/i_disagreed_with_charlie_kirk_but_violence_is/ndpku8i/
+
+Sidebottle 2024-03-23
+
+"The Nazis were fascists. The point they are making is everyone you call a fascist isn't a fascist because you don't actually know what a fascist is.
+
+edit: Of course they blocked me so can't reply to any replies."
+
+* :::=== RoundSparrow_Commentary : The mock-then-block tactic on Reddit an Bluesky. A reply mocks a person, then blocks them from responding. Information warfare method on Reddit. The person has to edit their message (as depicted) to make it known to others this happened. Most people don't speak up about these kind of tactics. All this in the context of murdering someone in USA (Charlie Kirk) for speaking in public, shutting down people with machine systems (weapon machines to kill a person, or Reddit machines to silence debate). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nekzkq/i_disagreed_with_charlie_kirk_but_violence_is/ndpnljk/
+
+Sidebottle 2024-08-23
+
+"It's how you differentiate the left from leftists. Leftists will very publicly state they no longer care about 'taking the high road', they see it as fighting fire with fire by doing exactly what they accuse the right of doing.
+
+There are 3 options in these situations. Celebrate, condemn, or just remain quiet. More people just need to take the 3rd option, unfortunately narcissism prevents them."
+
+* :::=== RoundSparrow_Commentary : Can not possibly be any answers outside these 3. Such as educating and teaching about Russian informatio warfare, which is not one of the three listed. Humanity driven by ignorance. "the left" vs "the leftists" crap, without detailed specific lists of values. "the hgh road" also a wildcard. I don't see people supporting Malala's education movement since she published her book in October 2013. What "high road" are people taking towards world peace and right-wing Taliban?  What most Reddit meme addicts mean by "high road" isn't anything close to education / teachg / comprehension / understanding of human mob mentality and information warfare problems / how billionares manipulate audiences. A "high raod" would be using Reddit to promtoe every single day, every 12 hours for years, Jen Senko's 2015 film about Fox News and hate-based right-wing media. I dn't see anyone using social media to promote that "high road", but I see social media fiction content addicts promoting action media content of shootings captured on video.  People who want more action, entertainment, hyper reality out of their society and prize Donald Trump's antics and nonsense to constantly mock and insult on media machines. The idea of a health intellectually organized and peacefu society is treated as boring and undesirable. Nonficiton is avoided in favor of promoting celebration of ignroance and celebration of violence (like the Middle East celebrates violence over other humans) ===:::
