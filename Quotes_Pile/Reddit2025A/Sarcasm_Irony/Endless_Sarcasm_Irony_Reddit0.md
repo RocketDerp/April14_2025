@@ -173,3 +173,8 @@ https://old.reddit.com/r/IThinkYouShouldLeave/comments/1nduz9c/whats_the_joke_th
 https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/
 It did get discussion, but no discussion of all the "GOP" insults / MAGA world insults, etc.    
 https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndkx6n5/
+
+&nbsp;
+
+Front page of Reddit: "Donnie" started EVERYTHING. Fixation on Donald Trump. ignoring Reddit, ignoring Facebook, ignoring Twitter (Elon Musk), ignoring Truth Social content, ignoring the Russian Internet Reserach Agency since year 2013. Putin is leading the entire USA into blaming the USA for a war Russia won, a media invasion that USA people can't even explain or describe. Nobody can read nonfiction books by Neil Postman or Peter Pomerantsev and expalin what is gong on, just fixate on the **status symbol Donald Trump** who is the nonstop center of all media (reddit inclusive) attention.   
+https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/
