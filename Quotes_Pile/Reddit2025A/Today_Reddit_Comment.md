@@ -77,3 +77,13 @@ SavageObjector 2025-07-13 (recent account)
 Personally, I’m struggling to feel anything other than indifferent. He died doing what he loved - being hateful and divisive - so shouldn’t we all be so lucky? Instead of, I don’t know, dying in a mass shooting or because of some disease we eradicated decades ago they are determined to revive through ending vaccinations?"
 
 * :::=== RoundSparrow_Commentary : Media addicts of Reddit / Bluesky / Twitter / Facebook, addicted to Russian fiction and hate messaging, will die doing what they love: worshiping touchscreen media devices of fiction and abandoning climate change, science reality, medical science in favor of mocking figureheads like RFK Jr / Trump over and over. This has gone on for OVER TEN YEARS AND TWO MONTHS, endless nonstop mocking the Donald Trump performance of Tony Clifton antics. Surkov won, Russia won the meme war to make Americans addicted to natics and fiction, avoidant of nonfiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndmnkdz/
+
+LakersTommyG 2016-12-07
+
+"Yep, Trump tweeted a meme about loving the smell of deportations in the morning but I’m the one who supposed to cry tears over Charlie Kirk’s death? Fuck that"
+
+* :::=== RoundSparrow_Commentary : Short-message Twitter-thinking Tweet-logic polarity. Two sides and only two sides, "both sides", even when both are wrong - just compare siplistic options and don't recogonize the Russian information warfare and how Donald Trump is "tweeted a meme" is Surkovian governing / Kremlin antics absurd surreal politics. Avoiding nonfiction learning, just engaging the Twitter-framing of society, a crude short-message interpretaiton, fiction-framed simualcra. Recency bias abounds, people on Reddit meme machine sites can't see beyond Twitter meme machiene sites to what USA society was like in year 2012 before the IRA media invaison of Reddit / Twitter / Facebook / etc since March 2013. Sucked into the media addictions of media fiction vs media fiction (Reddit vs. Twitter). Nonfiction of media ecology avoided: 1985 book "Amusing Ourselves To Death" - https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
