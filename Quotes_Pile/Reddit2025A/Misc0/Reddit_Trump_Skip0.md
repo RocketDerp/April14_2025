@@ -58,3 +58,13 @@ Bible Satan Trump, but no Bible literacy teaching on social
 https://old.reddit.com/r/MurderedByWords/comments/1ncgc46/trump_is_more_satanic_than_the_mtv_awards/
 
 https://old.reddit.com/r/politics/comments/1ne5so8/america_is_gripped_by_political_violence_and/
+
+https://old.reddit.com/r/politics/comments/1nedbq1/dem_lawmaker_says_boob_jobs_are_genderaffirming/
+
+https://old.reddit.com/r/politics/comments/1nebesn/trump_threw_gasoline_on_the_fire_amid_growing/
+
+https://old.reddit.com/r/politics/comments/1ne8yde/why_would_someone_forge_trumps_signature_in/
+
+https://old.reddit.com/r/politics/comments/1ne7j26/trump_tried_to_convince_deported_south_korean/
+
+https://old.reddit.com/r/politics/comments/1neasts/schumer_trump_is_neville_chamberlain_of_our_time/
