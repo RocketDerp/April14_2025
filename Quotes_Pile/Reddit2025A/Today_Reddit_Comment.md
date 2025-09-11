@@ -476,3 +476,10 @@ https://old.reddit.com/r/LivestreamFail/comments/1ndqpn8/megyn_kelly_finds_out_w
 
 * :::=== RoundSparrow_Commentary : The Russian Internet Research Agency and Cambridge Analytica combined since March 2013 have wrecked goodness. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" - https://www.youtube.com/watch?v=09maaUaRT4M ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1ndqpn8/megyn_kelly_finds_out_while_streaming_her_friend/ndjb5hx/
+
+ryeyen 2018-08-14
+
+"I’m really disappointed by all of the evil on Reddit and this country in general. All of these vitriolic, pious frauds are just as bad as they claim him to be. I did not support Charlie whatsoever, but the true colors of the pseudo empathic community here are showing and I’m just tired of it. Literally proving his quote about empathy to be correct."
