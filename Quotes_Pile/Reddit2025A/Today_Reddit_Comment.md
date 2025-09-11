@@ -10,6 +10,17 @@ InAllThingsBalance 2024-06-18
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndmtefb/
+
+Hell_Is_An_Isekai 2024-01-09
+
+"It never ceases to amaze me how many of our problems stem from the same root: Truth.
+
+If we all stopped accepting convenient lies and instead sought the truth, where would be be now?"
+
+&nbsp;
+
+
 # Wednesday, September 10, 2025
 
 &nbsp;
