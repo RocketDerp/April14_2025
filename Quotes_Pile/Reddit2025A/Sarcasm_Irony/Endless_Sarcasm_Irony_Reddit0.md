@@ -148,3 +148,7 @@ https://old.reddit.com/r/PoliticalHumor/comments/1ndprhb/my_social_media_feed_rn
 The entire United States of America is a "missed media event" under Donald Trump values. Donald Trump role model of antics politics, constant media events, people glued to their social devices.    
 https://old.reddit.com/r/whenthe/comments/1ndosn1/i_missed_it/
 
+&nbsp;
+
+Front page of Reddit, absurd surreal behavior (Russian Surkov information warfare) constantly embraced and accepted. No resistance to the humor-based mind-fucking. People adopt the mocking / insulting / mass dehumanize movement of MAGA and Trump from the  IRA.     
+https://old.reddit.com/r/CuratedTumblr/comments/1ndthk2/whoopsie/
