@@ -152,3 +152,8 @@ https://old.reddit.com/r/whenthe/comments/1ndosn1/i_missed_it/
 
 Front page of Reddit, absurd surreal behavior (Russian Surkov information warfare) constantly embraced and accepted. No resistance to the humor-based mind-fucking. People adopt the mocking / insulting / mass dehumanize movement of MAGA and Trump from the  IRA.     
 https://old.reddit.com/r/CuratedTumblr/comments/1ndthk2/whoopsie/
+
+&nbsp;
+
+This month, at the start, Reddit and Bluesky was full of death-wishing Donald Trump. It was a constant topic for the entire 3 day holiday weekend. Whatever "the left" means to people. Russia won, Surkov won since year 2013.    
+https://old.reddit.com/r/MurderedByWords/comments/1ndu8jp/the_left_has_never_been_hateful_in_the_first_place/
