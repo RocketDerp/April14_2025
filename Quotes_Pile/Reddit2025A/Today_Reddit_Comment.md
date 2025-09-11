@@ -621,3 +621,15 @@ https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_migh
 ausamo2000 2015-06-16
 
 "Too bad this whole site is filled with justifications, as well as in this very post as well. This entire site is infected with an “us vs them” mentality and it’s disgusting and sad tbh. Well, the entire country really. It feels like both sides are so extreme at this point but still want to pretend like they are still moderates and still the sane ones as well. Anyone who feels some type of way from this message should definitely take a step back and look at just how deep they really are into whichever side they claim."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_might_do_a_little/ndkfnit/
+
+craigdahlke 2014-08-03
+
+"Honestly really disappointed with Reddit today. Sad to see people cheering over political violence and it making its way to the front page and getting hundreds of comments echoing it.
+
+Even if you truly felt he deserved this, his children didn’t.
+
+Do better guys, seriously."
