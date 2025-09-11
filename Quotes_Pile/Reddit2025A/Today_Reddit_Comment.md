@@ -660,4 +660,12 @@ They are not authentic.
 
 Listening to them is a waste of your time. Talking to them is an even bigger waste of your time because they will just be encouraged to talk more."
 
-* :::=== RoundSparrow_Commentary : Machine messages saying: *give up on Americans, don't rescue from Russian information warfare, don't rescue from Rupert Murdoch Fox News, just let Putin and others wreck the world. Don't waste your time with education and teaching. ===:::
+* :::=== RoundSparrow_Commentary : Machine messages saying: *give up on Americans, don't rescue from Russian information warfare*, don't rescue from Rupert Murdoch Fox News, just let Putin and others wreck the world. Don't waste your time with education and teaching. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndm00nq/
+
+Vindheim 2025-08-11 (recent account)
+
+"Thought it was satire, I could be wrong."
