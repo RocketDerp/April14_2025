@@ -533,3 +533,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1ndpsgr/donald_trump_confirms_that_cha
 orangefreshy 2011-09-27
 
 "Yeah even hours ago the rhetoric against “the violent liberals” was already unhinged. So exhausting as it’s just like… not true by and large"
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1ndpsgr/donald_trump_confirms_that_charlie_kirk_has_died/ndiuq7q/
+
+saeculacrossing 2016-10-01
+
+"I know you're completely right, but I'm still somewhat infuriated that we all have to be terrified when Melissa Hortman and others were assassinated in their homes and the media and Republicans did everything they could to sweep it under the rug.
+
+It just saddens me that when we are fearful, we get mocked, and when they are fearful we know that likely more people are at risk of being hurt."
+
+* :::=== RoundSparrow_Commentary : Faith in mocking. Mockery is proven. Donald Trump mocks science, and Bluesky and Reddit moock back. People are not counting up that ALL SIDES agree: 1) hate harder, 2) mock harder. A total mockery. People who mock Donald Trump (playing Tony Clifton) are not RESISTING Donald Trump. Mocking Trump is doing exactly what Trump represents: faith in mocking itself. Mocking reality. Putin / Surkov / Russian techniques that has worked for 25 years in domestic Russia and exported since March 2013 by the IRA. ===:::
