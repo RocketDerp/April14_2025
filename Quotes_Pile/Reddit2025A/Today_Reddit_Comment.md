@@ -97,3 +97,17 @@ look_under 2025-06-27 (recent account)
 "Your biggest clue, is trump commented about all this almost immediately and continued to fuel the flames of hate for the rest of the day."
 
 * :::=== RoundSparrow_Commentary : Twitter-length tweet short message thiking. Biggist clue of *runaway fiction addiction* is that media addicts on Reddit are glued to a 79 year old Donald Trump media addict who created his own social media platform out of addiction to fiction leadership. The 1985 book by Neil Postman titled "Amuisng Ourselves To Death" explains the media ecology of Donald Trumpism / media addiction behavior problems on a national scale. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1neblwb/charlie_kirk_had_called_for_the_full_release_of/ndnkrho/
+
+cityshepherd 2019-09-18
+
+"I really hate how this is just as reasonable an explanation as anything else (if not moreso), and it just really feels like the truth will not come out because this is indeed super accurate.
+
+And I really hate the cowards with nefarious intent that will use this to fan additional violence (either from the public or authoritarian crackdown).
+
+The USA died months ago, just waiting for reality to catch up."
+
+* :::=== RoundSparrow_Commentary : I will point out the elephants in the room being avoided in September 2025. Information warfare attacks on Canada as forced "51st state", information warfare attacks on Greenland. Avoidance of defending Ukraine and meeting with Putin in Alaska and a pro-Kremlin stance and messaging. Avoidance of ever mentioning the "Internet Research Agency" and avoidance of mentioning Jen Senko's 2015 film about Fox News audience branwashing (nonfiction film). Avoidance of declaring we have runaway media addiction problems and that Donald Trump and many around him seem entirely addicted to paterns of Kremlin information. Instead, a constant sustained focus on magical private jet sex acts / "Epstein" / Pizzagate / QAnon level fiction. Instead of claling for science-based comprehension and understanding of reality, people are calling for a magical wildcard "list" of Epstein... which will just lead to more and more calling for more and more rich white men sex lives information. Meanwhile, women being given a voice like Malala's efforts globaly (not just domestic USA) are ignored and avoided. Girls are not empired, but nonstop focus on magical sex acts of rich old white elder rules (just like the Taliban in Swat Valley, Pakistain dicating to little girls like Malala and nobody wanting to hear the girls voices on the subject of sexaul domination by male elders). How does one describe that Pizzagate style addiciton to white men sex lives is driving the entire Epstein stopic engagement? While Canada is being attacked in anti-NATO pro-Russia fashion in 2025? ====:::
