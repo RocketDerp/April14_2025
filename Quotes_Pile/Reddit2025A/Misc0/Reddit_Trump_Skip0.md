@@ -68,3 +68,6 @@ https://old.reddit.com/r/politics/comments/1ne8yde/why_would_someone_forge_trump
 https://old.reddit.com/r/politics/comments/1ne7j26/trump_tried_to_convince_deported_south_korean/
 
 https://old.reddit.com/r/politics/comments/1neasts/schumer_trump_is_neville_chamberlain_of_our_time/
+
+Trump saying that Russian military attacks are mistake, but not Russian hate is a mistake. Not Russian waging war on Ukraine is a mistake.     
+https://old.reddit.com/r/politics/comments/1nem1p2/russia_drone_incursion_in_poland_may_have_been_by/
