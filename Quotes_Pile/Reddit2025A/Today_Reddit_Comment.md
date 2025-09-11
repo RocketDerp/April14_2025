@@ -124,8 +124,26 @@ OPtheOG 2013-12-03
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/NoFilterNews/comments/1neblwb/charlie_kirk_had_called_for_the_full_release_of/ndnp4bc/
 
 dej0ta 2015-01-13
 
 "This entire mindset and take requires the truth to be relevant. Its not. The fight you describe was lost in 2016. What I dont understand is how many of us delude ourselves into thinking we have any power or say in what comes next. Except to take the law into our own hands of course. At least nobody has found a better idea yet."
+
+* :::=== RoundSparrow_Commentary : a subtle pro-violence message, "law into our own hands". Not resisting a Russian psychological war with educaiton and nonfiction teaching. Not even self-aware that Russia won a information war since March 2013. Complete ignorance and pro-violence against Americans. American on American violence. Exaclty what Russia IRA condtioned society for since year 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1neblwb/charlie_kirk_had_called_for_the_full_release_of/ndnrks9/
+
+Attaraxxxia 2017-03-19
+
+<img width="1194" height="1090" alt="image" src="https://github.com/user-attachments/assets/8eaf9463-7e60-415e-8875-67c5a9cc6884" />
+
+&nbsp;
+
+"Thank you. That read like a toxic positivity spambot or something. Totally detached from reality."
+
+&nbsp;
