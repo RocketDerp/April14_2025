@@ -64,3 +64,16 @@ RogueMaven 2020-09-17
 
 * :::=== RoundSparrow_Commentary :  We are in an era of Russian information warfare since March 2013 with zero self-awareness of media ecology, filter bubble, Cambridge Analytica psycological mechanics, etc. Trumpism and MAGA is an abandonment of nonfiction, giving up on science, and returning to mythological (fiction) based governing. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndmld32/
+
+SavageObjector 2025-07-13 (recent account)
+
+"Someone said it on here earlier…
+
+“Fuck your feelings” is soooo much easier to give than to receive. And for a man they clearly worshipped who hated empathy they sure expect a boatload of it now. The idea behind “being better” is to learn from stuff like this and not doubling down on the hate filled ideas and rhetoric. It is early but what are his followers doing? Calling for war? Hating anyone on the left? Calling this the Reichstag Fire moment - which is confusing because that would mean they agree it was an inside job, right?
+
+Personally, I’m struggling to feel anything other than indifferent. He died doing what he loved - being hateful and divisive - so shouldn’t we all be so lucky? Instead of, I don’t know, dying in a mass shooting or because of some disease we eradicated decades ago they are determined to revive through ending vaccinations?"
+
+* :::=== RoundSparrow_Commentary : Media addicts of Reddit / Bluesky / Twitter / Facebook, addicted to Russian fiction and hate messaging, will die doing what they love: worshiping touchscreen media devices of fiction and abandoning climate change, science reality, medical science in favor of mocking figureheads like RFK Jr / Trump over and over. This has gone on for OVER TEN YEARS AND TWO MONTHS, endless nonstop mocking the Donald Trump performance of Tony Clifton antics. Surkov won, Russia won the meme war to make Americans addicted to natics and fiction, avoidant of nonfiction. ===:::
