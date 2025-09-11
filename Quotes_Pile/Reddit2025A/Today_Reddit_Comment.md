@@ -1,3 +1,15 @@
+# Thursday, September 11, 2025 (9/11)
+
+https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndml4dd/
+
+InAllThingsBalance 2024-06-18
+
+"That’s the problem; MAGA lives in a completely different reality from what is actually going on. They don’t have the mental capacity to apply critical thinking skills, they just ride on hatred and lies."
+
+* :::=== RoundSparrow_Commentary :  On 9/11/2001 Quran fiction media content readers (Islamic Quran terrorists from Saudi Arabia) who live in the alternate reality of their fiction poetry storytelling, attacked USA. Reddit users in September 2025 can't discuss the Russian war against reality despite constantly observing that reality itself is in crisis. September 9, 2014 - more than ELEVEN FULL YEARS AGO: "The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." - https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
 # Wednesday, September 10, 2025
 
 &nbsp;
@@ -729,3 +741,11 @@ girldad0130 2022-01-15
 "I was confused when I read this the first time because I thought it would be someone, like me, scared that the right would use this as a Reichstag moment.
 
 Took a second glance to realize that no, it’s them openly proclaiming that’s the plan. Wild!!!"
+
+&nbsp;
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndljtdq/
+
+"The relationship Americans have with right wing psychopaths is like one with a violent, delusional BPD partner"
+
+* :::=== RoundSparrow_Commentary : The relationship Americans have with nonfiction ... the relationship Americans have with honesty / sincerity / science learning / science study in year 2025 ... ===:::
