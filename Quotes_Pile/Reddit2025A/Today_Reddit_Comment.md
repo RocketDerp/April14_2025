@@ -613,3 +613,11 @@ https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_migh
 amcco1 2015-02-03
 
 "Even if you hate Charlie (deservedly so) you still shouldn't be happy about all this. It's bad for the whole county, its bad for his kids, it's bad for the students who were there in person and saw it all."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_might_do_a_little/ndkgbt9/
+
+ausamo2000 2015-06-16
+
+"Too bad this whole site is filled with justifications, as well as in this very post as well. This entire site is infected with an “us vs them” mentality and it’s disgusting and sad tbh. Well, the entire country really. It feels like both sides are so extreme at this point but still want to pretend like they are still moderates and still the sane ones as well. Anyone who feels some type of way from this message should definitely take a step back and look at just how deep they really are into whichever side they claim."
