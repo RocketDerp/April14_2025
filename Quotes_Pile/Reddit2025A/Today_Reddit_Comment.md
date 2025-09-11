@@ -585,3 +585,13 @@ AxelNotRose 2016-08-24
 "She would have just said she's 100% sure it's a democrat that shot Kirk and there's no way to confront that since no one knows. It's futile. At least pointing out the hypocrisy got her to trip up a little and any neutral pereon watching with a shred of brain cells would see it. The ones that don't are beyond saving anyway."
 
 * :::=== RoundSparrow_Commentary :  "The ones that don't are beyond saving anyway." - GIVE UP! BEYOND SAVING!  Let Russia keep on winning Hearts and Minds. Mount no rescue. Just don't save people! These messages abound on social media in September 2025, *give up on Amrericans, let the Cambridge Analytica mind-fuck win!* Don't educate, don't teach, just declare people beyond saving. Write off human beings. Social machines are more important to love, not human persons. "The ones who don't" is a HUGE number of persons that this comment is referencing. We aren't talking about giving up on one person ("she"), this comment is saying to the community... give up on MILLIONS of people in USA and other NATO nations who are detached from Reality by Russia's War Against Facts / War Against Reality: https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_might_do_a_little/ndkcc7b/
+
+SubstanceConscious51 2022-12-12
+
+"Perhaps, I'm not going to follow his lessons though, because I don't believe in them."
+
+* :::=== RoundSparrow_Commentary :  Bad is bad. Period. Doesn't matter who it comes from. Badness itself abounds under Putin information warfare since March 2013. People who follow trends have trended the USA into Kremlin values. Bad is bad! Popularity (Trump is popular hate topic) is toxic. People find it *entertaining / amusing*, it isn't funny. Bad is bad. Ukraine war is bad. Terrorism is bad. Trump / MAGA believes bad shit and bad morality. Hate is bad. Mass dehumanization is bad. ===:::
