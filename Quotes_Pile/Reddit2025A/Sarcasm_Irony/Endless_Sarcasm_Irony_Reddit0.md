@@ -193,3 +193,5 @@ https://old.reddit.com/r/freefolk/comments/1nec56c/please_stop_making_fun_of_thi
 
 USA fiction content creators vs. fiction content creators is so etertaining. Reddit fiction vs. Charlie Kirk fiction.    
 https://old.reddit.com/r/onionheadlines/comments/1ne8nbg/kirk_loses_gun_debate_by_long_shot/
+
+https://old.reddit.com/r/politics/comments/1nedmxk/no_i_wont_be_shedding_any_tears_for_charlie_kirk/
