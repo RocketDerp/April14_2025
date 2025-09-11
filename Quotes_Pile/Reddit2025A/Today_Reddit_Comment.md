@@ -679,3 +679,11 @@ javasux 2017-12-26
 "No one seams to mention the irony of him being shot while taking a question about mass shootings."
 
 * :::=== RoundSparrow_Commentary : Claiming no one seems to mention what so many clever mockery people mention on Reddit. The entertainment aspect of unique aspects of news events. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndkzll5/
+
+Flux7777 2013-08-27
+
+"OP, the problem is that you think this is a burn. They are literally Nazis. They are open about it and have been for a long time. The big funni is no longer about comparing Republicans to Nazis, it's about how do we stop the fucking Nazis."
