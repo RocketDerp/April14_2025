@@ -425,3 +425,13 @@ Silver_Foxx 2011-02-21
 This rhetoric doesn't benefit conservatives, and it doesn't benefit liberals, all it does is stir up more hatred and division. The only ones who benefit from this sort of thing are the powers out there who oppose America.
 
 Do not fall for this unfortunately extremely effective propaganda."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1ndskqc/why_do_you_think_president_trump_ordered_all_us/ndjbb6n/
+
+InterestingHashBrown 2017-07-13
+
+"The flags are requested to be down at half-staff for a longer period of time for Charlie Kirk’s death than they are for 9/11"
+
+* :::=== RoundSparrow_Commentary : [Everything is now Media Ecology](../../Media_Ecology/Everything_is_ME.md) under Trump/Surkov hybrid reality governing. A media star (who sells fiction storytelling like Bible and Fox News), Charlie Kirk, is more important than a world religion conflict (fictions storytelling Quran vs. Bible) that killed thousands of people. ===:::
