@@ -22,6 +22,22 @@ Many independent media practitioners have raised the same concerns and pionted t
 
 &nbsp;
 
+## Background 1993
+
+Texan Rick Roderick at Duke University in year 1993:
+
+* "if that’s true then all of the strategies by which ordinary people try to live decent good lives are lost along with it. I am not necessarily going to buy that right away, I am really not. I do think that the new, ah, technologies are going to call forth… I mean this is why the title of this course has been “The Self Under Siege”. If I didn’t think it was a real, virulent technological siege and just some thought up philosopher’s dream, which would not have interested me. I mean, I have no interest in that."
+
+* "The battlelines may be between anonymous forces that have been unleashed by technology that grew out of capital, that will be controlled in the hands of not many people – perhaps, perhaps not, I mean we don’t know – and people who still would like to have some experience."
+
+* "The war zone, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal."
+
+I think it is important to distingish / focus on that final quote, describing it as a **war zone**, where Neil Postman described it purely as a naturaly emerging situation of media ecology changes. Rick Roderick was looking in the future ("the struggle in the future may be") that technology itself and even hostile forces may be weaponizing the techniques.
+
+The entire 1993 video series is recommend, multiple viewings: https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
+
 
 ## Background 1995
 
