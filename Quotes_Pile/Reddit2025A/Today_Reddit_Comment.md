@@ -497,3 +497,13 @@ When the Minnesota lawmakers were murdered the right made so many jokes out of i
 But I’m sure now it will be about how awful the left is, just as then it was about how awful the right was
 
 All this is to say we are the same people that fall into the same traps and do the same things over and over. The right thinks the left is evil and the left thinks the right is evil. But they both act the same given the same circumstances"
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1ndqpn8/megyn_kelly_finds_out_while_streaming_her_friend/ndjc9b5/
+
+Anxious_Context_8573 2025-03-16 (new this year)
+
+"I think it’s just mostly Reddit but yeah the disconnection from reality is truly horrifying to see"
+
+* :::=== RoundSparrow_Commentary : As if Twitter is better than Reddit and Truth Social is better than Reddit, etc. Donald Trump was elected a second term in office. I have been around elderly in Florida and Arizona since Trump took office, it isn't just children on Reddit. The Internet Research Agency and Cambridge Analytica manipulated USA population into self-harm since March 2013. The pandemic COVID-19 anti-science self-harm and anti-humanism was induced by Russian hybird warfare on social media with evidence going back to yeaer 2014 (start of Ukraine war): https://www.bbc.com/news/world-us-canada-45294192 - we in year 2025 still have anti-science pro-disease mindsets about measles that were disclosed August 24, 2018 - people are widespread LOL amused at deaths and self-harm of those they disagree with (Americans hate upon Americans). It wasn't like this before the IRA media invasion. Trump attracts people with faith in hate, machine dehumanization / systemic dehumanization. ===:::
