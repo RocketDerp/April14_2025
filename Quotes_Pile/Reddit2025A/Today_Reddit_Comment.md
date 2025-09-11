@@ -687,3 +687,15 @@ https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_n
 Flux7777 2013-08-27
 
 "OP, the problem is that you think this is a burn. They are literally Nazis. They are open about it and have been for a long time. The big funni is no longer about comparing Republicans to Nazis, it's about how do we stop the fucking Nazis."
+
+&nbsp;
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1ndz97e/comparing_oneself_to_nazis_is_telling/ndm955b/
+
+PrinceEntrapto 2024-02-29
+
+"Does this person not know the Reichstag Fire was a very well documented inside job? No real mourning or outpouring of grief for their friend and inspiration, just immediate calls to arms and fantasies of revolution and massacring everybody they don’t like
+
+Makes me start to think Kirk was set up to die in such a public manner, right down to how openly exposed he was with such a clear line of sight, no security presence at all, and somehow a sniper dressed in all black is seen multiple times moving across the rooftop, makes it down without incident and disappears without a trace"
+
+* :::=== RoundSparrow_Commentary : Fiction outsells nonfiction is a major theme of my commentary and media ecology emphasis. This is a major media event in a nation of media addicts who elected an entertainment media Reality TV star because normalreality is now considered boring and unattractive. Exciting thrilling Surkov Russian styule of governing with abandonment of science thinking and abandonment of empathy / compassion in favor of team sports violence. ===:::
