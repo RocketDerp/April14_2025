@@ -207,3 +207,9 @@ https://old.reddit.com/r/therewasanattempt/comments/1neipio/to_have_a_major_stro
 
 Irresponsible. But to high-speed media addiction society, it's entertaining, amusing as defined in 1985 book by Neil Postman "Amusing Ourselves To Death".  It is content for social machines to publish.    
 https://old.reddit.com/r/MurderedByAOC/comments/1nehnb5/aoc_they_have_not_caught_the_assailant_there_is/
+
+&nbsp;
+
+The irony, the paradox, the contradiction. Reddit eats this up. A fiction media content creator, Charlie Kirk, was murdered. So fiction content creator leaders chime in. This is why Donald Trump is put into office a second time, normal governing and health future leadership was deemed too boring and unexciting to media systems addicts / content consumer society.     
+https://old.reddit.com/r/rupaulsdragrace/comments/1nebbgb/npb_weighs_in/
+
