@@ -595,3 +595,21 @@ SubstanceConscious51 2022-12-12
 "Perhaps, I'm not going to follow his lessons though, because I don't believe in them."
 
 * :::=== RoundSparrow_Commentary :  Bad is bad. Period. Doesn't matter who it comes from. Badness itself abounds under Putin information warfare since March 2013. People who follow trends have trended the USA into Kremlin values. Bad is bad! Popularity (Trump is popular hate topic) is toxic. People find it *entertaining / amusing*, it isn't funny. Bad is bad. Ukraine war is bad. Terrorism is bad. Trump / MAGA believes bad shit and bad morality. Hate is bad. Mass dehumanization is bad. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_might_do_a_little/ndkg5ri/
+
+ThisisnotaTesT10 2015-09-22
+
+"This is pretty shameful. I hated Charlie Kirk’s politics but we shouldn’t be toasting the man’s murder? Is that what we want, people we don’t agree with to get murdered?"
+
+* :::=== RoundSparrow_Commentary : A media addict of Reddit got to the front page with a photograph he took about a media event. Everything is media addiction / media ecology. Russia won the informaiton war. Media addiciton rules society values, not goodness, but behaving like Trump to get on the front page of media systems like Trump has done. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ndwm8t/oc_saving_this_for_trump_but_might_do_a_little/ndkc2f1/
+
+amcco1 2015-02-03
+
+"Even if you hate Charlie (deservedly so) you still shouldn't be happy about all this. It's bad for the whole county, its bad for his kids, it's bad for the students who were there in person and saw it all."
