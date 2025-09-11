@@ -554,4 +554,25 @@ Duosion 2013-01-13
 
 "I’ve had this pit in my stomach since trump got elected, it is like a mounting dread that won’t go away."
 
-* :::=== RoundSparrow_Commentary :Denial abounds. Russia won an information war since March 2013 and this is so much larger than MAGA and Trump and people are not looking at all of NATO / China / Russia. The Internet Research Agency is attacking REALITY ITSELF, truth, and nonfiction is being discarded. This is an information war unlie any in all human history: September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+* :::=== RoundSparrow_Commentary : Denial abounds. Russia won an information war since March 2013 and this is so much larger than MAGA and Trump and people are not looking at all of NATO / China / Russia. The Internet Research Agency is attacking REALITY ITSELF, truth, and nonfiction is being discarded. This is an information war unlie any in all human history: September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ndv9mn/initial_suspect_in_charlie_kirk_killing_released/ndkcl6s/
+
+upillium 2022-07-26
+
+"No, not even killing Charlie Kirk will make us stop talking about the Epstein List.
+
+It was an interesting strategy from them, but no, we want answers."
+
+* :::=== RoundSparrow_Commentary : QAnon, Pizzagate, Epstein magic list messages constantly. War against reality. "we want answers" - calling for *answers* from Trump. Not removal of Trump from office as a terrible leader who is harming the USA, but calling for more fiction information *answers*. This is a mind-fuck message actually wanting to keep Trump in place (in power / in White House) because Epstein list answers. Exactly as Donald Trump Jr. conditioned back in July 2023. https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ndv9mn/initial_suspect_in_charlie_kirk_killing_released/ndk9uxg/
+
+freakers 2013-02-06
+
+"I don't know how hard it must be, I mean, there literal camera footage of it happening. Was the suspect wearing a Waluigi mask or something?"
+
