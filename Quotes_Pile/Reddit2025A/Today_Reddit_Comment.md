@@ -247,3 +247,19 @@ Sidebottle 2024-08-23
 There are 3 options in these situations. Celebrate, condemn, or just remain quiet. More people just need to take the 3rd option, unfortunately narcissism prevents them."
 
 * :::=== RoundSparrow_Commentary : Can not possibly be any answers outside these 3. Such as educating and teaching about Russian informatio warfare, which is not one of the three listed. Humanity driven by ignorance. "the left" vs "the leftists" crap, without detailed specific lists of values. "the hgh road" also a wildcard. I don't see people supporting Malala's education movement since she published her book in October 2013. What "high road" are people taking towards world peace and right-wing Taliban?  What most Reddit meme addicts mean by "high road" isn't anything close to education / teachg / comprehension / understanding of human mob mentality and information warfare problems / how billionares manipulate audiences. A "high raod" would be using Reddit to promtoe every single day, every 12 hours for years, Jen Senko's 2015 film about Fox News and hate-based right-wing media. I dn't see anyone using social media to promote that "high road", but I see social media fiction content addicts promoting action media content of shootings captured on video.  People who want more action, entertainment, hyper reality out of their society and prize Donald Trump's antics and nonsense to constantly mock and insult on media machines. The idea of a health intellectually organized and peacefu society is treated as boring and undesirable. Nonficiton is avoided in favor of promoting celebration of ignroance and celebration of violence (like the Middle East celebrates violence over other humans) ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nekzkq/i_disagreed_with_charlie_kirk_but_violence_is/ndppg2a/
+
+Sidebottle 2024-08-23
+
+<img width="860" height="646" alt="image" src="https://github.com/user-attachments/assets/95d1f7c3-6a0a-436d-b4d8-3c6430b74fa3" />
+
+&nbsp;
+
+"I'm strongly of the belief circa 2015 the entire world just forget narcissists exist. So many people just refuse to accept people do or say things solely to get attention rather than actually believing it."
+
+* :::=== RoundSparrow_Commentary : This Reddit comment is describing fiction. People who create a fiction show lie Star Wars Andor "solely to get attention" (an audience, for profit, wealth). But don't actually believe that a galaxy far far away is Star Wars is real. Donald Trump creates fiction, Putin creates fiction. That's the whole basis of the Russian information warfare. This reddit comment is describing that in year 2015 people lost their ability to distinguish fiction from nonfiction. Aritsts and video game creators and film makers / TV show creators constatnly are creating fiction messags they don't believe in. May are even paid to do so, such as paid employees of Russia's Internet Research Agency since year 2013 to create comments on Reddit and other Internet media systems. Donald Trump "Truth Social" is ficiton, despite the name. And do you see audiences pointing out the war against reality / war against nonfiction? Linking this story from September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - right before this comment's time period? "I'm strongly of the belief circa 2015 the entire world just forget"... nonfiction. Sincerity, honesty, facts, science. ===:::
