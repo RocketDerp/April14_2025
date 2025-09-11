@@ -147,3 +147,13 @@ Attaraxxxia 2017-03-19
 "Thank you. That read like a toxic positivity spambot or something. Totally detached from reality."
 
 &nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ne9f7n/highpowered_rifle_recovered_amid_manhunt_for/ndn09c2/
+
+NeenerNeaner 2023-07-03
+
+"We've seen their motivation literally doesn't matter though. The guy that shot at Trump was literally a registered Republican with his classmates saying he was far right. Pro Maga signs on the front lawn. They're still calling it a left wing attack. what do his motivations matter when reality doesn't?"
+
+&nbsp;
