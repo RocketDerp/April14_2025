@@ -191,3 +191,25 @@ https://old.reddit.com/r/politics/comments/1nelts0/everything_about_charlie_kirk
 WittsandGrit 2016-09-12
 
 "My guess is just based on the not so dog whistle rhetoric from the leaders on the right that there's going to be a violent retaliation/escalation from someone random on the right against liberals, the reaction and response to that will dictate how far this goes. Once we enter the tit for tat cycle this whole country can fall apart pretty rapidly"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nekzkq/i_disagreed_with_charlie_kirk_but_violence_is/ndpgm1g/
+
+seKer82 2010-09-01
+
+"This is always an interesting quote when you consider violence has been the go-to solution for humanity throughout history."
+
+* :::=== RoundSparrow_Commentary : Twitter-think Tweet-length thinking patterns. Pondering... That death from diseases an large families due to childbirth is history and traidition of humanity, so medical advances and learning advances of humans aren't important. There is no progress other tahn weapon systems technology advancements valued by technology lovers. Violence s the go-to solution for domestic marriage, family anilihation and family murder/suicide. Honor killings of women in Islamic cultures. Tradition sure sells a nightmare of history (James Joyce). "violence has been the go-to solution", weighs realy heavy on the meaning of the word *solution*. It solves boredom to media addict society that want more action politics and violence breaking news events. ====:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nekzkq/i_disagreed_with_charlie_kirk_but_violence_is/ndpj2pr/
+
+MsNatCat 2015-12-31 (NYE)
+
+"Conservatives don’t care about the violence.
+
+They care who was killed. Not that a killing occurred. One of their “in” group was killed.
+
+If your discussion with them isn’t centered on this, then you’re having a dishonest conversation."
