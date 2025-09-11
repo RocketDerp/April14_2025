@@ -465,3 +465,14 @@ https://old.reddit.com/r/AskReddit/comments/1ndskqc/why_do_you_think_president_t
 chaos8803 2011-11-10
 
 "Its the least he could do for ordering a hit on a high profile MAGA to distract from Epstein."
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1ndqpn8/megyn_kelly_finds_out_while_streaming_her_friend/ndiwzym/
+
+123unm123 2019-11-12
+
+"America is fucking insane"
+
+* :::=== RoundSparrow_Commentary : The Russian Internet Research Agency and Cambridge Analytica combined since March 2013 have wrecked goodness. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" - https://www.youtube.com/watch?v=09maaUaRT4M ===:::
+
