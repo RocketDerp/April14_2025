@@ -576,3 +576,12 @@ freakers 2013-02-06
 
 "I don't know how hard it must be, I mean, there literal camera footage of it happening. Was the suspect wearing a Waluigi mask or something?"
 
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1ndtp8b/to_blame_an_assassination_on_democrats/ndjtia4/
+
+AxelNotRose 2016-08-24
+
+"She would have just said she's 100% sure it's a democrat that shot Kirk and there's no way to confront that since no one knows. It's futile. At least pointing out the hypocrisy got her to trip up a little and any neutral pereon watching with a shred of brain cells would see it. The ones that don't are beyond saving anyway."
+
+* :::=== RoundSparrow_Commentary :  "The ones that don't are beyond saving anyway." - GIVE UP! BEYOND SAVING!  Let Russia keep on winning Hearts and Minds. Mount no rescue. Just don't save people! These messages abound on social media in September 2025, *give up on Amrericans, let the Cambridge Analytica mind-fuck win!* Don't educate, don't teach, just declare people beyond saving. Write off human beings. Social machines are more important to love, not human persons. "The ones who don't" is a HUGE number of persons that this comment is referencing. We aren't talking about giving up on one person ("she"), this comment is saying to the community... give up on MILLIONS of people in USA and other NATO nations who are detached from Reality by Russia's War Against Facts / War Against Reality: https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
