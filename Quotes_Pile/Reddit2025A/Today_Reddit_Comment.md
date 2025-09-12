@@ -137,3 +137,21 @@ Did anybody ever listen to that? The shit he said behind the liberals backs to h
 Respectful would be tough to spin if they has a list of his biggest radio hits. My favorite was when he would call the opposition Demons.
 
 His debate persona wasn't genuine. Nobody was going to 'change his mind'. He put on a mask so he could proselytize to a wider audience and lure in confused people with bullshit. Just a typical charlatan huckster."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndtfgkn/
+
+slam99967 2017-11-06
+
+"I saw a comment pointing out that none of the news is really putting any quotes of him. Besides some very mild things he said, but totally ignoring the bulk of who he was."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndtikrc/
+
+ReluctantNerd7 2020-05-04
+
+"The PBS NewsHour didn't seem to hold back.
+
+https://youtu.be/FFJ_oAAv5Cw?t=7m20s "
