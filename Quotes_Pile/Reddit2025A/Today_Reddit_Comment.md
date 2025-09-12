@@ -394,3 +394,14 @@ That person closed their social media accounts and those clowns were saying «  
 Or… ya know… thwyre tired of being harassed i dunno"
 
 * :::=== RoundSparrow_Commentary : Amusement mills. Fiction mills. 4chan / X / Reddit. Constant mockery, total mocking-faith society. Amusment-washing, joke-washing, humor-washing Trump and MAGA constantly. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1nf3vja/22_year_old_tyler_robinson_identified_as_official/ndtp9y3/
+
+Ellavemia 2007-11-17
+
+"Now that it's out, the stuff engraved on the ammo was pure 4Chan-style trolling and nothing political at all, unless I'm wildly out of the loop. I still can't believe they said what they said yesterday."
+
+* :::=== RoundSparrow_Commentary :  Surkovian onion eater [Surkovian_Onion_Eating.md]([Surkovian_Onion_Eating.md) . Entirely out o the loop that Russia information warfare is organized trolling. "Operation Matthew 4:19" ignorance abounds. Charlie Kirk in 2021 adopted Matthew 4:19 trolling techniques, and 4Chan is counter-trolling. Fiction trolling (Bible verse Matthew 4:19) vs. fiction trolling (4Chan media venue). Part of the [5,000 anti-reality mind exploiting patterns Russia deployed since year 2013](../Cambridge_Analytica_Quotes.md). Everyone trolling everyone all the time (Surkov called "War of All Against All", the 5th World War), because if you wrap things in entertainment and amusement, killing and war against Ukraine since February 2014 is surreal amusment topics for meme mills / meme information systems.
+"He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics. His aim is to undermine peoples' perceptions of the world, so they never know what is really happening. Surkov turned Russian politics into a bewildering, constantly changing piece of theater." - December 31, 2014. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
