@@ -269,3 +269,14 @@ https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect
 IndubitablyNerdy 2020-06-17
 
 "I agree with this, the outcome has been decided already by the cultists at the top, it won't really matter who the shooter is and why this happened, of course they would be happier if he was a 'communist' or whatever, but even if that's not the case they will twist it to make it fit the narrative."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect_held_in/ndu3usr/
+
+weezmatical 2013-02-18
+
+"True. First, the right will believe he was liberal regardless of any evidence. Second they will simply delete all his social media and downplay any evidence that he might have been a republican. Reality matters very little. Of course, the ideologies of a mentally unwell person shouldn't matter that much in the long run. Just sucks they will pretend it is extremely important and that it is somehow ANYONE who votes Democrat's fault."
+
+* :::=== RoundSparrow_Commentary : "***This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book**** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+
