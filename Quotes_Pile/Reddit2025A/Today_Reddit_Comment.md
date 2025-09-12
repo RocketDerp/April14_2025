@@ -803,3 +803,13 @@ Severe_Intention_480 2022-03-06
 "They'll say he was placed under demonic influences by "Satanic Democrats" or got infected by the "Radical Left Woke Mind Virus"... also by Democrats. "Leftism" will be rebranded as an infectious disease that must be treated like a national health emergency.
 
 How much ya wanna bet?"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndvwybn/
+
+Odd_Perfect 2025-03-16 (new this year)
+
+"Bro go to that one subreddit and they’re already talking about “That means nothing. He was indoctrinated by the left wing education and media. Doesn’t matter if his family was MAGA.” lmaoooo"
+
+* :::=== RoundSparrow_Commentary : Note the social media laugh track at the end of the message. Constant amusement and entertainment that the Russia information warfare, the Internet Research Agency, has induces self-harm mindsets into the population of USA. People in USA think it is hilarious and amusing that Americans lost a online meme war to Russians. We are in a runaway monomyths situation, runaway simulacras. ===:::
