@@ -354,3 +354,11 @@ TwentyNineNeiboltSt 2017-11-17
 "Yeah, 4chan groyper edgelord is the vibe im getting from all the stuff I have seen so far. Hell, as dark and fucked as it sounds, I wouldnt be surprised if his entire motivation was literally just 'for the luls' or some shit"
 
 * :::=== RoundSparrow_Commentary : Detachment from nonfiction. Attracted to entertainment / amusement / fiction content. Exactly as the Russian War Against NonFiction has conditioned since March 2013, the Internet Research Agency aftermaths. Donald Trump himself is constantly attracted to fiction memes and fiction amusement messages. Truth Social is an amusement mill platform like Reddit, entertainment amusement mockery mills like 4chan. The 2025 White House is a meme amusement mill, using Surkovian Russian techniques of year 2011. https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf6ibt/alleged_charlie_kirk_shooter_wearing_donald_trump/nducvvl/
+
+Pantheon_of_Absence 2016-04-12
+
+"yeah I don’t see how going to one semester of the state college of one of the most conservative and religious states would indoctrinate you into the left but that’s logic for ya."
