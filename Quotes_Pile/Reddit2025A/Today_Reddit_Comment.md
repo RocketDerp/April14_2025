@@ -470,3 +470,13 @@ AnansisGHOST 2023-04-10
 
 Mormon family with not a speck Trans liberalism."
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1nf7lle/americans_are_you_guys_alright/nduf8mm/
+
+Jindujun 2014-02-16
+
+"Yeah... We've even exerienced the whole "surely THIS blunder is the one that make them wake up".    
+Right now I firmly believe that there is nothing in this world that can make these people realize the truth."
+
+* :::=== RoundSparrow_Commentary :  Mocking harder, hating harder, the MAGA Trump way. Trump always mocks harder, Trump always hates harder. Everyone is following the Trump lead on hate and mockery. In the Middle East, the fiction Quran addicts mock the fiction Torah addicts, and they mock each other back and forth over ficion storytelling is the one true perfect always-correct book from thousands of years ago. A total mockery values. ===:::
