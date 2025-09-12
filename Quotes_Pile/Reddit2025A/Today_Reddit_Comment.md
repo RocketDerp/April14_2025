@@ -344,3 +344,13 @@ Itchy-Ad1047 2024-11-13 (election 2024)
 Internet's a wasteland from all sides"
 
 * :::=== RoundSparrow_Commentary : Entertainment venue. Amusement venue. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf6ibt/alleged_charlie_kirk_shooter_wearing_donald_trump/ndu3wa0/
+
+TwentyNineNeiboltSt 2017-11-17
+
+"Yeah, 4chan groyper edgelord is the vibe im getting from all the stuff I have seen so far. Hell, as dark and fucked as it sounds, I wouldnt be surprised if his entire motivation was literally just 'for the luls' or some shit"
+
+* :::=== RoundSparrow_Commentary : Detachment from nonfiction. Attracted to entertainment / amusement / fiction content. Exactly as the Russian War Against NonFiction has conditioned since March 2013, the Internet Research Agency afermaths. Donald Trump himself is constantly attracted to fiction memes and fiction amusement messages. Truth Social is an amusement mill platform like Reddit, entertainment amusement mockery mills like 4chan. ===:::
