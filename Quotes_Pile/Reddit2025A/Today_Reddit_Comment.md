@@ -261,3 +261,11 @@ https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect
 welkyy 2017-03-18
 
 "People don’t seem to realize this. The shooter’s political beliefs are completely irrelevant. The rhetoric of the “radical left” will receive all the blame from right wing media and Trump himself. Trump blamed libs on the night of the shooting when we had no idea who did it."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect_held_in/ndtxkdx/
+
+IndubitablyNerdy 2020-06-17
+
+"I agree with this, the outcome has been decided already by the cultists at the top, it won't really matter who the shooter is and why this happened, of course they would be happier if he was a 'communist' or whatever, but even if that's not the case they will twist it to make it fit the narrative."
