@@ -95,3 +95,14 @@ somethingbytes 2024-11-11 (created at Election 2024)
 "That's all the right recognizes anymore though. They only exist in a world completely forged by propaganda."
 
 &nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndt9yxu/
+
+JohnBrownsBobbleHead 2024-08-21
+
+"Let's also understand, he said the things he said, because he wanted to make money. It's very lucrative to build the rhetoric that allows people to hate. People are not lauding him because they support his defense of the 1st amendment. They are sad because they agreed with what he said."
+
+* :::=== RoundSparrow_Commentary : Profits, feasting on the mentally damaged from the Russian media invasion since March 2013. CITE: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america Putin won hearts and minds to be addicted to fiction (anti-reality) with the Internet Research Agency since year 2013, and predatory media practitioners in USA are profiting off the Putin win / Kremlin information warfare against NATO. ===:::
+
+
+&nbsp;
