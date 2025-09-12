@@ -662,7 +662,7 @@ Not because of any political ideology?
 
 No way any Boomer will understand that."
 
-* :::=== RoundSparrow_Commentary :  Death, killing, killed... by amusement / memes / humor. Nobody in 1985 ever wrote a book about it that Baby Boomers could have read before the Internet went commercial in year 1993. I was authoring and selling social media systems before the commercial Internet, back in 1984 in high school. Reddit is incredbily ignorant of American social media history and media ecology. None of them have even [heard of Marshall McLuhan or John Lennon](https://www.youtube.com/watch?v=Zwue_GwlPQo). "Amusing Ourselves to Death: Public Discourse in the Age of Show Business (1985) is a book by educator Neil Postman. It has been translated into 16 languages" - https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death ===:::
+* :::=== RoundSparrow_Commentary : Death, killing, killed... by amusement / memes / humor. Nobody in 1985 ever wrote a book about it that Baby Boomers could have read before the Internet went commercial in year 1993. I was authoring and selling social media systems before the commercial Internet, back in 1984 in high school. Reddit is incredbily ignorant of American social media history and media ecology. None of them have even [heard of Marshall McLuhan or John Lennon](https://www.youtube.com/watch?v=Zwue_GwlPQo). "Amusing Ourselves to Death: Public Discourse in the Age of Show Business (1985) is a book by educator Neil Postman. It has been translated into 16 languages" - https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death ===:::
 
 &nbsp;
 
@@ -681,3 +681,13 @@ LockNo2943 2025-01-24 (new this year)
 "They survive off a diet of fox news and right wing podcasts where people tell them what to think and be outraged about, and by the time the facts come out and they're proven wrong it's time for todays new news byte to be outraged about.
 
 Literally zero reflection."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nfcq6a/us_doj_blocks_access_to_their_own_national/ndvpy10/
+
+TheRealBlueJade 2024-02-20
+
+"The truth is .. we cannot stop the shootings without looking at the real facts and addressing the actual underlying causes. They have to stop being afraid of the truth. It might not be pretty, but the truth is the real way to power."
+
+* :::=== RoundSparrow_Commentary :  Fiction and meme-deocration otusells nonfiction. Truth and sincerity are not popular right now. Popularity is toxic with Russian information warfare since March 2013. “If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a favoured concept of both Beijing and Moscow, and essentially a cover for enforcing censorship.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019 ===:::
