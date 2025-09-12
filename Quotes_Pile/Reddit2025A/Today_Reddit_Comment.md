@@ -48,6 +48,14 @@ Edit- and I'm sure /new has filtering of some kind too, its just not as aggressi
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/ndsr8aa/
+
+Bjorne_Fellhanded 2024-10-04
+
+"When they have a persecution complex as their entire personality, they can find any ‘reason’ to lose their goddamn minds."
+
+&nbsp;
+
 # Thursday, September 11, 2025 (9/11)
 
 https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndml4dd/
