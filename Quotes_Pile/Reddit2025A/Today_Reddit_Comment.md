@@ -546,3 +546,13 @@ https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyle
 HogGunner1983 2018-12-19
 
 "The logical next step after overreacting is to double down, which means blaming liberal colleges, or all colleges I guess the far right thinks all schools are evil liberal hell holes at this point."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyler_robinson_raised_in_a/ndujjo9/
+
+Wiggly_Muffin 2012-07-27
+
+"At this point I must say that the r/Conservative subreddit is turning into a serious breeding ground for domestic terrorism. They’ve been defending pedophiles, assassins/murderers, and a variety of criminals. If it were up to me, I’d have AI review all the profiles and put the profiles with red flags on a watch list, I’m seriously concerned someone from that subreddit is going to escalate into another violent event and I hope precautions are being taken.
+
+Just yesterday I saw 20+ comments advocating for civil war, beating up “libs”, shooting their fellow Americans, etc. That is absolutely batshit crazy, and now they’ve pivoted to blaming the 70%+ republican attended university."
