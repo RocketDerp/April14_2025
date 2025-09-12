@@ -564,3 +564,16 @@ https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyle
 ReasonableTravel6952 **2025-08-18 (new account)**
 
 "Suddenly everyone in conservative sub is saying how you can't blame the parents kids will grow up how they grow up. If the parents were gay activists though....."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyler_robinson_raised_in_a/ndup6q6/
+
+BitterProfessional16 2025-06-11 (recent account)
+
+"Reddit is full of thousands of people who were raised in Republican households and hate everything their parents stand for.
+
+It's actually very common. It might even be most redditors."
+
+* :::=== RoundSparrow_Commentary : MAGA faith is hate. Trump faith is hate. Faith in hate itself. Fatih that hate will make the world better. Anti-compassion, anti-empathy, anti-goodness in favor of hate. Putinism is faith in hatered against neighbors (Ukraine).
+George Lucas media ecology lessons for Star Wars Audience, Power of Myth, 1988: "The Hebrews were absolutely ruthless with respect to their neighbors. But this passage is an extreme statement of something that is inherent in **most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and aggression and abuse are projected outward** on others. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy. Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity." ===:::
