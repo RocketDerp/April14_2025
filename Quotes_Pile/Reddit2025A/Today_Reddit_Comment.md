@@ -1,3 +1,14 @@
+# Friday September 12, 2025
+
+https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
+
+"We Should Put Our Phones Down’: Utah Governor Says ‘There Is a Tremendous Amount of Disinformation’ About Charlie Kirk Assassination"
+
+* :::=== RoundSparrow_Commentary :  Better headline focus of our amusement-driven entertainment-driven USA society of 2025: Ficiton outsells nonfiction. Charlie Kirk was providing fiction storytelling at the university to a crowd of over 3,000. And now fiction on the Internet about the killing / murder outsells nonfiction. ===:::
+
+&nbsp;
+
+
 # Thursday, September 11, 2025 (9/11)
 
 https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndml4dd/
