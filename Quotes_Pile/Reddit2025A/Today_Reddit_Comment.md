@@ -575,5 +575,24 @@ BitterProfessional16 2025-06-11 (recent account)
 
 It's actually very common. It might even be most redditors."
 
-* :::=== RoundSparrow_Commentary : MAGA faith is hate. Trump faith is hate. Faith in hate itself. Fatih that hate will make the world better. Anti-compassion, anti-empathy, anti-goodness in favor of hate. Putinism is faith in hatered against neighbors (Ukraine).
+* :::=== RoundSparrow_Commentary : MAGA faith is hate. Trump faith is hate. Faith in hate itself. Faith that hate will make the world better for children and future. Anti-compassion, anti-empathy, anti-goodness in favor of hate. Putinism is faith in hatered against neighbors (Ukraine).
 George Lucas media ecology lessons for Star Wars Audience, Power of Myth, 1988: "The Hebrews were absolutely ruthless with respect to their neighbors. But this passage is an extreme statement of something that is inherent in **most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and aggression and abuse are projected outward** on others. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy. Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity." ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nf9izc/charlie_kirks_alleged_killer_scratched_bullets/nduvkxb/
+
+dalior 2018-05-14
+
+<img width="1116" height="734" alt="Screenshot from 2025-09-12 13-11-21" src="https://github.com/user-attachments/assets/b95888b7-1394-4ffc-9027-d14df2f37f94" />
+
+&nbsp;
+
+"Radical kids nowadays writing their manifestos in memes and video games references. Please god help us."
+
+&nbsp;
+
+&nbsp;
+
