@@ -423,3 +423,15 @@ Unhappy_Loss770 2024-04-04
 "It is my belief that belonging to two separate cults is a recipe for madness"
 
 * :::=== RoundSparrow_Commentary :  You can be in a fiction cult of Bible, a fiction cult of Fox News, a fiction cult of Truth Social, fiction cult of Reddit Russian content. You can be in as many fiction cults as you desire, as many subreddits and TV channels and social feeds of avoiding nonfiction. That's the Kremlin system, that the Trump / MAGA White House leadership. Fiction. Russia seeded it on Twitter, Reddit, Facebook, etc - and Reddit is addicted to it.  https://www.bbc.com/news/technology-43301643 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1neow1c/michigan_judge_refuses_to_resign_for_saying/ndqrz73/
+
+mormagils 2015-08-15
+
+"I don't think I've ever met a few speech absolutist who actually stood for free speech on both sides. The types that lose their mind about free speech also tend to lose their mind when people share viewpoints they don't agree with."
+
+* :::=== RoundSparrow_Commentary :  If you are popular and good enough with fiction content creation, you can say almost anything. The cinema is full of fiction horror films. The Walking Dead depicts murder of strangers over and over. Fox News labels itself as entertainmetn and amusement network and can say anything. Star Wars Andor supports terrorism ideas and art, but has a high budget and quality actors. Do people want to supress the free speech of fiction storytelling of a galaxy long logn ago and far away, Star Wars? The Quran is fiction storytelling. Terorism traditions and anti-science thinking can be labled a religion or other fiction category. Truth Social (Trump media network) isn't truth, it is fiction storytelling like Fox News and Church / Mosque. It is factual nonfiction that people avoid and shoot girls like Malala in the head on school bus over.
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. :::===
