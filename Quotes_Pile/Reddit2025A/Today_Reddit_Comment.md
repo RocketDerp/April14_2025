@@ -226,3 +226,12 @@ likemyhashtag 2012-06-26
 
 "People laugh when I say this but young people voted for Trump because he’s a meme. This whole thing is one big internet joke."
 
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndt9kbc/
+
+mkt853 2012-04-22
+
+"Don't worry literally everyone is sanitizing this guy's image. Seeing the over the top response to all this has been mind blowing. For a youtuber. Let that sink in. I wonder with the way the political class is reacting if there's not a bigger story there that we're missing that they're happy to have Kirk take with him to his grave. In America it is illegal to criticize Israel, and soon it will be the same with respect to Kirk."
+
+* :::=== RoundSparrow_Commentary : Amusement mills (Truth Social, Reddit, Bluesky, YouTube) are amusement-washing humor-washing away humanism. Meme machine addicts, love social meme machines (and hate human persons who don't entertain). David Foster Wallace's "Infinite Jest V", the Surkov Russian media techniques. ===:::
