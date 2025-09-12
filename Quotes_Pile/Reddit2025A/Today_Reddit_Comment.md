@@ -362,3 +362,9 @@ https://old.reddit.com/r/pics/comments/1nf6ibt/alleged_charlie_kirk_shooter_wear
 Pantheon_of_Absence 2016-04-12
 
 "yeah I don’t see how going to one semester of the state college of one of the most conservative and religious states would indoctrinate you into the left but that’s logic for ya."
+
+&nbsp;
+
+AgentBrittany 2019-04-08
+
+"It sounds like he was om 4chan a lot and a little troll."
