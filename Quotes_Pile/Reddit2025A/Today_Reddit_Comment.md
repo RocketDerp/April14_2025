@@ -195,3 +195,34 @@ SirJumbles 2013-10-20
 "Bro, those moments of confusion and almost slight lucidity they get before they are fed the next talking point.
 
 It's wild."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndthu9a/
+
+Secret-Teaching-3549 2025-08-06 (recent account)
+
+"It really is. Been watching it happen here over the past two days.
+
+Couple of the current lies are:
+
+"He was murdered for his opinions!" Nope, that's absolutely not the reason why, is gross simplification, and a complete distortion of the truth, but it sounds really good for their side and makes him appear to be some kind of noble martyr.
+
+And in response to his on the record quotes of it just being necessary for some people to die to gun violence: "That's not what he meant! He meant it was sad and unfortunate but couldn't be avoided! More people die in cars every year, should we ban all cars???" In addition to car and gun deaths being a nonsensical comparison between apples and potatoes, it's also a complete red herring meant to do nothing more than pull you away from the fact that he was an absolutely vile person that advocated for children to die to gun violence, as long as they weren't his children, of course, in order to stoke the support of right wing gun fetishists.
+
+Just like all of his utterly fake "change my mind" debates, it has been crafted to push a narrative that to a noncritical thinker looks perfectly rational. But it's all fake, it's all a facade, it's all for show."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndtb3l4/
+
+likemyhashtag 2012-06-26
+
+<img width="1022" height="798" alt="image" src="https://github.com/user-attachments/assets/3dee0496-1096-43e1-8969-ba3e6a5f5a92" />
+
+&nbsp;
+
+"People laugh when I say this but young people voted for Trump because he’s a meme. This whole thing is one big internet joke."
+
