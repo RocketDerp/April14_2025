@@ -502,3 +502,11 @@ NewBootGoofin1987 2024-11-05 (election 2024 account)
 Everybody knows Mormons secretly run antifa indoctrination camps lol"
 
 * :::=== RoundSparrow_Commentary : Amusement washing. Entertainment washing. "LOL" messaging. Social media laugh track, amusment track that Russia won hearts and minds of uneducated Morman fiction addicts to surreal stories. Book of Morman addicts (fiction story retcon of The Bible science fiction). Russia won, Surkov won since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyler_robinson_raised_in_a/nduijxm/
+
+Dash6666 2015-06-25
+
+"Why apologize when the president and his army of talking heads on cable and the internet are fanning the flames calling it a war and demonizing the radical left lunatics with no evidence."
