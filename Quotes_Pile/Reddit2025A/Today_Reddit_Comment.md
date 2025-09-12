@@ -272,3 +272,14 @@ https://old.reddit.com/r/politics/comments/1nekzkq/i_disagreed_with_charlie_kirk
 shoop_da_woop12 2024-12-16
 
 "There is going to be a really significant backlash here. A martyr has been made. Don’t believe it if you want, but this is really going to energize the right. 100 new Kirk’s are going to pop up. Just watch."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nekoli/this_is_just_asinine/ndpjhqn/
+
+N0t_my_0ther_account 2017-11-22
+
+"They wouldn't do it for a liberal podcaster"
+
+* :::=== RoundSparrow_Commentary :  Nonfiction doesn't sell as well as fiction. Liberal vs. conservative is brainrot. Fiction vs. nonfiction is the Russian War Against Reality. Self-harm USA vs. goodness and progress USA. Hate humanism USA vs. love one another and help one another USA.
+"Truth Social" from Trump is not factual truth, it is mythological fiction storytelling. Charlie Kirk was providing fiction Bible storytelling, fiction content. ===:::
