@@ -56,6 +56,38 @@ Bjorne_Fellhanded 2024-10-04
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/ndssx70/
+
+Kivesihiisi 2023-12-28
+
+<img width="854" height="504" alt="image" src="https://github.com/user-attachments/assets/fee93fed-728b-4b04-bfcd-07a623a5b870" />
+
+&nbsp;
+
+"America is full of gun nutters just waiting for someone to step on their property so they can empty their clips on the "intruders'' "
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/ndsp3sl/
+
+alnicoblue 2013-09-17
+
+<img width="1232" height="722" alt="image" src="https://github.com/user-attachments/assets/50c9b214-b9de-4dde-8b14-4141826c0319" />
+
+&nbsp;
+
+"The *news* sounds crazy to me anymore, so I don't mind indulging myself in the occasional conspiracy theory.
+
+Don't forget gun rights advocates pushing back on Trump wanting to restrict second amendment rights for trans people and this guy conveniently having trans carved into his shell casings..."
+
+* :::=== RoundSparrow_Commentary :  So, this Reddit comment is messaging... that if Truth Social *news* sounds crazy, we should all adopt the popularity of crazy and *add more crazy content* to media systems! This behavior is the foundation of Russian information warfare, that once you seed anti-reality (crazy / surreal / absurd) into media environments, people will adopt the nonsense and add more out of compusive behavior. Surkov won, Russia won, since March 2013. ===:::
+
+&nbsp;
+
 # Thursday, September 11, 2025 (9/11)
 
 https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndml4dd/
