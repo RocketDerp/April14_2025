@@ -691,3 +691,13 @@ TheRealBlueJade 2024-02-20
 "The truth is .. we cannot stop the shootings without looking at the real facts and addressing the actual underlying causes. They have to stop being afraid of the truth. It might not be pretty, but the truth is the real way to power."
 
 * :::=== RoundSparrow_Commentary :  Fiction and meme-deocration otusells nonfiction. Truth and sincerity are not popular right now. Popularity is toxic with Russian information warfare since March 2013. “If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a favoured concept of both Beijing and Moscow, and essentially a cover for enforcing censorship.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1nfdkmj/the_difference_between_the_left_and_right_in/ndvrptb/
+
+ChaoticGoodSamaritan 2019-09-05
+
+"They were running around saying "Ding Dong the Witch is dead" when RBG died"
+
+* :::=== RoundSparrow_Commentary : September 18, 2020 when she died, that was more than 7 years into the Russian Internet Research Agency warfare of hate-harder mass dehumzniatoin self-harm mental manipulation (since March 2013). ===:::
