@@ -445,3 +445,17 @@ Acrobatic_Jaguar_658 2021-09-10
 "It’s truly insane that the President of the United States gave a speech stating, and I quote: “violence and murder are the consequences of demonizing those with whom you disagree with day after day, year after year…for years, those on the radical left have compared wonderful Americans like Charlie to Nazis…this kind of rhetoric is directly responsible for the terrorism we’re seeing in our country today…” BEFORE THE SHOOTER HAD EVEN BEEN CAUGHT. They just assumed it was someone on the left. Now to find out Tyler Robinson was not even registered to any political party and his personal beliefs are still unknown. Talk about division and demonization huh?"
 
 * :::=== RoundSparrow_Commentary :  Surkovian onion eater [Surkovian_Onion_Eating.md](Surkovian_Onion_Eating.md) . Entirely out of the loop that Russia information warfare is organized trolling, organized contradicitons. This has been gong on FOR OVER TEN YEARS AND TWO MONTHS, people keep thinking it is unintentional that Trump and Putin do this. ===:::
+
+&nbsp;
+
+&nbps;
+
+https://old.reddit.com/r/TikTokCringe/comments/1nf7lle/americans_are_you_guys_alright/ndubg57/
+
+Narrow-Sky-5377 2021-02-11
+
+<img width="1014" height="932" alt="Screenshot from 2025-09-12 11-40-07" src="https://github.com/user-attachments/assets/07bdacfe-5b71-4ac9-9050-5092d52af10d" />
+
+&nbsp;
+
+"White man fight back against the white man who did the killing?"
