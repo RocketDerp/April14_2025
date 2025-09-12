@@ -403,3 +403,13 @@ Considering the train wreck that mental health care has been in America since Re
 My greatest fear, my whole life, is that I would end up on a street corner raving at passing cars with a "THE END IS NEAR" sign over my shoulder. It never occurred to me the world would deteriorate to the point where that would be a rational response."
 
 &nbsp;
+
+https://old.reddit.com/r/politics/comments/1neow1c/michigan_judge_refuses_to_resign_for_saying/ndqvgbg/
+
+Professor-Woo 2022-06-26
+
+"It is because the only thing worse to them than having potential political violence done against their group is to have no political violence done against them. They already believed that they were being oppressed and attacked by dems. They are happy to now have potential evidence. The fact that the motive is still unclear doesn't matter and is, in fact, seemingly preferred since they can spin whatever narrative and motive they want. I can't help but see their anger now as just performative and bad faith. They want a casus belli. If their own must be sacrificed for it, so be it."
+
+* :::=== RoundSparrow_Commentary : Russian information warfare since March 2013 exploits all these patterns of in-group tribal behavior. People giving up facts and science thinking in favor of group association. Unwilling to exanmine why things have changed, Putin's war, only concerned to *fight harder* and *hate harder* against the out-group (but not the Russian out-group, that mutliple NATO nations are reporrting media invasions / emotional manipulation / information warfare).
+“Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.”
+― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1955. ===:::
