@@ -745,3 +745,13 @@ https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma
 Toy_Guy_in_MO 2020-09-17
 
 "My facebook feed is an empty wasteland today, compared to yesterday."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndw08zl/
+
+MouthwashProphet 2025-01-26 (new this year)
+
+"The guy literally etched 4chan shitposts onto his bullets.
+
+It’s pretty fucking clear what’s going on here. Anyone with a fleeting knowledge of the dark corners of the internet has seen this shit."
