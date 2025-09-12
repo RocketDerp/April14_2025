@@ -435,3 +435,13 @@ mormagils 2015-08-15
 * :::=== RoundSparrow_Commentary :  If you are popular and good enough with fiction content creation, you can say almost anything. The cinema is full of fiction horror films. The Walking Dead depicts murder of strangers over and over. Fox News labels itself as entertainmetn and amusement network and can say anything. Star Wars Andor supports terrorism ideas and art, but has a high budget and quality actors. Do people want to supress the free speech of fiction storytelling of a galaxy long logn ago and far away, Star Wars? The Quran is fiction storytelling. Terorism traditions and anti-science thinking can be labled a religion or other fiction category. Truth Social (Trump media network) isn't truth, it is fiction storytelling like Fox News and Church / Mosque. It is factual nonfiction that people avoid and shoot girls like Malala in the head on school bus over.
 “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. :::===
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1neow1c/michigan_judge_refuses_to_resign_for_saying/ndqfunu/
+
+notweirdifitworks 2016-05-06
+
+"I saw several posts about Trumps face during whatever 9/11 memorial he was at. But 9/11 was not the focus of those posts, obviously."
+
+* :::=== RoundSparrow_Commentary : Donald J. Trump is the nonstop center of USA society media content for over TEN YEARS AND TWO MONTHS. Endless flocking of We The People to mockigng Trumpk, insulting Trump, hate Trump messages and mass dehumanization signals. The IRA and CA have conditioned the population to be attracted to self-harm and fiction leadership signals since March 2013 Russian media invaison start. Donald Trump images and Donald Trump hate messages are an example of **toxic popularity**. Pop culture gone toxic with Russian information warfare mass mind / mass man manipulation. ===:::
