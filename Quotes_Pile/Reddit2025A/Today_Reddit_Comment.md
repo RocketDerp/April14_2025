@@ -389,3 +389,17 @@ https://old.reddit.com/r/democrats/comments/1neosfb/lets_stay_focused_on_the_eps
 Deciple_of_None 2018-06-13
 
 "Yes, and also how Trump had Charlie killed. I have no information backing this claim true but I believe it. So that should be enough evidence.😑"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1neow1c/michigan_judge_refuses_to_resign_for_saying/ndr8grh/
+
+VagabondReligion 2024-07-30
+
+"Let me tell you with utter seriousness that for someone who suffers from schizoaffective disorder, the more unhinged the world gets, the harder it is to maintain an even keel, meds or no meds; the more unpredictable and lawless society seems, the more playground my demons have to play in. And oh how much they want to play.
+
+Considering the train wreck that mental health care has been in America since Reagan, I strongly suspect my disorder is among many friends in that regard. At some point, for a lot of people, it's going to make more sense to go off the deep end that it will to maintain sanity.
+
+My greatest fear, my whole life, is that I would end up on a street corner raving at passing cars with a "THE END IS NEAR" sign over my shoulder. It never occurred to me the world would deteriorate to the point where that would be a rational response."
+
+&nbsp;
