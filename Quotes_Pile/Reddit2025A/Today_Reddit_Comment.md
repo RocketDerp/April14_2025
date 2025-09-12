@@ -155,3 +155,11 @@ ReluctantNerd7 2020-05-04
 "The PBS NewsHour didn't seem to hold back.
 
 https://youtu.be/FFJ_oAAv5Cw?t=7m20s "
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndteezm/
+
+SuspiciousCoinPurse 2025-03-16 (new this year)
+
+"CNN and MSNBC are owned by right wingers. Almost every major news station and social media platforms are. If they didn’t have propaganda and sanewashing on their side they’d never come close to winning another election"
