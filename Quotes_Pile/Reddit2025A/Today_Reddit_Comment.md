@@ -480,3 +480,13 @@ Jindujun 2014-02-16
 Right now I firmly believe that there is nothing in this world that can make these people realize the truth."
 
 * :::=== RoundSparrow_Commentary :  Mocking harder, hating harder, the MAGA Trump way. Trump always mocks harder, Trump always hates harder. Everyone is following the Trump lead on hate and mockery. In the Middle East, the fiction Quran addicts mock the fiction Torah addicts, and they mock each other back and forth over ficion storytelling is the one true perfect always-correct book from thousands of years ago. A total mockery values. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1nf7lle/americans_are_you_guys_alright/ndunrb7/
+
+GeoisGeo  2021-12-22
+
+"The thing you've said about people falling silent and looking ashamed when you finally hit somewhere real in their brains is so true and familiar. They will never acknowledge it and move on straight in your face like it never happened as well. Your comment unlocked some old experiences that made me question reality at the time, and I had to confirm you are talking truth. Some people can't be reached. It's actually scary."
+
+* :::=== RoundSparrow_Commentary : Fiction addictions are incredibly hard for people to wake up. James Joyce's Finnegans Wake fron year 1924 onward... ===:::
