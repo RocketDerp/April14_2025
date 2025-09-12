@@ -755,3 +755,11 @@ MouthwashProphet 2025-01-26 (new this year)
 "The guy literally etched 4chan shitposts onto his bullets.
 
 It’s pretty fucking clear what’s going on here. Anyone with a fleeting knowledge of the dark corners of the internet has seen this shit."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndvzzap/
+
+m00nbeam_levels 2025-04-10 (new this year)
+
+"This is a really really dumb timeline"
