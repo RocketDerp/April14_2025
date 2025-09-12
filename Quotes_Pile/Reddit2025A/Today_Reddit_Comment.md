@@ -289,3 +289,11 @@ fixnahole 2012-08-20
 "Everyone seems to have forgotten quickly that when Trump was shot, they all rushed to say the shooter must have been a radical leftist liberal. Only that didn't turn out to be the case at all. If this Kirk shooter turns out to be MAGA, or comes from a MAGA family, then when do they realize the problem is not Democrats/liberals, it's the tone that has been set for several years now. Let's not forget that Trump has called for violence at his campaign rallies before when someone was protesting against him. He's often antagonistic, and pretty much a dick to any legitimate journalistic questions he doesn't like. This tough guy, mega-prick attitude sets the tone, and trickles down to all of his followers. It does not lead to positive outcomes."
 
 * :::=== RoundSparrow_Commentary : Recency bias abounds. The constant humor and surreal comedy antics of Tony Clifton performances by Donald Trump seem to reset minds to forget anything from the past, We The People seem to be unable to focus on this as Kremlin Surkovian information warfare techniques in a constatn meme stupor of LOL at Trump playing Clifton. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect_held_in/nduc59v/
+
+crisss1205 2012-02-09
+
+"Where does it say that?"
