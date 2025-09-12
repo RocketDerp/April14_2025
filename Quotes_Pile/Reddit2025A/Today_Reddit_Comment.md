@@ -291,3 +291,11 @@ https://old.reddit.com/r/AdviceAnimals/comments/1nekoli/this_is_just_asinine/ndp
 rsgoto11 2009-01-27
 
 "This is the Trump and MAGA way. By making everything horrible, then nothing is good or special. He wants to turn the whole country into a discount store. He gave that fat drug attic who was vile the Presidential medal of freedom. Everything that he is, crude, self absorbed, greedy, cruel and anything else that causes pain to others is the goal. I’m not sure we’ll survive it."
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nekoli/this_is_just_asinine/ndpkc2d/
+
+MiCK_GaSM 2012-07-10
+
+"It's because that flag doesn't stand for shit anymore, in case it couldn't be clearer for you people in the back."
