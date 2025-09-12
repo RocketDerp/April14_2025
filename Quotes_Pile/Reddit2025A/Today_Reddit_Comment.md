@@ -113,3 +113,13 @@ StJeanMark 2018-11-07
 "They don't care. They don't care when children are murdered or raped. They don't care Charlie is dead. They are using it as a cudgel to attack their opponents, it is the only thing they ever do."
 
 * :::=== RoundSparrow_Commentary : I emphasize the opposite. People do care. The action violence scenes in films and television shows are inicredibly popular. Murder, killing, warfare, terrorism in entertainment is thrilling. In the Russian War Against Nonfiction, Kremlin War Against Reality since year 2013 - the more fition you can make the Kremlin and WHite House - the more action sells. "They don't care. They don't care" is bakwards, attraction to Putin and Trump is all about caring for / seeking out. The Ukraine war deaths are cheered on my MAGA hate addictions / Hyper Reality addictions. This is an audience glued to Donald Trump's hate and dehumanization / harm of poor people. CITE: September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndtd0iv/
+
+myRedditAccountjava 2017-11-16
+
+"I mean that's exactly it. They're all grifters for cash. Doesn't mean they should die, and both sides have their own policy hypocrises, but when I see someone who is, down the line, every single unpopular conservative view and checks every box to a T, especially ones who claim debate and have not once changed any of their opinions afterwards, and uses that to farm highlight reel content, I'm confident he didn't even believe half the stuff he said. He just got a lot of endorsement money for it. And quite frankly, knowing what youre doing is wrong and harmful is doing it anyway is exactly why it's terrible he died but there's a general lack of empathy for it."
+
+* :::=== RoundSparrow_Commentary : Profits, feasting on the mentally damaged from the Russian media invasion since March 2013. CITE: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america Putin won hearts and minds to be addicted to fiction (anti-reality) with the Internet Research Agency since year 2013, and predatory media practitioners in USA are profiting off the Putin win / Kremlin information warfare against NATO. Reddit itself profits from all this chaos and engagement. ===:::
