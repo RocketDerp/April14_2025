@@ -763,3 +763,15 @@ https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma
 m00nbeam_levels 2025-04-10 (new this year)
 
 "This is a really really dumb timeline"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndvygv0/
+
+John_Rustle98 2016-06-18
+
+"17 hours ago my MAGAt cousins posted about how there’s “gonna be a revolution” and “liberals are scum” I’m tempted to comment on his post with this story and ask him what he was to fucking say now. Absolutely galling how these people got so much more fucking mad about a small face troll getting shot than they ever did about little kids getting shot in their places of learning almost everyday."
+
+* :::=== RoundSparrow_Commentary : This is exactly what Russain information warfare outcomes look like. Nonsense. Anti-intellectual, anti-books, a constant streaming social media bullshit centered around Putin and Trump.
+“With today’s regimes, which struggle to formulate a single ideology, the idea that one lives in a world full of conspiracies becomes the worldview itself. Conspiracy theory replaces ideology with a mix of self-pity, paranoia, self-importance, and entertainment.”
+― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019 ===:::
