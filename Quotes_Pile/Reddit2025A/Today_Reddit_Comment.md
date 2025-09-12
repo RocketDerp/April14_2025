@@ -26,6 +26,28 @@ maliciouspot 2021-04-11
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/ndsg2lv/
+
+"Specifically on Reddit, it's gotten worse since it became a publicly traded company and the API changes. Though I understand it's been deteriorating even before that."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/ndsplw4/
+
+nspectoroverthemine 2018-05-31
+
+"What you see on reddit has changed *a lot* in the last few years.
+
+Unless you watch /new, you'll only see what the algorithm wants you to see. If you install a plugin that shows when your own posts are deleted, or posts are 'unapproved', you'll see how much active manipulation is happening.
+
+About 1/3 of posts I comment on in /new end up 'unapproved' by *admins*, not mods. What that means is that they still show in a direct link, you can comment on them, but they will never be shown in a feed or the sub itself.
+
+I don't remember a specific date when it started, but it was after the API debacle. Prior to that I had only had comments removed in specific and expected ways. I'm not saying they're directly related, but the API lock down would have made it much harder for a 3rd party to monitor site wide.
+
+Edit- and I'm sure /new has filtering of some kind too, its just not as aggressive or nothing would make it past."
+
+&nbsp;
+
 # Thursday, September 11, 2025 (9/11)
 
 https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndml4dd/
