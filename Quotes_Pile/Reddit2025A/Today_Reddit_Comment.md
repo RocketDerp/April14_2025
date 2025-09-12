@@ -327,3 +327,13 @@ https://old.reddit.com/r/politics/comments/1neo6p8/did_trump_just_declare_war_on
 "That isn’t new he’s been declaring war on the left since 2016."
 
 * :::=== RoundSparrow_Commentary : Putin declared it December 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ , right after Donald Trump went to Moscow in November 2013. Repeating: Russia declared world war against liberal west values November 2013, which is right before the February 2014 Ukraine hot war / invasion of Ukraine. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nenwh5/rubio_vows_us_response_following_conviction_of/ndq3g6f/
+
+Agressive-toothbrush 2021-02-02
+
+"My Brazilian criminal friend was found guilty? We will avenge him!
+
+This is not a Presidential administration, this is a criminal organisation."
