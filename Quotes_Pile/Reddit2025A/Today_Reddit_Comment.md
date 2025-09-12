@@ -518,3 +518,15 @@ https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyle
 Lopsided-Employer278 2025-02-27 (new this year)
 
 "Another radical right wing terrorist obsessed with guns from gun country shooting guns at a guy who thought guns were a god given right and that it was ok for people to die by guns so that we all can have guns."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyler_robinson_raised_in_a/ndukqse/
+
+hotpajamas 2012-03-12
+
+"and if he had been to a right-wing military school they would’ve said it was social media or censorship or some other bullshit.
+
+the fact is that you have to look past the words these people use; the words don’t even matter to them. what matters to them is that you are always to blame, nothing will ever be enough, and they won’t stop until they have power over us.
+
+nazis devised the global jewish conspiracy that went the same way. jews were always to blame somehow, some way. it didn’t matter who they were imor what they did. every foul thing was their fault somehow and it wasn’t ever about reality or fact or objectivity; it was about blaming jews and eventually killing then."
