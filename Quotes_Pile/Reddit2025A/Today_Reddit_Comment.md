@@ -631,3 +631,14 @@ celtic1888 2011-04-15
 "I think we are now finding out the ramifications of children who were raised terminally online and in a MAGA environment"
 
 * :::=== RoundSparrow_Commentary : Afermath of Cambridge Analtyica year 2013, Internet Research Agency 2013, the Puitn Media Invasion year 2013 onward. The ongoing War Against Nonfiction, the War Against Reality. "***This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book*** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nf9izc/charlie_kirks_alleged_killer_scratched_bullets/nduw9sx/
+
+jaeldi 2010-09-13
+
+"A troll. It's clear he spent a lot of time in troll & meme online spaces. Popular media is going to have a hard time explaining troll 'culture' to the public. All those slogans on those bullets are troll phraseology."
+
+* :::=== RoundSparrow_Commentary :  **Bible verse Matthew 4:19** is known to the USA public. Trolling for fiction media audiences is not a new concept. 2,000 year old Levant idea of trolling people to believe science fiction stories of a magical burning bush. "Popular media is going to have a hard time explaining troll 'culture' to the public" - The Bible is a best seller media of all time, popular media IS The Bible from the Levant. Matthew 4:19 - turn the page. ===:::
+
