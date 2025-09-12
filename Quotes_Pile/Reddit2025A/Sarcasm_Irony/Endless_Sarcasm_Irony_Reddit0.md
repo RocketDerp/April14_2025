@@ -235,3 +235,9 @@ https://old.reddit.com/r/PublicFreakout/comments/1nepzhj/the_nfl_holds_a_moment_
 
 People on Reddit / other social platform (screenshot image) cheering on that they hope more will stop speaking in public in USA because of media performers selling fiction being shot (killed) in public (Charlie Kirk). Just like Bluesky and Reddit meme consumers are deport-happy / bloc-happy that content is censored  (suppressed) that they ego disagree with or do not understand. A USA society where chilling of political speech and removal of science facts, removal of discussion that Reddit s manipulated by Russia goes on. Because people want entertainment *they like* and want to block out fiction content they do not like.    
 https://old.reddit.com/r/CuratedTumblr/comments/1nesehy/idk_i_havent_watched_the_news_yet/
+
+&nbsp;
+
+Endless mockery, Total Mockery, is the techniques of the Russian Surkov students information warfare. Endless bak and forth, Americans mocking and amused and entertained at mocking Americans. This feedback looping has been going on since March 2013 when Putin media invasion started.   
+https://old.reddit.com/r/MurderedByWords/comments/1nf4ex0/make_it_make_sense/
+
