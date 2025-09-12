@@ -775,3 +775,31 @@ John_Rustle98 2016-06-18
 * :::=== RoundSparrow_Commentary : This is exactly what Russain information warfare outcomes look like. Nonsense. Anti-intellectual, anti-books, a constant streaming social media bullshit centered around Putin and Trump.
 “With today’s regimes, which struggle to formulate a single ideology, the idea that one lives in a world full of conspiracies becomes the worldview itself. Conspiracy theory replaces ideology with a mix of self-pity, paranoia, self-importance, and entertainment.”
 ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndvyag6/
+
+Teence 2014-09-09 (September 9, 2014 - when it was disclosed public: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ )
+
+"Yes, Jesse Watters was flat out lying about this on Fox as recently as yesterday. The level of disinformation is unbelievably dangerous and should be considered stochastic terrorism."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndw062x/
+
+dakralter 2011-12-06
+
+"My MAGA coworker talked about nothing else since Kirk was killed. Speculating on the shooter, constantly scrolling for updates, etc. This morning when it was announced the shooter had been caught he read every rumour post about the shooter's identity being trans, left, etc out loud. Once the identity and details about the shooter were revealed he was silent and never mentioned it again. They live in their own reality."
+
+* :::=== RoundSparrow_Commentary : "***This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book*** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndvxb8f/
+
+Severe_Intention_480 2022-03-06
+
+"They'll say he was placed under demonic influences by "Satanic Democrats" or got infected by the "Radical Left Woke Mind Virus"... also by Democrats. "Leftism" will be rebranded as an infectious disease that must be treated like a national health emergency.
+
+How much ya wanna bet?"
