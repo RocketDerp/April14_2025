@@ -297,3 +297,12 @@ https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect
 crisss1205 2012-02-09
 
 "Where does it say that?"
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect_held_in/ndtnx3s/
+
+Fyrefawx 2015-10-02
+
+"All because someone leaked to Crowder that the bullets had TRN on them which is the manufacturer. Actually insane."
+
