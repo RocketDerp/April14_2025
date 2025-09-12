@@ -649,3 +649,17 @@ https://old.reddit.com/r/technology/comments/1nf9izc/charlie_kirks_alleged_kille
 haw35ome 2018-02-07
 
 "Parasocial activities are starting to seep its sewage into the general mass public/media. This should be interesting"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nf9izc/charlie_kirks_alleged_killer_scratched_bullets/nduye6w/
+
+emjaycue 2010-11-30
+
+"Wait, so this guy killed Kirk because he thought it might be funny/troliish?
+
+Not because of any political ideology?
+
+No way any Boomer will understand that."
+
+* :::=== RoundSparrow_Commentary :  Death, killing, killed... by amusement / memes / humor. Nobody in 1985 ever wrote a book about it that Baby Boomers could have read before the Internet went commercial in year 1993. I was authoring and selling social media systems before the Internet, back in 1984 in high school. Reddit is incredbily ignorant of American social media history and media ecology. None of them have even [heard of Marshall McLuhan or John Lennon](https://www.youtube.com/watch?v=Zwue_GwlPQo). "Amusing Ourselves to Death: Public Discourse in the Age of Show Business (1985) is a book by educator Neil Postman. It has been translated into 16 languages" - https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death ===:::
