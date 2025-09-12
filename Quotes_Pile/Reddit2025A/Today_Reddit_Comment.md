@@ -8,6 +8,14 @@ https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_do
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/ndsdk7t/
+
+Piltonbadger 2012-09-29
+
+"There is a trememdous amount of disinformation, period. Kinda hard to put the genie back in the bottle for specific instances only."
+
+&nbsp;
+
 
 # Thursday, September 11, 2025 (9/11)
 
@@ -472,3 +480,5 @@ https://old.reddit.com/r/interesting/comments/1nesj0y/video_footage_of_shooter_i
 AntImmediate9115 2022-04-14
 
 "Also, if he never posted his plans to the internet. So far, nothing has been found, and usually YouTube videos, Twitter posts, etc. Are found pretty quick. Discord servers are probably the next search, but so far nobody from a server (if there is/was one) has come forward with any manifestos or posts or anything. If there is zero evidence of a real plan online, they can't trace it back to the shooter and find the identity and address."
+
+&nbsp;
