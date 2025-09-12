@@ -283,3 +283,11 @@ N0t_my_0ther_account 2017-11-22
 
 * :::=== RoundSparrow_Commentary :  Nonfiction doesn't sell as well as fiction. Liberal vs. conservative is brainrot. Fiction vs. nonfiction is the Russian War Against Reality. Self-harm USA vs. goodness and progress USA. Hate humanism USA vs. love one another and help one another USA.
 "Truth Social" from Trump is not factual truth, it is mythological fiction storytelling. Charlie Kirk was providing fiction Bible storytelling, fiction content. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nekoli/this_is_just_asinine/ndpilag/
+
+rsgoto11 2009-01-27
+
+"This is the Trump and MAGA way. By making everything horrible, then nothing is good or special. He wants to turn the whole country into a discount store. He gave that fat drug attic who was vile the Presidential medal of freedom. Everything that he is, crude, self absorbed, greedy, cruel and anything else that causes pain to others is the goal. I’m not sure we’ll survive it."
