@@ -253,3 +253,11 @@ https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect
 alpha-delta-echo 2016-07-08
 
 "Get ready for some major script rewrites. This is going to be scrutinized on the molecular level."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect_held_in/ndtrgvv/
+
+welkyy 2017-03-18
+
+"People don’t seem to realize this. The shooter’s political beliefs are completely irrelevant. The rhetoric of the “radical left” will receive all the blame from right wing media and Trump himself. Trump blamed libs on the night of the shooting when we had no idea who did it."
