@@ -453,3 +453,11 @@ https://old.reddit.com/r/interesting/comments/1nesj0y/video_footage_of_shooter_i
 Weekly_Actuator2196 **2025-08-26 (new account)**
 
 "I don't think it can be overstated how normal it is to see guns in Utah cities and towns. Last time I was in Provo, the guys at Maverick looked like they were ready to invade the sweet isle."
+
+&nbsp;
+
+https://old.reddit.com/r/interesting/comments/1nesj0y/video_footage_of_shooter_in_utah_valley/ndrow6e/
+
+AntImmediate9115 2022-04-14
+
+"Also, if he never posted his plans to the internet. So far, nothing has been found, and usually YouTube videos, Twitter posts, etc. Are found pretty quick. Discord servers are probably the next search, but so far nobody from a server (if there is/was one) has come forward with any manifestos or posts or anything. If there is zero evidence of a real plan online, they can't trace it back to the shooter and find the identity and address."
