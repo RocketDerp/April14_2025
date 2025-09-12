@@ -596,3 +596,10 @@ dalior 2018-05-14
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1nf9izc/charlie_kirks_alleged_killer_scratched_bullets/nduyvwz/
+
+we_are_sex_bobomb 2011-05-23
+
+"We’re seeing a lot of these shooters being terminally online hyper-nihilists. They’re doing these shootings with memes as their “manifestos” because they have no point other than thinking life itself is absurd and pointless.
+
+The only real takeaway here is that we have fucked up raising Gen Z so, so, so badly. We’ve put them in a world where the only point of existing is to suffer and be ignored. This feels like an act of defiance against the hell they’ve been born into."
