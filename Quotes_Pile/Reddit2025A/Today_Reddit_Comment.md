@@ -365,6 +365,19 @@ Pantheon_of_Absence 2016-04-12
 
 &nbsp;
 
+https://old.reddit.com/r/popculturechat/comments/1nf3vja/22_year_old_tyler_robinson_identified_as_official/ndtu7du/
+
 AgentBrittany 2019-04-08
 
 "It sounds like he was om 4chan a lot and a little troll."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1nf3vja/22_year_old_tyler_robinson_identified_as_official/ndtk5vd/
+
+Iwoulddiefcftbatk 2019-12-11
+
+"Yep. I was hoping it was a basic white dude on the off chance it wasn’t, especially with how heated this has made violent rhetoric. But, with very few exceptions, it’s always a malignant white dude who does these things."
+
+* :::=== RoundSparrow_Commentary : Entertainment addicts describing their desires for casting in the White House antics and surreal Russian politics schemes. Fiction addicts describing their fantasy casting for political chaos lead by Truth Social anti-reality media platform / White House Press anti-truth nonsense. Reddit amusement mill provided constant stimulation to the nonstop MAGA / Trump content and events. ===:::
+
