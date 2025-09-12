@@ -185,3 +185,13 @@ SexiestPanda 2013-01-13
 "That’s the real reason they’re sad at this. They lost someone who tells them what to think lol"
 
 * :::=== RoundSparrow_Commentary : ChatGPT / Grok AI (Elon Musk Collasus machines) can do that for people. Easier and will be more ego-pleasing and 24 hours a day, no delay, to engage The ELIZA effect. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndt93wy/
+
+SirJumbles 2013-10-20
+
+"Bro, those moments of confusion and almost slight lucidity they get before they are fed the next talking point.
+
+It's wild."
