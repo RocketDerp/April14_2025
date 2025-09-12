@@ -640,5 +640,12 @@ jaeldi 2010-09-13
 
 "A troll. It's clear he spent a lot of time in troll & meme online spaces. Popular media is going to have a hard time explaining troll 'culture' to the public. All those slogans on those bullets are troll phraseology."
 
-* :::=== RoundSparrow_Commentary :  **Bible verse Matthew 4:19** is known to the USA public. Trolling for fiction media audiences is not a new concept. 2,000 year old Levant idea of trolling people to believe science fiction stories of a magical burning bush. "Popular media is going to have a hard time explaining troll 'culture' to the public" - The Bible is a best seller media of all time, popular media IS The Bible from the Levant. Matthew 4:19 - turn the page. ===:::
+* :::=== RoundSparrow_Commentary :  **Bible verse Matthew 4:19** is known to the USA public. Trolling for fiction media audiences is not a new concept. 2,000 year old Levant idea of trolling people to believe science fiction stories of a magical burning bush. "Popular media is going to have a hard time explaining troll 'culture' to the public" - The Bible is a best seller media of all time, popular media IS The Bible from the Levant. Matthew 4:19 - turn to the page. The *clergy* are professional trolls, as defined by verse Matthew 4:19 - look around, wake the fuck up to **media ecology**. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nf9izc/charlie_kirks_alleged_killer_scratched_bullets/nduz04i/
+
+haw35ome 2018-02-07
+
+"Parasocial activities are starting to seep its sewage into the general mass public/media. This should be interesting"
