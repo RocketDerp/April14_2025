@@ -245,3 +245,11 @@ Penguin_lies 2019-03-24
 "Nooo, but they heard from somewhere that some other guy with the same name as one of those right wing murderers donated like 10 dollars to the Demon rats so noooo, he was a DEMOCRAT
 
 These people need reeducation camps and I mean that unironically."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect_held_in/ndtlw9e/
+
+alpha-delta-echo 2016-07-08
+
+"Get ready for some major script rewrites. This is going to be scrutinized on the molecular level."
