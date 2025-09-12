@@ -15,7 +15,8 @@ Northern Conservative † Baptist Great Lakes Region Council of 1879, or Norther
 
 - Emo Phillips
 
-Audo reading by the author: https://www.youtube.com/watch?v=_REU4EdJq-Y
+Audo reading by the author: https://www.youtube.com/watch?v=_REU4EdJq-Y    
+Equustentialisma (Canadian Edit)
 
 https://www.theguardian.com/stage/2005/sep/29/comedy.religion
 
