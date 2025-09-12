@@ -373,3 +373,11 @@ hootievstiger 2017-09-02
 Fucking easily programmed, propaganda listening fucking fools, the whole lot of them. Mothers, fathers, grandmothers, business owners, teachers,lawyers, family members, friends, lovers and freaking ethnic and BLACK OR MIXED PEOPLE JUST LIKE ME! They could not wrap their heads around what he kneeled for or do nothing but universally condemn him to a tee!
 
 DUMB MOTHERFUCKERS!"
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nepzhj/the_nfl_holds_a_moment_of_silence_for_charlie_we/ndqnd84/
+
+Lynagh1058 2018-09-02
+
+"As an Australian I just don’t get what the fuck is going on with this minute silence stuff for an amateur journalist?? Why are organisations such as the Yankees and NFL doing this? Was he that powerful?"
