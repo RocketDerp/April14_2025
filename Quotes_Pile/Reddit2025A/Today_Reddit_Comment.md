@@ -306,3 +306,10 @@ Fyrefawx 2015-10-02
 
 "All because someone leaked to Crowder that the bullets had TRN on them which is the manufacturer. Actually insane."
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect_held_in/ndtrwd9/
+
+Pxlfreaky 2016-04-04
+
+"So a furry saying (the bulge owo) was on the bullets, the code to drop a bomb in the hell divers game, and calling someone gay. Dude sounds straight out of 4chan."
