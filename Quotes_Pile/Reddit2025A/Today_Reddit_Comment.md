@@ -737,3 +737,11 @@ https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma
 500owls 2014-04-30
 
 "The walled garden conservative sub is suddenly blind to the obvious."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndvzrb4/
+
+Toy_Guy_in_MO 2020-09-17
+
+"My facebook feed is an empty wasteland today, compared to yesterday."
