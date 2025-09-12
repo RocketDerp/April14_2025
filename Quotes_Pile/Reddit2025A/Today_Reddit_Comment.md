@@ -671,3 +671,13 @@ https://old.reddit.com/r/law/comments/1nfcq6a/us_doj_blocks_access_to_their_own_
 LockNo2943 2025-01-24 (new this year)
 
 "Feel like this is just sort of textbook for the GOP, just delete anything that disproves their narrative."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nfcq6a/us_doj_blocks_access_to_their_own_national/ndvmahf/
+
+LockNo2943 2025-01-24 (new this year)
+
+"They survive off a diet of fox news and right wing podcasts where people tell them what to think and be outraged about, and by the time the facts come out and they're proven wrong it's time for todays new news byte to be outraged about.
+
+Literally zero reflection."
