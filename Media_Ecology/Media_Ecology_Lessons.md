@@ -501,3 +501,11 @@ https://old.reddit.com/r/worldnews/comments/1n8fd6a/nepal_moves_to_block_faceboo
 
 Discussion of Spotify techniques spotted in the wild.   
 https://old.reddit.com/r/mildlyinfuriating/comments/1nbm8cq/spotify_artist_deliberately_naming_songs_to/
+
+&nbsp;
+
+### TV Shows music licensing 
+
+David Letterman show about The Eagles rock music song. The Egagles in 2025 are infamous about YouTube copyright strikes too.
+
+https://www.youtube.com/watch?v=orgARa3sC_8
