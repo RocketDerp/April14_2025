@@ -321,3 +321,14 @@ https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect
 CharlesDickensABox 2014-02-25
 
 "It's both. The messages (if one can even describe them as having meaning) are indicative of the sort of thing you might get if you asked 4chan what to write on a murder weapon."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf6ibt/alleged_charlie_kirk_shooter_wearing_donald_trump/nduaxn7/
+
+ejoy-rs2 2016-10-31 (Halloween, context conicedence)
+
+"Whatever this dude is or was. That costume doesn't prove anything. That's also why no1 believes no1. People make claims based on non-sense."
+
+* :::=== RoundSparrow_Commentary : Twitter-length short-message Tweet-thinking abounds. Bluesky-length patterns and mindsets. We The People actively avoiding books, long-form comprehension, rich understanding, complexity in a world of over 8 billion people. Deporting, blocking, unsubscribing from anything too complicated or difficult. Meme-thinking Tweet-thinking mindsets abound.
+"It means misleading information - misplace, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that **when news is packaged** as entertainment, that is the inevitable result." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business ===:::
