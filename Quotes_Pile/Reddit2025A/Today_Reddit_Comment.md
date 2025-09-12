@@ -163,3 +163,15 @@ https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndteezm/
 SuspiciousCoinPurse 2025-03-16 (new this year)
 
 "CNN and MSNBC are owned by right wingers. Almost every major news station and social media platforms are. If they didn’t have propaganda and sanewashing on their side they’d never come close to winning another election"
+
+* :::=== RoundSparrow_Commentary : Repeating, fiction outsells nonfiction. Fiction is not attractive anymore since the Russian IRA mind-fucked the whole society population (March 2013 onward). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndtit3x/
+
+franker 2011-01-11
+
+"It's strange how, watching MSNBC, they seem to focus only on criticizing Trump and those directly in his sphere, like they're the "safe" targets. Very little deep dives on any others in the right-wing world."
+
+* :::=== RoundSparrow_Commentary :  In Surkov governing systems, mocking Trump is not resisting Trump. Kremlin / White House techniques are that mocking the total mockery is joining in with the mocking. Trump is playing Tony Clifton acts (as are supporting players). Surkovin screenplays, Surkov students. ===:::
