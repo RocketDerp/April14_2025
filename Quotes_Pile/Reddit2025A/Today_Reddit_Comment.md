@@ -235,3 +235,13 @@ mkt853 2012-04-22
 "Don't worry literally everyone is sanitizing this guy's image. Seeing the over the top response to all this has been mind blowing. For a youtuber. Let that sink in. I wonder with the way the political class is reacting if there's not a bigger story there that we're missing that they're happy to have Kirk take with him to his grave. In America it is illegal to criticize Israel, and soon it will be the same with respect to Kirk."
 
 * :::=== RoundSparrow_Commentary : Amusement mills (Truth Social, Reddit, Bluesky, YouTube) are amusement-washing humor-washing away humanism. Meme machine addicts, love social meme machines (and hate human persons who don't entertain). David Foster Wallace's "Infinite Jest V", the Surkov Russian media techniques. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndt95pp/
+
+Penguin_lies 2019-03-24
+
+"Nooo, but they heard from somewhere that some other guy with the same name as one of those right wing murderers donated like 10 dollars to the Demon rats so noooo, he was a DEMOCRAT
+
+These people need reeducation camps and I mean that unironically."
