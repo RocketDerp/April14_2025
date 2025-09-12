@@ -381,3 +381,11 @@ https://old.reddit.com/r/PublicFreakout/comments/1nepzhj/the_nfl_holds_a_moment_
 Lynagh1058 2018-09-02
 
 "As an Australian I just don’t get what the fuck is going on with this minute silence stuff for an amateur journalist?? Why are organisations such as the Yankees and NFL doing this? Was he that powerful?"
+
+&nbsp;
+
+https://old.reddit.com/r/democrats/comments/1neosfb/lets_stay_focused_on_the_epstein_files/ndry0fn/
+
+Deciple_of_None 2018-06-13
+
+"Yes, and also how Trump had Charlie killed. I have no information backing this claim true but I believe it. So that should be enough evidence.😑"
