@@ -299,3 +299,31 @@ https://old.reddit.com/r/AdviceAnimals/comments/1nekoli/this_is_just_asinine/ndp
 MiCK_GaSM 2012-07-10
 
 "It's because that flag doesn't stand for shit anymore, in case it couldn't be clearer for you people in the back."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1neo6p8/did_trump_just_declare_war_on_the_american_left/ndq5ujv/
+
+Static-Stair-58 2024-05-20
+
+"So we’re being told to tone down our rhetoric, while the president is inciting a war against us? For the love of god, make it make sense."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1neo6p8/did_trump_just_declare_war_on_the_american_left/ndqaylx/
+
+carlboykin 2014-03-22
+
+"I’ve learned that the average Trump supporter is not educated and emotionally smart enough to notice their complete hypocrisy and love for double standards."
+
+* :::=== RoundSparrow_Commentary : I have learned to recobnize Twitter-length Bluesky-length short-message Tweet-thinking patterns. A complete avoidance of learning **nonfiction** about Cambridge Analtica and the Russian Internet Research Agency since year 2013 and what they have done to American minds. A complete unwillingness to rescue Trump supporters / Putin supporters from the Kremlin's War Against Reality that was described in public September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1neo6p8/did_trump_just_declare_war_on_the_american_left/ndq6eh6/
+
+1mmapotato 2023-01-27
+
+"That isn’t new he’s been declaring war on the left since 2016."
+
+* :::=== RoundSparrow_Commentary : Putin declared it December 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ , right after Donald Trump went to Moscow in November 2013. Repeating: Russia declared world war against liberal west values November 2013, which is right before the February 2014 Ukraine hot war / invasion of Ukraine. ===:::
