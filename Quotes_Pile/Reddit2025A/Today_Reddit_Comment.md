@@ -612,6 +612,22 @@ HawkeyeGild 2024-05-07
 
 "The same thing that the Minnesota shooter did. The internet is indoctrinating a bunch of Gen Z crazies with skipidi Ohio crap...and we keep giving them guns even though they're likely unhinged"
 
-* :::=== RoundSparrow_Commentary :  Yesterday (shooting day) is September 11 terrorism day of year 2011. People do not want to face up that the Quran is a meme system from year 635. Quran is fiction poetry memes. Just like the stuff being discussed in September 11 2025 with these online terrorists. The Mosque is a media venue of memes (John 1:1 - God is memes and only memes, God is language and only language0.
+* :::=== RoundSparrow_Commentary :  Yesterday (shooting day) is September 11 terrorism day of year 2011. People do not want to face up that the Quran is a meme system from year 635. Quran is fiction poetry memes. Just like the stuff being discussed in September 11 2025 with these online terrorists. The Mosque is a media venue of memes (John 1:1 - God is memes and only memes, God is language and only language). There is no supernatural, there is addictive poetry. There is no magical Bible book, it is media addiction to science fiction stories.
 “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nf9izc/charlie_kirks_alleged_killer_scratched_bullets/nduqrdk/
+
+celtic1888 2011-04-15
+
+<img width="1130" height="742" alt="Screenshot from 2025-09-12 13-30-51" src="https://github.com/user-attachments/assets/8d6fd8f4-a2aa-4ef7-b3ca-a1ef9e529520" />
+
+&nbsp;
+
+"I think we are now finding out the ramifications of children who were raised terminally online and in a MAGA environment"
+
+* :::=== RoundSparrow_Commentary : Afermath of Cambridge Analtyica year 2013, Internet Research Agency 2013, the Puitn Media Invasion year 2013 onward. The ongoing War Against Nonfiction, the War Against Reality. "***This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book*** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
