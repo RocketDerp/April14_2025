@@ -445,3 +445,11 @@ notweirdifitworks 2016-05-06
 "I saw several posts about Trumps face during whatever 9/11 memorial he was at. But 9/11 was not the focus of those posts, obviously."
 
 * :::=== RoundSparrow_Commentary : Donald J. Trump is the nonstop center of USA society media content for over TEN YEARS AND TWO MONTHS. Endless flocking of We The People to mockigng Trumpk, insulting Trump, hate Trump messages and mass dehumanization signals. The IRA and CA have conditioned the population to be attracted to self-harm and fiction leadership signals since March 2013 Russian media invaison start. Donald Trump images and Donald Trump hate messages are an example of **toxic popularity**. Pop culture gone toxic with Russian information warfare mass mind / mass man manipulation. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/interesting/comments/1nesj0y/video_footage_of_shooter_in_utah_valley/ndro2ar/
+
+Weekly_Actuator2196 **2025-08-26 (new account)**
+
+"I don't think it can be overstated how normal it is to see guns in Utah cities and towns. Last time I was in Provo, the guys at Maverick looked like they were ready to invade the sweet isle."
