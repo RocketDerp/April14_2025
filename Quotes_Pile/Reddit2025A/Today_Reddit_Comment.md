@@ -361,3 +361,15 @@ Sports have *ALWAYS* been conservative and it seems like people are only just st
 It's called bread and circus for a reason, and they've already mesmerized their base with the most simplistic things (I mean they drive cars around in circles for HOURS and people are dumbfounded and drawn to it). 
 
 This country is beyond cooked."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nepzhj/the_nfl_holds_a_moment_of_silence_for_charlie_we/ndqn22m/
+
+hootievstiger 2017-09-02
+
+"One of my big Wake up moments was the general reaction to Colin Kaepernick kneeling during the national anthem and everything that happened afterwards. But no, not the national news, or the ridiculous social media reaction. But the honest to god talks i had with very normal people about it for years! Blew my mind.
+
+Fucking easily programmed, propaganda listening fucking fools, the whole lot of them. Mothers, fathers, grandmothers, business owners, teachers,lawyers, family members, friends, lovers and freaking ethnic and BLACK OR MIXED PEOPLE JUST LIKE ME! They could not wrap their heads around what he kneeled for or do nothing but universally condemn him to a tee!
+
+DUMB MOTHERFUCKERS!"
