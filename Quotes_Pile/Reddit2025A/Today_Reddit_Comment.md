@@ -490,3 +490,15 @@ GeoisGeo  2021-12-22
 "The thing you've said about people falling silent and looking ashamed when you finally hit somewhere real in their brains is so true and familiar. They will never acknowledge it and move on straight in your face like it never happened as well. Your comment unlocked some old experiences that made me question reality at the time, and I had to confirm you are talking truth. Some people can't be reached. It's actually scary."
 
 * :::=== RoundSparrow_Commentary : Fiction addictions are incredibly hard for people to wake up. James Joyce's Finnegans Wake fron year 1924 onward... ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyler_robinson_raised_in_a/nduhxzs/
+
+NewBootGoofin1987 2024-11-05 (election 2024 account)
+
+"They will just blame the "famously liberal" Utah college campuses that vote 70% republican as brain washing him.
+
+Everybody knows Mormons secretly run antifa indoctrination camps lol"
+
+* :::=== RoundSparrow_Commentary : Amusement washing. Entertainment washing. "LOL" messaging. Social media laugh track, amusment track that Russia won hearts and minds of uneducated Morman fiction addicts to surreal stories. Book of Morman addicts (fiction story retcon of The Bible science fiction). Russia won, Surkov won since March 2013. ===:::
