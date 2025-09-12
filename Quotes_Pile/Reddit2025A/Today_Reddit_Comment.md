@@ -538,3 +538,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyle
 Groundslapper 2020-09-03
 
 "News, social media, and politics is whats dividing the country. People should hold them responsible for advocating it, not our neighbors"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyler_robinson_raised_in_a/nduk1yc/
+
+HogGunner1983 2018-12-19
+
+"The logical next step after overreacting is to double down, which means blaming liberal colleges, or all colleges I guess the far right thinks all schools are evil liberal hell holes at this point."
