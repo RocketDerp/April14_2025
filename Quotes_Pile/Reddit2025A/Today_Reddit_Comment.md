@@ -347,3 +347,17 @@ Logical_Hare 2013-02-21
 "Conservatives are trying to make themselves into a kind of nobility in America, with special rights and status, and lives that are “more valuable” than those of others.
 
 They want it to be no big deal when schoolchildren are murdered en masse, but a conservative influencer getting shot? That’s basically 9/11 to them."
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nepzhj/the_nfl_holds_a_moment_of_silence_for_charlie_we/ndr6qqq/
+
+Tight_Classroom_2923 2025-06-28 (recent account)
+
+"Are we all forgetting when he circled air force one around Daytona like it was some sort of show plane?
+
+Sports have *ALWAYS* been conservative and it seems like people are only just starting to really realize it.
+
+It's called bread and circus for a reason, and they've already mesmerized their base with the most simplistic things (I mean they drive cars around in circles for HOURS and people are dumbfounded and drawn to it). 
+
+This country is beyond cooked."
