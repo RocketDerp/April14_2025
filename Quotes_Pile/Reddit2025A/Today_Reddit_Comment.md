@@ -435,3 +435,13 @@ coldliketherockies 2021-02-02
 "I mean if it was announced today that it was actually Trump who pulled the trigger and killed Kirk, they’d say “well he always said he could shoot someone and get away with it” and then go back to focusing on how the left is reacting to its"
 
 * :::=== RoundSparrow_Commentary : Because Trump is an entertainer. And fiction entertainment is allowed, anything goes in fiction raelity TV. That's the foundation of Russian information warfare since year 2013, this loophole in the human mind that allows Bible fiction (myth / mythology) and Surkovian Kremlin fiction / Trump fiction addictions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1nf3vja/22_year_old_tyler_robinson_identified_as_official/ndtlgpa/
+
+Acrobatic_Jaguar_658 2021-09-10
+
+"It’s truly insane that the President of the United States gave a speech stating, and I quote: “violence and murder are the consequences of demonizing those with whom you disagree with day after day, year after year…for years, those on the radical left have compared wonderful Americans like Charlie to Nazis…this kind of rhetoric is directly responsible for the terrorism we’re seeing in our country today…” BEFORE THE SHOOTER HAD EVEN BEEN CAUGHT. They just assumed it was someone on the left. Now to find out Tyler Robinson was not even registered to any political party and his personal beliefs are still unknown. Talk about division and demonization huh?"
+
+* :::=== RoundSparrow_Commentary :  Surkovian onion eater [Surkovian_Onion_Eating.md](Surkovian_Onion_Eating.md) . Entirely out of the loop that Russia information warfare is organized trolling, organized contradicitons. This has been gong on FOR OVER TEN YEARS AND TWO MONTHS, people keep thinking it is unintentional that Trump and Putin do this. ===:::
