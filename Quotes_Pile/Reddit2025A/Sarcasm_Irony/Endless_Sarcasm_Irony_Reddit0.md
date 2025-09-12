@@ -222,3 +222,6 @@ https://old.reddit.com/r/CringeTikToks/comments/1nekcyf/threatens_half_the_count
 
 "Irony" on front page of Reddit. Nobody discussing that the NRA was documented to have worked with / infiltrated by Russia in information war. That Russia manipulated anti-vaccination. USA has had ass kicked in information war documented by multiple NATO nations, and all people can do is hate upon the mentally injured and manipulated that Putin won. That's exactly what the informaiton warfare conditiones: Americans hate upon Americans and avoid Russsia learning / avoid studying information warfare (and media ecology) itsef.    
 https://old.reddit.com/r/BlueskySkeets/comments/1nekk60/the_irony/
+
+And another "Irony" active irony poisoning posting. Wrapping fiction The Simpsons surreal absurd mind exploits around a murder. Kickind the MAGA community while they are down. Anti-compassion, anti-education, anti-teaching. Cheering that Russia keeps winning the information war since year 2013. The war against nonfiction, war against Reality as described September 9, 2014. Social media addicts ar thrilled to have Trump / MAGA ancticcs to contantly mock and call ironic and be sarcastic about. Normal healthy scientific thinking and leadership of society is considered boring and unattractive.    
+https://old.reddit.com/r/simpsonsshitposting/comments/1nefk31/no_thats_too_ironic/
