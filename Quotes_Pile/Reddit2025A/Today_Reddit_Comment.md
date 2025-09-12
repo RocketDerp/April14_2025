@@ -713,3 +713,27 @@ alaricus 2011-08-21
 Fact is that the tension is high and both sides are eager to brag and laugh about wins and rant and rave about losses.
 
 (Never mind that the division is being stoked by the bourgeoisie to continue to oppress all proletarians)"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndw23ga/
+
+Werbnerp 2014-02-11
+
+<img width="1268" height="964" alt="image" src="https://github.com/user-attachments/assets/9d03eb19-8d6e-4acd-b2b4-e72132f469f3" />
+
+&nbsp;
+
+"Lol this is what I have to explain to my friends and family sometimes about religious people. "THEY FUNDAMENTALLY BELIEVE IN MAGIC AND THAT THE WORLD WAS CREATED BY MAGIC" There is no rational argument you can have with people who at their core identity as "true believers in magic" "
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nfejuq/charlie_kirk_suspects_grandma_says_family_is_all/ndvvqqq/
+
+500owls 2014-04-30
+
+"The walled garden conservative sub is suddenly blind to the obvious."
