@@ -509,3 +509,12 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1nbm8cq/spotify_artist_delib
 David Letterman show about The Eagles rock music song. The Egagles in 2025 are infamous about YouTube copyright strikes too.
 
 https://www.youtube.com/watch?v=orgARa3sC_8
+
+&nbsp;
+
+### Entertainment revolutions
+
+Entertainment politics. Ronald Regan President as entertainer. Donald Trump Reality TV Star of the Apprentice entertainer. Fox News entertainment network.
+
+The way to get social media viral coverage is to be erntertaining and upload to cloud computing systems.   
+https://old.reddit.com/r/GuysBeingDudes/comments/1nexecd/guys_being_dudes_in_the_middle_of_protest_nepal/
