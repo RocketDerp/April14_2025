@@ -230,3 +230,8 @@ https://old.reddit.com/r/simpsonsshitposting/comments/1nefk31/no_thats_too_ironi
 
 NFL billionare owners honor Billionare worship network messenger Charlie Kirk.    
 https://old.reddit.com/r/PublicFreakout/comments/1nepzhj/the_nfl_holds_a_moment_of_silence_for_charlie_we/
+
+&nbsp;
+
+People on Reddit / other social paltform (screenshot image) cheering on that they hope more will stop speaking in public in USA because of media performers selling fiction being shot in public (Charlie Clerk). Just like Blueskya and Reddit are deport-happy / bloc-happy that content is censored that they disagree with or do not understand. A USA society where chilling of politicial speech and removal of science facts, removal of discussion that Reddit s manipulated by Russia goes on. Because people want entertainment *they like* and want to block out ficiton content they do not like.   
+https://old.reddit.com/r/CuratedTumblr/comments/1nesehy/idk_i_havent_watched_the_news_yet/
