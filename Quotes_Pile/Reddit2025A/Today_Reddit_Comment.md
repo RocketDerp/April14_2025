@@ -332,3 +332,15 @@ ejoy-rs2 2016-10-31 (Halloween, context conicedence)
 
 * :::=== RoundSparrow_Commentary : Twitter-length short-message Tweet-thinking abounds. Bluesky-length patterns and mindsets. We The People actively avoiding books, long-form comprehension, rich understanding, complexity in a world of over 8 billion people. Deporting, blocking, unsubscribing from anything too complicated or difficult. Meme-thinking Tweet-thinking mindsets abound.
 "It means misleading information - misplace, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that **when news is packaged** as entertainment, that is the inevitable result." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf6ibt/alleged_charlie_kirk_shooter_wearing_donald_trump/ndufy8k/
+
+Itchy-Ad1047 2024-11-13 (election 2024)
+
+"Bunch of grasping at straws in this thread. Trying to make definitive conclusions off inconclusive shit
+
+Internet's a wasteland from all sides"
+
+* :::=== RoundSparrow_Commentary : Entertainment venue. Amusement venue. ===:::
