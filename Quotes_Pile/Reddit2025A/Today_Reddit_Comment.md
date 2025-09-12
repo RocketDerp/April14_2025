@@ -381,3 +381,16 @@ Iwoulddiefcftbatk 2019-12-11
 
 * :::=== RoundSparrow_Commentary : Entertainment addicts describing their desires for casting in the White House antics and surreal Russian politics schemes. Fiction addicts describing their fantasy casting for political chaos lead by Truth Social anti-reality media platform / White House Press anti-truth nonsense. Reddit amusement mill provided constant stimulation to the nonstop MAGA / Trump content and events. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1nf3vja/22_year_old_tyler_robinson_identified_as_official/ndtiono/
+
+Levofloxacine 2025-01-29 (new this year)
+
+"Everywhere on right wing sites like X and 4chan they were swearing up and down it was a trans person whose name I won’t say to not further dox them, going as far as exposing their parents names and their adress.
+
+That person closed their social media accounts and those clowns were saying «  See ?!? They’re clearly guilty!!! »
+
+Or… ya know… thwyre tired of being harassed i dunno"
+
+* :::=== RoundSparrow_Commentary : Amusement mills. Fiction mills. 4chan / X / Reddit. Constant mockery, total mocking-faith society. Amusment-washing, joke-washing, humor-washing Trump and MAGA constantly. ===:::
