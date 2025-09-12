@@ -123,3 +123,17 @@ myRedditAccountjava 2017-11-16
 "I mean that's exactly it. They're all grifters for cash. Doesn't mean they should die, and both sides have their own policy hypocrises, but when I see someone who is, down the line, every single unpopular conservative view and checks every box to a T, especially ones who claim debate and have not once changed any of their opinions afterwards, and uses that to farm highlight reel content, I'm confident he didn't even believe half the stuff he said. He just got a lot of endorsement money for it. And quite frankly, knowing what youre doing is wrong and harmful is doing it anyway is exactly why it's terrible he died but there's a general lack of empathy for it."
 
 * :::=== RoundSparrow_Commentary : Profits, feasting on the mentally damaged from the Russian media invasion since March 2013. CITE: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america Putin won hearts and minds to be addicted to fiction (anti-reality) with the Internet Research Agency since year 2013, and predatory media practitioners in USA are profiting off the Putin win / Kremlin information warfare against NATO. Reddit itself profits from all this chaos and engagement. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndtbs18/
+
+d00dsm00t 2011-09-13
+
+"It's such bullshit that they just ignore the shit he said on his radio program.
+
+Did anybody ever listen to that? The shit he said behind the liberals backs to his buddies, like Kevin Roberts of the Heritage Foundation?
+
+Respectful would be tough to spin if they has a list of his biggest radio hits. My favorite was when he would call the opposition Demons.
+
+His debate persona wasn't genuine. Nobody was going to 'change his mind'. He put on a mask so he could proselytize to a wider audience and lure in confused people with bullshit. Just a typical charlatan huckster."
