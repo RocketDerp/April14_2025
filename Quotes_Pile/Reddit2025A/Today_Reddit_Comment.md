@@ -415,3 +415,23 @@ lynypixie 2019-03-03
 "Wow, now that it’s one of their own, the r conservatives are saying that it’s not the motivation of the shooter that is important, it’s how the left reacted."
 
 * :::=== RoundSparrow_Commentary : Amusement mills, meme mills, 24 hours a day (Reddit / 4Chan / Bluesky / Twitter) constantly stream new memes, endless fiction storytelling. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1nf3vja/22_year_old_tyler_robinson_identified_as_official/ndtlgom/
+
+Tarledsa 2017-01-21
+
+"Ok now I’m picturing the SNL skit with Melissa McCarthy as Sean Spicer and the motorized podium."
+
+* :::=== RoundSparrow_Commentary : Amusement washing. Entertainment washing the White House (Sean Spicer / Trumpism / MAGA) and Kremlin methods. "What I am claiming here is not that television is entertaining but that it has made entertainment itself the natural format for the representation of all experience." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Chapter 6: The Age of Show Business, page 87 ==:::
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1nf3vja/22_year_old_tyler_robinson_identified_as_official/ndtkihn/
+
+coldliketherockies 2021-02-02
+
+"I mean if it was announced today that it was actually Trump who pulled the trigger and killed Kirk, they’d say “well he always said he could shoot someone and get away with it” and then go back to focusing on how the left is reacting to its"
+
+* :::=== RoundSparrow_Commentary : Because Trump is an entertainer. And fiction entertainment is allowed, anything goes in fiction raelity TV. That's the foundation of Russian information warfare since year 2013, this loophole in the human mind that allows Bible fiction (myth / mythology) and Surkovian Kremlin fiction / Trump fiction addictions. ===:::
