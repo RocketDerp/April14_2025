@@ -448,7 +448,7 @@ Acrobatic_Jaguar_658 2021-09-10
 
 &nbsp;
 
-&nbps;
+&nbsp;
 
 https://old.reddit.com/r/TikTokCringe/comments/1nf7lle/americans_are_you_guys_alright/ndubg57/
 
@@ -459,3 +459,14 @@ Narrow-Sky-5377 2021-02-11
 &nbsp;
 
 "White man fight back against the white man who did the killing?"
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1nf7lle/americans_are_you_guys_alright/ndug543/
+
+AnansisGHOST 2023-04-10
+
+"Republican white man whose Mormon minister father, who is also a former sheriff, is the one who turned him in.
+
+Mormon family with not a speck Trans liberalism."
+
