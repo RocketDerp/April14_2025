@@ -278,5 +278,14 @@ weezmatical 2013-02-18
 
 "True. First, the right will believe he was liberal regardless of any evidence. Second they will simply delete all his social media and downplay any evidence that he might have been a republican. Reality matters very little. Of course, the ideologies of a mentally unwell person shouldn't matter that much in the long run. Just sucks they will pretend it is extremely important and that it is somehow ANYONE who votes Democrat's fault."
 
-* :::=== RoundSparrow_Commentary : "***This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book**** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+* :::=== RoundSparrow_Commentary : "***This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book*** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nf4fsq/mugshot_of_tyler_robinson_suspect_held_in/ndtqxpu/
+
+fixnahole 2012-08-20
+
+"Everyone seems to have forgotten quickly that when Trump was shot, they all rushed to say the shooter must have been a radical leftist liberal. Only that didn't turn out to be the case at all. If this Kirk shooter turns out to be MAGA, or comes from a MAGA family, then when do they realize the problem is not Democrats/liberals, it's the tone that has been set for several years now. Let's not forget that Trump has called for violence at his campaign rallies before when someone was protesting against him. He's often antagonistic, and pretty much a dick to any legitimate journalistic questions he doesn't like. This tough guy, mega-prick attitude sets the tone, and trickles down to all of his followers. It does not lead to positive outcomes."
+
+* :::=== RoundSparrow_Commentary : Recency bias abounds. The constant humor and surreal comedy antics of Tony Clifton performances by Donald Trump seem to reset minds to forget anything from the past, We The People seem to be unable to focus on this as Kremlin Surkovian information warfare techniques in a constatn meme stupor of LOL at Trump playing Clifton. ===:::
