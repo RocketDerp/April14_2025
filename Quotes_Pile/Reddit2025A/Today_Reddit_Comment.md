@@ -337,3 +337,13 @@ Agressive-toothbrush 2021-02-02
 "My Brazilian criminal friend was found guilty? We will avenge him!
 
 This is not a Presidential administration, this is a criminal organisation."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nep6uf/vance_accompanies_charlie_kirks_casket_to_air/ndqetrh/
+
+Logical_Hare 2013-02-21
+
+"Conservatives are trying to make themselves into a kind of nobility in America, with special rights and status, and lives that are “more valuable” than those of others.
+
+They want it to be no big deal when schoolchildren are murdered en masse, but a conservative influencer getting shot? That’s basically 9/11 to them."
