@@ -530,3 +530,11 @@ hotpajamas 2012-03-12
 the fact is that you have to look past the words these people use; the words don’t even matter to them. what matters to them is that you are always to blame, nothing will ever be enough, and they won’t stop until they have power over us.
 
 nazis devised the global jewish conspiracy that went the same way. jews were always to blame somehow, some way. it didn’t matter who they were imor what they did. every foul thing was their fault somehow and it wasn’t ever about reality or fact or objectivity; it was about blaming jews and eventually killing then."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyler_robinson_raised_in_a/nduiywm/
+
+Groundslapper 2020-09-03
+
+"News, social media, and politics is whats dividing the country. People should hold them responsible for advocating it, not our neighbors"
