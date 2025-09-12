@@ -175,3 +175,13 @@ franker 2011-01-11
 "It's strange how, watching MSNBC, they seem to focus only on criticizing Trump and those directly in his sphere, like they're the "safe" targets. Very little deep dives on any others in the right-wing world."
 
 * :::=== RoundSparrow_Commentary :  In Surkov governing systems, mocking Trump is not resisting Trump. Kremlin / White House techniques are that mocking the total mockery is joining in with the mocking. Trump is playing Tony Clifton acts (as are supporting players). Surkovin screenplays, Surkov students. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndt80me/
+
+SexiestPanda 2013-01-13
+
+"That’s the real reason they’re sad at this. They lost someone who tells them what to think lol"
+
+* :::=== RoundSparrow_Commentary : ChatGPT / Grok AI (Elon Musk Collasus machines) can do that for people. Easier and will be more ego-pleasing and 24 hours a day, no delay, to engage The ELIZA effect. ===:::
