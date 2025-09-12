@@ -88,6 +88,14 @@ Don't forget gun rights advocates pushing back on Trump wanting to restrict seco
 
 &nbsp;
 
+https://old.reddit.com/r/BlueskySkeets/comments/1nf1y3a/nailed_it/ndt2kk3/
+
+somethingbytes 2024-11-11 (created at Election 2024)
+
+"That's all the right recognizes anymore though. They only exist in a world completely forged by propaganda."
+
+&nbsp;
+
 # Thursday, September 11, 2025 (9/11)
 
 https://old.reddit.com/r/BlueskySkeets/comments/1ne7bs1/shes_right_donnie_started_this/ndml4dd/
