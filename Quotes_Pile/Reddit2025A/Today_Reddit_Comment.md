@@ -701,3 +701,15 @@ ChaoticGoodSamaritan 2019-09-05
 "They were running around saying "Ding Dong the Witch is dead" when RBG died"
 
 * :::=== RoundSparrow_Commentary : September 18, 2020 when she died, that was more than 7 years into the Russian Internet Research Agency warfare of hate-harder mass dehumzniatoin self-harm mental manipulation (since March 2013). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1nfdkmj/the_difference_between_the_left_and_right_in/ndvz1ar/
+
+alaricus 2011-08-21
+
+"I mean... Different countries, but it's a valid point.
+
+Fact is that the tension is high and both sides are eager to brag and laugh about wins and rant and rave about losses.
+
+(Never mind that the division is being stoked by the bourgeoisie to continue to oppress all proletarians)"
