@@ -662,4 +662,12 @@ Not because of any political ideology?
 
 No way any Boomer will understand that."
 
-* :::=== RoundSparrow_Commentary :  Death, killing, killed... by amusement / memes / humor. Nobody in 1985 ever wrote a book about it that Baby Boomers could have read before the Internet went commercial in year 1993. I was authoring and selling social media systems before the Internet, back in 1984 in high school. Reddit is incredbily ignorant of American social media history and media ecology. None of them have even [heard of Marshall McLuhan or John Lennon](https://www.youtube.com/watch?v=Zwue_GwlPQo). "Amusing Ourselves to Death: Public Discourse in the Age of Show Business (1985) is a book by educator Neil Postman. It has been translated into 16 languages" - https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death ===:::
+* :::=== RoundSparrow_Commentary :  Death, killing, killed... by amusement / memes / humor. Nobody in 1985 ever wrote a book about it that Baby Boomers could have read before the Internet went commercial in year 1993. I was authoring and selling social media systems before the commercial Internet, back in 1984 in high school. Reddit is incredbily ignorant of American social media history and media ecology. None of them have even [heard of Marshall McLuhan or John Lennon](https://www.youtube.com/watch?v=Zwue_GwlPQo). "Amusing Ourselves to Death: Public Discourse in the Age of Show Business (1985) is a book by educator Neil Postman. It has been translated into 16 languages" - https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nfcq6a/us_doj_blocks_access_to_their_own_national/ndvjqrj/
+
+LockNo2943 2025-01-24 (new this year)
+
+"Feel like this is just sort of textbook for the GOP, just delete anything that disproves their narrative."
