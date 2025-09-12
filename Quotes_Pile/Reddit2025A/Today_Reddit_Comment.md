@@ -510,3 +510,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyle
 Dash6666 2015-06-25
 
 "Why apologize when the president and his army of talking heads on cable and the internet are fanning the flames calling it a war and demonizing the radical left lunatics with no evidence."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nf8fji/charlie_kirks_killer_tyler_robinson_raised_in_a/nduimyh/
+
+Lopsided-Employer278 2025-02-27 (new this year)
+
+"Another radical right wing terrorist obsessed with guns from gun country shooting guns at a guy who thought guns were a god given right and that it was ok for people to die by guns so that we all can have guns."
