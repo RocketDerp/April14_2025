@@ -413,3 +413,13 @@ Professor-Woo 2022-06-26
 * :::=== RoundSparrow_Commentary : Russian information warfare since March 2013 exploits all these patterns of in-group tribal behavior. People giving up facts and science thinking in favor of group association. Unwilling to exanmine why things have changed, Putin's war, only concerned to *fight harder* and *hate harder* against the out-group (but not the Russian out-group, that mutliple NATO nations are reporrting media invasions / emotional manipulation / information warfare).
 “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.”
 ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1955. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1neow1c/michigan_judge_refuses_to_resign_for_saying/ndqpncp/
+
+Unhappy_Loss770 2024-04-04
+
+"It is my belief that belonging to two separate cults is a recipe for madness"
+
+* :::=== RoundSparrow_Commentary :  You can be in a fiction cult of Bible, a fiction cult of Fox News, a fiction cult of Truth Social, fiction cult of Reddit Russian content. You can be in as many fiction cults as you desire, as many subreddits and TV channels and social feeds of avoiding nonfiction. That's the Kremlin system, that the Trump / MAGA White House leadership. Fiction. Russia seeded it on Twitter, Reddit, Facebook, etc - and Reddit is addicted to it.  https://www.bbc.com/news/technology-43301643 ===:::
