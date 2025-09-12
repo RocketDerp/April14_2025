@@ -16,6 +16,15 @@ Piltonbadger 2012-09-29
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/ndstkp6/
+
+maliciouspot 2021-04-11
+
+"Don't forget about pure incompetence as well. They hate anyone that actually knows what they are talking about."
+
+* :::=== RoundSparrow_Commentary :  Campbell, fiction / mythology faiths: ["“Well you’re a spoiled sport. You’re spoiling the game. Get out of here.” It’s like somebody who would start running back and forth while other people try and play a tennis game running back and forth on the tennis court, busting up the game. There is nothing nuttier than playing tennis, but it’s great fun and you believe it’s worth winning"](../Specific/Campbell_Tennis.md) ===:::
+
+&nbsp;
 
 # Thursday, September 11, 2025 (9/11)
 
