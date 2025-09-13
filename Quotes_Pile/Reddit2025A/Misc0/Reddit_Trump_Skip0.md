@@ -89,3 +89,6 @@ https://old.reddit.com/r/technology/comments/1nfkpfg/hegseth_says_pentagon_track
 
 Pizzacake criticism, the horror if cringe, media addicts not being serious about media addiction behaviors (visual medium / meme format / conflict format ruling society. Which Trum does with his Star Wars Hero pictures and other superman as Trump depictions).    
 https://old.reddit.com/r/whenthe/comments/1nfliwe/the_whiteknighting_is_crazy/
+
+Charlie Kirk killing pro-hate / pro-mockery content     
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nflb4q/black_man_offers_his_help_to_his_white_brothers/
