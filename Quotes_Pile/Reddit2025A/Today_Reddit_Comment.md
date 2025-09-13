@@ -10,6 +10,14 @@ Gonzocookie74 2019-04-02
 
 &nbsp;
 
+https://old.reddit.com/r/Music/comments/1nfv81d/coldplay_fans_disappointed_after_chris_martin/ndzkk8y/
+
+AssCrackBandit10 **2025-09-09 (new account)**
+
+"This is maybe not the best example. The right decided that she’s also one of their martyrs (since she was a pretty white woman killed by a black guy in a Democrat city) and have been posting about her everywhere. Conservatives just raised over $2.5 million to install murals of Iryna Zarutska all over the US (with $1 million being donated by Elon Musk). They’ve highly politicized her death as well. Of course, it’s all performative because you know that 90% of them don’t give a shit about Ukrainian refugees or justice/mental health reform otherwise and, if Twitter posts are anything to go by, are just clamoring to say slurs because of the race angle."
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
