@@ -71,3 +71,8 @@ https://old.reddit.com/r/politics/comments/1neasts/schumer_trump_is_neville_cham
 
 Trump saying that Russian military attacks are mistake, but not Russian hate is a mistake. Not Russian waging war on Ukraine is a mistake.     
 https://old.reddit.com/r/politics/comments/1nem1p2/russia_drone_incursion_in_poland_may_have_been_by/
+
+&nbsp;
+
+Fox News - kill off the disabled. In addition to RFK Jr pro-disease.     
+https://old.reddit.com/r/law/comments/1nfmaks/foxs_kilmeade_suggests_killing_the_homeless/
