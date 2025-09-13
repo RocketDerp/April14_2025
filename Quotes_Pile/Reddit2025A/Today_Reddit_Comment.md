@@ -893,3 +893,17 @@ FroyoIllustrious2136 2022-02-03
 "Because there is a large portion of Americans that have zero reasoning and critical thinking skills. They are guided by years and years of cultural authoritarianism where faith has been rewarded more than data.
 
 They do not care about facts. They only care about their subjective truths. Their religion is about power and conspiracy."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvuyjy/
+
+cumtologist **2025-08-20 (new account)**
+
+"Because the right has media nonstop being fed to them that the left does the same. They don't ever get shown it, but they get told it. Turn on Fox, go on X, look at our president's recent communications. It's all how the left is violent, demonic, radical.
+
+It's similar to how they behaved regarding talking about Fauci, they would always bring up that he's a demon and needs to be killed but could never articulate a good reason why.
+
+It's because they have already been told the other side is at their level, and that's how they justify being there."
+
+&nbsp;
