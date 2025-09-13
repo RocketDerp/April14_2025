@@ -189,3 +189,11 @@ coochie_clogger 2024-10-27
 …transitioned to not really caring about the shooter anymore and calling for violence against anyone that is making jokes about the assassination.
 
 “Make comedy legal” amirite?? 🙃"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne1bsxs/
+
+pinotberry 2016-10-03
+
+"I went down the rabbit hole and I’m convinced that the shooter was a follower of Nick. This is right on right violence."
