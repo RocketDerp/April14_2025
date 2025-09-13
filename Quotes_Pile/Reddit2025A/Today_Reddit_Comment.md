@@ -120,6 +120,16 @@ some_dude_64 2025-04-21 (new this year)
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1nfyy6h/charlie_kirks_allies_warn_americans_mourn_him/ne05a4r/
+
+shagadelicrelic 2022-11-29
+
+"It's crazy to me how many people are ready to tear our country apart with civil war over a podcaster, but when kids are shot in school that's just part of life.... WTF"
+
+* :::=== RoundSparrow_Commentary : Since year 2012, I keep observing and looking for people who support children movements by Malala from Pakistan. But people seem far more concerned with rich white men's sex lives and private jets than educating and teaching girls how to speak you for their own self. ===::
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
