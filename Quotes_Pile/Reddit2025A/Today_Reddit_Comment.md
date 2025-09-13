@@ -130,6 +130,16 @@ shagadelicrelic 2022-11-29
 
 &nbsp;
 
+https://old.reddit.com/r/PublicFreakout/comments/1nfvuot/fight_at_the_conservative_protest_after_a_man/ndzrdmc/
+
+GlassEyeMV 2016-09-25
+
+"It’s a bit of both for me, but I’ve gotten to the point where like you I am more angry than amused. I’ve been calling people out for their hypocrisy and false equivalencies. They either block me on social media or result to calling me names when I simply ask questions that point out their ridiculous double standards.
+
+They’re snowflakes who can’t handle the reality we live in so they have to make up their own."
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
