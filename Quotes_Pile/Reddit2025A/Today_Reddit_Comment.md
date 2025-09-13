@@ -62,6 +62,10 @@ The anti-Malala attitude. The pro-Putin attitude. If Putin's informatin warfare,
 
 https://old.reddit.com/r/PoliticalHumor/comments/1nfutuo/oh_i_get_it_now/ndzncqe/
 
+SingleandSober 2015-07-28
+
+"You are totally wrong about this. The Dems are not the adults in the room. They are the people with empathy. Sadly they are also oblivious to reality, so rarely ever take action, and are usually inept when they do. The Republicans are sociopaths... but are aware of how things work, and get the job done... they just dont care about anyone else."
+
 &nbsp;
 
 https://old.reddit.com/r/coolguides/comments/1nfyqwf/a_cool_guide_on_how_the_us_mediapoliticians/ndzzeg4/
