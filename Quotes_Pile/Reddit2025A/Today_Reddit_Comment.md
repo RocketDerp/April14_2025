@@ -1087,3 +1087,13 @@ https://old.reddit.com/r/worldnews/comments/1nfri6w/no_thanks_raided_south_korea
 No_Entrance9782 2025-07-13 (recent account)
 
 "Even smaller local manufacturers will feel this. If you spend hundreds of thousands on new equipment the supplier will send someone over to coordinate the installation. It can take around a month to prepare the site, install machinery, and train local workers. We always classify these activities as “business meetings” rather than work."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nfri6w/no_thanks_raided_south_korean_workers_leave_us/ndyxmrz/
+
+AtomicBLB 2013-08-30
+
+"It goes much deeper than technicalities with visas. trump EMBARRASSED these hard working and proud people. Like tar and feather type of embarrassment. Asain culture is similar across many of those countries in the way of status and being able to 'save face' aka not being socialy ostracized especially to such an extent.
+
+These workers being asked to stay after what they went through has riled up the average South Korean even more than they already were. They're intensely mad over the treatment and that 'not sorry, but please train your replacements' makes the situation even worse. They don't have short memories and they won't risk this again for a long time."
