@@ -209,3 +209,13 @@ wikimandia 2015-08-19
 A normie can’t understand what they are trying to say without understanding their language and memes, and even then it’s difficult because they are nihilists essentially and want to troll everyone.
 
 The groypers are loving that people think Tyler is a leftist."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne1m3je/
+
+TheChickenParmy **2025-09-13 (new today)**
+
+"You need to look up "irony poisoning". https://en.wikipedia.org/wiki/Irony_poisoning They're fascists that use Bella Ciao because they broke their own brains and used it so frequently in an ironic fashion that it became a genuine part of them. It also serves the purpose of misdirecting from their activities and clouding conversations, as evidenced by people like you that aren't familiar with this.
+
+edit: Also, here is a picture https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Frh0omuvsyyof1.png of a Nick Fuentes supporter using Bella Ciao in their twitter name."
