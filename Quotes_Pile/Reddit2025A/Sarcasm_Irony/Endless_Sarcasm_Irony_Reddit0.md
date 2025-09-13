@@ -248,5 +248,5 @@ https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/
 
 &nbsp;
 
-The recnecy bias, disconnect from reality, surreal is right in front of everyone. Recency bias of not reacalling 3 months ago in the constant streamine meme amusement mills. Yet, people aren't taking the crisis seriously and recognizing that hte very power of Putin Kremlin and Trump White House is build on constantaly mentally overloading / over-stresing the information intake of We The People.  No defense has been found against SUrkovian governing technqiues, Putin has been in power for 25 years using these techniques on domestic Russia!   
+The recency bias, disconnect from reality, surreal is right in front of everyone. Recency bias of not reacalling 3 months ago in the constant streamine meme amusement mills. Yet, people aren't taking the crisis seriously and recognizing that hte very power of Putin Kremlin and Trump White House is build on constantaly mentally overloading / over-stresing the information intake of We The People.  No defense has been found against SUrkovian governing technqiues, Putin has been in power for 25 years using these techniques on domestic Russia!   
 https://old.reddit.com/r/MurderedByWords/comments/1ng5s51/exactly_this/
