@@ -263,3 +263,12 @@ Misternogo 2017-03-07
 "I'm gonna be really honest. As an American, when I see our flag now, I automatically assume it's fascists. I did look into it a little before judging or commenting, but seeing the flags made me automatically assume right wing."
 
 * :::=== RoundSparrow_Commentary : So many symbols have had their meaning inverted by the Russian Internet Research agency since March 2013. It is a mass mind crisis. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ng2r4f/oc_a_march_from_philly_to_dc_is_happening_right/ne1d62t/
+
+
+Misternogo 2017-03-07
+
+"That's because actual, old school conservatives aren't part of MAGA. They're a rare breed at this point, but I still know several. And the American "Left" is still fairly right wing by the rest of the world's standards. The MAGA cult has massively skewed what most people think of when they hear "conservative." "
