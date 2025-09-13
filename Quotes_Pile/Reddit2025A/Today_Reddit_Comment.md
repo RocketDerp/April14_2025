@@ -1,3 +1,15 @@
+# Saturday September 13, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1nfv81d/coldplay_fans_disappointed_after_chris_martin/ndzm96w/
+
+Gonzocookie74 2019-04-02
+
+"Depressing music has it's place. But for the love of all the Gods of music, please make it more. Make it angry and depressed (NIN), or make it esoteric and depressed (Tea Party), or make it arty and depressed (Nick Cave and the Bad Seeds). Just a few examples off the top of my head. But milquetoast and depressive, where does that get fun?"
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
