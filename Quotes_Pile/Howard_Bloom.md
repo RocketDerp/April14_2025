@@ -8,3 +8,18 @@ Page: 203-204
 Howard Bloom    
 Published: August 14, 2000    
 
+&nbsp;
+
+&nbsp;
+
+### Misc notes 
+
+Public posting that Reddit owners say as "deleted" on "new reddit", that I did not delete.   
+Friday, August 9, 2019 2019-08-09    
+"The Right Wing Is Trying to Make It a Crime to Oppose Fascism ( This is another MonoMyth media pattern: Blasphemy is forbidden against the Holy Authority and our Faith System )"     
+https://old.reddit.com/r/WhiteHouseHyperReal/comments/co5h7i/the_right_wing_is_trying_to_make_it_a_crime_to/      
+Links to story: https://truthout.org/articles/the-right-wing-is-trying-to-make-it-a-crime-to-oppose-fascism/    
+The Howard Bloom quote which I hand-typed in from the printed book.    https://old.reddit.com/r/WhiteHouseHyperReal/comments/co5h7i/the_right_wing_is_trying_to_make_it_a_crime_to/ewgbpov/
+Also I noted in public that the same comment / book quote from Howard Bloom was hidden by the site owners of Reddit in /r/Politics and could only be published in a low-traffic subreddit that I was moderator of.  Reddit constantly supresses book quotes and authors. As was documented in this example in August 2019 when Trumpw as in office the first time.   
+
+
