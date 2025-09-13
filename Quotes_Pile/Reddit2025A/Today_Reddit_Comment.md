@@ -245,3 +245,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_
 emporary_Insect8833 2025-06-02 (recent account)
 
 "When it's an anonymous source that confirms something they don't like and is fully vetted by the reporter it's fake. When it's a random dude who says they knew him four years ago and hasn't spoken to him since and then retracts the whole thing it's fine."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ng2r4f/oc_a_march_from_philly_to_dc_is_happening_right/ne1r1nq/
+
+Sickpup831 2013-11-18
+
+"I said that about Trump when he wasn’t President. Stop flooding Reddit with pictures of this man. Stop writing news stories about him. When he’s president, I get it, we need to be in the know of what he’s doing. But 2020-2024 seemed like every single he said and did was front page news. Even if it was just to make fun of him, it still seemed like was overexposure."
