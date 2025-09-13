@@ -298,3 +298,13 @@ Polemic-Personified 2025-07-15 (recent account)
 "It's an ethical choice. Yes, you can fleece these barrel-bottom idiots for all they are worth, but you are also amplifying and normalizing their extremism. Is the money worth the damage to the world? That's really the question.
 
 For me currently, the answer is no."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng64md/charlie_kirk_shooter_tyler_robinson_was_a_diehard/ne1ope0/
+
+Conservative_Clown 2025-09-11 (created yesterday, new account, note meaning of name)
+
+"I love it when the maga thumb suckers block people lol"
+
+* :::=== RoundSparrow_Commentary : Social media mockery track, laugh track for media. People are so incredibly amused and enteratined at the outcomes of Russian information warfare since March 2013. The Russian Internet Research Agency and what they have done to Reddit communities. https://www.bbc.com/news/technology-43301643 - there is an outright humor / funny-based addiction to Donald Trump / MAGA and Russian informaiton warfare in the population. Media addicts who do not want to remove Donald Trump from office and do cult deprogramming of MAGA Americans, because they are so thrilled how this White House 2025 situation is the most funny and amusing situation they have ever encountered. ===:::
