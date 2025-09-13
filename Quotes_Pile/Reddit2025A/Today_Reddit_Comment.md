@@ -1271,3 +1271,12 @@ AtomicBLB 2013-08-30
 "It goes much deeper than technicalities with visas. trump EMBARRASSED these hard working and proud people. Like tar and feather type of embarrassment. Asain culture is similar across many of those countries in the way of status and being able to 'save face' aka not being socialy ostracized especially to such an extent.
 
 These workers being asked to stay after what they went through has riled up the average South Korean even more than they already were. They're intensely mad over the treatment and that 'not sorry, but please train your replacements' makes the situation even worse. They don't have short memories and they won't risk this again for a long time."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne0z9ju/
+
+Guataguano 2016-04-26
+
+"The most MAGA thing to happen right now is a MAGA leader getting shot by another MAGA supporter raised in a MAGA fuelled home then to blame everyone else BUT MAGA."
+
