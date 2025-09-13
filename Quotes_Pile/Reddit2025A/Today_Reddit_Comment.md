@@ -857,3 +857,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndw470y/
 LongRangeReaper 2022-03-22
 
 "I bet if you call the cops, there's a good chance he'll answer the phone..."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvs0vc/
+
+Motor_Pollution231 2021-04-16
+
+"Idiots calling for a civil war"
