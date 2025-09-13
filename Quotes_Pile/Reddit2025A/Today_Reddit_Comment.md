@@ -147,6 +147,19 @@ ExaltedGoliath 2016-09-18
 "Well conservatives aren’t serious people, there would need a tectonic shift in their politics where they would need to embrace things that matter like you know… honor, good faith conversations, self reflection. It’s not going to happen in this climate and have written them off until they have it. I’ve been watching them do this for 10 years now, the goal post always moves."
 
 * :::=== RoundSparrow_Commentary : Reddit user describing watching Russia's win unfold for 10 years... Russian information warfare since March 2013, the Internet Research Agdncy working with Cambridge Analtyica doctors  https://www.facebook.com/konstantin.rykov/posts/10210643558675446 has induced self-harm and self-destruction withn the USA population. The Kremlin / Putin started this in Q2 2013 in prep for the Ukraine war and had mind-fucked the USA poppulation (We THe People, and politicians, and leaders, and everyday voters and social media users / website news section users https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/ No defense has been found, runaway falsehoods and fiction dominate USA mindsets since year 2013. We still have measles spreading from Russian Internet Research Agency manipulation of society. https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nfvuot/fight_at_the_conservative_protest_after_a_man/ndzed69/
+
+xtal000 2022-03-13
+
+"Let me get this straight. People are upset because Kirk said a lot of dumb words which resulted in violence. They view it as an attack on free speech.
+
+So when this man says some words they don’t like, the Kirk crowd resorts to… violence? Do these people really care about free speech or do they only advocate for it when it benefits them?"
+
+* :::=== RoundSparrow_Commentary : The free speech that doesn't get attention, repeating: Jesus 2000 years ago says "Love one another" and is executed, put to death. Martin Luther King Jr says "love one another" and put to death. Malala in Swat Valley Pokistan blogs about girls needing education, gets a bullet in her head on a school bus. John Lennon talks about 'Love one another" and gets a bullet. https://www.youtube.com/watch?v=gncyDkWWY_w  Free speech from Putin / Russian information warfare gets welcomed, *hate harder, *hate one another*, *hate thy neighbor* (Ukraine, Canada, Mexico negibhors, hate them), *hate thy enemy*, *self-harm the USA* - all that gets cheered and embraced when the IRA comes online in year 2013. People don't want to repeat Peter P, Christipher W, Neil Postman - on how Russian information warfare works, the psycological mechanics of media ecology. Freedom and democracy will not work if people prize war, prize hate, prize dehumanization. ===:::
+
 &nbsp;
 
 # Friday September 12, 2025
