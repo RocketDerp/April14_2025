@@ -86,6 +86,24 @@ Card_Representative 2020-07-09
 
 &nbsp;
 
+https://old.reddit.com/r/coolguides/comments/1nfyqwf/a_cool_guide_on_how_the_us_mediapoliticians/ne056ma/
+
+Lintashi 2019-09-08
+
+"It is about politics. Specifically american politics. Is a shooting happens in Russia, noone says "build the wall" or mentions BLM, right ? If shooting happens in Ethiopia, and it was made by a black person, do you think anyone says "it was cus BLM"? World is much bigger than USA, and this is not a guide, but politics mimicking as a guide."
+
+&nbsp;
+
+https://old.reddit.com/r/coolguides/comments/1nfyqwf/a_cool_guide_on_how_the_us_mediapoliticians/ne04eoy/
+
+pluralofjackinthebox  2019-03-27
+
+"Racial categories are political and social constructions.
+
+Levantine Jews and Arab Palestinians often belong to the same genetic Haploid group (ie J1, J2). Theyre categorized differently for political and social purposes."
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
