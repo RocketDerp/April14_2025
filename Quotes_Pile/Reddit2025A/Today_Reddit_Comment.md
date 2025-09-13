@@ -308,3 +308,13 @@ Conservative_Clown 2025-09-11 (created yesterday, new account, note meaning of n
 "I love it when the maga thumb suckers block people lol"
 
 * :::=== RoundSparrow_Commentary : Social media mockery track, laugh track for media. People are so incredibly amused and enteratined at the outcomes of Russian information warfare since March 2013. The Russian Internet Research Agency and what they have done to Reddit communities. https://www.bbc.com/news/technology-43301643 - there is an outright humor / funny-based addiction to Donald Trump / MAGA and Russian informaiton warfare in the population. Media addicts who do not want to remove Donald Trump from office and do cult deprogramming of MAGA Americans, because they are so thrilled how this White House 2025 situation is the most funny and amusing situation they have ever encountered. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng64md/charlie_kirk_shooter_tyler_robinson_was_a_diehard/ne1sh8j/
+
+FlipLoLz 2012-06-13
+
+"r/conservative is like the ultimate propaganda machine right now(more than normal). I know the leftist can get stuck in a circle jerk until the issues seem satirical, from time to time, but conservatives take this shit to another level. The projection going on over there. Those "facts" that don't give a fuck about our feelings aren't even in their favor on any of this, and the term "groyper" is nowhere to be found on that sub. I'm sure there's a fair number of Nick Fuentes followers over there.
+
+They cannot wrap their heads around one of their own doing this, even though some conservative nut jobs have already done a few assassinations and attempted assassinations this year. I think they forgot about those cause they just used them to take cheap shots at the victims. They're even more delusional than they accuse the liberals of being."
