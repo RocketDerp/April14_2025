@@ -969,3 +969,15 @@ Like you or I or anyone else on this page or Democrat that voted for Trump or an
 They were calling for an all-out civil war for what we did.. and what we did was absolutely nothing except say wait to find out who the shooter is because you may not like the answer and the world and our politics are infinitely more complex than they realize.
 
 I was on the conservative subreddit looking at all of their posts throughout the first day and the amount of angry posts talking about us saying that we're dumb and we don't understand what this will do to their base is completely absurd."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nficcr/charlie_kirk_shooting_suspect_doesnt_fit_magas/ndx05oz/
+
+TheLost_Chef 2021-05-08
+
+"I mean, to be fair, I think people did underestimate how this will affect the conservative base. They are idiots but they’re bloodthirsty idiots, looking for any excuse to exact revenge.
+
+It’s honestly a real problem, one that is really tough to address. Reaching out to these people doesn’t work - it never has. They’re entrenched in their hatred of democrats and liberals. But the second they detect any condescension or semblance of a threat, they all circle the wagons and vote as a block. Not to mention call for abject violence.
+
+You’re damned if you do, damned if you don’t. If you let them have their way then republicans will gleefully make everything worse just so that minorities can suffer. But if you try to resist then they lose their shit and claim to be oppressed. Then out come the guns."
