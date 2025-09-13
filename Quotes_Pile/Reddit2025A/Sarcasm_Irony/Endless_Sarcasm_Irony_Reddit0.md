@@ -241,3 +241,7 @@ https://old.reddit.com/r/CuratedTumblr/comments/1nesehy/idk_i_havent_watched_the
 Endless mockery, Total Mockery, is the techniques of the Russian Surkov students information warfare. Endless bak and forth, Americans mocking and amused and entertained at mocking Americans. This feedback looping has been going on since March 2013 when Putin media invasion started.   
 https://old.reddit.com/r/MurderedByWords/comments/1nf4ex0/make_it_make_sense/
 
+&nbsp;
+
+Irony / Absurd / Surreal behaviors over Charlie Clerk (media content creator, influencer) are staring media addicts of Reddit in the face - but people can not connect all this MAGA cult as a media cult to Putin's Internet Research Agency year 2013 / Cambridge Analytica media mind-fuck 2013 onward... people say "it is a cult" on Reddit, but when do they go to the public library and start posting on Reddit quotes from NON-FICTION books about cult behaviors and cult deprogramming? Charlie Kirk is a media cult, Fox News is a media cult, Reddit is a media cult, Twitter (Elon MUsk) is a media cult, Truth Social is a media cult, The Bible is a media cult!          
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/
