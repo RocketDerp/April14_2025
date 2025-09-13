@@ -318,3 +318,39 @@ FlipLoLz 2012-06-13
 "r/conservative is like the ultimate propaganda machine right now(more than normal). I know the leftist can get stuck in a circle jerk until the issues seem satirical, from time to time, but conservatives take this shit to another level. The projection going on over there. Those "facts" that don't give a fuck about our feelings aren't even in their favor on any of this, and the term "groyper" is nowhere to be found on that sub. I'm sure there's a fair number of Nick Fuentes followers over there.
 
 They cannot wrap their heads around one of their own doing this, even though some conservative nut jobs have already done a few assassinations and attempted assassinations this year. I think they forgot about those cause they just used them to take cheap shots at the victims. They're even more delusional than they accuse the liberals of being."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng64md/charlie_kirk_shooter_tyler_robinson_was_a_diehard/ne1r639/
+
+Colon 2010-01-05
+
+<img width="1498" height="1422" alt="image" src="https://github.com/user-attachments/assets/e7f5b18b-fbd0-4185-bc48-9743e02f0979" />
+
+&nbsp;
+
+"stop posting til we know more?! it’s almost like reddit should learn from this going the opposite way once the initial details settle half the time political violence happens.
+
+oh and something something Boston Marathon bomber…
+
+everybody acting like they’re not being grotesque salivating fools barking at some exaggerated funhouse mirror version of what the media wants you to believe is some “vast Other Side” - when really, it’s just 10-20% of the populous ruining the fabric of society from behind a keyboard, speaking for the rest of the 80-90% of the country who just wish you’d all simply put your keyboards down and go outside more often.
+
+holy christ do we deserve all that’s coming to us.. no one can admit they’re just mimicking each other’s terrible psychotic behavior simply cause there’s a branding difference between the two sides. 
+
+trees, meet the forest… been there the whole time, believe it or not."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1ng5m7a/if_charlie_kirk_had_been_a_liberal_activist/ne1y3gz/
+
+OnkelMickwald 2012-11-23
+
+"The fact that we got multiple fairly high-res videos of the bullet hitting his neck and blood gushing out does make a difference. The news gets shared more and more people engage with the news out of shock value and morbid fascination, which gives it more traction.
+
+Had Paul Pelosi been shot while several cameras were filming it, it would have also become much bigger than it became.
+
+**Edit**: lol the comments really bring the average redditor reading comprehension out on display. People really seem to think I'm saying that Republicans are lovely defenders of free speech or something to that effect. It's fucking weird."
