@@ -981,3 +981,13 @@ TheLost_Chef 2021-05-08
 It’s honestly a real problem, one that is really tough to address. Reaching out to these people doesn’t work - it never has. They’re entrenched in their hatred of democrats and liberals. But the second they detect any condescension or semblance of a threat, they all circle the wagons and vote as a block. Not to mention call for abject violence.
 
 You’re damned if you do, damned if you don’t. If you let them have their way then republicans will gleefully make everything worse just so that minorities can suffer. But if you try to resist then they lose their shit and claim to be oppressed. Then out come the guns."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nfnxo2/miller_the_power_of_law_enforcement_under/ndymsmt/
+
+bruxaakelarre 2025-01-03 (new this year)
+
+"There is really only one thing to know with republicans: they hate you and want you dead. Take all of your money and then enjoy your death."
+
+* :::=== RoundSparrow_Commentary : Thought-terminating idea. One and only one thing to know in a Twitter-length Tweet-thinking message. Why is it true only in USA, which is only 0.34 billion people out of a world of 8 billion people? Why is it constant messages since year 2013 when the Internet Researh Agency went online on social media that "the liberals" are all evil, the MAGA are all evil, and not any discussion of exactly what Cambridge Analytica doctors of psycholoogy manipulated in minds? Reactionary short-length Twitter messaging of simplistic us vs. them Americans hate Americans messages... also note the use of the world "really", as in reality, as in media messages off Reddit machines. Also promotes the idea that death is secretly enjoyable and that we are all missing out in a lifestyle of enjoying the death and suffering of other human people. A bullshit perspective on the meaning of "enjoy" itself, a terrorist thinking that people should be rescued from - not trated as an authentic grasp of joy "enjoy" meaning in life. Morality rot of what is actually enjoyable and goodness itself. ===:::
