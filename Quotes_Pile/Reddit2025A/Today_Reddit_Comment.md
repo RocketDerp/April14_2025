@@ -280,3 +280,21 @@ https://old.reddit.com/r/pics/comments/1ng2r4f/oc_a_march_from_philly_to_dc_is_h
 WillaBerble 2015-05-29
 
 "When I see too many American flags in a march, I get nervous. Three or four in a crowd that large indicates a rational group. When you have a 5:1 person to flag ratio and the flags have guns, bullets, eagles, are fake tattered, have phrases on them or anyone's face that's a crowd that is about 1 semi-enthusiastic speech from violence."
+
+&nbsp;
+
+https://old.reddit.com/r/mildlyinteresting/comments/1ng7dec/my_work_started_selling_maga_water/ne1z3mi/
+
+AlphaBreak 2016-11-08
+
+"I think a lot about how crazy it is that the market hasn't bottomed out with how many grifters are all targeting MAGA. You've got politicians, companies selling political merch, podcasters, and then just a bunch of scammers who got their hands on maga mailing lists because they know how easily duped they are."
+
+&nbsp;
+
+https://old.reddit.com/r/mildlyinteresting/comments/1ng7dec/my_work_started_selling_maga_water/ne1zrfi/
+
+Polemic-Personified 2025-07-15 (recent account)
+
+"It's an ethical choice. Yes, you can fleece these barrel-bottom idiots for all they are worth, but you are also amplifying and normalizing their extremism. Is the money worth the damage to the world? That's really the question.
+
+For me currently, the answer is no."
