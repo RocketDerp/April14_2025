@@ -1459,3 +1459,8 @@ https://old.reddit.com/r/JustGuysBeingDudes/comments/1nfdpgq/after_their_friend_
 
 September 12, 2025 - Russian and Kremlin information war techniques dominating Europe. The Surkov governing techniques drawing constant concentration of attention and focus on Putin / Trump antics governing / USA and Russia activities. Rewriting reality via media systems.     
 https://old.reddit.com/r/BuyFromEU/comments/1nfsov2/euronews_frontpage_is_just_constantly_recycled/
+
+&nbsp;
+
+Choice marriage honesty. Life skills. Cooking. Brain differences.    
+https://old.reddit.com/r/mildlyinfuriating/comments/1nfuq3e/how_my_boyfriend_opens_a_can_vs_how_i_open_them/
