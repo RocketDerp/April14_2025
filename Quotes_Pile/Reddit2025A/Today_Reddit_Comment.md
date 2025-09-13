@@ -42,6 +42,24 @@ The logic is infallible"
 
 &nbsp;
 
+https://old.reddit.com/r/PoliticalHumor/comments/1nfutuo/oh_i_get_it_now/ndz85k6/
+
+Nesyaj0 2012-05-20
+
+"It's not worth arguing with them. Ever.
+
+They're arguments are not in good faith.
+
+They have not reasoned themselves into their positions so there's no hope of using reason to convince them otherwise.
+
+I just want the fascist ouroboros to finish eating itself. Im really tired of having to deal with the fallout from tantrums from actual adult children.
+
+I've no fucks left to give for anyone right leaning."
+
+The anti-Malala attitude. The pro-Putin attitude. If Putin's informatin warfare, the Internet Research Agency, since March 2013 takes over the mindsets of United States of America - just give up! If The Church in year 1774 ruled over the King of England and blessed the King's rule with the fiction strotelling of Levant Bible - just give up! Don't use reason thinking reformation andd create a Decleration of Independence using thinking and language to change minds! Just GIVE UP on using reason thinking, don't be like the Founding Fathers of the USA in 1776 who worked together in a building on a written document explaining their ideas! Just *walk away* in simple response on We The People, human people, and let computer polarity logic take over minds from IRA social machine systems Kremlin information warfare. https://en.wikipedia.org/wiki/WalkAway_campaign "It's not worth arguing with them. Ever." - Palestine from Israel, Muslims aren't worth arguing with - they won't addopt our Torah and religion media systems! Reddit media systems users to American humans, not worth humanism! ===:::
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
