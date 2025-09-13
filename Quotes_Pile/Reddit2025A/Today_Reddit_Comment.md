@@ -823,3 +823,11 @@ The_Powers 2014-12-03
 "As soon as I heard about the shooting, I knew deplorable maniacs like this would be craving to indulge their twisted purge fantasies, even in the likely event the shooter was also on their side politically.
 
 The right are tediously predictable, such is the banality of evil."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndwhfgj/
+
+NorwegianCowboy 2019-11-26
+
+"A LOT of our fellow neighbors and coworkers just spent the last 33 hours screaming their loudest that they are in a cult and are eager to start murdering fellow Americans at the orders of an Authoritarian Fascist."
