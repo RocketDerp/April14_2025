@@ -179,3 +179,13 @@ Guataguano 2016-04-26
 "The most MAGA thing to happen right now is a MAGA leader getting shot by another MAGA supporter raised in a MAGA fuelled home then to blame everyone else BUT MAGA."
 
 &nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne155uz/
+
+coochie_clogger 2024-10-27
+
+"They’ve transitioned themselves…
+
+…transitioned to not really caring about the shooter anymore and calling for violence against anyone that is making jokes about the assassination.
+
+“Make comedy legal” amirite?? 🙃"
