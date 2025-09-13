@@ -813,3 +813,13 @@ Odd_Perfect 2025-03-16 (new this year)
 "Bro go to that one subreddit and they’re already talking about “That means nothing. He was indoctrinated by the left wing education and media. Doesn’t matter if his family was MAGA.” lmaoooo"
 
 * :::=== RoundSparrow_Commentary : Note the social media laugh track at the end of the message. Constant amusement and entertainment that the Russia information warfare, the Internet Research Agency, has induces self-harm mindsets into the population of USA. People in USA think it is hilarious and amusing that Americans lost a online meme war to Russians. We are in a runaway monomyths situation, runaway simulacras. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndw4e49/
+
+The_Powers 2014-12-03
+
+"As soon as I heard about the shooting, I knew deplorable maniacs like this would be craving to indulge their twisted purge fantasies, even in the likely event the shooter was also on their side politically.
+
+The right are tediously predictable, such is the banality of evil."
