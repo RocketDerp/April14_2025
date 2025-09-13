@@ -850,3 +850,10 @@ thejohnmc963 2019-01-18
 
 * :::=== RoundSparrow_Commentary : Nazi Germany 1933 attitude about information systems: Burrning books and magazines solved our problems, works great! Let's block messages and information systems we don't like, block out Wikipedia and block out the nonfiction section of the library so we can live in an Internet filter bubble! https://en.wikipedia.org/wiki/Filter_bubble Let Russian information warfare run undefended over American hearts and minds via the Internet meme systems since March 2013 and just hit the IGNORE BUTTON on our social machine and act like Putin isn't wirnning the war against NATO!  https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ with 5-word Twitter-length thinking that says "sticking your head in the sand works great!!!" - how long before the White House militerizes Reddit or there is a USA against USA invasion of Reddit / mass campagign against Bluesky and Reddit? ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndw470y/
+
+LongRangeReaper 2022-03-22
+
+"I bet if you call the cops, there's a good chance he'll answer the phone..."
