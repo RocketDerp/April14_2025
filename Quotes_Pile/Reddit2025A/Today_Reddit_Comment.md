@@ -30,6 +30,18 @@ Its such virtue signaling and an attempt at moral superiority and its really pat
 
 &nbsp;
 
+https://old.reddit.com/r/PoliticalHumor/comments/1nfutuo/oh_i_get_it_now/ndz6vwi/
+
+Car_is_mi 2016-11-18
+
+"Actually, A republican man shot and killed another republican man at a republican event in a republican state which has repeatedly voted against gun regulations and in fact put a law into place that allowed guns onto the college campus where the event happened.
+
+And yes, somehow all that is Democrats fault because they are evil baby blood drinking Satan worshipers who want everyone except illegal immigrants dead, which is why we must kill them all.
+
+The logic is infallible"
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
