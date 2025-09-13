@@ -140,6 +140,15 @@ They’re snowflakes who can’t handle the reality we live in so they have to m
 
 &nbsp;
 
+https://old.reddit.com/r/PublicFreakout/comments/1nfvuot/fight_at_the_conservative_protest_after_a_man/ndzynwh/
+
+ExaltedGoliath 2016-09-18
+
+"Well conservatives aren’t serious people, there would need a tectonic shift in their politics where they would need to embrace things that matter like you know… honor, good faith conversations, self reflection. It’s not going to happen in this climate and have written them off until they have it. I’ve been watching them do this for 10 years now, the goal post always moves."
+
+* :::=== RoundSparrow_Commentary : Reddit user describing watching Russia's win unfold for 10 years... Russian information warfare since March 2013, the Internet Research Agdncy working with Cambridge Analtyica doctors  https://www.facebook.com/konstantin.rykov/posts/10210643558675446 has induced self-harm and self-destruction withn the USA population. The Kremlin / Putin started this in Q2 2013 in prep for the Ukraine war and had mind-fucked the USA poppulation (We THe People, and politicians, and leaders, and everyday voters and social media users / website news section users https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/ No defense has been found, runaway falsehoods and fiction dominate USA mindsets since year 2013. We still have measles spreading from Russian Internet Research Agency manipulation of society. https://www.bbc.com/news/world-us-canada-45294192 ===:::
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
