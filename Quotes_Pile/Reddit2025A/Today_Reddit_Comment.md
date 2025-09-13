@@ -354,3 +354,11 @@ OnkelMickwald 2012-11-23
 Had Paul Pelosi been shot while several cameras were filming it, it would have also become much bigger than it became.
 
 **Edit**: lol the comments really bring the average redditor reading comprehension out on display. People really seem to think I'm saying that Republicans are lovely defenders of free speech or something to that effect. It's fucking weird."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ng269w/san_diego_navy_doctor_fired_after_rightwing/ne0qlgg/
+
+alternativepuffin 2021-08-21
+
+"This country is a fuckin joke"
