@@ -60,6 +60,20 @@ The anti-Malala attitude. The pro-Putin attitude. If Putin's informatin warfare,
 
 &nbsp;
 
+https://old.reddit.com/r/PoliticalHumor/comments/1nfutuo/oh_i_get_it_now/ndzncqe/
+
+&nbsp;
+
+https://old.reddit.com/r/coolguides/comments/1nfyqwf/a_cool_guide_on_how_the_us_mediapoliticians/ndzzeg4/
+
+ginghams 2013-01-12
+
+"Interesting how this post is actually about race but everyone is saying it's about politics..."
+
+* :::=== RoundSparrow_Commentary : Social media users of Reddit have been contioned by the Russian IRA informaiton warfare to hate fellow Americans and not fight back against Putin / Russia since March 2013. https://www.bbc.com/news/technology-43301643 Minds are twisted by the Kremlin War Against Reality to not comprehend and udnerstand the global NATO big picture. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/  ===:::
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
