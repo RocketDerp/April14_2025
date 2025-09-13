@@ -1449,3 +1449,8 @@ youtube.com/watch?v=tfnANe2YUwM
 
 Crisis out hole experience    
 https://old.reddit.com/r/comics/comments/1nefxbp/hotline_oc/
+
+&nbsp;
+
+Funeral Rituals, sports, Finnegans Wake     
+https://old.reddit.com/r/JustGuysBeingDudes/comments/1nfdpgq/after_their_friend_passed_away_these_guys_play/
