@@ -926,3 +926,10 @@ Sensitive-Initial 2019-12-26
 
 &nbsp;
 
+https://old.reddit.com/r/clevercomebacks/comments/1nfix7c/we_will_make_them_pay_i_mean_pray/ndwt7v6/
+
+thomport 2019-06-12
+
+"This lady was trashing everybody under the sun yesterday, without any evidence. Now she wants to share her thoughts and prayers with someone because she likes them. They are acceptable maga assassins.. She is another Maga phony.
+
+Didn’t see her send a caring word recently to the two people who were assassinated in Minnesota, a legislator and her husband, or the fire bombing of Josh Shapiro’s house in Pennsylvania. She didn’t care…"
