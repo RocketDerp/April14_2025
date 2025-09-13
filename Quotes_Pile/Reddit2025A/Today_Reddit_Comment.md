@@ -219,3 +219,21 @@ TheChickenParmy **2025-09-13 (new today)**
 "You need to look up "irony poisoning". https://en.wikipedia.org/wiki/Irony_poisoning They're fascists that use Bella Ciao because they broke their own brains and used it so frequently in an ironic fashion that it became a genuine part of them. It also serves the purpose of misdirecting from their activities and clouding conversations, as evidenced by people like you that aren't familiar with this.
 
 edit: Also, here is a picture https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Frh0omuvsyyof1.png of a Nick Fuentes supporter using Bella Ciao in their twitter name."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne1fplp/
+
+FlemPlays 2019-03-16
+
+"It’s essential for them since they’re at war with reality."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne0yzuo/
+
+Wiggly_Muffin 2012-07-27
+
+"The conservative subreddit is the funniest shit in the world right now, they’re trying to call him and his made up partner transgender, all while citing themselves. Their sources were all “many people” and anonymous 😂😂😂 Weren’t these clowns against using anonymous sources? ☠️"
+
+* :::=== RoundSparrow_Commentary : People are so incredibly amused and enteratined at the outcomes of Russian information warfare since March 2013. The Russian Internet Research Agency and what they have done to Reddit communities. https://www.bbc.com/news/technology-43301643 - there is an outright humor / funny-based addiction to Donald Trump / MAGA and Russian informaiton warfare in the population. Meia addicts who do not want to remove Donald Trump from office and do cult deprogramming of MAGA Americans, because they are so thrilled how this White House 2025 situation is the most funny and amusing situation they have ever encountered. ===:::
