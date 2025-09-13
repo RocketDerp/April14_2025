@@ -245,3 +245,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1nf4ex0/make_it_make_sense/
 
 Irony / Absurd / Surreal behaviors over Charlie Clerk (media content creator, influencer) are staring media addicts of Reddit in the face - but people can not connect all this MAGA cult as a media cult to Putin's Internet Research Agency year 2013 / Cambridge Analytica media mind-fuck 2013 onward... people say "it is a cult" on Reddit, but when do they go to the public library and start posting on Reddit quotes from NON-FICTION books about cult behaviors and cult deprogramming? Charlie Kirk is a media cult, Fox News is a media cult, Reddit is a media cult, Twitter (Elon MUsk) is a media cult, Truth Social is a media cult, The Bible is a media cult!          
 https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/
+
+&nbsp;
+
+The recnecy bias, disconnect from reality, surreal is right in front of everyone. Recency bias of not reacalling 3 months ago in the constant streamine meme amusement mills. Yet, people aren't taking the crisis seriously and recognizing that hte very power of Putin Kremlin and Trump White House is build on constantaly mentally overloading / over-stresing the information intake of We The People.  No defense has been found against SUrkovian governing technqiues, Putin has been in power for 25 years using these techniques on domestic Russia!   
+https://old.reddit.com/r/MurderedByWords/comments/1ng5s51/exactly_this/
