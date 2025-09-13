@@ -913,3 +913,16 @@ https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvrzne/
 macguini 2020-10-03
 
 "I don't understand why he deserved to die. I also don't understand why people are so obsessed over him. You want to die for a social media influencer?"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvyty3/
+
+Sensitive-Initial 2019-12-26
+
+"A Republican shot a Republican so now this other Republican is asking the Republican president to call a civil war? What a schizophrenic party."
+
+* :::=== RoundSparrow_Commentary : Russian information invasion convinced Americans to hate and harm Americans, widespread mass dehumanization abounds (cuts to heatlh care, alienating essential trade partners and neighbor nations, etc, etc) ... and nobody wants to take on an online war against Russia and defend and rescue Americans. see: https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+&nbsp;
+
