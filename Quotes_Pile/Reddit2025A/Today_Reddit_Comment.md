@@ -253,3 +253,13 @@ https://old.reddit.com/r/pics/comments/1ng2r4f/oc_a_march_from_philly_to_dc_is_h
 Sickpup831 2013-11-18
 
 "I said that about Trump when he wasn’t President. Stop flooding Reddit with pictures of this man. Stop writing news stories about him. When he’s president, I get it, we need to be in the know of what he’s doing. But 2020-2024 seemed like every single he said and did was front page news. Even if it was just to make fun of him, it still seemed like was overexposure."
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ng2r4f/oc_a_march_from_philly_to_dc_is_happening_right/ne1ciqz/
+
+Misternogo 2017-03-07
+
+"I'm gonna be really honest. As an American, when I see our flag now, I automatically assume it's fascists. I did look into it a little before judging or commenting, but seeing the flags made me automatically assume right wing."
+
+* :::=== RoundSparrow_Commentary : So many symbols have had their meaning inverted by the Russian Internet Research agency since March 2013. It is a mass mind crisis. ===:::
