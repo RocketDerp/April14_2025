@@ -518,3 +518,11 @@ Entertainment politics. Ronald Regan President as entertainer. Donald Trump Real
 
 The way to get social media viral coverage is to be erntertaining and upload to cloud computing systems.   
 https://old.reddit.com/r/GuysBeingDudes/comments/1nexecd/guys_being_dudes_in_the_middle_of_protest_nepal/
+
+&nbsp;
+
+### Automation arms race
+
+Automation arms race of CAPTCHA - scripted automation vs. interactive users.   
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1nflvhw/why_cant_robots_pass_catch_tests/
