@@ -1014,3 +1014,13 @@ Bravo_Obsessed 2020-09-21
 
 * :::=== RoundSparrow_Commentary : Trump and Putin White House and Kremlin provides consant humor-based entertainment to media addicts on social machines. Constatnly finding it funny, getting a chuckle, out of the media techniques of the White House and Truth Social. Endless source of amusement and mockery that Donald Trump inspires and concentrates! A society lead by absurd comedy, surreal funny, brains reset by laughter. Exactly as Neil Postman describes in the 1985 book "Amusing Ourselves To Death" ... constant social media engagement.
 “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nfnxo2/miller_the_power_of_law_enforcement_under/ndyfjn9/
+
+Dr_A_Mephesto 2020-05-10
+
+"This bitch had the audacity to mention fucking INSURRECTION as one of the charges they might use. Unreal."
+
+* :::=== RoundSparrow_Commentary :  Minds blown every hour in USA by Russian contradictory information techniques. Absurd and surreal blows the minds of We The People and then people become constant meme consumers of the Trump White House - unable to stand up to the absurd surreal mind exploits. We The People unable to see the constant mocking and laughter at antics politics. We The People unable to call for a halt to the dehumanizaiton via mockery and absurd mental states, invoking Neil Postman's library of media ecology teachings. Putin won, Surkov won, since March 2013. The weaponize message patterns just wipe-out forest perspective, people react-comment to each tree on social macihines day after day and do not see the mutliple NATO nations all describing the absurd sureal warfare since March 2013. https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible ===:::
