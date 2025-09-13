@@ -907,3 +907,9 @@ It's similar to how they behaved regarding talking about Fauci, they would alway
 It's because they have already been told the other side is at their level, and that's how they justify being there."
 
 &nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvrzne/
+
+macguini 2020-10-03
+
+"I don't understand why he deserved to die. I also don't understand why people are so obsessed over him. You want to die for a social media influencer?"
