@@ -884,3 +884,12 @@ raincntry 2015-07-26
 
 * :::=== RoundSparrow_Commentary : "How is it that..." -- "***This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book*** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvsbu6/
+
+FroyoIllustrious2136 2022-02-03
+
+"Because there is a large portion of Americans that have zero reasoning and critical thinking skills. They are guided by years and years of cultural authoritarianism where faith has been rewarded more than data.
+
+They do not care about facts. They only care about their subjective truths. Their religion is about power and conspiracy."
