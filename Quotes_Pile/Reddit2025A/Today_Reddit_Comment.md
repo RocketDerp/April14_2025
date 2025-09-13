@@ -18,6 +18,18 @@ AssCrackBandit10 **2025-09-09 (new account)**
 
 &nbsp;
 
+https://old.reddit.com/r/Music/comments/1nfv81d/coldplay_fans_disappointed_after_chris_martin/ndzhzhi/
+
+MonstrousGiggling 2015-03-18
+
+"I think thats the one of the biggest kickers to me. I called a friend out for posting a sympathy post. She didn't directly reply back to me but instead writes a follow up comment on her own post which addresses my call out by going "i didn't post about the 2 democrats who were shot because I never post about anything like this"
+
+And im just like...exactly! You never post political stuff yet took the time to defend THIS man? This man who would condemn you for having had an abortion as a teenager - which i didn't say but couldn't help thinking to myself.
+
+Its such virtue signaling and an attempt at moral superiority and its really pathetic to watch. Like yall ain't my friends let alone an ally to me or my loved ones."
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
