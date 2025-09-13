@@ -87,3 +87,5 @@ https://old.reddit.com/r/technology/comments/1nfkpfg/hegseth_says_pentagon_track
 
 https://old.reddit.com/r/technology/comments/1nfkpfg/hegseth_says_pentagon_tracking_service_members/
 
+Pizzacake criticism, the horror if cringe, media addicts not being serious about media addiction behaviors (visual medium / meme format / conflict format ruling society. Which Trum does with his Star Wars Hero pictures and other superman as Trump depictions).    
+https://old.reddit.com/r/whenthe/comments/1nfliwe/the_whiteknighting_is_crazy/
