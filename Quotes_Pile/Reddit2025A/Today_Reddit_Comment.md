@@ -272,3 +272,11 @@ https://old.reddit.com/r/pics/comments/1ng2r4f/oc_a_march_from_philly_to_dc_is_h
 Misternogo 2017-03-07
 
 "That's because actual, old school conservatives aren't part of MAGA. They're a rare breed at this point, but I still know several. And the American "Left" is still fairly right wing by the rest of the world's standards. The MAGA cult has massively skewed what most people think of when they hear "conservative." "
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1ng2r4f/oc_a_march_from_philly_to_dc_is_happening_right/ne1jnzx/
+
+WillaBerble 2015-05-29
+
+"When I see too many American flags in a march, I get nervous. Three or four in a crowd that large indicates a rational group. When you have a 5:1 person to flag ratio and the flags have guns, bullets, eagles, are fake tattered, have phrases on them or anyone's face that's a crowd that is about 1 semi-enthusiastic speech from violence."
