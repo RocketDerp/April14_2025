@@ -236,4 +236,12 @@ Wiggly_Muffin 2012-07-27
 
 "The conservative subreddit is the funniest shit in the world right now, they’re trying to call him and his made up partner transgender, all while citing themselves. Their sources were all “many people” and anonymous 😂😂😂 Weren’t these clowns against using anonymous sources? ☠️"
 
-* :::=== RoundSparrow_Commentary : People are so incredibly amused and enteratined at the outcomes of Russian information warfare since March 2013. The Russian Internet Research Agency and what they have done to Reddit communities. https://www.bbc.com/news/technology-43301643 - there is an outright humor / funny-based addiction to Donald Trump / MAGA and Russian informaiton warfare in the population. Meia addicts who do not want to remove Donald Trump from office and do cult deprogramming of MAGA Americans, because they are so thrilled how this White House 2025 situation is the most funny and amusing situation they have ever encountered. ===:::
+* :::=== RoundSparrow_Commentary : People are so incredibly amused and enteratined at the outcomes of Russian information warfare since March 2013. The Russian Internet Research Agency and what they have done to Reddit communities. https://www.bbc.com/news/technology-43301643 - there is an outright humor / funny-based addiction to Donald Trump / MAGA and Russian informaiton warfare in the population. Media addicts who do not want to remove Donald Trump from office and do cult deprogramming of MAGA Americans, because they are so thrilled how this White House 2025 situation is the most funny and amusing situation they have ever encountered. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne1ao7z/
+
+emporary_Insect8833 2025-06-02 (recent account)
+
+"When it's an anonymous source that confirms something they don't like and is fully vetted by the reporter it's fake. When it's a random dude who says they knew him four years ago and hasn't spoken to him since and then retracts the whole thing it's fine."
