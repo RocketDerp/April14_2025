@@ -158,7 +158,17 @@ xtal000 2022-03-13
 
 So when this man says some words they don’t like, the Kirk crowd resorts to… violence? Do these people really care about free speech or do they only advocate for it when it benefits them?"
 
-* :::=== RoundSparrow_Commentary : The free speech that doesn't get attention, repeating: Jesus 2000 years ago says "Love one another" and is executed, put to death. Martin Luther King Jr says "love one another" and put to death. Malala in Swat Valley Pokistan blogs about girls needing education, gets a bullet in her head on a school bus. John Lennon talks about 'Love one another" and gets a bullet. https://www.youtube.com/watch?v=gncyDkWWY_w  Free speech from Putin / Russian information warfare gets welcomed, *hate harder, *hate one another*, *hate thy neighbor* (Ukraine, Canada, Mexico negibhors, hate them), *hate thy enemy*, *self-harm the USA* - all that gets cheered and embraced when the IRA comes online in year 2013. People don't want to repeat Peter P, Christipher W, Neil Postman - on how Russian information warfare works, the psycological mechanics of media ecology. Freedom and democracy will not work if people prize war, prize hate, prize dehumanization. ===:::
+* :::=== RoundSparrow_Commentary : The free speech that doesn't get attention, repeating: Jesus 2000 years ago says "Love one another" and is executed, put to death. Martin Luther King Jr says "love one another" and put to death. Malala in Swat Valley Pokistan blogs about girls needing education, gets a bullet in her head on a school bus. John Lennon talks about 'Love one another" and gets a bullet. https://www.youtube.com/watch?v=gncyDkWWY_w  Free speech from Putin / Russian information warfare gets welcomed, *hate harder, *hate one another*, *hate thy neighbor* (Ukraine, Canada, Mexico negibhors, hate them), *hate thy enemy*, *self-harm the USA* - all that gets cheered and embraced when the IRA comes online in year 2013. People don't want to repeat Christopher Wylie, Adam Curtis, Peter Pomerantsev, Neil Postman - on how Russian information warfare works, the psycological mechanics of media ecology. Freedom and democracy will not work if people prize war, prize hate, prize dehumanization. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nfvuot/fight_at_the_conservative_protest_after_a_man/ndzqmqr/
+
+Masterofnone9 2011-09-04
+
+"They want to do whatever they make up no matter how unreasonable and everybody else can either conform and kiss their collective asses or suffer. They want total control without any accountability or consequences."
+
+* :::=== RoundSparrow_Commentary : "whatever they make up" - fiction. Truth Social is a fiction outlet. Elon Musk Twitter is a fiction outlet. Rupert Murdoch's Fox News is a fiction outlet. The Church with The Bible is a science fiction storytelling media venue / outlet. ===:::
 
 &nbsp;
 
