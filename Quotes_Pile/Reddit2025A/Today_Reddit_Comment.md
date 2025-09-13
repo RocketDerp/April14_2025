@@ -104,6 +104,14 @@ Levantine Jews and Arab Palestinians often belong to the same genetic Haploid gr
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1nfyy6h/charlie_kirks_allies_warn_americans_mourn_him/ne06ybi/
+
+DonManuel 2009-02-27
+
+"He's apparently the first Saint who must not be quoted or else."
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
