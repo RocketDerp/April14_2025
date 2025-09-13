@@ -1062,8 +1062,7 @@ craigferg 2015-12-23
 
 It's just a phenomenal Self Own!"
 
-* :::=== RoundSparrow_Commentary : Russian information warfare since March 2013, the Internet Research Agdncy working with Cambridge Analtyica doctors - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
- - has induced self-harm and self-destruction withn the USA population. The Kremlin / Putin started this in Q2 2013 in prep for the Ukraine war and had mind-fucked the USA poppulation (We THe People, and politicians, and leaders, and everyday voters and social media users / website news section users https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/ No defense has been found, runaway falsehoods and fiction dominate USA mindsets since year 2013. We still have measles spreading from Russian Internet Research Agency manipulation of society. https://www.bbc.com/news/world-us-canada-45294192 ===:::
+* :::=== RoundSparrow_Commentary : Russian information warfare since March 2013, the Internet Research Agdncy working with Cambridge Analtyica doctors  https://www.facebook.com/konstantin.rykov/posts/10210643558675446 has induced self-harm and self-destruction withn the USA population. The Kremlin / Putin started this in Q2 2013 in prep for the Ukraine war and had mind-fucked the USA poppulation (We THe People, and politicians, and leaders, and everyday voters and social media users / website news section users https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/ No defense has been found, runaway falsehoods and fiction dominate USA mindsets since year 2013. We still have measles spreading from Russian Internet Research Agency manipulation of society. https://www.bbc.com/news/world-us-canada-45294192 ===:::
 
 &nbsp;
 
@@ -1072,3 +1071,19 @@ https://old.reddit.com/r/worldnews/comments/1nfri6w/no_thanks_raided_south_korea
 tatofarms 2017-02-10
 
 "That Hyundai plant is/was a $12 billion+ project that the state of Georgia spent over a decade getting in place with South Korea. And then they used their own state troopers and department of corrections working with ICE to detain a bunch of contractors who were here with the "wrong" visas to set the place up. Everything about this is fucked up performative bullshit by this fucked up performative administration. And Brian Kemp is a coward for not doing anything to stop it or even speaking out against it."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nfri6w/no_thanks_raided_south_korean_workers_leave_us/ndyuwyk/
+
+Total-Leave8895 2021-11-24
+
+"I always wonder why people cling to these files so much. If they were released, what are the chances they are actually released in full and not modified?"
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nfri6w/no_thanks_raided_south_korean_workers_leave_us/ndyyqqa/
+
+No_Entrance9782 2025-07-13 (recent account)
+
+"Even smaller local manufacturers will feel this. If you spend hundreds of thousands on new equipment the supplier will send someone over to coordinate the installation. It can take around a month to prepare the site, install machinery, and train local workers. We always classify these activities as “business meetings” rather than work."
