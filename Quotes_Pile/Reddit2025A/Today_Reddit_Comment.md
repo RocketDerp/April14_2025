@@ -873,3 +873,14 @@ https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvuwbm/
 173slaps 2013-03-24
 
 "Just like every religions says, “We are a peaceful religion.” Just ignore that most wars in human history have religious connotations."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvr7ps/
+
+raincntry 2015-07-26
+
+"How is it that there are now countless right wing nut job videos out there where people are openly advocating murdering their political opponents, with literally nothing close to anything near comparable from the left, yet people are claiming the left is more violent?"
+
+* :::=== RoundSparrow_Commentary : "How is it that..." -- "***This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book*** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+
