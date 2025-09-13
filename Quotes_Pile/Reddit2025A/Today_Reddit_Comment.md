@@ -955,3 +955,17 @@ They are thirsty for bloodshed and have the guns necessary to go door to door to
 The shooter was a confirmed 22-year-old politically unaffiliated person who had a right-wing social media page and a 4chan account, yet they still act like it was the left that did it.
 
 They are frothing at the mouth for their Herschel Grynszpan so that MAGA can make Charlie Kirk or any other right-winger whom they deem a martyr into their own Ernst vom Rath to set off their own version of the Kristallnacht."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nficcr/charlie_kirk_shooting_suspect_doesnt_fit_magas/ndwx5xa/
+
+spcordy 2016-09-18
+
+"In the wake of the shooting the amount of videos that I saw yelling about "They..." Was ridiculous.
+
+Like you or I or anyone else on this page or Democrat that voted for Trump or anyone that ever dared say that Trump or Charlie Kirk were wrong about something. We're the ones that personally advocated and pulled the trigger for this to happen.
+
+They were calling for an all-out civil war for what we did.. and what we did was absolutely nothing except say wait to find out who the shooter is because you may not like the answer and the world and our politics are infinitely more complex than they realize.
+
+I was on the conservative subreddit looking at all of their posts throughout the first day and the amount of angry posts talking about us saying that we're dumb and we don't understand what this will do to their base is completely absurd."
