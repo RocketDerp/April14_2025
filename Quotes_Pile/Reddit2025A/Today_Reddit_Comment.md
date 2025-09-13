@@ -172,6 +172,14 @@ Masterofnone9 2011-09-04
 
 &nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne0z9ju/
+
+Guataguano 2016-04-26
+
+"The most MAGA thing to happen right now is a MAGA leader getting shot by another MAGA supporter raised in a MAGA fuelled home then to blame everyone else BUT MAGA."
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
@@ -1273,10 +1281,4 @@ AtomicBLB 2013-08-30
 These workers being asked to stay after what they went through has riled up the average South Korean even more than they already were. They're intensely mad over the treatment and that 'not sorry, but please train your replacements' makes the situation even worse. They don't have short memories and they won't risk this again for a long time."
 
 &nbsp;
-
-https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne0z9ju/
-
-Guataguano 2016-04-26
-
-"The most MAGA thing to happen right now is a MAGA leader getting shot by another MAGA supporter raised in a MAGA fuelled home then to blame everyone else BUT MAGA."
 
