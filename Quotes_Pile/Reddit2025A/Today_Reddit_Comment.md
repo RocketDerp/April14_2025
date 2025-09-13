@@ -831,3 +831,22 @@ https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndwhfgj/
 NorwegianCowboy 2019-11-26
 
 "A LOT of our fellow neighbors and coworkers just spent the last 33 hours screaming their loudest that they are in a cult and are eager to start murdering fellow Americans at the orders of an Authoritarian Fascist."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndwglq2/
+
+LandonDev 2014-03-28
+
+"If they had read Shakespeare they would have known, These violet delights have violet ends. I always knew they hated us but I did not know just how much they are seeking violence until today."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndwij8j/
+
+thejohnmc963 2019-01-18
+
+"Report and block works great!"
+
+* :::=== RoundSparrow_Commentary : Nazi Germany 1933 attitude about information systems: Burrning books and magazines solved our problems, works great! Let's block messages and information systems we don't like, block out Wikipedia and block out the nonfiction section of the library so we can live in an Internet filter bubble! https://en.wikipedia.org/wiki/Filter_bubble Let Russian information warfare run undefended over American hearts and minds via the Internet meme systems since March 2013 and just hit the IGNORE BUTTON on our social machine and act like Putin isn't wirnning the war against NATO!  https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ with 5-word Twitter-length thinking that says "sticking your head in the sand works great!!!" - how long before the White House militerizes Reddit or there is a USA against USA invasion of Reddit / mass campagign against Bluesky and Reddit? ===:::
+
