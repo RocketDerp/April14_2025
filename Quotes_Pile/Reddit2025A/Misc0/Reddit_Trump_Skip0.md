@@ -76,3 +76,14 @@ https://old.reddit.com/r/politics/comments/1nem1p2/russia_drone_incursion_in_pol
 
 Fox News - kill off the disabled. In addition to RFK Jr pro-disease.     
 https://old.reddit.com/r/law/comments/1nfmaks/foxs_kilmeade_suggests_killing_the_homeless/
+
+https://old.reddit.com/r/news/comments/1nfljg7/us_universities_uc_berkeley_shares_160_names_with/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nfo51n/what_happened_maga/
+
+https://old.reddit.com/r/AskReddit/comments/1nfkdv2/republicans_how_do_you_feel_that_your_president/
+
+https://old.reddit.com/r/technology/comments/1nfkpfg/hegseth_says_pentagon_tracking_service_members/
+
+https://old.reddit.com/r/technology/comments/1nfkpfg/hegseth_says_pentagon_tracking_service_members/
+
