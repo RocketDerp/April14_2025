@@ -865,3 +865,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvs0vc/
 Motor_Pollution231 2021-04-16
 
 "Idiots calling for a civil war"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nfe1tg/were_not_nazis/ndvuwbm/
+
+173slaps 2013-03-24
+
+"Just like every religions says, “We are a peaceful religion.” Just ignore that most wars in human history have religious connotations."
