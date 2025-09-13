@@ -941,3 +941,17 @@ https://old.reddit.com/r/clevercomebacks/comments/1nfix7c/we_will_make_them_pay_
 LilEddieDingle  2023-04-05
 
 "They politicize everything and then attack people for politicizing. So goddamn sick of these hypocrites."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nficcr/charlie_kirk_shooting_suspect_doesnt_fit_magas/ndwnt83/
+
+JDH-04 2022-08-15
+
+"They likely will do no introspection at all.
+
+They are thirsty for bloodshed and have the guns necessary to go door to door to murder anyone and everyone they think is "the left", so that they can get a pool of blood to pour in a cup to sip on.
+
+The shooter was a confirmed 22-year-old politically unaffiliated person who had a right-wing social media page and a 4chan account, yet they still act like it was the left that did it.
+
+They are frothing at the mouth for their Herschel Grynszpan so that MAGA can make Charlie Kirk or any other right-winger whom they deem a martyr into their own Ernst vom Rath to set off their own version of the Kristallnacht."
