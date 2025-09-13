@@ -1051,3 +1051,16 @@ Formal-Hawk9274 2025-03-09 (new this year)
 "fuk all these terrorist fuks- how this country supports this shit is beyond me."
 
 * :::=== RoundSparrow_Commentary :  Exactly. It is beyond people to escape the reaction-commenting addictions for over 10 years of Twitter-style reactionary responses. Beyond barking at individual trees on social machines and declaring a forest-wide crisis of mutliple NATO nations and learning and studying the specific and details of how Russian information warfare since March 2013 works. It is beyond people to go to the public library and get a book about Russian information warfare, cult deprogramming, and instead to just comment over and over in short messages that it is a cult, that it is terorism. People are not coming together to address the Fox News content crisis and educate media ecology by promoting Jen Senko's year 2015 film, and instead creating unique tiny little social machine comments hour after hour on different pages. Avoiding getting on the same page and making Jen Senko a household name in defense of a common cause of people not understanding or comrpehending the impact of media ecology ignroance. Wny can't social media make "The Little Guy" a household name? Why can Jen Senko be declared that a Baby Boomer stood up to Fox News and didn't go along with the peer *boomers*? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad The country supports mocking and insulting and reaction commenting in Twitter style over and over on pages of social media that disappear after 24 hours in the deluge of non-stop reaction commenting. This country supports everyone being on filter-bubble different pages and avoiding coming together that media itself / social media / is why people support this. The addiciton to reaction commenting is exaclty what Russian / Kremlin / Putin / Surkov students information warfare exploits! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nfri6w/no_thanks_raided_south_korean_workers_leave_us/ndyjjhu/
+
+craigferg 2015-12-23
+
+"What a disastrous image this sends to all international investment to the US in the near, and long term future! That single Hyundai battery company was supposed to employ 8,500 jobs in Georgia.
+
+It's just a phenomenal Self Own!"
+
+* :::=== RoundSparrow_Commentary : Russian information warfare since March 2013, the Internet Research Agdncy working with Cambridge Analtyica doctors - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+ - has induced self-harm and self-destruction withn the USA population. The Kremlin / Putin started this in Q2 2013 in prep for the Ukraine war and had mind-fucked the USA poppulation (We THe People, and politicians, and leaders, and everyday voters and social media users / website news section users https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/ No defense has been found, runaway falsehoods and fiction dominate USA mindsets since year 2013. We still have measles spreading from Russian Internet Research Agency manipulation of society. https://www.bbc.com/news/world-us-canada-45294192 ===:::
