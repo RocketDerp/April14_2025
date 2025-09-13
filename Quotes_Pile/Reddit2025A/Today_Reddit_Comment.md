@@ -197,3 +197,15 @@ https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_
 pinotberry 2016-10-03
 
 "I went down the rabbit hole and I’m convinced that the shooter was a follower of Nick. This is right on right violence."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_voted_for_trump_twice/ne1ghce/
+
+wikimandia 2015-08-19
+
+"Yes, they co-opted Bella Ciao to mock antifa. The same way they co-opted Pedobear to mock pedos. This whole meme culture is heavy on irony.
+
+A normie can’t understand what they are trying to say without understanding their language and memes, and even then it’s difficult because they are nihilists essentially and want to troll everyone.
+
+The groypers are loving that people think Tyler is a leftist."
