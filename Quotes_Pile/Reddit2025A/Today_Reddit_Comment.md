@@ -78,6 +78,14 @@ ginghams 2013-01-12
 
 &nbsp;
 
+https://old.reddit.com/r/coolguides/comments/1nfyqwf/a_cool_guide_on_how_the_us_mediapoliticians/ne04ol4/
+
+Card_Representative 2020-07-09
+
+"In this occasion any other race would have been the start of a Civil War. This was their chance, this was the moment it begun. The Mayor was praying it wasn't one of them, so now that it is....... nothing to see here please continue with life."
+
+&nbsp;
+
 # Friday September 12, 2025
 
 https://old.reddit.com/r/technology/comments/1neyi6s/we_should_put_our_phones_down_utah_governor_says/
