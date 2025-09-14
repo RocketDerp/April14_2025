@@ -1474,3 +1474,8 @@ https://old.reddit.com/r/BlueskySkeets/comments/1ng297k/only_certain_debates_are
 
 Drink gender roles. Irish stoutt beer.   
 https://old.reddit.com/r/TikTokCringe/comments/1ng8l5m/what_in_the_fragile_masculinity/
+
+&nbsp;
+
+Being able to setp into film, to step into cinema scenes, the ultimate Putin and Trump power of importing fiction and art into the heart of politics! "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - BBC, December 31 2014.           
+https://old.reddit.com/r/GuysBeingDudes/comments/1ngbifs/he_found_it/
