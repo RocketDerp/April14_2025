@@ -321,3 +321,11 @@ TheThng 2013-09-06
 "I am. I’m concerned about more than that. I’m worried that anything inconvenient to the narrative they have set is going to be buried and new facts made up to support it. They have all the cards about the investigation. No one actually knows anything except what they choose to release. So if they choose to release something alternative to what actually happened, who is to know?"
 
 * :::=== RoundSparrow_Commentary :  The Menace of Unreality. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ngskcq/miller_says_he_and_trump_will_use_law_enforcement/ne6swo6/
+
+Internet-Me 2018-06-19
+
+"They literally shoot themselves in the foot and blame the left for brainwashing them into accepting that they have to shoot themselves in the foot. It’s infuriating to watch unfold."
