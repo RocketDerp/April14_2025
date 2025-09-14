@@ -383,3 +383,21 @@ a_little_hazel_nuts 2023-03-14
 "Wow. Can you imagine knowing that smart people didn't like you and then telling your cult that. Wow."
 
 * :::=== RoundSparrow_Commentary :  Minds blown every hour in USA by Russian contradictory information techniques. Absurd and surreal blows the minds of We The People and then people become constant meme consumers of the Trump White House - unable to stand up to the absurd surreal mind exploits. We The People unable to see the constant mocking and laughter at antics politics. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nh21c8/trump_says_smart_people_dont_like_me/ne8jtct/
+
+Ausaevus 2025-01-24 (new this year)
+
+"To be honest... meaningless.
+
+People who are taking this as a 'win' saying *'he admitted it!'* are not considering reality.
+
+His followers do not care. He doesn't care. It has no impact on anything, and they had the majority of those who bothered to vote last time.
+
+I think anyone genuinely smart realized a long time ago that dumb people, or perhaps ignorant people more appropriately, are here to stay and are increasing in number.
+
+If they are not with you, you're going to lose."
+
+* :::=== RoundSparrow_Commentary : It is President Tony Clifton antics, people eat up mocking at the absurd behavior and lines. ===:::
