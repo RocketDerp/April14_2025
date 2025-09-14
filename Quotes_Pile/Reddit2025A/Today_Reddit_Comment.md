@@ -255,3 +255,11 @@ aFairyTookMyName 2024-07-05
 "That’s why they’ve done a damn good job over the last decade of convincing the populace that college education is idiotic (the amount of times I heard Trump supporters reference college educated commentators as ‘college educated idiots’)"
 
 * :::=== RoundSparrow_Commentary :  *They* being the Russian Internet Resarch Agency since March 2013 convicing Americans to self-harm with pro-ignorance attitudes, anti-Malala education promotion. Malala is not entertaining and amsuing like Donald Trump, the IRA has induced massive amusement-based entertainment-concerend addictions. Especially mocking and insulting considered the most improtant values for parents to teach thier children. Donald Trump as role model of society / parenting / business leadership / Truth Social values. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1ngug7u/trump_smart_people_dont_like_me/ne7cx7g/
+
+bbusiello 2016-06-18
+
+"If he had any modicum of intelligence, he’d probably realize that emotionally intelligent people don’t like them. Plenty of book smart people are fucking idiots."
