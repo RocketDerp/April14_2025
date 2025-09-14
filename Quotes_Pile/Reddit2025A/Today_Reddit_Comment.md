@@ -521,3 +521,27 @@ It really does feel like we’re finally reaping the rewards of several decades 
 * :::=== RoundSparrow_Commentary : Russia / Putin / Kremlin spelled it out to the whole world in December 2013 that gender topics / trans-gender / homosexual / women in society would be the central topic of their mass dehumanization and war, just weeks before the February 2014 Ukraine hot war invasion.
 December 20, 2013 By Brian Whitmore 
 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ "The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of the West's **"genderless and infertile"** liberalism" ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nghkfj/trump_shares_call_for_media_accountability_with/ne4a1z2/
+
+cartman2468 2012-02-11
+
+"Part of the problem is that disinformation has become so normalized and pervasive that those influenced by Fox News, the GOP, and other right-wing personalities are utterly convinced of their own correctness. It is cognitively impossible, for many of them, to recognize that they are wrong and that the figures they support embody the opposite of the values they claim to champion.
+
+What we are witnessing is a profound erosion of critical thinking, a phenomenon that social media has amplified and that opportunistic actors have deliberately exploited. The warning signs were present years ago: numerous mass shooters were found to have engaged with fringe extremist communities online. These groups succeed by fostering belonging, portraying their members as embattled minorities, and convincing them they are under existential threat.
+
+Scaled up, the same tactics now affect millions of ordinary Americans who sincerely believe they are dismantling a “deep state” and restoring democracy. In reality, their actions serve to undermine the very democratic institutions they think they are defending.
+
+At least, that’s my take on it."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nghkfj/trump_shares_call_for_media_accountability_with/ne4e1ua/
+
+werealldoomed47 2025-08-09 (recent account)
+
+"Dude if you're American you really need to take the bitter pill and start dealing with the fact that we're fucked. You need to deal with the fact that more than half of the news is going to suck but you need to watch/read it anyway. Remember pretty much all the news you can find is ran by billionaires that bought up every form of media in this country that wasn't broadcasting Brain Rot directly into you and your children's brains. I use news sources like Reuters, or the associated press (AP). They're actually new sources and are very dry, which helps with swallowing the daily chaos we need to stomach as Americans watching our country fail in real time.
+
+It's rough. Honestly the only reason I haven't had an at minimum local news worthy freakout come apart is I'm on such a high level if Zoloft I can't feel anything anymore."
