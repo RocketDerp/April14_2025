@@ -1,3 +1,18 @@
+# Sunday September 13, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ngr08o/nazi_group_patriot_front_marches_through/ne5v4ly/
+
+JPR_FI 2019-08-01
+
+"Frigging nazis getting bolder every day and instead of dealing with the issue leadership is fanning the flames. This will get worse before it gets better, nazis need to be shamed to hiding again."
+
+* :::=== RoundSparrow_Commentary : Sunday morning on Reddit, church lessons, church same them. It's perfectly OK to have hate people, but I want to be able to block them on social machines so I don't have to hear their hate. Nothing will ever go wrong that I have accepted hate in every day of my life, I just don't want this one Germany hate system to be able to speak or communicate. A filter-bubble of egoism that hate is perfectly fine in the world as long as it is my kind of anti-humanisn hate. That's the Reddit messaging of machine lust / worship of technology Reddit machines, to block and silence out the Nazi messages but perfeftly fine with Reddit hate of some other kind - as long as it isn't Germany organized hate groups from "over there". Hate of Fox News vs. Bluesky and Reddit vs. Facebook is welcome on Reddit, but not the Germany hate system of Nazi messages. Shallow and superficial egomania culture of worship hate, just particular which choices are made from the buffet of hate subreddits. "nazis need to be shamed to hiding again" - the only goal is that they are hidden from sight / hidden and underground, like secret Islamic terrorists, in hiding. The message is: set a very low low low measuirng bar of progress and reform. Don't listen to Malala and address the problems. Don't listen to MLK Jr and address the problems as a global issue. Just focus on the ones you don't personally find attractive. Short tiny Twitter-think logic about Russian information warfare. Russia has been feeding Nazi symbols for decades, as documented by Howard Bloom in his August 14, 2000 book (before September 11, 2001.. before MAGA and Trump). Techniques now adapted to the Internet Research Agency online Russian export... ... ...
+"On the other side of the religious divide stood the new Fundamentalists of Racial Purity and Christianity, whose leaders skillfully manipulated conformity enforcement mechanisms which impel us to pick on those who are different. Typical among these was a group called **Russian National Unity**, which claimed an army of 70,000, snapped up members at the age of nine, enrolled them in "military patriotic clubs," dressed them in fascist uniforms, gave them the insignia of the **swastika, taught them the Nazi** salute" - Global Brain: The Evolution of Mass Mind from the Big Bang to the 21st Century. Chapter: The Kidnap of Mass Mind. Page: 201. Howard Bloom. Published: August 14, 2000
+===:::
+
+
 # Saturday September 13, 2025
 
 &nbsp;
@@ -56,7 +71,7 @@ I just want the fascist ouroboros to finish eating itself. Im really tired of ha
 
 I've no fucks left to give for anyone right leaning."
 
-The anti-Malala attitude. The pro-Putin attitude. If Putin's informatin warfare, the Internet Research Agency, since March 2013 takes over the mindsets of United States of America - just give up! If The Church in year 1774 ruled over the King of England and blessed the King's rule with the fiction strotelling of Levant Bible - just give up! Don't use reason thinking reformation andd create a Decleration of Independence using thinking and language to change minds! Just GIVE UP on using reason thinking, don't be like the Founding Fathers of the USA in 1776 who worked together in a building on a written document explaining their ideas! Just *walk away* in simple response on We The People, human people, and let computer polarity logic take over minds from IRA social machine systems Kremlin information warfare. https://en.wikipedia.org/wiki/WalkAway_campaign "It's not worth arguing with them. Ever." - Palestine from Israel, Muslims aren't worth arguing with - they won't addopt our Torah and religion media systems! Reddit media systems users to American humans, not worth humanism! ===:::
+* :::=== RoundSparrow_Commentary :  The anti-Malala attitude. The pro-Putin attitude. If Putin's informatin warfare, the Internet Research Agency, since March 2013 takes over the mindsets of United States of America - just give up! If The Church in year 1774 ruled over the King of England and blessed the King's rule with the fiction strotelling of Levant Bible - just give up! Don't use reason thinking reformation andd create a Decleration of Independence using thinking and language to change minds! Just GIVE UP on using reason thinking, don't be like the Founding Fathers of the USA in 1776 who worked together in a building on a written document explaining their ideas! Just *walk away* in simple response on We The People, human people, and let computer polarity logic take over minds from IRA social machine systems Kremlin information warfare. https://en.wikipedia.org/wiki/WalkAway_campaign "It's not worth arguing with them. Ever." - Palestine from Israel, Muslims aren't worth arguing with - they won't addopt our Torah and religion media systems! Reddit media systems users to American humans, not worth humanism! ===:::
 
 &nbsp;
 
