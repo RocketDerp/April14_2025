@@ -212,6 +212,14 @@ Nondescriptish 2021-04-06
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1ngtxib/trump_smart_people_dont_like_me_no_shit_sherlock/ne6ispm/
+
+Dolsen0 2020-09-20
+
+"Trump supporters: he’s saying you guys aren’t smart. I know that’s hard to hear and probably even harder to understand but if smart people don’t like him….and if you DO like him that means you’re ……"
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
