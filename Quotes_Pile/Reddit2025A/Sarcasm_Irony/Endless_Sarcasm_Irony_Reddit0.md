@@ -271,3 +271,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1ngb0h6/conservatives_agree_wi
 
 The Reddit amusment mill, amusement center of meme content, will LOL LOL LOL LMAO at how hilarious it is to have surreal absurd behaviors on HDTV electric media systems (entertainment Fox News platform) as an out-group to mock in Trump fashion of total mocery and hate of out-groups.    
 https://old.reddit.com/r/BlueskySkeets/comments/1ngf1op/that_escalated_quickly/
+
+&nbsp;
+
+Absurd surreal Simpsons and Charlie Kirk      
+https://old.reddit.com/r/simpsonsshitposting/comments/1ngd99v/mods_what_is_wrong_with_you/
