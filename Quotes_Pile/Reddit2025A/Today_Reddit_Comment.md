@@ -94,6 +94,14 @@ TheNamesRang0 **2025-09-08 (new account)**
 
 &nbsp;
 
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne5vdi9/
+
+RadiantJaguar8030 2020-09-05
+
+"Don't forget about the botfarms run by Palantir, Blackrock, Blackstone, KKR, EQT AB, Carlyle Group, Apollo Global Management, Thoma Bravo, and CVC Capital Partners, Iran, North Korea, Brazil, and India."
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
