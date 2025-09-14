@@ -184,6 +184,16 @@ Courier-Se7en 2020-10-07 (Putins' Birthday)
 
 &nbsp;
 
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne5yy5r/
+
+Straight_Document_89 2020-11-08
+
+"That’s exactly what’s happening. Their bot machines are on full blast stoking the flames. Too bad the right wingers here are too stupid to realize that."
+
+* :::=== RoundSparrow_Commentary : Out-group stupid messages. Only "the others" have a problem with Russia Internet Research Agency since march 2013 messages constantly. ==:::
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
