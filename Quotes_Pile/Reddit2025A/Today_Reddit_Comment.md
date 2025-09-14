@@ -495,3 +495,11 @@ SCP-2774 2022-10-14
 Enjoy saying "release the Epstein files" while you can, folks. Also...Release the Epstein files."
 
 * :::=== RoundSparrow_Commentary :  Surkovian onion eater [Surkovian_Onion_Eating.md](Surkovian_Onion_Eating.md) . Entirely out of the loop that Russia information warfare is organized trolling, organized contradicitons. This has been gong on FOR OVER TEN YEARS AND TWO MONTHS, people keep thinking it is unintentional that Trump and Putin do this. "I swear we are living in one prolonged satirical sketch." is exactly how Surkovian governing runs Russia for 25 years. Adapted to Donald Trump and Reality TV  / Truth Social meme culture USA. Trump playing Tony Clifton antics politics, and he is not the only person doing so. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nghkfj/trump_shares_call_for_media_accountability_with/ne44kpu/
+
+g00fballer 2018-10-11
+
+"Fox News calling for retribution (before knowing the shooter's identity), and calling for "voluntary lethal injections" for the homeless. Maybe start there"
