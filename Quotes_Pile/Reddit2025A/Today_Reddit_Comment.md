@@ -484,4 +484,14 @@ https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/
 At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. **They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”**
 ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/technology/comments/1nghkfj/trump_shares_call_for_media_accountability_with/ne45f5e/
+
+SCP-2774 2022-10-14
+
+"I swear we are living in one prolonged satirical sketch. Donald "they're eating the cats and dogs" Trump is calling for media accountability. Biden's admin tried to implement a modern version of this and MAGA screeched for months about it.
+
+Enjoy saying "release the Epstein files" while you can, folks. Also...Release the Epstein files."
+
+* :::=== RoundSparrow_Commentary :  Surkovian onion eater [Surkovian_Onion_Eating.md](Surkovian_Onion_Eating.md) . Entirely out of the loop that Russia information warfare is organized trolling, organized contradicitons. This has been gong on FOR OVER TEN YEARS AND TWO MONTHS, people keep thinking it is unintentional that Trump and Putin do this. "I swear we are living in one prolonged satirical sketch." is exactly how Surkovian governing runs Russia for 25 years. Adapted to Donald Trump and Reality TV  / Truth Social meme culture USA. Trump playing Tony Clifton antics politics, and he is not the only person doing so. ===:::
