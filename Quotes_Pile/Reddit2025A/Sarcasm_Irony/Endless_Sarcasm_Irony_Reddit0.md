@@ -300,3 +300,8 @@ https://old.reddit.com/r/BlueskySkeets/comments/1ngs38m/wheres_the_lie/
 &nbsp;
 
 https://old.reddit.com/r/simpsonsshitposting/comments/1ngtelo/only_one_way_to_find_out_if_the_mods_are_nazis_or/
+
+&nbsp;
+
+The conditioned reactons, the IRA Russian mental programming, is very clear. People are compusively reacting in predictable ways.     
+https://old.reddit.com/r/BlueskySkeets/comments/1ngy41j/damn_right/
