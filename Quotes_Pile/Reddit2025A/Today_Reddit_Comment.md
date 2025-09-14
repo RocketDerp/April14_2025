@@ -545,3 +545,15 @@ werealldoomed47 2025-08-09 (recent account)
 "Dude if you're American you really need to take the bitter pill and start dealing with the fact that we're fucked. You need to deal with the fact that more than half of the news is going to suck but you need to watch/read it anyway. Remember pretty much all the news you can find is ran by billionaires that bought up every form of media in this country that wasn't broadcasting Brain Rot directly into you and your children's brains. I use news sources like Reuters, or the associated press (AP). They're actually new sources and are very dry, which helps with swallowing the daily chaos we need to stomach as Americans watching our country fail in real time.
 
 It's rough. Honestly the only reason I haven't had an at minimum local news worthy freakout come apart is I'm on such a high level if Zoloft I can't feel anything anymore."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nghkfj/trump_shares_call_for_media_accountability_with/ne48t9m/
+
+Jaschndlr 2012-11-17
+
+"We need a news channel that just depends all day mocking and debunking Fox in real time.
+
+Edit: I meant to say spends, but in the Trump era I'm leaving it"
+
+* :::=== RoundSparrow_Commentary :  That is describing Bluesky news network, Reddit news network.k All day every day "Leopards Ate My Face" mocking /insulting / name-calling, satire-washing, humor-washing, mockery-washing, comedy-washing, noramliing via jokes joke-washing how hilarious and funny that Donald Trump wears "Depends diapers" and poops, and how boring and uninteresting the USA government would be if intelligence, goodness, and compassion ran it. The media adicts who think the anser to Fox News mocking humanism is to rush to social machines and ad more and more mocking and dehumanization. Playing right intot he Russian Surkov governing schemeof anti-reality because media addicts think the answer to bullshit Fox News is to add more and more channels of bullshit. Avoiding nonfiction, avoiding nonfiction booksa and articles about how Russian informaiton warare works since year 2013. Avoidingleaerning about media ecology itslef and using social media to teach Neil Postman's book. Always faith that Trump lies should inspire the creation of new news networksof EVEN MORE lies. Never pormoting science and truth, just always calling for more trash memes and mockery news networks.  https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/===:::
