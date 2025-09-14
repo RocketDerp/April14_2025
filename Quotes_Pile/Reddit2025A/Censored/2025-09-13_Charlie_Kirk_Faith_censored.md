@@ -10,7 +10,7 @@ https://old.reddit.com/r/NoFilterNews/comments/1ng2v9p/maga_world_silenced_weve_
 
 > bro thinks 'the medium is the message' means the message is PAPER
 
-You need to dive much deeper into *Finnegans Wake* to grasp what Charlie Clerk did not grasp in 2021 when he started "Turning Point Faith" / "TPUSA Faith", the Charlie Kirk Bible systems.        
+You need to dive much deeper into *Finnegans Wake* to grasp what Charlie Kirk did not grasp in 2021 when he started "Turning Point Faith" / "TPUSA Faith", the Charlie Kirk Bible systems.        
 https://religionmediacentre.org.uk/news/charlie-kirk-from-secular-activist-to-christian-nationalist-icon/
 
 The message is not only the PAPER that Wake ( **Wokeness / Woke** ) is printed on but the paper The Holy Bible is printed on in Dublin.
