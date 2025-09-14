@@ -10,13 +10,6 @@ Published: August 14, 2000
 
 &nbsp;
 
->  they are emulating, it’s the ideals and the vibe.
-
-Their being fed Russian meme patterns. That's why I mentioned in the message you replied to Kremlin / Russia / mental manipulation.
-
-https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/
-
-
 &nbsp;
 
 On the other side of the religious divide stood the new Fundamentalists of Racial Purity and Christianity, whose leaders skillfully manipulated conformity enforcement mechanisms which impel us to pick on those who are different. Typical among these was a group called **Russian National Unity,** which claimed an army of 70,000, snapped up members at the age of nine, enrolled them in "military patriotic clubs," dressed them in fascist uniforms, **gave them the insignia of the swastika, taught them the Nazi salute,** drilled them in combat maneuvers, honed their marksmanship, and identified the target of their weapons in their anthem:
