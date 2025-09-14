@@ -102,6 +102,14 @@ RadiantJaguar8030 2020-09-05
 
 &nbsp;
 
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne6nwic/
+
+minnowmoon 2020-04-01
+
+"Where can I get more information on this? Has anyone done a deep dive on what disinformation they are pushing? I started reading On Disinformation but I’m also looking for a deeper look at corporate led disinformation campaigns."
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
