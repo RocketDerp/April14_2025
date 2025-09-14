@@ -291,3 +291,13 @@ demgoldencoins 2020-09-03
 "This is so true. Please insult me more, sir!
 
 I feel like I’m on the outside of a joke and I just cannot understand why people are like this and why the majority of Trump voters don’t understand that Trump doesn’t care about them and will decrease their quality of life ie farmers losing money, millions losing/reducing of health care. It’s outrageous."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ngskcq/miller_says_he_and_trump_will_use_law_enforcement/ne69nj6/
+
+RidiculousRex89 2020-03-29
+
+"Tell me again what law it is that the "left" violated that requires the use of law enforcement?
+
+Are the rights feelings law now?"
