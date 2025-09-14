@@ -357,3 +357,19 @@ BrtFrkwr 2023-12-31
 "They saw it coming. They made it happen. The effect a policy has is usually the reason for it's existence."
 
 * :::=== RoundSparrow_Commentary : People are still in deep denial that Trump is serving Russia with compusive self-harm to USA. Despite millions of people in USA demonstrating self-harm voting and self-harm media usage. Forcing Canada to be the 51st State and other attacks on NATO partners. Trump just met with Putin in Alaska in recent weeks and people still can't face up to the reality of the Kremlin War Against Reality https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1ngwcai/behold_the_patriots/ne79u6e/
+
+RiverAffectionate951 2021-07-31
+
+"Europe has failed to realise fascism wasn't a fad of the nazis it's a human quality.
+
+Oldest I can find of violent authritarianism through establishment of an underclass whose purpose is to be lesser and persecuted is ancient Sumeria who hated women. The Romans did it, the Catholic church did it, the British did it and the Nazis did it. This isn't new.
+
+Yet we have sat here and allowed fascists to incite hatred and develop a platform despite the fact that these people are the most deadly issue humanity has ever faced bar literal disease.
+
+This is a fundamental failure of democracy and is tantamount to institutional suicide. Fascists should be stripped of their media presences and their vote because 70% of the population shouldn't be persecuted and executed because 30% is hateful and insane.
+
+Keir Starmer and populist panderers have fundamentally failed as human beings. These fascists will kill anyone who stands against them if it is "acceptable" and so we must prevent their interference at all costs. No rights beneath my rights."
