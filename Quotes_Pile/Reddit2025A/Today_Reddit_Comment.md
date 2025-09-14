@@ -329,3 +329,13 @@ https://old.reddit.com/r/politics/comments/1ngskcq/miller_says_he_and_trump_will
 Internet-Me 2018-06-19
 
 "They literally shoot themselves in the foot and blame the left for brainwashing them into accepting that they have to shoot themselves in the foot. It’s infuriating to watch unfold."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nh0x06/the_art_of_the_deal/ne87516/
+
+reddittorbrigade 2024-07-19
+
+"Trump will put America into recession . He will blame Obama, Biden and Harris for his incompetence.
+
+Guess what. His dumb voters will 100% believe this evil person."
