@@ -245,3 +245,13 @@ Head_Bread_3431 2025-02-14 (new this year)
 "Learning is hard. I remember I took a class on Marxism *gasp* in college and the professor said at the beginning this class will be hard, and it was, but I learned a lot. Also took his class on American History where we studied the federalist papers the Declaration of Independence the constitution, the abolitionists, the civil war, the emancipation proclamation, reconstruction, Jim Crow, sncc, the civil rights movement, etc. It was all wild. it wasn’t what you get in high school. It challenged my preconceptions of the country and made me wanna make it better. These people wanna ignore this history and rewrite these accomplishments to keep things the same and take us backward"
 
 * :::=== RoundSparrow_Commentary : Spending all free time and spare time mocking and insutling, in a Total Mockery lead by Donald Trump and Putin's IRA, is much easier than nonfiction science learning. Supporting Malala's educaiton efforts since the release of her October 8, 2013 book. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1ngtxib/trump_smart_people_dont_like_me_no_shit_sherlock/ne6ndnr/
+
+aFairyTookMyName 2024-07-05
+
+"That’s why they’ve done a damn good job over the last decade of convincing the populace that college education is idiotic (the amount of times I heard Trump supporters reference college educated commentators as ‘college educated idiots’)"
+
+* :::=== RoundSparrow_Commentary :  *They* being the Russian Internet Resarch Agency since March 2013 convicing Americans to self-harm with pro-ignorance attitudes, anti-Malala education promotion. Malala is not entertaining and amsuing like Donald Trump, the IRA has induced massive amusement-based entertainment-concerend addictions. Especially mocking and insulting considered the most improtant values for parents to teach thier children. Donald Trump as role model of society / parenting / business leadership / Truth Social values. ===:::
