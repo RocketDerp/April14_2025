@@ -301,3 +301,13 @@ RidiculousRex89 2020-03-29
 "Tell me again what law it is that the "left" violated that requires the use of law enforcement?
 
 Are the rights feelings law now?"
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ngskcq/miller_says_he_and_trump_will_use_law_enforcement/ne6kxxo/
+
+surlysurfer 2015-05-19
+
+"You’re having better results than me. I get called disgusting and accused of being hateful and divisive for actually quoting the Kirk’s hateful and divisive comments
+
+He’s a good Christian and I’m pure evil."
