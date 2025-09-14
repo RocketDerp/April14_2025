@@ -1,6 +1,6 @@
 https://old.reddit.com/r/CringeTikToks/comments/1ngtxib/trump_smart_people_dont_like_me_no_shit_sherlock/ne7sohr/
 
-&nbps;
+&nbsp;
 
 &nbsp;
 
