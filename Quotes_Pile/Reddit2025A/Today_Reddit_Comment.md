@@ -460,3 +460,13 @@ They are looking to fuck your shit up.
 And unless y'all start fighting back, it looks like they're going to succeed."
 
 * :::=== RoundSparrow_Commentary : Russia and won, Pution won hearts and minds of Americans to self-harm the USA. Actiona after action, forcing Canada to become the 51st state information warfare in 2025, Greenland attacks, favoring Russia over Ukraine, anything to harm NATO and goodness itself. "We do not know whether Hitler is going to found a new Islam. (He is already on the way; he is like Mohammed. The emotion in Germany is Islamic; warlike and Islamic. They are all drunk with a wild god.)" - Dr. Carl Jung ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ng7wqa/gop_lawmaker_has_extreme_plan_for_those_who/ne2kj8z/
+
+Jijonbreaker 2014-02-25
+
+"Until they can provide a satisfactory answer to "Where was this outrage at all the dead and raped children?" they do not have the right to speak."
+
+* :::=== RoundSparrow_Commentary : Short-length Twitter-length messages saying: SILENCE THE OPPOSITION! Wanting everyone to adopt Russian Kremlin Putin values (talking points) of dehumanizing and silencing "the out groups". Silence the enemy, Americans hate upon Americans messages on Reddit machines. "they do not have the right to speak" messages. ===:::
