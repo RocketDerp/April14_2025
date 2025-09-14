@@ -263,3 +263,12 @@ https://old.reddit.com/r/Fauxmoi/comments/1ngug7u/trump_smart_people_dont_like_m
 bbusiello 2016-06-18
 
 "If he had any modicum of intelligence, he’d probably realize that emotionally intelligent people don’t like them. Plenty of book smart people are fucking idiots."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1ngug7u/trump_smart_people_dont_like_me/ne7bshg/
+
+Fishon888 2015-12-29
+
+"No, Donald Trump did not say in a 1998 Howard Stern interview that he would run as a Republican because they were "the dumbest group of voters" . The quote is fabricated and has been widely debunked."
+
