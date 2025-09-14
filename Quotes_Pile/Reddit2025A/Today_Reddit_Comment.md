@@ -408,3 +408,19 @@ GitmoGrrl1 2023-10-05
 Trump will round up the homeless and put them in camps. Out of sight, out of mind. And what goes on there will be unknown to the general public."
 
 &nbsp;
+
+https://old.reddit.com/r/law/comments/1ng7wqa/gop_lawmaker_has_extreme_plan_for_those_who/ne2uc0b/
+
+Aisenth 2013-05-21
+
+"Went to a christofash private "school" and "church" growing up. Dude, I don't know how to convince y'all that they have *always* fucking wanted the non cishet white fellow christofash people to die (or convert and mutilate themselves via things like chemical castration to be paraded around as evidence that it's worth being compliant).
+
+Seriously, people who didn't grow up in it, I don't know how to explain accurately how much a huge swath of your fellow Americans has always HATED you.... they stopped being able to easily go out and lynch whoever they wanted, but they never stopped wanting to and they resent having to hide their murdering in police and other "acceptable" modern American types of violence."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ng7wqa/gop_lawmaker_has_extreme_plan_for_those_who/ne2eu7h/
+
+pharsee 2021-05-29
+
+"Internet influencers should not be underestimated. There is a reason Trump wants to be buddies with people like Joe Rogan."
