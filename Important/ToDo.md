@@ -1489,3 +1489,8 @@ https://old.reddit.com/r/comics/comments/1ngd1n4/disconnected/
 
 Copyright catels, T-Shirt "Save Fair Use"    
 https://www.youtube.com/watch?v=8KQR4HBxqrs
+
+&nbsp;
+
+Rambo first film they tried to get back the film and burn it.    
+https://www.youtube.com/watch?v=AbFKplwHY2c
