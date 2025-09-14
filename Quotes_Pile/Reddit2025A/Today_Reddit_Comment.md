@@ -110,6 +110,22 @@ minnowmoon 2020-04-01
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne5vxbt/
+
+lola_dubois18 2019-05-27
+
+<img width="876" height="880" alt="image" src="https://github.com/user-attachments/assets/2a170222-bfc2-4f69-8908-68feba382206" />
+
+&nbsp;
+
+"I’ve been saying this for years. Everyone I work with is like, “She’s on the drugs”. It’ll be accepted one day."
+
+&nbsp;
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
