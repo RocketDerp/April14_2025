@@ -68,6 +68,14 @@ blasto2236 2014-03-19
 
 &nbsp;
 
+https://old.reddit.com/r/PublicFreakout/comments/1ngr08o/nazi_group_patriot_front_marches_through/ne61y29/
+
+HeyItsBobaTime 2018-07-24
+
+"I never thought I'd see the day where white people are tired of being marginalized, victimized, and overlooked in America. It must be so difficult being a white man in the states."
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
