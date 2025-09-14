@@ -362,3 +362,13 @@ https://old.reddit.com/r/news/comments/1ng269w/san_diego_navy_doctor_fired_after
 alternativepuffin 2021-08-21
 
 "This country is a fuckin joke"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1ng269w/san_diego_navy_doctor_fired_after_rightwing/ne0so8v/
+
+Kradget 2014-05-27
+
+"Imagine being a brain-fried jingoist who claims to value military power and readiness over all else and also being such a dipstick little bigot you intentionally get a qualified doctor pushed out of military service.
+
+Up there with the morons who got a bunch of people arrested at the Hyundai plant that was propping up a few counties' economies in Georgia and now every South Korean company is reevaluating the safety and wisdom of putting manufacturing here."
