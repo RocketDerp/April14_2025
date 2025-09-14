@@ -339,3 +339,11 @@ reddittorbrigade 2024-07-19
 "Trump will put America into recession . He will blame Obama, Biden and Harris for his incompetence.
 
 Guess what. His dumb voters will 100% believe this evil person."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nh0x06/the_art_of_the_deal/ne89t0a/
+
+Numerous_Photograph9 2021-01-29
+
+"Same, I said this was going to be exacty what happens, and they just killed any and all incentive to bring major manufacting to the US. The US itself doesn't have companies geared up to do this stuff, or even wanting to at scale and with the resources available, so in the end, we just get left out in the cold, while he con man goes on about how much of a deal maker he is."
