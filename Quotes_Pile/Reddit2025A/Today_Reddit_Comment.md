@@ -202,6 +202,16 @@ mockingbirddude 2023-04-01
 
 &nbsp;
 
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne69idb/
+
+Nondescriptish 2021-04-06
+
+"As soon as i saw those Confederate flags popping up all over the place, even in the north, I thought right away, Putin's propaganda is working on these dips. Putin is well-aware how to create divisions. Probably the same now in England. Flags hold special value and deep sentiment to certain impressionable people."
+
+* :::=== RoundSparrow_Commentary : I too witness outdoor public behavior changes and extensively traveld the USA in an RV. While studying the sitaution since 2015, I was living in Flordia / Orlando / Jacksonville. Massive behavior changes induced by the Russian Internet Research Agency and Cambridge Analytica pair. Donald Trump practically abandoned NYC, his home twon, to immerse in the Flordia society. https://www.palmbeachpost.com/story/news/2020/09/15/trumps-sale-palm-beach-mansion-gains-scrutiny-again/5798386002/ ===:::
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
