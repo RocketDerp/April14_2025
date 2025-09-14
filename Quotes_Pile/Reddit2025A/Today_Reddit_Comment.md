@@ -401,3 +401,15 @@ I think anyone genuinely smart realized a long time ago that dumb people, or per
 If they are not with you, you're going to lose."
 
 * :::=== RoundSparrow_Commentary : It is President Tony Clifton antics, people eat up mocking at the absurd behavior and lines. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1nh4c6m/just_remember_they_elected_this_guy/ne8xd4o/
+
+GarethGazzGravey 2022-11-07
+
+"As a (British) disabled person myself, this was the moment that I knew that Trump was a POS ableist. The fact that people not only laughed at this, but then voted for him (twice) showed me just how much this portion of Americans were also ableist POS.
+
+How this wasn't the end of Trump's campaign is still baffling to me."
+
+* :::=== RoundSparrow_Commentary : Trump situation baffels anyone who doesn't analyze and comprehend Surkov Russian governing methods, Kremlin informaiton warfare, Cambridge Analytica discoveries. ===:::
