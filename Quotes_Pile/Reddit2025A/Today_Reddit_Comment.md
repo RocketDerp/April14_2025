@@ -34,6 +34,18 @@ You're not "white" you're some type of European who came over here centuries ago
 
 &nbsp;
 
+https://old.reddit.com/r/PublicFreakout/comments/1ngr08o/nazi_group_patriot_front_marches_through/ne6eoai/
+
+t-mille 2011-11-12
+
+"Everyone is too afraid to do it because in unison, the conservative media, conservative law enforcement, conservative government, and conservative society will scream louder than anyone has ever heard before
+
+"THE LEFT IS RESPONSIBLE FOR ALL POLITICAL VIOLENCE IN AMERICA!!!!!!" "
+
+ :::=== RoundSparrow_Commentary : Social media users are complete cowards, lacking entirely in bravery. People just can't stand up to hate, they instead adopt hate as inspired by the massive success of Donald Trump and Truth Social dominating all other media systems. Hate Trump and Dehumanize Trump values adopted by everyone, just as the IRA conditioned social network users since year 2013. Cowards can't stand up against the mob mentality. They do numerical counting and won't stand up. People on Reddit and Bluesky hide their real names, hide there real life, won't stand up to assert real reality in the face of Putin's War Against Reality since March 2013. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
