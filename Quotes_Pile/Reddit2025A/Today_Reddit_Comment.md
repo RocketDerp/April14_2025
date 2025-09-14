@@ -424,3 +424,21 @@ https://old.reddit.com/r/law/comments/1ng7wqa/gop_lawmaker_has_extreme_plan_for_
 pharsee 2021-05-29
 
 "Internet influencers should not be underestimated. There is a reason Trump wants to be buddies with people like Joe Rogan."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ng7wqa/gop_lawmaker_has_extreme_plan_for_those_who/ne2mig9/
+
+ConfidentPilot1729 2020-10-21
+
+"They have been putting the influencers on a pedestal since his first term. Remember Rush? They are simply propagandists, but they can create familiarity with people and promote them to the status as hero for the cause. People feel like they know them personally, and when they die, feel like a best friend was lost to the ignorant. This is all part of the authoritarian pipeline."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ng7wqa/gop_lawmaker_has_extreme_plan_for_those_who/ne1yujp/
+
+MagicianHeavy001 2024-03-18
+
+"He was killed by a more right wing conservative. He wanted guns freely available and was ok with preventable tragedies being common because he believed the 2A says he can have unregulated access to guns (it doesn't, go read it).
+
+Honestly, they just want to lash out because they realize the murder is coming from inside the house."
