@@ -305,3 +305,8 @@ https://old.reddit.com/r/simpsonsshitposting/comments/1ngtelo/only_one_way_to_fi
 
 The conditioned reactons, the IRA Russian mental programming, is very clear. People are compusively reacting in predictable ways.     
 https://old.reddit.com/r/BlueskySkeets/comments/1ngy41j/damn_right/
+
+&nbsp;
+
+Compusive adoption of Russian War Agianst Reality.     
+https://old.reddit.com/r/fakehistoryporn/comments/1ngwqvk/charlie_kirks_alleged_assassin_tyler_robinson/
