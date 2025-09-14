@@ -266,3 +266,8 @@ https://old.reddit.com/r/BlueskySkeets/comments/1ngd6k0/not_the_america_it_used_
 
 Reddit describing paradox / absurd / surreal beahvior, yet unable to cite books about surreal Russian leadership techniques of year 2014 https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible (now used in USA year 2025) even with Trump recently meeting Putin in Alaska.     
 https://old.reddit.com/r/MurderedByWords/comments/1ngb0h6/conservatives_agree_with_dei_now/
+
+&nbsp;
+
+The Reddit amusment mill, amusement center of meme content, will LOL LOL LOL LMAO at how hilarious it is to have surreal absurd behaviors on HDTV electric media systems (entertainment Fox News platform) as an out-group to mock in Trump fashion of total mocery and hate of out-groups.    
+https://old.reddit.com/r/BlueskySkeets/comments/1ngf1op/that_escalated_quickly/
