@@ -46,6 +46,28 @@ t-mille 2011-11-12
 
 &nbsp;
 
+https://old.reddit.com/r/PublicFreakout/comments/1ngr08o/nazi_group_patriot_front_marches_through/ne5xepu/
+
+beeblehousin 2022-02-05
+
+" "getting more and more dangerous for us here"
+
+LOL it'll never not be fascinating to me that there are white men who think they're being oppressed."
+
+* :::=== RoundSparrow_Commentary : Reddit meme addicts find it so entertaining and amusing and funny what Russia has fed into minds with the Internet Research Agency since March 2013. As long as Reddit machines keep running to mock and LOL LOL LOL about it! Machine lovers of Reddit who are thrilled to see Americans suffering under Putin's win of the war. Millions of comments over and over LOL LOL LOL how facinating it is to watch the USA be wrecked by Kremlin's IRA since year 2013. Meme stupors abound. *Urake is opressing Russia* messags blow Reddit / Bluesky minds every time, ha ha ha ha LOL LOL people go when they hear that kind of electric message pattern of the IRA / CA. Russia's army of Reddit comment creators got people to trade heroes for electronic ghosts https://www.youtube.com/watch?v=ncaCLOHd90o with Reddit comment messages since year 2013 (before, building up to the Ukraine hot war in February 2014). ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1ngr08o/nazi_group_patriot_front_marches_through/ne62euw/
+
+blasto2236 2014-03-19
+
+"Persecution complexes seem to be really common with the religious right. I assume it has something to do with the crucifixion being such a cornerstone of Christianity."
+
+* :::=== RoundSparrow_Commentary : “The artist, the enema of society, points out things that many people would prefer not to notice.” — from the LP recording album of “The Medium is the Massage” by Marshall McLuhan, released by Columbia Records in March 1967 https://www.themediumisthemassage.com/the-record/ ===:::
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
