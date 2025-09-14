@@ -255,3 +255,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1ng5s51/exactly_this/
 
 https://old.reddit.com/r/BlueskySkeets/comments/1ng9c3n/mainstream_media_has_failed_us/    
 ONLY the mainsteram media. Reddit has been around since middle of year 2005, more than two decades. The Internet Research Agency invaded Reddit since year 2013, and people message that it is the *mainsteram* media ONLY. Truth Social is owned by Donald Trump / Elon Musk owns Twitter - the richest man in the worl with the media platform (Twitter) that all other media systems quote and screenshot. People don't even quesiton how Bluesky is funded and who is behind it. The reddit owners don't post public warnings of IRA Kremlin activities on Reddit and openly let hostile nations deply manipulation. Worst of all, any invocation of Neil Postman on Reddit gets ignored. Not front-page explaining the probelms of Fox Nwes (this Reddit posting I am commenting about references Fox News). Why isn't reddit making "the little guy" Jen Senko's 2015 film about Fox News a non-stop topic every 3 days since 2015 / March 2016 when it was wide release? Because amusement-washing at the Reddit humor mill of non-name accounts / hidden identity open to Kremlin is too busy joking and laughing at Donald Trump's performances of antics politics / Tony Cliftion techniques along with Surkov students of the Kremlin!   
+
+
+&nbsp;
+
+Reddit sharing more obvervations of surreal absurd media systems behavior, but unable to connect the dots with Russian techniques and name them.    
+https://old.reddit.com/r/BlueskySkeets/comments/1ngd6k0/not_the_america_it_used_to_be/
