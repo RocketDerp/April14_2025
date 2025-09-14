@@ -220,13 +220,21 @@ Dolsen0 2020-09-20
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/CringeTikToks/comments/1ngtxib/trump_smart_people_dont_like_me_no_shit_sherlock/ne6u05q/
 
 TheRiverOtter 2010-09-16
 
+<img width="868" height="554" alt="image" src="https://github.com/user-attachments/assets/e986da98-9148-4541-abd5-21ed8ee214ec" />
+
+&nbsp;
+
 "Trump gives everyone someone to look down on. Smart people look down on him and his cult. He and his cult look down on smart people. It’s why he’s so popular. He’s divisive in all the worst ways."
 
 * :::=== RoundSparrow_Commentary : President Donald Trump playing Tony Clifton captures everyone. Those who Hate the President Tony Clifton (acting / Reality Truth Social / Reality Twitter / Surkovian governing) and use social machines and conversations to mock and mock how terrible and bad Tony Clifton acts are. ===:::
+
+&nbsp;
 
 &nbsp;
 
