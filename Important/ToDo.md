@@ -1484,3 +1484,8 @@ https://old.reddit.com/r/GuysBeingDudes/comments/1ngbifs/he_found_it/
 
 Medium / media generations. Post-technology.   
 https://old.reddit.com/r/comics/comments/1ngd1n4/disconnected/
+
+&nbsp;
+
+Copyright catels, T-Shirt "Save Fair Use"    
+https://www.youtube.com/watch?v=8KQR4HBxqrs
