@@ -76,6 +76,14 @@ HeyItsBobaTime 2018-07-24
 
 &nbsp;
 
+https://old.reddit.com/r/PublicFreakout/comments/1ngr08o/nazi_group_patriot_front_marches_through/ne5y0jh/
+
+IamNullState 2024-12-05
+
+"So if Charlie Kirk's name is getting shouted by this extremist hate group-- it's safe to assume that he was apart of them? So not sure why people are still defending his legacy of hate when groups like this praise it. 🤷🏼"
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
