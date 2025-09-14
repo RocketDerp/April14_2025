@@ -84,6 +84,16 @@ IamNullState 2024-12-05
 
 &nbsp;
 
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne7523w/
+
+TheNamesRang0 **2025-09-08 (new account)**
+
+"Last week my Trumper coworker said "99% of the entire world supports Trump. It's only a few of you lunatics trying to destroy the country." Mind you, she's the only Trump supporter at my job."
+
+* :::=== RoundSparrow_Commentary : Social media coward society won't name actual corporations and real-life details to fact-check any of this or provide real context. A 5-day new Reddit account on a posting about Russia and China using social media to incite civil war. ===:::
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
