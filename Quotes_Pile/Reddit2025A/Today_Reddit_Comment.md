@@ -311,3 +311,13 @@ surlysurfer 2015-05-19
 "You’re having better results than me. I get called disgusting and accused of being hateful and divisive for actually quoting the Kirk’s hateful and divisive comments
 
 He’s a good Christian and I’m pure evil."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ngskcq/miller_says_he_and_trump_will_use_law_enforcement/ne6khpa/
+
+TheThng 2013-09-06
+
+"I am. I’m concerned about more than that. I’m worried that anything inconvenient to the narrative they have set is going to be buried and new facts made up to support it. They have all the cards about the investigation. No one actually knows anything except what they choose to release. So if they choose to release something alternative to what actually happened, who is to know?"
+
+* :::=== RoundSparrow_Commentary :  The Menace of Unreality. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
