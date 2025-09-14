@@ -526,3 +526,8 @@ https://old.reddit.com/r/GuysBeingDudes/comments/1nexecd/guys_being_dudes_in_the
 Automation arms race of CAPTCHA - scripted automation vs. interactive users.   
 
 https://old.reddit.com/r/Damnthatsinteresting/comments/1nflvhw/why_cant_robots_pass_catch_tests/
+
+### Star Wars 1977 film economics 
+
+An actor who got $100,000,000.00 for working on a single film - hundred of millions of dollars... as he knew the kind of technology entertainment, the props and space ship technology, would sell like the Jaws machine technology.    
+https://old.reddit.com/r/todayilearned/comments/1ngstu1/til_9_days_after_star_wars_opened_in_1977_alec/
