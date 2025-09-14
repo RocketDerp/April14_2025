@@ -174,6 +174,16 @@ Plenty of other more fruitful places to 'belong'."
 
 &nbsp;
 
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne6leoc/
+
+Courier-Se7en 2020-10-07 (Putins' Birthday)
+
+"I appreciate this type of post. Not nearly enough people realize those over the top bigoted comments on Instagram are more than likely a bot trying to normalize hatred."
+
+* :::=== RoundSparrow_Commentary : Reddit user not calling out Bluesky, Reddit, Twitter, Truth Social, etc. People thrilled at the entertainment, amusement of the situation. ===:::
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
