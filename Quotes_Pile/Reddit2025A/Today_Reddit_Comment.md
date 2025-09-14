@@ -272,3 +272,12 @@ Fishon888 2015-12-29
 
 "No, Donald Trump did not say in a 1998 Howard Stern interview that he would run as a Republican because they were "the dumbest group of voters" . The quote is fabricated and has been widely debunked."
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1ngug7u/trump_smart_people_dont_like_me/ne6z7bu/
+
+my_okay_throwaway 2017-10-11
+
+"He’s constantly insulting them and has consistently said things like this about the type of voters who worship him. You’re right, they always do try to turn it into some compliment or at least warp it into an insult for “the other side” to make themselves feel superior."
+
+* :::=== RoundSparrow_Commentary : NYC Tony Clifton act is to walk into the audiene and insult the audience members. Part of the improv an scripted blendding of the Infinite Jest enteratinment V. Putin and Trump has everyone bamboozled, addicted to the mocking Trump insutling Trump anti-truth Truth Social absurd surreal. Trump plays a great President Tony Clifton, people eat it up and refresh their social machines every hour. ===:::
