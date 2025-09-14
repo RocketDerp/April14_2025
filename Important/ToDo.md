@@ -1499,3 +1499,8 @@ https://www.youtube.com/watch?v=AbFKplwHY2c
 
 Multiple nations praising Putin and Trump and Musk agenda, Conservative International 2013 by Putin announcement.    
 https://old.reddit.com/r/comics/comments/1ngwcai/behold_the_patriots/
+
+&nbsp;
+
+Only category of helping people.    
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ngy1n0/our_reality/
