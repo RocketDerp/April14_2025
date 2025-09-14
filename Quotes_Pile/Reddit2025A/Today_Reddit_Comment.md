@@ -22,6 +22,18 @@ Fair_Fudge12 2021-08-03
 
 &nbsp;
 
+https://old.reddit.com/r/PublicFreakout/comments/1ngr08o/nazi_group_patriot_front_marches_through/ne5zywh/
+
+brianthegr8 2016-03-18
+
+"Exactly lol like they are so concerned about replacement when their ancestors don't even originate from here 😂 they literally went to another part of the world and started complaining that people dont look the same as me... brother well then go back to your country of origin.
+
+You're not "white" you're some type of European who came over here centuries ago so go back to Europe im pretty sure they need help repopulating some places anyway."
+
+* :::=== RoundSparrow_Commentary : Reddit meme addicts find it so amusing and funny what Russia has fed into minds with the Internet Research Agency since March 2013. As long as Reddit machines keep running to mock and LOL LOL LOL about it! Machine lovers of Reddit who are thrilled to see Americans suffering under Putin's win of the war. ===:::
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
