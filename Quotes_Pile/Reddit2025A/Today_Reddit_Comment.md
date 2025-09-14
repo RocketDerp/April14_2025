@@ -160,6 +160,19 @@ This has only gotten worse and will continue to do so."
 
 &nbsp;
 
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne5znyd/
+
+0DSavior 2025-08-28 (new this year)
+
+"This is what a lot of people don't realize. These countries (much like our own) have entire teams/programs dedicated to Psychological Operations. They study and have plenty of data on what is considered contentious subjects. Race, political affiliations all these things just waiting to be exploited. 
+
+And those that fall into these false narritives about race and political identities becoming part of you own personal identity... You are playing right into the hands of foreign adversaries.
+
+Furthermore, particularly on the political front... Politicians are not representing you - left or right - they are representing their own monetary interests. Do you know of a congressperson or someone who has been president thats not a multimillionaire? So tread with caution before you start fighting IRL or virtually online for any higher office people. Look at their actions, not their words and be smart. Don't fall into herd mentality. It's a trap no matter what side you are on.
+
+Plenty of other more fruitful places to 'belong'."
+
+&nbsp;
 
 # Saturday September 13, 2025
 
