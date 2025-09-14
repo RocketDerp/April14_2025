@@ -194,6 +194,14 @@ Straight_Document_89 2020-11-08
 
 &nbsp;
 
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne612yb/
+
+mockingbirddude 2023-04-01
+
+"Yes. I suspect that Reddit is the same way. I see a lot of posts calling for political violence or at least romanticizing or speaking fondly of it. I accuse them of being Ruzzian trolls and receive a handful of downvotes. I’ll continue doing the same."
+
+&nbsp;
+
 # Saturday September 13, 2025
 
 &nbsp;
