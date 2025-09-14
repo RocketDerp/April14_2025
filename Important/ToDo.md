@@ -1494,3 +1494,8 @@ https://www.youtube.com/watch?v=8KQR4HBxqrs
 
 Rambo first film they tried to get back the film and burn it.    
 https://www.youtube.com/watch?v=AbFKplwHY2c
+
+&nbsp;
+
+Multiple nations praising Putin and Trump and Musk agenda, Conservative International 2013 by Putin announcement.    
+https://old.reddit.com/r/comics/comments/1ngwcai/behold_the_patriots/
