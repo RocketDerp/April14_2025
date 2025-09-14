@@ -1469,3 +1469,8 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1nfuq3e/how_my_boyfriend_ope
 
 Block-happy behavior. Blocking ideas from message systems, books, magazines that confront egomania / egoism. Very big outcome of the IRA information warfare since March 2013. Charlike Kirk was a role model of blocking over fact-checking and reality in favor of Kremlin Twitter anti-reality (IRA warfare since March 2013 on Twitter - Kirk was a pro-Kremlin pro-disease supporter, manipualted by Russia's messages https://www.bbc.com/news/world-us-canada-45294192 )    
 https://old.reddit.com/r/BlueskySkeets/comments/1ng297k/only_certain_debates_are_valued_until_you_are/
+
+&nbsp;
+
+Drink gender roles. Irish stoutt beer.   
+https://old.reddit.com/r/TikTokCringe/comments/1ng8l5m/what_in_the_fragile_masculinity/
