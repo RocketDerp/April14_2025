@@ -373,3 +373,13 @@ Yet we have sat here and allowed fascists to incite hatred and develop a platfor
 This is a fundamental failure of democracy and is tantamount to institutional suicide. Fascists should be stripped of their media presences and their vote because 70% of the population shouldn't be persecuted and executed because 30% is hateful and insane.
 
 Keir Starmer and populist panderers have fundamentally failed as human beings. These fascists will kill anyone who stands against them if it is "acceptable" and so we must prevent their interference at all costs. No rights beneath my rights."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nh21c8/trump_says_smart_people_dont_like_me/ne8f5lm/
+
+a_little_hazel_nuts 2023-03-14
+
+"Wow. Can you imagine knowing that smart people didn't like you and then telling your cult that. Wow."
+
+* :::=== RoundSparrow_Commentary :  Minds blown every hour in USA by Russian contradictory information techniques. Absurd and surreal blows the minds of We The People and then people become constant meme consumers of the Trump White House - unable to stand up to the absurd surreal mind exploits. We The People unable to see the constant mocking and laughter at antics politics. ===:::
