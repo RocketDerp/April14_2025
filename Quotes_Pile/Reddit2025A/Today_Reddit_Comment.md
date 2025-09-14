@@ -442,3 +442,21 @@ MagicianHeavy001 2024-03-18
 "He was killed by a more right wing conservative. He wanted guns freely available and was ok with preventable tragedies being common because he believed the 2A says he can have unregulated access to guns (it doesn't, go read it).
 
 Honestly, they just want to lash out because they realize the murder is coming from inside the house."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ng7wqa/gop_lawmaker_has_extreme_plan_for_those_who/ne226zx/
+
+Far-Obligation4055 2024-02-22
+
+"I don't think they are going to let "legal/illegal" stop them.
+
+The wheels are in motion, the players are all on the stage, the shit is about to hit the fan...whatever analogy you prefer.
+
+But precedent is irrelevant here. They are bent on creating a new paradigm for the United States and will not be held back by common sense, morality, legality, decency, or reality.
+
+They are looking to fuck your shit up.
+
+And unless y'all start fighting back, it looks like they're going to succeed."
+
+* :::=== RoundSparrow_Commentary : Russia and won, Pution won hearts and minds of Americans to self-harm the USA. Actiona after action, forcing Canada to become the 51st state information warfare in 2025, Greenland attacks, favoring Russia over Ukraine, anything to harm NATO and goodness itself. "We do not know whether Hitler is going to found a new Islam. (He is already on the way; he is like Mohammed. The emotion in Germany is Islamic; warlike and Islamic. They are all drunk with a wild god.)" - Dr. Carl Jung ===:::
