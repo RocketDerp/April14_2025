@@ -296,3 +296,7 @@ Absurd surreal behavior on Reddit front page. A Bluesky message, a screenshot of
 
 Reddit society (which believes falsehoods like Bible society) is thrilled and thrilled at these paradox behaviors of mind-fucked IRA outcomes. Instead of using social media systems, spare time and free time, media addicts want the conflicts to continue because they are so addicted to the entertainment aspects of total mocery. Instead of using Reddit to teach bible literach of verse '1 John 4:20" to address the hate problem, people use Reddit to react-comment and LOL at amusement as Russia fucked ove their nation since year 2013.     
 https://old.reddit.com/r/BlueskySkeets/comments/1ngs38m/wheres_the_lie/
+
+&nbsp;
+
+https://old.reddit.com/r/simpsonsshitposting/comments/1ngtelo/only_one_way_to_find_out_if_the_mods_are_nazis_or/
