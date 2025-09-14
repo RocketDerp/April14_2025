@@ -320,7 +320,7 @@ TheThng 2013-09-06
 
 "I am. I’m concerned about more than that. I’m worried that anything inconvenient to the narrative they have set is going to be buried and new facts made up to support it. They have all the cards about the investigation. No one actually knows anything except what they choose to release. So if they choose to release something alternative to what actually happened, who is to know?"
 
-* :::=== RoundSparrow_Commentary :  The Menace of Unreality. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+* :::=== RoundSparrow_Commentary : The Menace of Unreality. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
 
 &nbsp;
 
@@ -347,3 +347,13 @@ https://old.reddit.com/r/BlueskySkeets/comments/1nh0x06/the_art_of_the_deal/ne89
 Numerous_Photograph9 2021-01-29
 
 "Same, I said this was going to be exacty what happens, and they just killed any and all incentive to bring major manufacting to the US. The US itself doesn't have companies geared up to do this stuff, or even wanting to at scale and with the resources available, so in the end, we just get left out in the cold, while he con man goes on about how much of a deal maker he is."
+
+&nbsp;
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nh0x06/the_art_of_the_deal/ne8a04o/
+
+BrtFrkwr 2023-12-31
+
+"They saw it coming. They made it happen. The effect a policy has is usually the reason for it's existence."
+
+* :::=== RoundSparrow_Commentary : People are still in deep denial that Trump is serving Russia with compusive self-harm to USA. Despite millions of people in USA demonstrating self-harm voting and self-harm media usage. Forcing Canada to be the 51st State and other attacks on NATO partners. Trump just met with Putin in Alaska in recent weeks and people still can't face up to the reality of the Kremlin War Against Reality https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
