@@ -276,3 +276,9 @@ https://old.reddit.com/r/BlueskySkeets/comments/1ngf1op/that_escalated_quickly/
 
 Absurd surreal Simpsons and Charlie Kirk      
 https://old.reddit.com/r/simpsonsshitposting/comments/1ngd99v/mods_what_is_wrong_with_you/
+
+&nbsp;
+
+There was an attempt to feel *shocked* that spreading Hate generates Hate.    
+Americans have zero self awareness that they are a nation of 0.34 billion people full of technological arrogance, more news networks and meme networks than all word history, spreading hate and dehuamnization to a planet Earth of over 8 billion people. Only 0.34 billion out of 8 billion. Constantly spreading hate Trump, dehumanization Trump, spreading mocking Trump, spreading bullshit Trump all over every media systems Americans can lay their hand on. Promoting hate, promoting dehumanization, promoting superiority of Americans on every media system possible. Since year 2013, Americans and Russia have cheered on hate, make hate the message on every messaging machine / meme machine / social machine / news machine. The hate of humanism with the promotion of Trump hate / Trump mockery / Trump dehumanization FOR OVER TEN YEARS, day after day, consatntly in media.  And Americans are going to behave *shocked* that the rest of the world has had enough of Trump Ameircan hate, bullshit, falsehoods, lies, anti-humaisn, anti-love and pro-disease RFK Jr, pro-hate Pentagon, pro-hate Truth Social, pro-hate Americans are better tahn all the rest of the world bullshit Trump messaging systems.    
+https://old.reddit.com/r/therewasanattempt/comments/1ngl3qo/to_feel_shocked_that_charlie_kirk_got_shot/
