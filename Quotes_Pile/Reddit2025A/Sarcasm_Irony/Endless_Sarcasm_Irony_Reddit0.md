@@ -291,3 +291,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1ngjtdt/george_takei_with_a_friendly_r
 &nbsp;
 
 Absurd surreal behavior on Reddit front page. A Bluesky message, a screenshot of a Bluesky message. You know what they do on Bluesky to "snitch" on peers / everyday Americans, they create mass block lists. They surveil and report people they disagree with and create named lists of undesirable human people to block and deport / report to ICE / report to Bluesky newcomers via the Bluesky machine servers. They create lists of undesirables people on Bluesky and snitch on people for sharing ideas - and cheer on and brag about how they block undesirables. Irony poisoning / democracy equality poisoning by media environment tools / machine environment of tools for mass deportation / machine mass dehumanize "the others" and mass targeting for newcomers to automatically block thousands or millions of unwanted Americans.     https://old.reddit.com/r/BlueskySkeets/comments/1ngpxu5/exactly_people_are_snitching_doxxing/
+
+&nbsp;
+
+Reddit society (which believes falsehoods like Bible society) is thrilled and thrilled at these paradox behaviors of mind-fucked IRA outcomes. Instead of using social media systems, spare time and free time, media addicts want the conflicts to continue because they are so addicted to the entertainment aspects of total mocery. Instead of using Reddit to teach bible literach of verse '1 John 4:20" to address the hate problem, people use Reddit to react-comment and LOL at amusement as Russia fucked ove their nation since year 2013.     
+https://old.reddit.com/r/BlueskySkeets/comments/1ngs38m/wheres_the_lie/
