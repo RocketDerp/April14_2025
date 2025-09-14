@@ -126,6 +126,41 @@ lola_dubois18 2019-05-27
 
 &nbsp;
 
+https://old.reddit.com/r/Astuff/comments/1ngqsby/how_apropos_seen_on_twitter/ne677hc/
+
+SomewhereRough_ 2025-02-09 (new this year)
+
+"It's actually well established, even by the FBI:
+
+Russian influence enabled the extreme media coverage (making things seem worse, etc.) that is now being used by US media as it has been shown to work for ads, etc. so the Russian seeds have worked.
+
+There was real evidence for influence in 2016:
+
+https://en.wikipedia.org/wiki/Russian_interference_in_the_2016_United_States_elections
+
+https://en.wikipedia.org/wiki/Links_between_Trump_associates_and_Russian_officials_and_spies
+
+"The FBI's work was taken over in May 2017 by former FBI director Robert Mueller, who led a special counsel investigation until March 2019.[8] Mueller concluded that Russian interference was "sweeping and systematic" and "violated U.S. criminal law", and he indicted twenty-six Russian citizens and three Russian organizations."
+
+This one I haven't read, but if the citations are sound it's comprehensive:
+
+https://github.com/mfreeze77/DJT/tree/main
+
+Some very interesting info courtesty of u/Speffers98:
+
+https://en.wikipedia.org/wiki/Internet_Research_Agency - "...Russian company which was engaged in online propaganda and influence operations on behalf of Russian business and political interests"
+
+https://en.wikipedia.org/wiki/Fancy_Bear - "Russian cyber espionage group. American cybersecurity firm CrowdStrike has stated with a medium level of confidence that it is associated with the Russian military intelligence agency"
+
+https://nationalpost.com/news/world/a-russian-troll-farms-most-viewed-facebook-ad-wasnt-about-trump-it-promoted-u-s-law-enforcement - this is interesting. It's Russian troll farms pretending to fight each other online "left v right", etc.
+
+https://money.cnn.com/2017/09/28/media/blacktivist-russia-facebook-twitter/index.html - same as above but with black rights.
+
+This has only gotten worse and will continue to do so."
+
+&nbsp;
+
+
 # Saturday September 13, 2025
 
 &nbsp;
