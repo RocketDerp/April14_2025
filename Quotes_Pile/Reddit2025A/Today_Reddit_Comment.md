@@ -470,3 +470,18 @@ Jijonbreaker 2014-02-25
 "Until they can provide a satisfactory answer to "Where was this outrage at all the dead and raped children?" they do not have the right to speak."
 
 * :::=== RoundSparrow_Commentary : Short-length Twitter-length messages saying: SILENCE THE OPPOSITION! Wanting everyone to adopt Russian Kremlin Putin values (talking points) of dehumanizing and silencing "the out groups". Silence the enemy, Americans hate upon Americans messages on Reddit machines. "they do not have the right to speak" messages. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1ngehwv/just_kill_em_fox_hosts_sick_suggestion_for/ne3etq0/
+
+AFewBerries 2021-08-20
+
+"I'm scared the purge movies will be real one day"
+
+* :::=== RoundSparrow_Commentary :  Ficiton outsells nonfiction. Putin and Trump / Kremlin and White House are based on creating anti-relaity fiction patterns, turning previous fiction films and ideas into leadership signals and values. Especally self-harm and self-destruction of USA, anti-humanism, pro-hate, pro-dehumanization. Trump provides entertainment to people who value hate and mockery, mocking Trump is not resisting Trump. Surkovian governing exploits resistance that engages in mocking / insulting / name-calling / absurd comedy / surreal humor. No defense has been found against this Russian information warfare technique. ... ... .. 
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/
+At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. **They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”**
+===:::
+
+
