@@ -388,3 +388,23 @@ https://old.reddit.com/r/WorkReform/comments/1ng9j7s/american_exceptionalism/ne2
 badwolf496 2017-07-22
 
 "Same, I was just diagnosed with cancer, but when the divorce is finalized I will be losing the insurance, I’ve decided to just live my best life, without medical intervention, for as long as I have left. I’m 37 and would rather die than be millions in debt."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ng7wqa/gop_lawmaker_has_extreme_plan_for_those_who/ne20h6s/
+
+FuguSandwich 2015-10-11
+
+"They're trying to make him into a martyr and use it to justify all sorts of batshit insane stuff to eliminate the opposition."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ng7wqa/gop_lawmaker_has_extreme_plan_for_those_who/ne2amd3/
+
+GitmoGrrl1 2023-10-05
+
+"The Nazis murders started with the mentally ill. When nobody complained, they moved on to other groups.
+
+Trump will round up the homeless and put them in camps. Out of sight, out of mind. And what goes on there will be unknown to the general public."
+
+&nbsp;
