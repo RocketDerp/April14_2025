@@ -503,3 +503,21 @@ https://old.reddit.com/r/technology/comments/1nghkfj/trump_shares_call_for_media
 g00fballer 2018-10-11
 
 "Fox News calling for retribution (before knowing the shooter's identity), and calling for "voluntary lethal injections" for the homeless. Maybe start there"
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nghkfj/trump_shares_call_for_media_accountability_with/ne4g156/
+
+tophmcmasterson 2013-10-20
+
+"Not just that but literally top headline. I peak over at the conservative subreddit once in a while to see how crazy things are, it’s just wall to wall that story. They just can’t help themselves, any whiff of the word trans and it’s like piranhas to blood in the water.
+
+It can’t just be a crazy terminally online troll with mental health issues who got pushed over the edge by hateful rhetoric. Can’t be the actions of an individual. Has to be some left wing conspiracy, everyone who doesn’t love Trump wants them dead because they have different opinions.
+
+And then you see them saying conservatives are better critical thinkers, they don’t get radicalized as easily, don’t live in pecho chambers like the left, don’t get violent.
+
+It really does feel like we’re finally reaping the rewards of several decades of rampant anti-intellectualism."
+
+* :::=== RoundSparrow_Commentary : Russia / Putin / Kremlin spelled it out to the whole world in December 2013 that gender topics / trans-gender / homosexual / women in society would be the central topic of their mass dehumanization and war, just weeks before the February 2014 Ukraine hot war invasion.
+December 20, 2013 By Brian Whitmore 
+https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ "The Kremlin leader's full-throated defense of Russia's "traditional values" and his derision of the West's **"genderless and infertile"** liberalism" ===:::
