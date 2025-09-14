@@ -380,3 +380,11 @@ https://old.reddit.com/r/news/comments/1ng269w/san_diego_navy_doctor_fired_after
 GuttiG 2017-12-19
 
 "We live in the most braindead period of history"
+
+&nbsp;
+
+https://old.reddit.com/r/WorkReform/comments/1ng9j7s/american_exceptionalism/ne2sf5w/
+
+badwolf496 2017-07-22
+
+"Same, I was just diagnosed with cancer, but when the divorce is finalized I will be losing the insurance, I’ve decided to just live my best life, without medical intervention, for as long as I have left. I’m 37 and would rather die than be millions in debt."
