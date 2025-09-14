@@ -565,3 +565,11 @@ https://old.reddit.com/r/technology/comments/1nghkfj/trump_shares_call_for_media
 Dismal_Consequence_4 2020-08-17
 
 "Not only homeless people, on the same breath they said that also disable people and mentally ill people should get the lethal injection."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nghkfj/trump_shares_call_for_media_accountability_with/ne45vbu/
+
+RecipeSpecialist2745 2022-06-08
+
+"The far right is exempt from scrutiny. That’s his position. The government doesn’t make mistakes. They aren’t responsible for the economy atm. It’s the leftist terrorists, the Biden government, it’s Obamas fault because he was black."
