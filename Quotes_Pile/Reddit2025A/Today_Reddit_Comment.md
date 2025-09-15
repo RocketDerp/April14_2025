@@ -560,3 +560,14 @@ illusionzmichael 2024-07-15
 "A clown to us for sure, but she doesn't see it that way. The performance is all that matters even though it's ridiculous to normal people, because the people that support her aren't bright enough to get that it's just a performance meant to rile them up to make them more pliable."
 
 * :::=== RoundSparrow_Commentary : September 2025 social media addicts make statements like this in the stream of comments without citing a single author or book on the subjects. Inviting everyone else to just make wild claims without detailed analysis and comprehensive understanding. Why can't Neil Postman be cited on media ecology? Christopher Wylie, Peter Pomerantsev? People are behaving anti-book (nonfiction) entertainment addicts who can't face their own Trump addiciton to mockery and hate magnet Trump. People can't see how Donald Trump on Truth Social has set the standard of citation and bar for measuring nonfiction to all bullsht and fiction. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nhna2g/dave_portnoy_said_donald_trump_played_a_huge_part/ned7g9h/
+
+Tuttutsallaround 2025-07-13 (recent account)
+
+"It’s why the cult loves him. He’s a petty bully like most of them were and would be again if society let them. They used to be localized to terrorizing only their regular drinking spot, work, or home. Now since the internet became so simple to use even idiots can easily navigate it, they have a village of village idiots. And a golden god of village idiots"
+
+* :::=== RoundSparrow_Commentary : This message entirely ignores multiple NATO nations all reporting since year 2013 an Internet media invasion. Even Japan this year. July 15, 2025: https://asia.nikkei.com/politics/international-relations/russia-intensifies-propaganda-operations-in-japan - people are so fixated on Donald Trump they can not see this goes back to November 7, 2012 agreement to create the IRA. People are drowning their own selves in constant media consumption addiction for low-effort trash comments trashing Americans and eating Russian mindsets. No effort to teach cult deprogamming, ficiton addiciton treatment plans, no concern to Rescue USA from Russia win. ===:::
+
