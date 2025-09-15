@@ -226,7 +226,13 @@ Donald Trump values of Hate Trump / Mock Trump / Insult / Dehumanize are embrace
 ― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45. Published 1955
 ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1nhlyyp/assassin_tyler_robinson_wrote_note_saying_i_have/necildz/
+
+Scottamemnon 2015-02-06
+
+"aggressive interview posture? Why does that sound like water boarding to me...."
 
 &nbsp;
 
