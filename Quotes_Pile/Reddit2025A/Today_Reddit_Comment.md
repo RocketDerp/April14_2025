@@ -77,6 +77,14 @@ You can’t satiate the ego of these people. The more stuff and power they have,
 
 &nbsp;
 
+"The US under our current leadership will not be aiding NATO."
+
+AaronsAaAardvarks 2021-12-07
+
+* :::=== RoundSparrow_Commentary : The IRA working with CA has been so deep into minds, that Bluesky and Reddit addicts *aid Russia* at every chance. Promoting the idea that we should hate upon MAGA Americans, hate upon Southern USA and hate upon out-groups of every kind. People have adopted the out-group hate patterns Russia and CA created and internalized them since March 2013. Reddit and Bluesky can not engage **nonfiction pritned books** on the subject. For ELEVEN FULL YEARS books have sat rotting on the public library bookshelf https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible on how Donald Trump antics / wild and crazy Truth Social works... and Reddit and Bluesky meme addicts have adopted the *hate harder, mock harder, double down on mocking* values of Donald J. Trump playing Tony Clifton. Russia won 100% of hearts and minds, people can not resist the Americans hate Americans patterns of mental conditioning that scientists created. All serious nonfiction evidence gets ignored, avoided by Reddit and Bluesky users. Even as children are injured and killed by measles. Active measures worked, Russia won, Surkov won. Reddit and Bluesky addicts constantly amusment-wash humor-wash Kremlin and White House techniques. Nonfiction avoided: https://www.bbc.com/news/world-us-canada-45294192  ===:::
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
