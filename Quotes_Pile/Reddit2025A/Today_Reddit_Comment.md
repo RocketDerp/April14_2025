@@ -391,3 +391,11 @@ https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_nat
 Memitim 2009-12-18
 
 "The only emergency I've seen is the ongoing aggression of conservatives against America."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_jd_vance_vows/nee5fi1/
+
+MisterForkbeard 2013-07-26
+
+"Nice to remember that Kirk and his organization literally bussed in people who attacked the capitol building and tried to kill representatives."
