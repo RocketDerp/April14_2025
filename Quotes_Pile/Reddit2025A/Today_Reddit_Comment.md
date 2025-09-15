@@ -2,6 +2,10 @@
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nhj6rd/nato_at_war_with_russia_kremlin_says/nec8yn9/
+
+HerMajestyTheQueef1 2023-03-22
+
 "A Russian priest has been on a religious mission for years at an isolated mountain church.
 
 He finally returns to Moscow, where he meets his friend at the bar.
