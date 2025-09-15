@@ -540,3 +540,13 @@ AnteaterPositive6939 2025-02-05 (new this year)
 He's right.
 
 Trump is trying to do a January 6 against the left. He's riling up the nut jobs to attack us, it's as clear as day. Trump wants a civil war and the cult will oblige."
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nhna2g/dave_portnoy_said_donald_trump_played_a_huge_part/ned5kya/
+
+Zauberer-IMDB 2017-02-08
+
+"I saw tons of people on Reddit STILL parroting that bullshit even after it was thoroughly debunked when they were trying to make the point that the Kirk assassination was part of the trend of the violent Left. Then of course it turned out the probably assassin isn't Left either, almost like the obvious FBI profile of lone gunman nutjobs is thoroughly disaffected right wing white men ages 18-35."
+
+* :::=== RoundSparrow_Commentary : Reddit avoids nonfiction about Russian information warfare over and over. I know, I posted it on Reddit my own self for years. April 24, 2017 started a dedicated community. https://old.reddit.com/r/WhiteHouseHyperReal/ - there is very little attraction to reality about Russia techniques / self-awareness of media ecology (not being compusively attracted to Hyper Reality, Hyper White House content). Bluesky / Twitter / Redddit is all about recency bias and not staying focused on important and critical topics in favor of novelty / entertainment addictions (and Trump playing Tony Clifton is the ultimate entertainment, Infinite Jest V augmented by Russian IRA background message and meme tracks played to each media platform audience). ===::
