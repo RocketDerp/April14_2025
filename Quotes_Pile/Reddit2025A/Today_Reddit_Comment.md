@@ -539,3 +539,13 @@ https://old.reddit.com/r/worldnews/comments/1nhehng/mcgregor_announces_withdrawa
 Majaura 2013-03-27
 
 "I obviously live in the American bubble, but I feel like we spread our unique brand of celebrity worship cancer across the world. Are people in Ireland really not jazzed to have this dumbass as president? I feel like Americans would jump at the chance."
+
+&nbsp;
+
+Academic-Key2 2023-12-01
+
+"Not long ago, even in America, it was socially acceptable to elect someone not because you "think they're cool".
+
+The rise of less-thought isn't unique to America, but as your country has always had an issue with patriotism this dumbing down of politics has seeped deeper into your society, and emboldened all kinds of idiots to believe all kinds of things.
+
+America's real problem is you're all terminally online and a lot of you can't handle what the internet is capable of."
