@@ -519,3 +519,15 @@ https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/neb6tgh/
 Visionist7 2023-05-20
 
 "Suicide will be normalised and lose its taboo. It will be seen as a normal option and pushed as such"
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/neb65wf/
+
+mr-void-404  2025-07-21 (recent account, also note meanaing of username fits message)
+
+"Unemployed Indian guy here. I don't think I can even make it into my 30s. The work culture is completely messed up for lower (lower middle, middle) class people. That means these people are forced to be lower class(without luck ofc but luck ain't gonna be a butter too). 
+
+Old age? Retirement? I see small toddler and kids picking trash and begging on the street.  Only people those who can survive or retire in leisure are those who can lie, scam, exploit, bribe, corrupt or generally the wicked ones. If you want to just survive, go ahead spread your ass open while your hard earned money is going into their pockets rather than building better facilities for everyone. Even the police and law all feels rigged.
+
+How do I know? My father turned one of them when he tried to fight against the system but choose family over other shit. So, he can retire in peace, haha.  I don't think I can bring myself to do these. I can't even kill a rat nor i can scream at someone who crossed all my limits."
