@@ -618,3 +618,13 @@ https://old.reddit.com/r/popculturechat/comments/1nhx8m5/amanda_seyfried_weighs_
 thepersona5fucker 2021-01-05
 
 "And they're so fucking smug about it, they act like they've won somehow when the "context" does not change anything."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1nhx8m5/amanda_seyfried_weighs_in_on_charlie_kirk/nef4p0w/
+
+chhhhhhhhhhh95 2020-06-07
+
+"Thank you Amanda! He spent his career being hateful toward large groups of people and constantly spewing divisive rhetoric and now his fans are demanding everyone universally mourn him. If you liked him whatever you’re entitled to feel sad but obviously not everyone is a fan and shares that opinion. It’s insane. And frightening, I feel like I’ve never seen anything like what’s happening here with this crackdown. It’s now evolved to attacking brands that haven’t said anything at all and snitching on private businesses whose flags aren’t at half mast. They’re trying to force us into compliance."
+
+* :::=== RoundSparrow_Commentary : *They* is the Russian Internet Research Agency who already mind-fucked Charlike Kirk since year 2013, and already had Reddit users in conditioned reactoionary Americans vs. Americans, entirley unable to engage public library books from year 2014 about the IRA. ===:::
