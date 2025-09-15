@@ -236,6 +236,28 @@ Scottamemnon 2015-02-06
 
 &nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1nhlyyp/assassin_tyler_robinson_wrote_note_saying_i_have/necu0wi/
+
+SuggestionOrnery6938 2024-06-10
+
+"Used to get called a libtard at work  I told him I used to be a Republican before I could no longer reconize the party because you and your extreme people ruined it."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhlyyp/assassin_tyler_robinson_wrote_note_saying_i_have/neddwcn/
+
+SAGirl1 2016-08-06
+
+"I think you’ve been honest because I know someone like this. He would openly tell you he used to be a republican… of the Nixon school! lol I held the laughter because Nixon is way before my time and aside from his impeachment I don’t know what he stood for. I encouraged the old man to let it all out.
+
+Anyways he proclaimed he’s anti-everything, anti big government, anti religion specially, anti administrations and bureaucracy, anti establishment, an atheist, and one of the true libertarians. You can see how being a true hard core atheist he would have a problem with this Christian evangelical fanatism or fascism.
+
+I found him slightly amusing in an “old man yells at clouds” kind of way. He is repulsed by MAGA, but too set in his ways to change parties I think. I cannot see him supporting social programs, though he benefits from them as he’s 82 and on Medicare, social security, etc. These people are sometimes quite contradictory. I think he’s one of those disaffected independents. Sometimes when I am puzzled by these kinds of voter I remember that old man.
+
+Good on you for actually voting for the opposite party."
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
