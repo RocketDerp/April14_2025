@@ -184,6 +184,16 @@ But the auto mod was like “nuhuh that’s political” "
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1nhlbil/americans_told_to_watch_what_we_say_about_free/neckyic/
+
+Future_Principle_213 2020-08-10
+
+"And his advocacy for those beliefs was being heard in the White House. People act like he was just talking and debating his opinion. That was only part of it; he had an actual effect on the nation and world by pushing toxic, hateful ideas."
+
+* :::=== RoundSparrow_Commentary : The Russian information warfare, the Internet Research Agency, since March 2013 has conditioned USA minds to self-harm and make popualrity itself Toxic. Donald Trump mocking, Donald Trump hate has become toxic popularity for every media system. People can not stop their compusive hate Trump addiciton to mock Trump. The President Tony Clifton and Putin Surkov student screenplays are irreistable. No defnese has been found to this information warfare that was unleashed in year 2013! ===:::
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
