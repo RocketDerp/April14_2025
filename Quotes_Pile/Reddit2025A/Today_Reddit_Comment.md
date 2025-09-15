@@ -204,8 +204,25 @@ For that matter, the government should not be able to stop anything through acti
 
 * :::=== RoundSparrow_Commentary : The contraditions drive Americans wild. People can not resist these contradictions of media messages, constantly rushing to meme amusement mill platforms and showing how much they are attracted to this technique of Russian information warfare since March 2013. Nothing can reverse the cults of contradiction message mockery, the Surkovian methods.
 ... ... ...
-"my Moscow peers are filled with a sense that they are both cynical and enlightened. When I ask them about Soviet-era dissidents, like my parents, who fought against communism, they dismiss them as naïve dreamers and my own Western attachment to such vague notions as “human rights” and “freedom” as a blunder. “Can’t you see your own governments are just as bad as ours?” they ask me. I try to protest—but they just smile and pity me. To believe in something and stand by it in this world is derided, the ability to be a shape-shifter celebrated. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act. Surkov himself is the ultimate expression of this psychology." Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, 2014
+"my Moscow peers are filled with a sense that they are both cynical and enlightened. When I ask them about Soviet-era dissidents, like my parents, who fought against communism, they dismiss them as naïve dreamers and my own Western attachment to such vague notions as “human rights” and “freedom” as a blunder. “Can’t you see your own governments are just as bad as ours?” they ask me. I try to protest—but they just smile and pity me. To believe in something and stand by it in this world is derided, the ability to be a shape-shifter celebrated. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act. Surkov himself is the ultimate expression of this psychology." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, 2014
 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhlbil/americans_told_to_watch_what_we_say_about_free/necge3b/
+
+68024 2010-08-26
+
+"Given that the shooter appears to have been a Nick Fuentes acolyte, seeing the reaction and lack of understanding among the people and in the media is really sad. This was all an alt-right affair and they are indeed ruining the country."
+
+* :::=== RoundSparrow_Commentary : The entire United States of America is now: 1) pro-mockery, supporting of mocking as a better future. 2) pro-hate, with *hate harder* messages on every social media system. 3) ant-educaiton, anti-Malala - avoiding giving girls and women vocies via Malala's global reforms. At every opportunity people in USA flock to Trump mocking and Trump hate with their spare time / free time on social machines, avodiing that Malala's messages are one click away on the same social machines. 4) Anti-goodness, against nonfiction about information warfare and resucing people from fiction meme addictions. 5) Anti-compassion / anti-emapthy, *fuck you* attitudes of *the others*.
+Donald Trump values of Hate Trump / Mock Trump / Insult / Dehumanize are embraced by all, everyone.
+... ... ...
+"you never noticed because you made the lifelong mistake of identifying it with the forms, is changed. Now you live in a **world of hate** and fear, and the people who hate and fear **do not even know it themselves; when everyone is transformed, no one is transformed**. Now you live in a system which rules without responsibility even to God. The **system** itself could not have intended this in the beginning, but in order to sustain itself it was compelled to go all the way.”
+― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45. Published 1955
+===:::
+
+
 
 &nbsp;
 
