@@ -441,3 +441,11 @@ https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_
 RocketSocket765 2023-07-30
 
 "My first question exactly. Why is Vance saying this like he's in charge, and where the hell is Trump?"
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_jd_vance_vows/nee9ehw/
+
+Siva_Dass 2020-10-12
+
+"It may be deeper than bans on reddit. I think they want people on record saying they oppose Charlie Kirk's politics to create an association between standing by the 1964 civil rights act and terrorism. Then they will treat supporters of the act as they are currently treating immigrants -- Right to Alligator Alcatraz for all of us."
