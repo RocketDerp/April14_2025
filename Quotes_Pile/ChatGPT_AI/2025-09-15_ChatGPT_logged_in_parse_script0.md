@@ -552,4 +552,154 @@ Compares normalized text (ignores extra whitespace).
 Do you want me to make the comparison less strict (e.g., treat the Markdown quote as a substring of the live comment) instead of requiring an exact match? That might help when you only store excerpts.
 
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# copy code blocks
+
+#!/usr/bin/env python3
+import re
+import sys
+
+def extract_quote_blocks(lines):
+    """
+    Splits the file into blocks, each block corresponding roughly to one quote.
+    A block starts at a line containing a Reddit comment link, and continues
+    until the next such line.
+    Returns list of blocks, each block is list of lines.
+    """
+    blocks = []
+    current = []
+    link_pattern = re.compile(r'https?://(?:old\.)?reddit\.com/r/[^ ]+')
+    for line in lines:
+        if link_pattern.search(line):
+            # if we already have a block in progress, start a new one
+            if current:
+                blocks.append(current)
+                current = []
+        current.append(line)
+    if current:
+        blocks.append(current)
+    return blocks
+
+def find_links(block):
+    """Return all reddit links in a block."""
+    link_pattern = re.compile(r'(https?://(?:old\.)?reddit\.com/r/[^ )"\']+)')
+    links = link_pattern.findall(" ".join(block))
+    return links
+
+def has_commentary(block):
+    """
+    Determine if block has commentary. Define commentary as a line
+    that matches something like:
+        * :::=== SomeName_Commentary : text...
+    or
+        :::=== SomeName_Commentary : text...
+    Adjust regex if your format differs.
+    """
+    commentary_pattern = re.compile(r':::+\s*[A-Za-z0-9_]+_Commentary\s*:')
+    for line in block:
+        if commentary_pattern.search(line):
+            return True
+    return False
+
+def main(filepath):
+    with open(filepath, 'r', encoding='utf-8') as f:
+        lines = f.readlines()
+
+    blocks = extract_quote_blocks(lines)
+    missing = []  # list of (block_index, links) for blocks missing commentary
+
+    for i, block in enumerate(blocks):
+        links = find_links(block)
+        if not has_commentary(block):
+            missing.append( (i, links) )
+
+    if not missing:
+        print("All quote blocks have commentary.")
+    else:
+        print(f"Found {len(missing)} quote block(s) missing commentary:")
+        for idx, links in missing:
+            print(f" Block #{idx+1}: links ->")
+            for l in links:
+                print(f"    {l}")
+        sys.exit(1)  # non-zero exit code if missing
+
+if __name__ == "__main__":
+    if len(sys.argv) != 2:
+        print("Usage: python verify_quotes.py <path_to_md_file>")
+        sys.exit(1)
+    filepath = sys.argv[1]
+    main(filepath)
+
+
+&nbsp;
+
+&nbsp;
+
+second code block:
+
+#!/usr/bin/env python3
+import re
+import sys
+
+ENTRY_START = re.compile(r'^https?://old\.reddit\.com/')
+
+def parse_entries(lines):
+    """
+    Split file into entries. Each entry starts with a line beginning
+    with an old.reddit.com URL and continues until the next such line.
+    """
+    entries = []
+    current = []
+    for line in lines:
+        if ENTRY_START.match(line.strip()):
+            if current:
+                entries.append(current)
+                current = []
+        current.append(line.rstrip("\n"))
+    if current:
+        entries.append(current)
+    return entries
+
+def get_link(entry):
+    """Return the first reddit link in the entry."""
+    for line in entry:
+        m = ENTRY_START.match(line.strip())
+        if m:
+            return line.strip()
+    return None
+
+def has_commentary(entry):
+    """
+    Check if an entry has commentary.
+    We define commentary as any line that starts with ':::' or '* :::'
+    and contains the word 'Commentary'.
+    """
+    commentary_pattern = re.compile(r':::+.*Commentary', re.IGNORECASE)
+    for line in entry:
+        if commentary_pattern.search(line):
+            return True
+    return False
+
+def main(filepath):
+    with open(filepath, "r", encoding="utf-8") as f:
+        lines = f.readlines()
+
+    entries = parse_entries(lines)
+
+    for idx, entry in enumerate(entries, start=1):
+        link = get_link(entry)
+        commentary_flag = has_commentary(entry)
+        print(f"Entry {idx}: {link}")
+        print("  Commentary:", "YES" if commentary_flag else "NO")
+
+if __name__ == "__main__":
+    if len(sys.argv) != 2:
+        print("Usage: python verify_reddit_file.py <path_to_md_file>")
+        sys.exit(1)
+    main(sys.argv[1])
 
