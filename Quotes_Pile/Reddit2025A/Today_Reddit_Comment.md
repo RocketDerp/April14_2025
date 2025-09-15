@@ -531,3 +531,11 @@ mr-void-404  2025-07-21 (recent account, also note meanaing of username fits mes
 Old age? Retirement? I see small toddler and kids picking trash and begging on the street.  Only people those who can survive or retire in leisure are those who can lie, scam, exploit, bribe, corrupt or generally the wicked ones. If you want to just survive, go ahead spread your ass open while your hard earned money is going into their pockets rather than building better facilities for everyone. Even the police and law all feels rigged.
 
 How do I know? My father turned one of them when he tried to fight against the system but choose family over other shit. So, he can retire in peace, haha.  I don't think I can bring myself to do these. I can't even kill a rat nor i can scream at someone who crossed all my limits."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nhehng/mcgregor_announces_withdrawal_from_presidential/neb55lh/
+
+Majaura 2013-03-27
+
+"I obviously live in the American bubble, but I feel like we spread our unique brand of celebrity worship cancer across the world. Are people in Ireland really not jazzed to have this dumbass as president? I feel like Americans would jump at the chance."
