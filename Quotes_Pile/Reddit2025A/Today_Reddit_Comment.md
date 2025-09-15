@@ -39,6 +39,18 @@ takanuva 2012-06-21
 
 * :::=== RoundSparrow_Commentary : Media addicts to South Park, meme addicts to Bluesky and Reddit entertainment, can't get enough of the White House being run like South Park! The absurd surreal Surkov governing techniques of Russia year 2011 adopted to White House 2025. The most powerful way to captivate society into self-harm and detachment from science, detachment from goodness, detachment from reality - by constantly stimulating the audience into creating their own fan-fiction on social machines - mocking and insutling how terrible President Tony Clifton is at running Russia and USA. Compusive reactions to the President Clifton performance. People who make Twitter-length comments describing how President Tony Clifton is just like South Park, but are entirely unable to engage nonfiction books by Christopher Wylie, Peter Pomerantsev, Neil Postman and calll for defense against the Russian Internet Research Agency invasion of Reddit entertainment meme platform. https://www.bbc.com/news/technology-43301643 Even when measles are killing people, the audience of Bluesky and Reddit think it is great funny entertainment "Leopards Ate My Children!! ha ha ha ha, ja ja ja ja Texas dumb-asses, stupid Americans" over and over every day. As condtioned by the Russian Internet Research Agency since March 2013 https://www.bbc.com/news/world-us-canada-45294192 the constant amusement-washing satire-washing humor-washing of death by Russian information warfare that Reddit profits from and creates engaging memes about. South Park owners are making a tidy profit too! ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nhj6rd/nato_at_war_with_russia_kremlin_says/nebyhf9/
+
+Force3vo 2014-05-11
+
+"Sometimes I wonder if this is the plan. Letting russia drain itself against Ukraine until the people understand they are lied to and NATO isn't at fault for the Russian deaths, it's solely on Russian Militarism and expansion fantasies.
+
+Then again NATO keeps talking about russia invading NATO in a year so I don't understand what is happening there at all."
+
+* :::=== RoundSparrow_Commentary : The plan, as outlined by Surkov all along, is a war of All Against All (Surkov calls the 5th World War), peer to peer hate exchanges, the constantly entertained population on Reddit and other social media platforms wrecking the USA and goodness in humanity. In favor of addiction to fiction. Russia is self-harming itself with addiction to fiction monomyth self-own, the same anti-reality that Russia exports to others had brainrot Russia itself like Mecca fiction monomyth. Listen to Malala describing the fiction addictions of anti-science anti-goodness: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. And listen to Russian Pussy Riot describe the Russian equivlent: https://www.youtube.com/watch?v=oaZl12Z5P7g ===:::
+
 
 &nbsp;
 
