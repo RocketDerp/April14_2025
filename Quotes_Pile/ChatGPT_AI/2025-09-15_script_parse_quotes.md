@@ -331,3 +331,209 @@ Would you like this script to also download the Markdown directly from GitHub in
 &nbsp;
 
 &nbsp;
+
+Sure, please do
+ChatGPT said:
+
+Here’s a Python script that will download the Markdown file from GitHub (using its “raw” URL), then process it to verify that each Reddit‑comment block matches your structure (i.e. &nbsp;, link, username/date line, quoted lines, optional commentary). Feel free to adapt it further if needed.
+
+#!/usr/bin/env python3
+
+import re
+import sys
+import requests
+
+def fetch_markdown_from_github(raw_url, timeout=10):
+    """
+    Download the raw markdown content from a GitHub raw URL.
+    Returns the lines as a list.
+    """
+    resp = requests.get(raw_url, timeout=timeout)
+    resp.raise_for_status()
+    text = resp.text
+    return text.splitlines()
+
+def is_reddit_comment_link(line):
+    """
+    Return True if line contains a reddit old link of a comment.
+    E.g. contains https://old.reddit.com/
+    """
+    return bool(re.search(r'https?://old\.reddit\.com/.*', line))
+
+def check_reddit_link_accessible(url, timeout=10):
+    """
+    Check if the Reddit comment link returns a 200 status (or at least is reachable).
+    """
+    try:
+        # HEAD first
+        r = requests.head(url, allow_redirects=True, timeout=timeout)
+        if r.status_code == 200:
+            return True, r.status_code
+        # fallback to GET
+        r2 = requests.get(url, allow_redirects=True, timeout=timeout)
+        return (r2.status_code == 200), r2.status_code
+    except Exception as e:
+        return False, str(e)
+
+def process_markdown_blocks(lines):
+    """
+    Go through the lines looking for reddit comment blocks, verifying format.
+    Returns a list of detected errors.
+    """
+    errors = []
+    i = 0
+    total_lines = len(lines)
+
+    while i < total_lines:
+        line = lines[i].rstrip('\n')
+        # Look for the link line
+        if is_reddit_comment_link(line.strip()):
+            link_line_no = i + 1  # 1-based
+            link = line.strip()
+
+            context = {
+                "link_line": link_line_no,
+                "link": link,
+            }
+
+            # Check for &nbsp; in the preceding couple of lines
+            nbsp_found = False
+            if i >= 1 and '&nbsp' in lines[i-1]:
+                nbsp_found = True
+            elif i >= 2 and '&nbsp' in lines[i-2]:
+                nbsp_found = True
+            context["nbsp"] = nbsp_found
+
+            # Username & date line (must exist and be the next line)
+            if i + 1 < total_lines:
+                username_date_line = lines[i+1].strip()
+                context["username_date_line"] = username_date_line
+                # Simple check: non-empty, maybe matches a pattern
+                # Example pattern: u/username · Created: YYYY‑MM‑DD
+                # You can adjust as needed
+                # Here I’ll check it’s not empty and doesn’t start with a quote or bullet or the link again
+                if username_date_line and not username_date_line.startswith('"') and not username_date_line.startswith('*') and not is_reddit_comment_link(username_date_line):
+                    context["has_username_line"] = True
+                else:
+                    context["has_username_line"] = False
+            else:
+                context["has_username_line"] = False
+
+            # Quoted comment lines: starting with '"' after that
+            quoted_lines = []
+            j = i + 2
+            while j < total_lines:
+                l = lines[j].lstrip()  # leading whitespace stripped for checking
+                if l.startswith('"'):
+                    quoted_lines.append(l)
+                    j += 1
+                else:
+                    break
+            context["quoted_lines"] = quoted_lines
+            context["has_quoted"] = len(quoted_lines) > 0
+
+            # Optional RoundSparrow commentary: bullet line starting with *
+            if j < total_lines:
+                if lines[j].lstrip().startswith('*'):
+                    context["has_commentary"] = True
+                else:
+                    context["has_commentary"] = False
+            else:
+                context["has_commentary"] = False
+
+            # Check link reachable
+            ok_link, status = check_reddit_link_accessible(link)
+            context["link_ok"] = ok_link
+            context["link_status"] = status
+
+            # Collect issues
+            block_issues = []
+            if not context["nbsp"]:
+                block_issues.append("Missing &nbsp; in the lines before the link")
+            if not context["has_username_line"]:
+                block_issues.append("Missing or malformed username/date line after link")
+            if not context["has_quoted"]:
+                block_issues.append("Missing quoted comment lines after username/date line")
+            if not context["link_ok"]:
+                block_issues.append(f"Reddit link not accessible or not returning status 200 (got {status})")
+
+            if block_issues:
+                errors.append( (link_line_no, link, block_issues) )
+
+            # Move i past this block to continue scanning
+            # Skip ahead: after quoted lines and optional commentary
+            # If commentary exists, skip it too
+            i = j
+            if context["has_commentary"]:
+                i += 1
+        else:
+            i += 1
+
+    return errors
+
+def main():
+    if len(sys.argv) != 2:
+        print("Usage: python3 verify_reddit_from_github.py <raw_markdown_url>")
+        sys.exit(1)
+
+    raw_url = sys.argv[1]
+    print(f"Fetching Markdown from: {raw_url}")
+    try:
+        lines = fetch_markdown_from_github(raw_url)
+    except Exception as e:
+        print(f"Error fetching markdown: {e}")
+        sys.exit(2)
+
+    print(f"Fetched {len(lines)} lines. Processing...")
+    errors = process_markdown_blocks(lines)
+
+    if not errors:
+        print("✅ All Reddit comment blocks look valid.")
+        sys.exit(0)
+    else:
+        print("❌ Issues found in the following blocks:\n")
+        for (lineno, link, issues) in errors:
+            print(f"Block starting at line {lineno}: {link}")
+            for issue in issues:
+                print(f"  - {issue}")
+            print()
+        sys.exit(1)
+
+if __name__ == "__main__":
+    main()
+
+🔧 How to use this
+
+Determine the raw URL for your GitHub file.
+For example, if the GitHub page is:
+
+https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Reddit2025A/Today_Reddit_Comment.md
+
+
+Then replace the github.com/.../blob/main/... with raw.githubusercontent.com/.../main/....
+So the raw URL will be something like:
+
+https://raw.githubusercontent.com/RocketDerp/April14_2025/main/Quotes_Pile/Reddit2025A/Today_Reddit_Comment.md
+
+
+Save the above script, e.g. as verify_reddit_from_github.py
+
+Install dependencies if you don’t already have them:
+
+pip install requests
+
+
+Run the script:
+
+python3 verify_reddit_from_github.py https://raw.githubusercontent.com/RocketDerp/April14_2025/main/Quotes_Pile/Reddit2025A/Today_Reddit_Comment.md
+
+
+The script will fetch the file, then scan for reddit comment blocks, report any issues found.
+
+If you like, I can run it on the current file and send you a report of what issues it finds (if any). Do you want me to do that?
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
