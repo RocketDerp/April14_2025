@@ -311,4 +311,12 @@ GuitarbytheTon 2020-10-06
 
 "I actually struggle watching the office now because of how similar Trumps stupidity is to Michael"
 
-* :::=== RoundSparrow_Commentary : Donald Trump playing Michael Scott (The Office / White House as The Office fiction engagement / Reality Truth Social) also similar to Donald Trump playing Tony Clifton. Trump is an amazing actor and has found the performance of a lifetime, people just can not resist mockin ghow dumb stupid idiot Putin and Trump are for leading the nation with Michael Scott character scripts / Tony Clifton character scripts / Surkov student screenplays since November 7, 2012 agreement. ["Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года."](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md) ===:::
+* :::=== RoundSparrow_Commentary : Donald Trump playing Michael Scott (The Office / White House as The Office fiction engagement / Reality Truth Social) also similar to Donald Trump playing Tony Clifton. Trump is an amazing actor and has found the performance of a lifetime, people just can not resist mocking over and over how dumb stupid idiot Putin and Trump are for leading the nation with Michael Scott character scripts / Tony Clifton character scripts / Surkov student screenplays since November 7, 2012 agreement. ["Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года."](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md) ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedd1j4/
+
+struggleislyfe 2025-04-10 (new this year)
+
+"This is all of his tweets. I've been trying to figure out how to characterize it and this is it."
