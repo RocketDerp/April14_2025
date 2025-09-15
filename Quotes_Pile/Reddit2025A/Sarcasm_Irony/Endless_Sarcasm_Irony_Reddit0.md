@@ -350,3 +350,6 @@ https://old.reddit.com/r/pics/comments/1nhvklw/russian_soldiers_tribute_to_charl
 
 Engaging the absurd surreal information warfare. Entirely blind, lacking self-awareness, that this is how Russia defeated the USA. Eating the Surkov onions, not *asking WHY DO THESE TECHNIQUES WORK*. People recognize something is off / odd, but aren't willing to go to the public library and engage nonfiction about media cults / messaging cults / mind exploits via information warfare / contradictory information warfare.    
 https://old.reddit.com/r/AdviceAnimals/comments/1nhr4rv/hm/
+
+You can see the brains blow, every few seconds, minds blown by the contradictions of modern information warfare. It is shooting fish in a Reddit social media barrel. Nobody can stand up and cite relevant nonfiction on these techniques, USA media addicts are compusively flocking like drug addicts to more and more Donald Trump White House and Putin content.    
+https://old.reddit.com/r/PoliticalHumor/comments/1nhuv0k/strange_but_true/
