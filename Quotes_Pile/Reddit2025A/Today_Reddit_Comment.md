@@ -656,3 +656,9 @@ Sufficient_Depth_195 2025-07-16 (recent account)
 * :::=== RoundSparrow_Commentary : Planned and organized since November 7, 2012 https://www.facebook.com/konstantin.rykov/posts/10210621124674610 - and announced to the entire world in December 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ but social media addicts are unable to focus on serious and important nonfiction topics to get everyone on the same page, too much in their filter bubbles. ===:::
 
 &nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_and_miller_unveil_plan_to/neeruax/
+
+mamamackmusic 2017-07-14
+
+"At some point, one has to face that the Epstein stuff IS THE DISTRACTION while they implement a fascist Christian Nationalist state that purges all the undesirables. None of the Epstein collaborators and clients will ever face justice, but they will use it to pacify people while they make the country into a hellhole we can't get out of."
