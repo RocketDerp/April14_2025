@@ -674,3 +674,15 @@ vergina_luntz 2018-03-08
 No Mercy they are posting.
 
 How is this not illegal?"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_and_miller_unveil_plan_to/nef8216/
+
+deleted, name and date of account unknown
+
+"Look at this comments section, people are bending over backwards to say I'm the wrong one who believes anything I'm told for saying this guy is a verifiable right-winger."
+
+* :::=== RoundSparrow_Commentary : Social media comment messages covery every possible interpretation and engaging variation. Choose your own adventure of interactive fiction storytelling.
+... ... ...
+"Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge" https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
