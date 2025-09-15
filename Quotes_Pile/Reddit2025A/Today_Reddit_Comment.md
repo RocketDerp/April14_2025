@@ -51,6 +51,19 @@ Then again NATO keeps talking about russia invading NATO in a year so I don't un
 
 * :::=== RoundSparrow_Commentary : The plan, as outlined by Surkov all along, is a war of All Against All (Surkov calls the 5th World War), peer to peer hate exchanges, the constantly entertained population on Reddit and other social media platforms wrecking the USA and goodness in humanity. In favor of addiction to fiction. Russia is self-harming itself with addiction to fiction monomyth self-own, the same anti-reality that Russia exports to others had brainrot Russia itself like Mecca fiction monomyth. Listen to Malala describing the fiction addictions of anti-science anti-goodness: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. And listen to Russian Pussy Riot describe the Russian equivlent: https://www.youtube.com/watch?v=oaZl12Z5P7g ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nhj6rd/nato_at_war_with_russia_kremlin_says/nebz1fl/
+
+BKaempfer 2013-09-09
+
+"I believe for the average people, all wars are pointless because they gain nothing from it.
+
+You could make an argument for wars of independence or liberation, but through most of all history, it is only the rich and powerful ruling class that gain anything from war."
+
+* :::=== RoundSparrow_Commentary : War is being revived because it is so entertaining to people. Donald Trump is so incredibly entertaining to people as he plays President Tony Clifon. Putin and Trump have shown the desire people have for Hate Trump and Mockery Trump antics, insulting and saying how dumb stupid idiot President Tony Clifton is every free mintue and spare second on Bluesky and Reddit meme entertainment platforms. MAGA USA 2025 can't get enough of Fox News insulting and hating of poor, everyday people, in the wealth televagelism trickle-down messages. MAGA gets to call liberals retraded ("lib-tards"), and Reddit and Bluesky get to call Fox News addicts retarded dumb stupid people. It's a craving of every American to insult and mock and hate upon Americans. ... ... ...
+**Vladislav Surkov, a buddy of Vladimir Putin who understand the monomyth patterns of humanity, used the pseudonym Natan Dubovitsky to introduce the concept of a "fifth world war"** [in his May 2014 short story, "Without Sky". This "war of all against all" is described as a "non-linear war,"](https://www.bewilderingstories.com/issue582/without_sky.html) a modern form of conflict that goes beyond conventional military tactics. The war of Reddit vs. Facebook, Bluesky vs. Twitter, everday meme addicts blocking each other on Bluesky vs. Bluesky mass blocking lists. https://github.com/bluesky-social/social-app/issues/7076
+===:::
 
 &nbsp;
 
