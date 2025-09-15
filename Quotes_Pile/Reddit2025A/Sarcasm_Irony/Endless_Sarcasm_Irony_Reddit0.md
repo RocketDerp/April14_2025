@@ -345,3 +345,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1nhox4g/historical_deceptive_b
 
 Absurd Surreal meme content from Kremlin right on front-page of Reddit. And nobody can call this out as *Surkovian informaiton warfare techniques* by name.    
 https://old.reddit.com/r/pics/comments/1nhvklw/russian_soldiers_tribute_to_charlie/
+
+&nbsp;
+
+Engaging the absurd surreal information warfare. Entirely blind, lacking self-awareness, that this is how Russia defeated the USA. Eating the Surkov onions, not *asking WHY DO THESE TECHNIQUES WORK*. People recognize something is off / odd, but aren't willing to go to the public library and engage nonfiction about media cults / messaging cults / mind exploits via information warfare / contradictory information warfare.    
+https://old.reddit.com/r/AdviceAnimals/comments/1nhr4rv/hm/
