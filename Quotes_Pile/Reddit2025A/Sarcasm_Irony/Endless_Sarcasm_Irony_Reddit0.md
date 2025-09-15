@@ -325,3 +325,8 @@ https://old.reddit.com/r/clevercomebacks/comments/1nh3zhi/halfstaff_flags_only_f
 
 NYC Neil Postman was right in 1985. People eat up this White House and Kremlin.    
 https://old.reddit.com/r/LiveFromNewYork/comments/1nh4dnc/can_anyone_else_see_aziz_ansari_playing_kash/
+
+&nbsp;
+
+Elon Musk on front page using Kremlin Surkov techniques in public, and as predicted Reddit eats the onion and thinks this is accident. Reddit community entirely unable to cite Surkov techniques by name, a population of content addicts who can't cite published books on how this is Russian information warfare that has defeated the mind of Elon Musk using Twitter.     
+https://old.reddit.com/r/ChatGPT/comments/1nhg1lv/elon_continues_to_openly_try_and_fail_to/
