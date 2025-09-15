@@ -628,3 +628,13 @@ chhhhhhhhhhh95 2020-06-07
 "Thank you Amanda! He spent his career being hateful toward large groups of people and constantly spewing divisive rhetoric and now his fans are demanding everyone universally mourn him. If you liked him whatever you’re entitled to feel sad but obviously not everyone is a fan and shares that opinion. It’s insane. And frightening, I feel like I’ve never seen anything like what’s happening here with this crackdown. It’s now evolved to attacking brands that haven’t said anything at all and snitching on private businesses whose flags aren’t at half mast. They’re trying to force us into compliance."
 
 * :::=== RoundSparrow_Commentary : *They* is the Russian Internet Research Agency who already mind-fucked Charlike Kirk since year 2013, and already had Reddit users in conditioned reactoionary Americans vs. Americans, entirley unable to engage public library books from year 2014 about the IRA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_and_miller_unveil_plan_to/neer2mx/
+
+blueXwho 2018-10-08
+
+"Why do people keep repeating this? No, it's not bullshit and distraction, these are coordinated attacks on multiple fronts. Stop underestimating their plans. Too many people think that anything that they do is to cover up the Epstein files. You know what would happen if the files are released and it is proven that Trump was there, even if there is enough to show he is a rapist? Nothing! There is already proof that he is a rapist and nothing changed."
+
+&nbsp;
