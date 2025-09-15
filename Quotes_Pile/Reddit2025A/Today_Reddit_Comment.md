@@ -153,6 +153,25 @@ OS2_Warp_Activated 2024-04-19
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1nhlbil/americans_told_to_watch_what_we_say_about_free/necj3sl/
+
+rygelicus 2022-11-15
+
+"I might be able to laugh later, but it's getting scary. Fundamental reality in the US has been altered.
+
+Free Speech - Gone.      
+Freedom of Religion - under threat.       
+Major news media calling for the extermination of unwanted portions of the population, and somehow escaping liability with a very unconvincing apology.     
+Hate preacher killed and treated like a national hero     
+News media that exposes the corruption is sued into compliance.     
+
+We weren't perfect before, but we are racing away from all the things that made america good at full throttle."
+
+* :::=== RoundSparrow_Commentary : The Russian War againt Reality, Kremlin War Agaist Nonficiton was described September 9, 2014 - more than ELEVEN FULL YEARS ago, and nobody on Reddit can describe Putin and Trump techniques by linking articles / books on the subject. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+Reddit comment today: "I might be able to laugh later, but it's getting scary. Fundamental reality in the US has been altered." - LOL LOL LOL laughter all along constantly on Reddit and Bluesky, how hilarious it is to watch Russia's Internet Research Agency since March 2013 defeat NATO leader USA. ===:::
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
