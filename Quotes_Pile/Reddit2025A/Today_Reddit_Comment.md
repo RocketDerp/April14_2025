@@ -265,3 +265,14 @@ Taban85 2013-10-15
 "One thing trumps presidency has made abundantly clear is the power to declare an emergency and the person gaining powers from that emergency shouldn’t be the same people."
 
 &nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedckiw/
+
+boston_homo 2015-01-09
+
+"I certainly don’t want martial law but I kind of am curious, like watching a shitty movie I’m curious to see the end."
+
+* :::=== RoundSparrow_Commentary : Certaintly wants more Reddit content to comment about. This was how Russia defeated the USA since March 2013. Surkov's key insight as a fiction author in being able to use fiction MonoMyth storytelling to induce addiction behaviors into people. People in USA today find it impossible to engage nonfiction learning of information warfare and media ecology. The curiousity invoked by the meme addictions, Total Mockery of President Tony Clifton is unlike anything they have every experienced in thier lifetime of entertainment consumption.
+... ... ... https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/       
+At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: **“We all know there will be no real politics,”** he said. “But we still have to give our viewers the sense something is happening. **They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”**
+===:::
