@@ -471,3 +471,12 @@ https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/nebk4oa/
 citymousecountyhouse 2022-01-14
 
 "Yep,I am currently taking care of my mother. The area where she and everyone on this road chose to live was wonderful at one time. Plenty of property to raise horses, really wonderful places. Until they all grew old. None of them can take care of their properties, or really even take the trash down long driveways to the curb. The homes themselves are all problems. All with stairs, no walk-in showers. Slowly they each are losing their ability to drive. Speaking of driving, when a bad winter hits, they all find themselves trapped for days. And they're all sort of trapped because they all moved here 40 years ago when they were young and they all have 40 years of "furnishings" and "antiques" to prove it. I'm currently in the process of convincing my mom to rent some booths at an antique mall just to get the stuff moving."
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/neb3lz5/
+
+Jeramy_Jones 2021-08-08
+
+"Actually that’s not exactly accurate. Most societies had some sort of custom to care for seniors, orphans, widows etc. But the capitalistic tendency to see people only for their ability to generate value and the modern, western fierce individualism has not been kind to them."
+
