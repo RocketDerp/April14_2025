@@ -580,3 +580,13 @@ thatmitchguy 2012-04-30
 "Once again most of you are just reading the headline. Notice how the headline has his quote broken up? Or how the article says Dave didn't "exactly" blame the guy. He even says mostly the Left in his comments around Trump.
 
 Read the news you're replying to people. Otherwise you are no different then the people you accuse of being misinformed."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1nhx8m5/amanda_seyfried_weighs_in_on_charlie_kirk/nefa85m/
+
+catladywithallergies 2019-06-20
+
+"His debate with the University of Cambridge students is hilarious because all the students are completely unfazed by his barrage of logical fallacies."
+
+* :::=== RoundSparrow_Commentary : USA media addicts entirely can not resist this and find it hilarious and entertaining every time. They flock to it like flies to shit smells. The attraction to MAGA and Trump and Internet Research Agency content all over media systems since year 2013 is impossible for addicts to resist. Nothing has ever been as entertaining in their life as MAGA and Donald Trump workign with Putin / Surkov techniques. No defense has been found to get people to sober up from their addiction to Kremlin information warfare, the worship-trash ("hilarious") addictions sicken minds and mob mentality further and further each day! Over a decade of [congnative decline nation in the USA We The People](../../Grim_Blunt/Cognitive_Decline_Nation.md). Endless celebration of ignorance and celebration of mockery. Mocking MAGA is not resisting Russian information warfare, it is doing exactly what the warfare induces. ===:::
