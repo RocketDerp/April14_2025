@@ -437,3 +437,11 @@ https://old.reddit.com/r/PublicFreakout/comments/1nh6elt/19yearold_man_tramples_
 Ok_Cucumber_7954 2022-01-17
 
 "Reminds me of the memorials to PoC or LGBTQ victims of violence that has been trampled by right wing hate groups."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nh7ptq/2_arrested_after_incendiary_device_found_under/ne9uljf/
+
+Dazred 2011-12-18
+
+"Not much critical thinking happens here sadly. It’s just a race to point the finger at the opposing side."
