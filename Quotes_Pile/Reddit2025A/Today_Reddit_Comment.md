@@ -417,3 +417,19 @@ Environmental-Day862 2020-11-09
 "They literally brought nooses with them and were chanting "Hang Mike Pence."
 
 What do you think would have happened on January 6 if Mike Pence was walking out of the Capitol unescorted while the mob was descending upon it?"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_jd_vance_vows/neearz1/
+
+Oleg101 2020-06-11
+
+<img width="800" height="488" alt="image" src="https://github.com/user-attachments/assets/5aebdea3-b792-43d3-a2ff-512199d4ac82" />
+
+&nbsp;
+
+"I think these guys just actually want people to refer to them as Nazi’s more so they can play the victim more and blame any and everything on the opposition."
+
+* :::=== RoundSparrow_Commentary : Tony Clifton acts thrive on audience attacking the performers. Vice President Tony Clifton hosting the podcast to rile up the audience. https://www.youtube.com/watch?v=eyAWBJULFso Surkovian governing in action. ===:::
