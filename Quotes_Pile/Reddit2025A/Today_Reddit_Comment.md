@@ -686,3 +686,21 @@ deleted, name and date of account unknown
 * :::=== RoundSparrow_Commentary : Social media comment messages covery every possible interpretation and engaging variation. Choose your own adventure of interactive fiction storytelling.
 ... ... ...
 "Everything we're told by journalists and politicians is confusing and contradictory. Of course, there is no Mr. Surkov in charge" https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_and_miller_unveil_plan_to/neeqh89/
+
+Shaunair 2014-03-23
+
+"I’ll take it one step further: the right seems to be REALLY upset that the left has created their own narrative on the shooter. Now, whether that’s true or not, the irony of that being a complaint of theirs after alllll their alternative spin bullshit on Jan 6, Obama’s Birth Certificate, Covid, School shootings, and basically everything they do, is strait up bananas.
+
+This country is a spinning top at the tail end of its run where it’s more wobble than spin."
+
+* :::=== RoundSparrow_Commentary : People rattle off example after example in millions of unique comment messages in filter-bubbles but unable to go to the public library and cite an author or book title on the subject.
+... ... ...
+Like Sting says in The Police song:
+"Walked out this morning, don't believe what I saw! Hundred billion bottles washed up on the shore.
+Seems I'm not alone at being alone. Hundred billion castaways, looking for a home." https://www.youtube.com/watch?v=MbXWrmQW-OE
+... .... ...
+Books sitting on the shelf since year 2014. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
