@@ -343,3 +343,15 @@ capnsmirks 2014-10-16
 "Holy shit. You just made me realize we have a Michael Scott running the country. But at least Mike was good at his job 🤦‍♂️"
 
 * :::=== RoundSparrow_Commentary : I like Tony Clifton more as an example, because it is a life performance. Tony Clifton goes off the stage and engages the audience with personal insults and mocking, which much more fits Truth Social and Donald Trump's world travels. And Tony Clifton is a NYC based character (Andy / Trump both from NYC) and Trump owned Casinos - and Clifton often uses casinos and TV shows (Taxi simualcra TV show like The Apprentice simualcra TV show, Casinos simualcra of a legit act). WHO IS TONY CLIFTON? https://www.youtube.com/watch?v=JKTR8Yj5hg4 ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedcbcr/
+
+Christ_on_a_Crakker 2014-07-28
+
+"I’m done with not taking him serious. Like it or not, he’s fuckin powerful beyond imagination and SCOTUS keeps handing him more power. We already have news anchors being fired for having opinions , masked “federal agents” disappearing US citizens into unmarked vehicles, military patrolling our own cities.
+
+We need to take this man serious."
