@@ -456,3 +456,10 @@ WidowGorey 2025-06-02
 
 Work till you physically can’t or no one wants you, then live off the kindness of whatever community you have, die of poor nutrition or inability to get medical care. Hope someone will help you die humanely… it’s nothing new, we just haven’t seen it in living memory."
 
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/neazqgj/
+
+SheriffBartholomew 2018-11-07
+
+"And as ugly as that was, at least it was normal and standard for multiple generations to live in the same home together. Kids took care of their parents when their parents couldn't take care of themselves anymore. That is no longer normal."
