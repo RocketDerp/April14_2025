@@ -445,3 +445,14 @@ https://old.reddit.com/r/news/comments/1nh7ptq/2_arrested_after_incendiary_devic
 Dazred 2011-12-18
 
 "Not much critical thinking happens here sadly. It’s just a race to point the finger at the opposing side."
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/neaxtgz/
+
+WidowGorey 2025-06-02
+
+"Look at history. There was a time before social security and retirement savings protections. It was very ugly. One indicator that you can track is life expectancy gets shorter.
+
+Work till you physically can’t or no one wants you, then live off the kindness of whatever community you have, die of poor nutrition or inability to get medical care. Hope someone will help you die humanely… it’s nothing new, we just haven’t seen it in living memory."
+
