@@ -258,6 +258,14 @@ Good on you for actually voting for the opposite party."
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/neddt7o/
+
+Taban85 2013-10-15
+
+"One thing trumps presidency has made abundantly clear is the power to declare an emergency and the person gaining powers from that emergency shouldn’t be the same people."
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
