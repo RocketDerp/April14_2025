@@ -287,4 +287,9 @@ sembias 2016-03-31
 
 If the US falls into that, it won't be Trump. And it will last longer than 30 years."
 
+* :::=== RoundSparrow_Commentary : I don't think classic facism defines the USA. We have Hollywood, USA created social media, USA created Reddit and Bluesky. Rule by amusement and fiction. Creating compelling fiction stories, mythology based governing like Saudi Arabia and Mecca, in new Surkovian governing style. ChaatGPT / Grok AI / artificail intelligence can provide the entertainment memes that media addiction USA society craves and demands. Sports and games, video games / sports heroes / Jesus fiction hero stories / etc. Donald Trump has laid all this in the minds with images of himself. Compulsive mocking, minds tossing out all serious thinking in favor of mocking and insulting, when Trump does his Tony Clifton act / does his Bible seller act - has shown that monomyth fiction wins Reddit / Bluesky every day into not confronting media ecology / amusement itself. https://people.com/white-house-shares-ai-star-wars-day-photo-donald-trump-red-lightsaber-11727936 ===:::
+
+
+&nbsp;
+
 &nbsp;
