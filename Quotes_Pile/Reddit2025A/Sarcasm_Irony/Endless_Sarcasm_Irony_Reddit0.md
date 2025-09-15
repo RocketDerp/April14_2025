@@ -330,3 +330,9 @@ https://old.reddit.com/r/LiveFromNewYork/comments/1nh4dnc/can_anyone_else_see_az
 
 Elon Musk on front page using Kremlin Surkov techniques in public, and as predicted Reddit eats the onion and thinks this is accident. Reddit community entirely unable to cite Surkov techniques by name, a population of content addicts who can't cite published books on how this is Russian information warfare that has defeated the mind of Elon Musk using Twitter.     
 https://old.reddit.com/r/ChatGPT/comments/1nhg1lv/elon_continues_to_openly_try_and_fail_to/
+
+&nbsp;
+
+MURDERED BY WORDS framing on Reddit. The problem is KILLED, now and forever, MRUDERED! The anti-science anti-comprehension anti-understadning Kremlin and White House information warfare was solved by calling people morons! Such thrilling entertainment and mockery on Reddit, eating the Surkovian Onions and declaring the Russiain information warfare problem solved!    
+https://old.reddit.com/r/MurderedByWords/comments/1nhm22t/renewables_storage_is_key/
+
