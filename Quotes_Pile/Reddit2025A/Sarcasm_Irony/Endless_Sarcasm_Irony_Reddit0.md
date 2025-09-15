@@ -340,3 +340,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1nhm22t/renewables_storage_is_
 
 Entertainment-washing, mockery-washing misunderstandings of Hitler / Nazi Germany media techniques. Insteadof being serious and teaching symbolism, the menaing of the pyramid on the Great Seal of the United States of America from the founding fathers / year 1776 - people use all their free time and spare time on social machines to entertainment-wash the Russian Internet Research Agency winning a symbolism war against NATO / USA.     
 https://old.reddit.com/r/MurderedByWords/comments/1nhox4g/historical_deceptive_branding_exposed/
+
+&nbsp;
+
+Absurd Surreal meme content from Kremlin right on front-page of Reddit. And nobody can call this out as *Surkovian informaiton warfare techniques* by name.    
+https://old.reddit.com/r/pics/comments/1nhvklw/russian_soldiers_tribute_to_charlie/
