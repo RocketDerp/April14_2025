@@ -105,9 +105,23 @@ Like honestly this quote just replays in my head rent free and I'm trying to mak
 
 Rent free..."
 
-* :::=== RoundSparrow_Commentary :   Monomyth fiction patterns. https://en.wikipedia.org/wiki/A_Skeleton_Key_to_Finnegans_Wake That's ("this quote just replays in my head ") the foundation of embedding mind patterns into citizens minds. Russian techniques described by Adam Curtis on BBC broadcast December 31, 2014. "BBC's Adam Curtis On The ***"Contradictory Vaudeville"*** Of Post-Modern Politics" - "a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time" - https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html - Reddit user saying "I'm more baffled at" - because they have not studied Marshall McLuhan's media ecology (Finnegans Wake https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village warfare) and Russian Surkov. ===:::
+* :::=== RoundSparrow_Commentary :   Monomyth fiction patterns. https://en.wikipedia.org/wiki/A_Skeleton_Key_to_Finnegans_Wake ... That's ("this quote just replays in my head") the foundation of embedding mind patterns into citizens minds. Russian techniques described by Adam Curtis on BBC broadcast December 31, 2014.
+"BBC's Adam Curtis On The ***"Contradictory Vaudeville"*** Of Post-Modern Politics" - "a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time" - https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ... ... ...
+Reddit user saying "I'm more baffled at" - because they have not studied Marshall McLuhan's media ecology (Finnegans Wake https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village warfare) and Russian Surkov. ===:::
 
 &nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nhkx2v/charlie_kirk_called_for_bidens_execution/necj6u8/
+
+sofia1687 2014-06-10
+
+"I don’t think it matters
+
+The right has effectively shoved its collective hateful hand up his badly embalmed corpse’s ass and is profiting off of it using it as political puppet theater
+
+I mean, it’s what Charlie would’ve wanted"
 
 &nbsp;
 
