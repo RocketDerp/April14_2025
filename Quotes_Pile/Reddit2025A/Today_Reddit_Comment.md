@@ -610,3 +610,11 @@ https://old.reddit.com/r/popculturechat/comments/1nhx8m5/amanda_seyfried_weighs_
 "Same. Live in TX and see so many “show the context!” and then they even post the “context” themselves….and it changes nothing."
 
 * :::=== RoundSparrow_Commentary : [Context bewilderment abounds](../../Media_Ecology/Context_Bewilderment.md). A major symptom of the IRA aftermath / CA aftermath. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1nhx8m5/amanda_seyfried_weighs_in_on_charlie_kirk/neey0mp/
+
+thepersona5fucker 2021-01-05
+
+"And they're so fucking smug about it, they act like they've won somehow when the "context" does not change anything."
