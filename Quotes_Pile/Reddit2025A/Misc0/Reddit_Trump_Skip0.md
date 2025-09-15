@@ -98,3 +98,6 @@ https://old.reddit.com/r/Steam/comments/1nhndtp/which_game_was_this_for_you/
 
 You are a worthless non-person withotu a job. And people can't connect that with 79 year old man who does not wish to retire and has turned his Twitter / Truth Social / Fox News media addiction into Russia Internet Research Agency + Kemlin opera for an entire nation and even other NATO nations.     
 https://old.reddit.com/r/CuratedTumblr/comments/1nhqisg/really_feeling_this_one_today/
+
+Multiple NATO nations with mass dehumanizaiton "high energy", riled up by Internet Researc Agency and Cambridge Analytica mind-fucking. Exciting thrills to *hate thy enemy* and other pro-hate values.    
+https://old.reddit.com/r/PublicFreakout/comments/1nhsp3n/brown_women_chased_intimidated_at_tommy_robinsons/
