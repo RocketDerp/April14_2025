@@ -320,3 +320,8 @@ https://old.reddit.com/r/therewasanattempt/comments/1nh50m7/to_stop_free_lunch/
 
 Surkovian Governing is being run up the flag pole, absurd surreal antics, done right in the faces of social media addicts and nobody wants to call out Adam Curtis / Peter P on Surkov. That this is how Russia operates. people on Bluesky and Reddit with free time / spare time - are using all that time to mock and insult in predictable ways Surkovian antics exploit. Eating the onion.      
 https://old.reddit.com/r/clevercomebacks/comments/1nh3zhi/halfstaff_flags_only_for_friends/
+
+&nbsp;
+
+NYC Neil Postman was right in 1985. People eat up this White House and Kremlin.    
+https://old.reddit.com/r/LiveFromNewYork/comments/1nh4dnc/can_anyone_else_see_aziz_ansari_playing_kash/
