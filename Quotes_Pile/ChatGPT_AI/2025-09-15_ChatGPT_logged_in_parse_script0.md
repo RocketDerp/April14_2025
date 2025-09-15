@@ -707,3 +707,282 @@ if __name__ == "__main__":
     main(sys.argv[1])
 
 ```
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Start over
+
+&nbsp;
+
+Start over, focus on the old.reddit.com link  being the start of each entry
+ChatGPT said:
+
+Perfect — let’s start fresh and keep it focused.
+We’ll treat your file as a list of entries, where:
+
+Each entry begins with a line containing an old.reddit.com link.
+
+The entry continues until the next old.reddit.com link or the end of file.
+
+Inside the entry we can capture:
+
+the stored quote (the first "..." block of text, if present),
+
+whether commentary exists (look for lines like ::: containing Commentary),
+
+and then we’ll fetch the live comment text from Reddit (scraping HTML, as you asked).
+
+Finally, we’ll compare stored quote vs. live comment.
+
+Python Script
+#!/usr/bin/env python3
+import re
+import sys
+import time
+import requests
+from bs4 import BeautifulSoup
+
+# --- Regex to detect entry start
+ENTRY_START = re.compile(r'^https?://old\.reddit\.com/')
+
+def parse_entries(lines):
+    """
+    Split the file into entries.
+    Each entry starts with an old.reddit.com link.
+    """
+    entries = []
+    current = []
+    for line in lines:
+        if ENTRY_START.match(line.strip()):
+            if current:
+                entries.append(current)
+                current = []
+        current.append(line.rstrip("\n"))
+    if current:
+        entries.append(current)
+    return entries
+
+def get_link(entry):
+    """Return the entry's first reddit link (the header)."""
+    for line in entry:
+        if ENTRY_START.match(line.strip()):
+            return line.strip()
+    return None
+
+def extract_quote(entry):
+    """Extract the first quoted string ("...") in the entry."""
+    text = " ".join(entry)
+    m = re.search(r'"([^"]+)"', text)
+    return m.group(1).strip() if m else None
+
+def has_commentary(entry):
+    """Check if commentary is present in the entry."""
+    for line in entry:
+        if "Commentary" in line and ":::=" in line:
+            return True
+    return False
+
+def fetch_comment_html(link):
+    """
+    Fetch the live comment text from an old.reddit.com permalink.
+    Returns plain text of the first comment body, or None.
+    """
+    headers = {"User-Agent": "RedditVerifier/0.1"}
+    try:
+        r = requests.get(link, headers=headers, timeout=15)
+        r.raise_for_status()
+        soup = BeautifulSoup(r.text, "html.parser")
+
+        # Old reddit: comment bodies live in div.comment > div.usertext-body > div.md
+        div = soup.select_one("div.comment div.usertext-body div.md")
+        if div:
+            return div.get_text(" ", strip=True)
+    except Exception as e:
+        print(f"  [Error fetching {link}: {e}]")
+    return None
+
+def compare_text(stored, live):
+    """
+    Compare stored vs. live text with whitespace normalization.
+    """
+    if not stored or not live:
+        return False
+    norm_stored = " ".join(stored.split())
+    norm_live = " ".join(live.split())
+    return norm_stored == norm_live
+
+def main(filepath):
+    with open(filepath, "r", encoding="utf-8") as f:
+        lines = f.readlines()
+
+    entries = parse_entries(lines)
+
+    for idx, entry in enumerate(entries, 1):
+        link = get_link(entry)
+        stored_quote = extract_quote(entry)
+        commentary = has_commentary(entry)
+
+        print(f"\nEntry {idx}")
+        print(f"  Link       : {link}")
+        print(f"  Commentary : {'YES' if commentary else 'NO'}")
+        print(f"  Stored     : \"{stored_quote}\"" if stored_quote else "  Stored     : None")
+
+        if link:
+            live_text = fetch_comment_html(link)
+            if live_text:
+                match = compare_text(stored_quote, live_text)
+                print(f"  Live       : \"{live_text}\"")
+                print(f"  Match      : {'YES' if match else 'NO'}")
+            else:
+                print("  Live       : Could not fetch")
+
+        time.sleep(1)  # politeness delay
+
+if __name__ == "__main__":
+    if len(sys.argv) != 2:
+        print("Usage: python verify_reddit_entries.py <path_to_md_file>")
+        sys.exit(1)
+    main(sys.argv[1])
+
+What it does
+
+Splits your Markdown file into entries (old.reddit.com link = start).
+
+For each entry, it shows:
+
+The link
+
+Whether commentary exists
+
+The stored quote (first "..." in entry)
+
+The live comment text (scraped from HTML)
+
+Whether they match
+
+Do you want the comparison to require exact match (as in now), or should it be relaxed to allow the stored quote to be just an excerpt / substring of the live comment?
+
+&nbsp;
+
+&nbsp;
+
+# Code block from start over
+
+&nbsp;
+
+```python
+#!/usr/bin/env python3
+import re
+import sys
+import time
+import requests
+from bs4 import BeautifulSoup
+
+# --- Regex to detect entry start
+ENTRY_START = re.compile(r'^https?://old\.reddit\.com/')
+
+def parse_entries(lines):
+    """
+    Split the file into entries.
+    Each entry starts with an old.reddit.com link.
+    """
+    entries = []
+    current = []
+    for line in lines:
+        if ENTRY_START.match(line.strip()):
+            if current:
+                entries.append(current)
+                current = []
+        current.append(line.rstrip("\n"))
+    if current:
+        entries.append(current)
+    return entries
+
+def get_link(entry):
+    """Return the entry's first reddit link (the header)."""
+    for line in entry:
+        if ENTRY_START.match(line.strip()):
+            return line.strip()
+    return None
+
+def extract_quote(entry):
+    """Extract the first quoted string ("...") in the entry."""
+    text = " ".join(entry)
+    m = re.search(r'"([^"]+)"', text)
+    return m.group(1).strip() if m else None
+
+def has_commentary(entry):
+    """Check if commentary is present in the entry."""
+    for line in entry:
+        if "Commentary" in line and ":::=" in line:
+            return True
+    return False
+
+def fetch_comment_html(link):
+    """
+    Fetch the live comment text from an old.reddit.com permalink.
+    Returns plain text of the first comment body, or None.
+    """
+    headers = {"User-Agent": "RedditVerifier/0.1"}
+    try:
+        r = requests.get(link, headers=headers, timeout=15)
+        r.raise_for_status()
+        soup = BeautifulSoup(r.text, "html.parser")
+
+        # Old reddit: comment bodies live in div.comment > div.usertext-body > div.md
+        div = soup.select_one("div.comment div.usertext-body div.md")
+        if div:
+            return div.get_text(" ", strip=True)
+    except Exception as e:
+        print(f"  [Error fetching {link}: {e}]")
+    return None
+
+def compare_text(stored, live):
+    """
+    Compare stored vs. live text with whitespace normalization.
+    """
+    if not stored or not live:
+        return False
+    norm_stored = " ".join(stored.split())
+    norm_live = " ".join(live.split())
+    return norm_stored == norm_live
+
+def main(filepath):
+    with open(filepath, "r", encoding="utf-8") as f:
+        lines = f.readlines()
+
+    entries = parse_entries(lines)
+
+    for idx, entry in enumerate(entries, 1):
+        link = get_link(entry)
+        stored_quote = extract_quote(entry)
+        commentary = has_commentary(entry)
+
+        print(f"\nEntry {idx}")
+        print(f"  Link       : {link}")
+        print(f"  Commentary : {'YES' if commentary else 'NO'}")
+        print(f"  Stored     : \"{stored_quote}\"" if stored_quote else "  Stored     : None")
+
+        if link:
+            live_text = fetch_comment_html(link)
+            if live_text:
+                match = compare_text(stored_quote, live_text)
+                print(f"  Live       : \"{live_text}\"")
+                print(f"  Match      : {'YES' if match else 'NO'}")
+            else:
+                print("  Live       : Could not fetch")
+
+        time.sleep(1)  # politeness delay
+
+if __name__ == "__main__":
+    if len(sys.argv) != 2:
+        print("Usage: python verify_reddit_entries.py <path_to_md_file>")
+        sys.exit(1)
+    main(sys.argv[1])
+```
