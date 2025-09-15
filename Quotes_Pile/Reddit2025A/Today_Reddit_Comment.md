@@ -497,3 +497,17 @@ https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/nebao5n/
 handstanding 2010-11-02
 
 "You have an entire generation of the most selfish people ever to walk the earth, who will pay every red cent they have to live for as many extra seconds as possible because they are also terrified of death. Half of them don’t even talk to their children anymore. That wealth ain’t going nowhere, it’s getting cast into the fires of Mt Doom."
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/neb4faj/
+
+DryHumourBotR4R 2020-07-26
+
+"It hurts my soul, the fuck we doing with each other. "
+
+* :::=== RoundSparrow_Commentary : All the spare time / free time / money in USA that went to funding those sports stars, sports stadiums, media empires broadcasting sports and entertainment. All the ation films from Hollywood, the action televisioon shows of tracking down terrorists and other outsiders. Instead of facing up to the Reality that Dr. Martin Luther King described as our need for progress, we just kept creating sports stars / video game stars / speedrunners to cheer on. What we did not cheer on was humanity itself. Actors and film clips and meme images we built, but we voted for enterteainr Donald Trump - and LOL LOL amusement entertainment above all else, mocking Trump, hate Trump, 79 year old success story of inspiring hate and mocking of science. Sports stars, wealth stars (when you are a star, you can grab them by the pussy), Mario entertainment stars, while we drove past each other in digust on the highway to race home and admire the few who entertained us. Basketball and football solved which problem? Our boredom with nonfiction science learning and knowing how to communicate and recognize the need to rescue Russian people and rescue MAGA USA people from celebration of ignorance? https://www.youtube.com/watch?v=wcY-x1VuWtE Celebration of technology (Elon Musk) wealth? Celebration of Putin's wealth and domination of neighbors? ... ... ...
+“Science is not only compatible with spirituality; it is a profound source of spirituality. When we recognize our place in an immensity of light‐years and in the passage of ages, when we grasp the intricacy, beauty, and subtlety of life, then that soaring feeling, that sense of elation and humility combined, is surely spiritual. So are our emotions in the presence of great art or music or literature, or acts of exemplary selfless courage such as those of Mohandas Gandhi or Martin Luther King, Jr. The notion that science and spirituality are somehow mutually exclusive does a disservice to both.”
+― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ... ... ...
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013 ===:::
