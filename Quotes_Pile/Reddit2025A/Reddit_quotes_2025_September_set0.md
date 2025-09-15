@@ -3974,7 +3974,7 @@ rmlopez 2013-03-26
 
 all I'm saying is I like it better when the presidents social media was irrelevant."
 
-* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal Twitter usage](Surkovian_Onion_Eating.md). Constant media entertainment being the Russian technique that has kept Putin in power for 25 years. Obivious to the situation, treating it as a minor annoyance and not the very neans of Russia defeating USA in information warfare. ===:::
+* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal Twitter usage](Surkovian_Onion_Eating.md). Constant media entertainment being the Russian technique that has kept Putin in power for 25 years. Oblivious to the situation, treating it as a minor annoyance and not the very means of Russia defeating USA in information warfare. ===:::
 
 &nbsp;
 
