@@ -67,6 +67,16 @@ You could make an argument for wars of independence or liberation, but through m
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nhj6rd/nato_at_war_with_russia_kremlin_says/nec220y/
+
+catify 2015-05-04
+
+"Elon Musk is the world richest man and still has to pretend like he is #1 at video games by streaming himself playing Diablo and Path of Exile (poorly) with boosted accounts.
+
+You can’t satiate the ego of these people. The more stuff and power they have, the more desperate they are to fill that void inside themselves."
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
