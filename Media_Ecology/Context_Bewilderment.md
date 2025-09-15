@@ -41,3 +41,17 @@ Tite: "Internet Shocked By Teacher's Answer"
 Topic: fractions and context changes, half a small pizza vs. half a much larger pizza.   
 https://www.youtube.com/watch?v=6DnyCvMHgDo
 
+
+&nbsp;
+
+&nbsp;
+
+## Speak or write Fox News context?
+
+"Do You Speak Fox?"      
+"How Donald Trump’s favorite news source became a language"    
+"By Megan Garber"    
+September 16, 2020    
+
+https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
