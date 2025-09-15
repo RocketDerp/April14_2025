@@ -353,3 +353,8 @@ https://old.reddit.com/r/AdviceAnimals/comments/1nhr4rv/hm/
 
 You can see the brains blow, every few seconds, minds blown by the contradictions of modern information warfare. It is shooting fish in a Reddit social media barrel. Nobody can stand up and cite relevant nonfiction on these techniques, USA media addicts are compusively flocking like drug addicts to more and more Donald Trump White House and Putin content.    
 https://old.reddit.com/r/PoliticalHumor/comments/1nhuv0k/strange_but_true/
+
+&nbsp;
+
+Reddit eats up the endless satire / Twitter messages / absurd / surreal Truth Social and Elon Musk Twitter behaviors / Internet Research Agency since year 2013. Every day it gets worse since year 2013. People so entertained and amused by paradox anti-humanism behaviors around comic and meme format addictions.  Russia won, Surkov students won.    
+https://old.reddit.com/r/therewasanattempt/comments/1nhxoie/to_cancel_her/
