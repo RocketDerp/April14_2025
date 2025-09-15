@@ -310,3 +310,8 @@ https://old.reddit.com/r/BlueskySkeets/comments/1ngy41j/damn_right/
 
 Compusive adoption of Russian War Agianst Reality.     
 https://old.reddit.com/r/fakehistoryporn/comments/1ngwqvk/charlie_kirks_alleged_assassin_tyler_robinson/
+
+&nbsp;
+
+Free school lunch and people not able to cite Bible verse "1 John 3:17" and recite it in the face of MAGA / Trumpism - on Reddit / Bluesky, etc.    
+https://old.reddit.com/r/therewasanattempt/comments/1nh50m7/to_stop_free_lunch/
