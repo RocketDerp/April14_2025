@@ -407,3 +407,13 @@ https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_
 MonthOk9907 2020-12-09
 
 "I've said this before to people hoping Cheetoh chokes on his last Big Mac....JD is much MUCH worse. JD doesn't care about money or image or crypto. He truly hates people and will do whatever it takes to hurt them."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_jd_vance_vows/neeetgg/
+
+Environmental-Day862 2020-11-09
+
+"They literally brought nooses with them and were chanting "Hang Mike Pence."
+
+What do you think would have happened on January 6 if Mike Pence was walking out of the Capitol unescorted while the mob was descending upon it?"
