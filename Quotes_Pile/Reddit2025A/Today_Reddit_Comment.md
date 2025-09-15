@@ -14,7 +14,7 @@ He finally returns to Moscow, where he meets his friend at the bar.
 
 "Oh, they haven't shown up yet"."
 
-* :::=== RoundSparrow_Commentary : The war against reality described in nonfiction. We are tricking, manipulating, informing each other into hate and dehumanization since year 2013 on a world wide web scale. And the entertainment industry, amusement mills of Bluesky and Reddit eat up evey Putin and Trump / Kremlin and White House method of Surkovian governing since year 2013. We have drowned ourselves in bullshiting. Our meme machines favor fiction and lies and deception and Russia has exploited that with Surkov students since March 2013. Any person can click this Septemvber 9, 2014 link and face up to what we are liiving under, but people want to avoid the nonfiction reality of the self-harm humanity has engaged: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ and the year before pandemic February 12, 2019 floating of how success it was https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793 - and the evidence of measles and COVID-19 pandemic deaths intended by the anti-reality pro-disease manipulation warfare disclosed August 24, 2018 and validated by informaiton experts: https://www.bbc.com/news/world-us-canada-45294192 ===:::
+* :::=== RoundSparrow_Commentary : The war against reality described in nonfiction. We are tricking, manipulating, informing each other into hate and dehumanization since year 2013 on a world wide web scale. And the entertainment industry, amusement mills of Bluesky and Reddit eat up every Putin and Trump / Kremlin and White House method of Surkovian governing since year 2013. We have drowned ourselves in bullshiting and insincerity. Our meme machines favor fiction and lies and deception and Russia has exploited that with Surkov students since March 2013. Any person can click this September 9, 2014 link and face up to what we are living under, but people want to avoid the nonfiction reality of the self-harm humanity has engaged: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ and the year before pandemic February 12, 2019 floating of how success it was https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793 - and the evidence of measles and COVID-19 pandemic deaths intended by the anti-reality pro-disease manipulation warfare disclosed August 24, 2018 and validated by information experts: https://www.bbc.com/news/world-us-canada-45294192 ===:::
 
 &nbsp;
 
@@ -230,7 +230,7 @@ Nondescriptish 2021-04-06
 
 "As soon as i saw those Confederate flags popping up all over the place, even in the north, I thought right away, Putin's propaganda is working on these dips. Putin is well-aware how to create divisions. Probably the same now in England. Flags hold special value and deep sentiment to certain impressionable people."
 
-* :::=== RoundSparrow_Commentary : I too witness outdoor public behavior changes and extensively traveld the USA in an RV. While studying the sitaution since 2015, I was living in Flordia / Orlando / Jacksonville. Massive behavior changes induced by the Russian Internet Research Agency and Cambridge Analytica pair. Donald Trump practically abandoned NYC, his home twon, to immerse in the Flordia society. https://www.palmbeachpost.com/story/news/2020/09/15/trumps-sale-palm-beach-mansion-gains-scrutiny-again/5798386002/ ===:::
+* :::=== RoundSparrow_Commentary : I too witness outdoor public behavior changes and extensively traveled the USA in an RV. While studying the situation since 2015, I was living in Florida / Orlando / Jacksonville. Massive behavior changes induced by the Russian Internet Research Agency and Cambridge Analytica pair. Donald Trump practically abandoned NYC, his home town, to immerse in the Florida society. https://www.palmbeachpost.com/story/news/2020/09/15/trumps-sale-palm-beach-mansion-gains-scrutiny-again/5798386002/ ===:::
 
 &nbsp;
 
@@ -266,7 +266,7 @@ Head_Bread_3431 2025-02-14 (new this year)
 
 "Learning is hard. I remember I took a class on Marxism *gasp* in college and the professor said at the beginning this class will be hard, and it was, but I learned a lot. Also took his class on American History where we studied the federalist papers the Declaration of Independence the constitution, the abolitionists, the civil war, the emancipation proclamation, reconstruction, Jim Crow, sncc, the civil rights movement, etc. It was all wild. it wasn’t what you get in high school. It challenged my preconceptions of the country and made me wanna make it better. These people wanna ignore this history and rewrite these accomplishments to keep things the same and take us backward"
 
-* :::=== RoundSparrow_Commentary : Spending all free time and spare time mocking and insutling, in a Total Mockery lead by Donald Trump and Putin's IRA, is much easier than nonfiction science learning. Supporting Malala's educaiton efforts since the release of her October 8, 2013 book. ===:::
+* :::=== RoundSparrow_Commentary : Spending all free time and spare time mocking and insulting, in a Total Mockery lead by Donald Trump and Putin's IRA, is much easier than nonfiction science learning. Supporting Malala's education efforts since the release of her October 8, 2013 book. ===:::
 
 &nbsp;
 
@@ -276,7 +276,7 @@ aFairyTookMyName 2024-07-05
 
 "That’s why they’ve done a damn good job over the last decade of convincing the populace that college education is idiotic (the amount of times I heard Trump supporters reference college educated commentators as ‘college educated idiots’)"
 
-* :::=== RoundSparrow_Commentary :  *They* being the Russian Internet Resarch Agency since March 2013 convicing Americans to self-harm with pro-ignorance attitudes, anti-Malala education promotion. Malala is not entertaining and amsuing like Donald Trump, the IRA has induced massive amusement-based entertainment-concerend addictions. Especially mocking and insulting considered the most improtant values for parents to teach thier children. Donald Trump as role model of society / parenting / business leadership / Truth Social values. ===:::
+* :::=== RoundSparrow_Commentary :  *They* being the Russian Internet Resarch Agency since March 2013 convincing Americans to self-harm with pro-ignorance attitudes, anti-Malala education promotion. Malala is not entertaining and amusing like Donald Trump, the IRA has induced massive amusement-based entertainment-concerned addictions. Especially mocking and insulting considered the most important values for parents to teach their children. Donald Trump as role model of society / parenting / business leadership / Truth Social values. ===:::
 
 &nbsp;
 
@@ -302,7 +302,7 @@ my_okay_throwaway 2017-10-11
 
 "He’s constantly insulting them and has consistently said things like this about the type of voters who worship him. You’re right, they always do try to turn it into some compliment or at least warp it into an insult for “the other side” to make themselves feel superior."
 
-* :::=== RoundSparrow_Commentary : NYC Tony Clifton act is to walk into the audiene and insult the audience members. Part of the improv an scripted blendding of the Infinite Jest enteratinment V. Putin and Trump has everyone bamboozled, addicted to the mocking Trump insutling Trump anti-truth Truth Social absurd surreal. Trump plays a great President Tony Clifton, people eat it up and refresh their social machines every hour. ===:::
+* :::=== RoundSparrow_Commentary : NYC Tony Clifton act is to walk into the audience and insult the audience members. Part of the improv and scripted blending of the *Infinite Jest entertainment V*. Putin and Trump has everyone bamboozled, addicted to the mocking Trump insulting Trump anti-truth Truth Social absurd surreal. Trump plays a great President Tony Clifton, people eat it up and refresh their social machines every hour. ===:::
 
 &nbsp;
 
@@ -378,7 +378,7 @@ BrtFrkwr 2023-12-31
 
 "They saw it coming. They made it happen. The effect a policy has is usually the reason for it's existence."
 
-* :::=== RoundSparrow_Commentary : People are still in deep denial that Trump is serving Russia with compusive self-harm to USA. Despite millions of people in USA demonstrating self-harm voting and self-harm media usage. Forcing Canada to be the 51st State and other attacks on NATO partners. Trump just met with Putin in Alaska in recent weeks and people still can't face up to the reality of the Kremlin War Against Reality https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+* :::=== RoundSparrow_Commentary : People are still in deep denial that Trump is serving Russia with compulsive self-harm to USA. Despite millions of people in USA demonstrating self-harm voting and self-harm media usage. Forcing Canada to be the 51st State and other attacks on NATO partners. Trump just met with Putin in Alaska in recent weeks and people still can't face up to the reality of the Kremlin War Against Reality https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
 
 &nbsp;
 
@@ -434,7 +434,7 @@ GarethGazzGravey 2022-11-07
 
 How this wasn't the end of Trump's campaign is still baffling to me."
 
-* :::=== RoundSparrow_Commentary : Trump situation baffels anyone who doesn't analyze and comprehend Surkov Russian governing methods, Kremlin informaiton warfare, Cambridge Analytica discoveries. ===:::
+* :::=== RoundSparrow_Commentary : Trump situation baffles anyone who doesn't analyze and comprehend Surkov Russian governing methods, Kremlin information warfare, Cambridge Analytica discoveries. ===:::
 
 &nbsp;
 
@@ -528,7 +528,7 @@ DryHumourBotR4R 2020-07-26
 
 "It hurts my soul, the fuck we doing with each other. "
 
-* :::=== RoundSparrow_Commentary : All the spare time / free time / money in USA that went to funding those sports stars, sports stadiums, media empires broadcasting sports and entertainment. All the ation films from Hollywood, the action televisioon shows of tracking down terrorists and other outsiders. Instead of facing up to the Reality that Dr. Martin Luther King described as our need for progress, we just kept creating sports stars / video game stars / speedrunners to cheer on. What we did not cheer on was humanity itself. Actors and film clips and meme images we built, but we voted for enterteainr Donald Trump - and LOL LOL amusement entertainment above all else, mocking Trump, hate Trump, 79 year old success story of inspiring hate and mocking of science. Sports stars, wealth stars (when you are a star, you can grab them by the pussy), Mario entertainment stars, while we drove past each other in digust on the highway to race home and admire the few who entertained us. Basketball and football solved which problem? Competititon worship, defeat others. Our boredom with nonfiction science learning and knowing how to communicate and recognize the need to rescue Russian people and rescue MAGA USA people from celebration of ignorance? https://www.youtube.com/watch?v=wcY-x1VuWtE Celebration of technology (Elon Musk) wealth? Celebration of Putin's wealth and domination of neighbors? ... ... ...
+* :::=== RoundSparrow_Commentary : All the spare time / free time / money in USA that went to funding those sports stars, sports stadiums, media empires broadcasting sports and entertainment. All the action films from Hollywood, the action television shows of tracking down terrorists and other outsiders. Instead of facing up to the Reality that Dr. Martin Luther King described as our need for progress, we just kept creating sports stars / video game stars / speedrunners to cheer on. What we did not cheer on was humanity itself. Actors and film clips and meme images we built, but we voted for entertainer Donald Trump - and LOL LOL amusement entertainment above all else, mocking Trump, hate Trump, 79 year old success story of inspiring hate and mocking of science. Sports stars, wealth stars (when you are a star, you can grab them by the pussy), Mario entertainment stars, while we drove past each other in disgust on the highway to race home and admire the few who entertained us. Basketball and football solved which problem? Competition worship, defeat others. Our boredom with nonfiction science learning and knowing how to communicate and recognize the need to rescue Russian people and rescue MAGA USA people from celebration of ignorance? https://www.youtube.com/watch?v=wcY-x1VuWtE Celebration of technology (Elon Musk) wealth? Celebration of Putin's wealth and domination of neighbors? ... ... ...
 “Science is not only compatible with spirituality; it is a profound source of spirituality. When we recognize our place in an immensity of light‐years and in the passage of ages, when we grasp the intricacy, beauty, and subtlety of life, then that soaring feeling, that sense of elation and humility combined, is surely spiritual. So are our emotions in the presence of great art or music or literature, or acts of exemplary selfless courage such as those of Mohandas Gandhi or Martin Luther King, Jr. The notion that science and spirituality are somehow mutually exclusive does a disservice to both.”
 ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ... ... ...
 “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
