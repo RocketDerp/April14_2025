@@ -276,3 +276,15 @@ boston_homo 2015-01-09
 ... ... ... https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/       
 At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: **“We all know there will be no real politics,”** he said. “But we still have to give our viewers the sense something is happening. **They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”**
 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedhhms/
+
+sembias 2016-03-31
+
+"When Franco took over Spain for 30 years of fascist rule, he wasn't the guy that was supposed to be in charge.
+
+If the US falls into that, it won't be Trump. And it will last longer than 30 years."
+
+&nbsp;
