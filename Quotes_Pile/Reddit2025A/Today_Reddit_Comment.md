@@ -372,4 +372,14 @@ BioticVessel 2022-04-25
 
 "Isn't it great to live in a country run through meltdowns by some dilapidated old pervert who's too out of it to not realize that his shit does stink?"
 
-* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal acts of stinking up the USA to serve Russian interests of self-harming the USA](Surkovian_Onion_Eating.md). The ignorance of the details of Russian information warfare are horrific on Reddit and Bluesky. People fall for the Prsident Tony Clifton antics into compulsive mocking, it's been going on for OVER A DECADE with Trump! One-line meme-think reaction comments day after day that "Ate The Onion" and can't grasp it is deliberate exploitation of audience minds. ===:::
+* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal acts of stinking up the USA to serve Russian interests of self-harming the USA](Surkovian_Onion_Eating.md). The ignorance of the details of Russian information warfare are horrific on Reddit and Bluesky. People fall for the Prsident Tony Clifton antics into compulsive mocking, it's been going on for OVER A DECADE with Trump! One-line meme-think reaction comments day after day that "Ate The Onion" and can't grasp it is deliberate exploitation of audience minds. The extreme gullibility of Americans to Reality TV "The Apprentice". ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedqre7/
+
+NotNamedBort 2023-12-13
+
+"Sundowning or not, he’s got way too much power. He’s basically Stupid Palpatine, and no one in this administration is going to defy him."
+
+* :::=== RoundSparrow_Commentary :And people think it is only one person, Donald J Trump, what about RFK Jr? What about the Pentagon? What about all the antics the military is doing? everyone isn't sundownning. People really need to study Russia year 2011. Such as... October 20, 2011 - learn some NON fiction. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Reddit society is gullibilty in a feedback loop of gullible. ===:::
