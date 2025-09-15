@@ -399,3 +399,11 @@ https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_
 MisterForkbeard 2013-07-26
 
 "Nice to remember that Kirk and his organization literally bussed in people who attacked the capitol building and tried to kill representatives."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_jd_vance_vows/neekms5/
+
+MonthOk9907 2020-12-09
+
+"I've said this before to people hoping Cheetoh chokes on his last Big Mac....JD is much MUCH worse. JD doesn't care about money or image or crypto. He truly hates people and will do whatever it takes to hurt them."
