@@ -560,6 +560,7 @@ Do you want me to make the comparison less strict (e.g., treat the Markdown quot
 
 # copy code blocks
 
+```python
 #!/usr/bin/env python3
 import re
 import sys
@@ -635,6 +636,7 @@ if __name__ == "__main__":
     filepath = sys.argv[1]
     main(filepath)
 
+```
 
 &nbsp;
 
@@ -642,6 +644,7 @@ if __name__ == "__main__":
 
 second code block:
 
+```python
 #!/usr/bin/env python3
 import re
 import sys
@@ -703,3 +706,4 @@ if __name__ == "__main__":
         sys.exit(1)
     main(sys.argv[1])
 
+```
