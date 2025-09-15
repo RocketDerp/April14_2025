@@ -490,7 +490,17 @@ pessimist_kitty 2019-10-07 (Putin's Birthday)
 
 "Anyone else feel physically sick of being in this nightmare fucking timeline?"
 
-* :::=== RoundSparrow_Commentary : Russian information warfare, Surkov is a master of these techniques for 25 years.    
+* :::=== RoundSparrow_Commentary : Russian information warfare, Surkov is a master of these techniques for 25 years.
+... ... ..     
+“History, Stephen said, is a nightmare from which I am trying to awake.” ― James Joyce, Ulysses
 ... ... ...   
 "my kids will have live in more of it than I will ever see. So I am trying to understand it and think about it as much as I can, and a sense you get is one that resembles vertigo. How many of you have seen Vertigo, the great Alfred Hitchcock movie? You know, that **sort of sickly sense that you are twisting above… sort of, abysmally too much of something. This seems to me a fine, sort of, mood characterisation for the postmodern trajectory. A sense of vertigo before all this information**." - Texan Rick Roderick, 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nhobr3/washington_post_columnist_says_she_was_fired_over/nedqz2u/
+
+baconbitarded 2013-07-14
+
+"I got banned from Facebook for a month for posting Charlie Kirk's thoughts on the black community."
