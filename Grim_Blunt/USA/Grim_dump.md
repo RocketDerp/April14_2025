@@ -37,6 +37,17 @@ So let me explain why I like to pay taxes for schools, even though I don't perso
 
 &nbsp;
 
+## I do not mean children education
+
+These quotes above are in the context of public educaiton for children. But I also address the educaiton people get off Fox News, Bluesky, Reddit. The spare time and free time people use to educate themselves about sports stars, film stars, award ceremonies, sports contests, video game high scores and records, new entertainment, mocking of Donald Trump, hate cheering of Trump, the spectacle of free time spent flocking to the few as amusement and entertainment.
+
+I mean Wikipedia, I mean every day. Our health care, our food, our essentials in life, our relationship problems, both micro of our own depressions and need for compassion and love, our own family, our own community, our own city, our own state, our own nation, our own world Earth, our own universe / Cosmos. I mean Wikipedia. I mean WikiTribune year 2017 effort: https://www.wired.com/story/jimmy-wales-is-having-another-crack-at-wikitribune/
+
+Why do we complain and complain and criticize and criticize "the media" when many of us know how incredibly low cost it is to build and create text-based information systems like Wikipedia software. And how they can download and share the entire database of text. Why do people critiize and criticize copyright on free-time spare-time social media Reddit and encourage piracy - instead of working to address that nonfiction should not be copyrighted! Wikipedia commons of medical knowledge of the human body, a WikiMedicalAll system - as WE ALL HAVE human body! We all eat foods and have allergies and problems related to eating food! We all drink water and have problems with pollutions. We all have a common interest in learning medical knowledge from some other person's injury / discovery / caretaking of a family member. Cancer death and loss of each other is incentive enough, profit motive and wealth to rule over the health of other humans is not needed when there is a built-in reward from compassion and the labor of organizing information in a WikiMedicalAll system! We all benefit from knowing the drugs others are taking and their experiences and organizing this information into summary / detail patterns / personal experience language vs. summary langauge. Instead, we scroll off Bluesky and Reddit content - we constantly toss out information after 24 hours and repeat and repeat information instead of refining and going towards a Super Wikipedia style reference that any time day or night we can find organized drill-down levels of ideas and expereinces on our common subject. How many nonfiction books avoid repeating the same pargraphs because of profit motives / copyright income motivates / egoism of claiming that a paragraph is original! We are so concerned with competitition and being original we don't even seem to recognize that our free time and spare time goes into service of creating Reddit and Bluesky comments that drown out the best ideas and answers to issues - because we aren't organizing them into a common FAQ / Super Wikipedia / Best Practices / Best Writings / Best Teachings systemss that are open and free to share and free to download for offline use by anyone in the world!
+
+
+&nbsp;
+
 Reference:    
 Freedom: Alchemy for a Voluntary Society    
 Stephan A. Hoeller      
