@@ -480,3 +480,20 @@ Jeramy_Jones 2021-08-08
 
 "Actually that’s not exactly accurate. Most societies had some sort of custom to care for seniors, orphans, widows etc. But the capitalistic tendency to see people only for their ability to generate value and the modern, western fierce individualism has not been kind to them."
 
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/neb3ngu/
+
+tollbearer 2021-09-24
+
+"Quite literally. The middle class was a marketing exercise to stop the working classes doing what they did in the soviet union, which they were very close to after ww2. The enlightened among the wealthy realized they couldn't resort to the brutal tactics they had previously relied on to suppress what was now a trained fighting force, united, and willing to die. And the soviet unoin would rapidly back any successful working class movements in the west. It was a dangerous time to be as greedy as they had always been, so they gave a little back, to convince the working classes, there was actually a model of capitalism which benefited them.
+
+Now they have completely destroyed working class cohension, the soviet union, and divided the population into a million factions fighting over absolute nonsense, rather than their common interests, they are rolling things back to how they always were, maximum work in exchange for the literal minimum necessary to keep you alive to come back to work."
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/nebao5n/
+
+handstanding 2010-11-02
+
+"You have an entire generation of the most selfish people ever to walk the earth, who will pay every red cent they have to live for as many extra seconds as possible because they are also terrified of death. Half of them don’t even talk to their children anymore. That wealth ain’t going nowhere, it’s getting cast into the fires of Mt Doom."
