@@ -571,3 +571,12 @@ Tuttutsallaround 2025-07-13 (recent account)
 
 * :::=== RoundSparrow_Commentary : This message entirely ignores multiple NATO nations all reporting since year 2013 an Internet media invasion. Even Japan this year. July 15, 2025: https://asia.nikkei.com/politics/international-relations/russia-intensifies-propaganda-operations-in-japan - people are so fixated on Donald Trump they can not see this goes back to November 7, 2012 agreement to create the IRA. People are drowning their own selves in constant media consumption addiction for low-effort trash comments trashing Americans and eating Russian mindsets. No effort to teach cult deprogamming, ficiton addiciton treatment plans, no concern to Rescue USA from Russia win. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nhna2g/dave_portnoy_said_donald_trump_played_a_huge_part/ned4pvj/
+
+thatmitchguy 2012-04-30
+
+"Once again most of you are just reading the headline. Notice how the headline has his quote broken up? Or how the article says Dave didn't "exactly" blame the guy. He even says mostly the Left in his comments around Trump.
+
+Read the news you're replying to people. Otherwise you are no different then the people you accuse of being misinformed."
