@@ -638,3 +638,21 @@ blueXwho 2018-10-08
 "Why do people keep repeating this? No, it's not bullshit and distraction, these are coordinated attacks on multiple fronts. Stop underestimating their plans. Too many people think that anything that they do is to cover up the Epstein files. You know what would happen if the files are released and it is proven that Trump was there, even if there is enough to show he is a rapist? Nothing! There is already proof that he is a rapist and nothing changed."
 
 &nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_and_miller_unveil_plan_to/nef5vmq/
+
+Left_Maize816 2025-03-08 (new this year)
+
+"I just don’t know if my brain can even wrap around how we literally got here. We have a guy that stands up and says, “ignore the evidence of your eyes and ears, only what I am saying right now is true and real. Any evidence that you see or hear that contradicts what I am saying right now is false and planted by not just my enemies, but your enemies as well. They want to destroy you, unlike me, who is just like you in every way even though our lives and experiences and wealth and opportunities are completely different. The systemic changes that I have made to impact the country financially are actually helping you and the evidence of your own wallet is wrong because if Kamala had been elected she would have made it worse. My many and varied crimes and money making schemes are actually all for you. I have not benefited at all despite my worth going up by more than you and your whole family tree can make in their lifetime. “ How are there people that love being lied to so much and so consistently?"
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_and_miller_unveil_plan_to/nees5t6/
+
+Sufficient_Depth_195 2025-07-16 (recent account)
+
+"It's not a distraction, it's the planned dismantling of your democracy."
+
+* :::=== RoundSparrow_Commentary : Planned and organized since November 7, 2012 https://www.facebook.com/konstantin.rykov/posts/10210621124674610 - and announced to the entire world in December 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ but social media addicts are unable to focus on serious and important nonfiction topics to get everyone on the same page, too much in their filter bubbles. ===:::
+
+&nbsp;
