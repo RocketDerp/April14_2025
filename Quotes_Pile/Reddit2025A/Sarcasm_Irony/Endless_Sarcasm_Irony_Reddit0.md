@@ -315,3 +315,8 @@ https://old.reddit.com/r/fakehistoryporn/comments/1ngwqvk/charlie_kirks_alleged_
 
 Free school lunch and people not able to cite Bible verse "1 John 3:17" and recite it in the face of MAGA / Trumpism - on Reddit / Bluesky, etc.    
 https://old.reddit.com/r/therewasanattempt/comments/1nh50m7/to_stop_free_lunch/
+
+&nbsp;
+
+Surkovian Governing is being run up the flag pole, absurd surreal antics, done right in the faces of social media addicts and nobody wants to call out Adam Curtis / Peter P on Surkov. That this is how Russia operates. people on Bluesky and Reddit with free time / spare time - are using all that time to mock and insult in predictable ways Surkovian antics exploit. Eating the onion.      
+https://old.reddit.com/r/clevercomebacks/comments/1nh3zhi/halfstaff_flags_only_for_friends/
