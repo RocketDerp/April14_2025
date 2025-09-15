@@ -355,3 +355,11 @@ Christ_on_a_Crakker 2014-07-28
 "I’m done with not taking him serious. Like it or not, he’s fuckin powerful beyond imagination and SCOTUS keeps handing him more power. We already have news anchors being fired for having opinions , masked “federal agents” disappearing US citizens into unmarked vehicles, military patrolling our own cities.
 
 We need to take this man serious."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedto2c/
+
+MasterOfBunnies 2014-01-30
+
+"The trick is to take the puppet masters behind the curtain serious, while understanding he's nothing more than an old decaying orange, masquerading as a puppet pretending to be the president."
