@@ -504,3 +504,17 @@ https://old.reddit.com/r/news/comments/1nhobr3/washington_post_columnist_says_sh
 baconbitarded 2013-07-14
 
 "I got banned from Facebook for a month for posting Charlie Kirk's thoughts on the black community."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nhobr3/washington_post_columnist_says_she_was_fired_over/ned7wqy/
+
+InfamousZebra69 2024-10-11
+
+"Fucker was a professional bigot"
+
+* :::=== RoundSparrow_Commentary : Russian information warfare since March 2013 is weaponized bigotry. Even "orange" as a total new skin color for mocking of all skin colors other than white. Media systems and content creators (Charlie Kirk inclusive, Reddit inclusive, Bluesky inclusive) in 2025 are profiteers exploitng a meme addeled population of hate-message addicts. Some making financial profits, all making power concentration / social pattern picking profits. No topic has ever sustained media addiction more than total mockery around Trump and Putin. Hate Trump / Mock Trump addicion abounds in USA:
+... ... ...
+https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy    
+This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, it raises the question of whether we are actually living in a democracy or not.”
+===:::
