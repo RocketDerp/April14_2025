@@ -363,3 +363,13 @@ https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_nat
 MasterOfBunnies 2014-01-30
 
 "The trick is to take the puppet masters behind the curtain serious, while understanding he's nothing more than an old decaying orange, masquerading as a puppet pretending to be the president."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedhjvi/
+
+BioticVessel 2022-04-25
+
+"Isn't it great to live in a country run through meltdowns by some dilapidated old pervert who's too out of it to not realize that his shit does stink?"
+
+* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal acts of stinking up the USA to serve Russian interests of self-harming the USA](Surkovian_Onion_Eating.md). The ignorance of the details of Russian information warfare are horrific on Reddit and Bluesky. People fall for the Prsident Tony Clifton antics into compulsive mocking, it's been going on for OVER A DECADE with Trump! One-line meme-think reaction comments day after day that "Ate The Onion" and can't grasp it is deliberate exploitation of audience minds. ===:::
