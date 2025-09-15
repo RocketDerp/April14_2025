@@ -31,6 +31,17 @@ At one end of the table sat one of the country’s most famous political TV pres
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nhj6rd/nato_at_war_with_russia_kremlin_says/nebzxb1/
+
+takanuva 2012-06-21
+
+"Reality has been looking like a South Park episode for a while now, to be fair. Perhaps coincidentally ever since the White House became a bit more orange."
+
+* :::=== RoundSparrow_Commentary : Media addicts to South Park, meme addicts to Bluesky and Reddit entertainment, can't get enough of the White House being run like South Park! The absurd surreal Surkov governing techniques of Russia year 2011 adopted to White House 2025. The most powerful way to captivate society into self-harm and detachment from science, detachment from goodness, detachment from reality - by constantly stimulating the audience into creating their own fan-fiction on social machines - mocking and insutling how terrible President Tony Clifton is at running Russia and USA. Compusive reactions to the President Clifton performance. People who make Twitter-length comments describing how President Tony Clifton is just like South Park, but are entirely unable to engage nonfiction books by Christopher Wylie, Peter Pomerantsev, Neil Postman and calll for defense against the Russian Internet Research Agency invasion of Reddit entertainment meme platform. https://www.bbc.com/news/technology-43301643 Even when measles are killing people, the audience of Bluesky and Reddit think it is great funny entertainment "Leopards Ate My Children!! ha ha ha ha, ja ja ja ja Texas dumb-asses, stupid Americans" over and over every day. As condtioned by the Russian Internet Research Agency since March 2013 https://www.bbc.com/news/world-us-canada-45294192 the constant amusement-washing satire-washing humor-washing of death by Russian information warfare that Reddit profits from and creates engaging memes about. South Park owners are making a tidy profit too! ===:::
+
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
