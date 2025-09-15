@@ -289,7 +289,14 @@ If the US falls into that, it won't be Trump. And it will last longer than 30 ye
 
 * :::=== RoundSparrow_Commentary : I don't think classic facism defines the USA. We have Hollywood, USA created social media, USA created Reddit and Bluesky. Rule by amusement and fiction. Creating compelling fiction stories, mythology based governing like Saudi Arabia and Mecca, in new Surkovian governing style. ChaatGPT / Grok AI / artificail intelligence can provide the entertainment memes that media addiction USA society craves and demands. Sports and games, video games / sports heroes / Jesus fiction hero stories / etc. Donald Trump has laid all this in the minds with images of himself. Compulsive mocking, minds tossing out all serious thinking in favor of mocking and insulting, when Trump does his Tony Clifton act / does his Bible seller act - has shown that monomyth fiction wins Reddit / Bluesky every day into not confronting media ecology / amusement itself. https://people.com/white-house-shares-ai-star-wars-day-photo-donald-trump-red-lightsaber-11727936 ===:::
 
-
 &nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedl1fy/
+
+NullaCogenta 2019-11-03
+
+"Also, so they drop the pretense of having objective standards or caring about things and admit they just want to brutalize their "lessers" and/or watch the world burn. In the status quo, it's like we're in a sitcom episodes where one of the characters gets caught in a lie and just keeps doubling down on it."
+
+* :::=== RoundSparrow_Commentary : Reddit community reads these messages of how it is *like* we are in a situation comedy, and nobody can recall 2014 books printed about the subject. [Eating the Surkovian onions](Surkovian_Onion_Eating.md), people who think they are smarter than Putin and Trump's techniques (Putin 16D + chess) without any self-awareness that it isn't accidental that fiction sitcom addictions are exploited. Only *one* of the characters doubles down? You think Elon Musk doesn't double down on this Hitler gestures? That JD Vance isn't? That it is all just one single person... Trump fixation playing Tony Clifton. Putin doubles down on the Ukraine war since February 2014. It's all laid out, the Russian Surkovian techniques, proven for 25 years. ===:::
 
 &nbsp;
