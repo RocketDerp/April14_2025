@@ -107,7 +107,7 @@ Like honestly this quote just replays in my head rent free and I'm trying to mak
 
 Rent free..."
 
-* :::=== RoundSparrow_Commentary :   Monomyth fiction patterns. https://en.wikipedia.org/wiki/A_Skeleton_Key_to_Finnegans_Wake ... That's ("this quote just replays in my head") the foundation of embedding mind patterns into citizens minds. Russian techniques described by Adam Curtis on BBC broadcast December 31, 2014.
+* :::=== RoundSparrow_Commentary : Monomyth fiction patterns. https://en.wikipedia.org/wiki/A_Skeleton_Key_to_Finnegans_Wake ... That's ("this quote just replays in my head") the foundation of embedding mind patterns into citizens minds. Russian techniques described by Adam Curtis on BBC broadcast December 31, 2014.
 "BBC's Adam Curtis On The ***"Contradictory Vaudeville"*** Of Post-Modern Politics" - "a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time" - https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html ... ... ...
 Reddit user saying "I'm more baffled at" - because they have not studied Marshall McLuhan's media ecology (Finnegans Wake https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village warfare) and Russian Surkov. ===:::
 
@@ -126,6 +126,17 @@ The right has effectively shoved its collective hateful hand up his badly embalm
 I mean, it’s what Charlie would’ve wanted"
 
 &nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nhkx2v/charlie_kirk_called_for_bidens_execution/necdchc/
+
+GloomyBison 2018-10-11
+
+"He would be filled with glee if it was anyone else, like all other right-wing commentators are now. I've seen so many who can barely contain the joy they're feeling because of the amount of views, attention and money they're getting out of this. Ghouls."
+
+* :::=== RoundSparrow_Commentary : Reddit and Bluesky media platforms are getting endless engagement off the video of a live broadcast murder / killing. The entertainment aspects of Donald Trump hate-based values are ever-expanding for OVER TEN YEARS AND TWO MONTHS. There is huge money and social power in the never-ending mocking and hating upon those lost to the Russian information warfare since March 2013. Media addicts, content addicts, low-effort comment creators on social platforms all over - can not get enough of this Americans hate Americans sports mentality that Russia seeded with the IRA. Absolutely no defense can get meme addicts to exit their stupor and addictions. We have "Amusing Ourselves to Death" as Neil Postman described in his year 1985 book on media study / media ecology / media usage self-awareness. ===:::
+
+&nbsp;
+
 
 # Sunday September 14, 2025
 
