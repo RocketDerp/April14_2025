@@ -4,6 +4,9 @@ This message...
 
 https://old.reddit.com/r/PublicFreakout/comments/1nh6elt/19yearold_man_tramples_charlie_kirk_memorial/ne9h1rd/
 
+<img width="1304" height="792" alt="image" src="https://github.com/user-attachments/assets/cb712702-d3a4-42bb-a87c-74ba55a6fcd9" />
+
+
 &nbsp;
 
 Why don't we, hummanity, have world peace.
