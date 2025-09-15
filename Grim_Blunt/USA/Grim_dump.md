@@ -1,14 +1,14 @@
 # Freedom to hate
 
-The freedom to hate on Charlie Kirk is self-harm. It accmplishes nothing.
+The freedom to hate on Charlie Kirk is self-harm. It accomplishes nothing positive.
 
-People have not built anything productive or goodness based foward. There is no call for anything but hate of Trump and mockery of Trump, when Trump himself is a constant source of hate and mockey.
+People have not built anything productive or goodness based forward. There is no call for anything but hate of Trump and mockery of Trump, when Trump himself is a constant source of hate and mockery.
 
 People haven't been able to escape the conditioned reaction patterns of the Russian IRA since March 2013, and have fleshed them out into cliches and thought-terminating dead-ends.
 
-There is a sustained faith in hate I've been repeating over and over. A sustained faith in mocking. Everyone in USA agrees on *hate harder, mock harder*. People never seemto tire of the costant spare time and free time spent on hate and mocking with social machines / media machines.
+There is a sustained faith in hate I've been repeating over and over. A sustained faith in mocking. Everyone in USA agrees on *hate harder, mock harder*. People never seem to tire of the constant spare time and free time spent on hate and mocking with social machines / media machines.
 
-Goodness is avoided. Nonfiction discussion of mob mentality avoided. Nonficiton discussion of Russian information warfare avoided.
+Goodness is avoided. Nonfiction discussion of mob mentality avoided. Nonfiction discussion of Russian information warfare avoided.
 
 &nbsp;
 
@@ -18,7 +18,7 @@ Goodness is avoided. Nonfiction discussion of mob mentality avoided. Nonficiton 
 
 ## Nonfiction matters
 
-Non-entertainment, not-amusement, non-fiction matters. People with the spare time and free time to use social media machines to spread pranks, tricks, manipulation, falsehoods, lies, deception against other people every hour of every day as a form of entertainment. Donald Trump does so with Truth Social, and hudnreds of millions of people in USA adopt these values and behaviors with no resistance. People think it is hilarious and funy and LOL LOL with meme images / amusement jokes at the suffering of other people who do not comprehend or understand they are being manipulated by billiioares who tell everyone to flock to the advertising and marketing messages instead of flocking to Wikipedia common ground and seeing how much we as humans all have as common needs and common concerns. Because "commonism" sounds like "comunism". Which I don't support FORCED marketing and advertising manipulation / trickery any more than froced communism. One has to reach a level of volunteer desire, shared compassion, shared understanding of the relance we have on systems and values created and refined by other people. We all stand on the shoulders of all.
+Non-entertainment, not-amusement, non-fiction matters. People with the spare time and free time to use social media machines to spread pranks, tricks, manipulation, falsehoods, lies, Edward Bernays techniques, Cambridge Analytica techniques, deception against other people every hour of every day as a form of entertainment. Donald Trump does so with Truth Social, and hundreds of millions of people in USA adopt these values and behaviors with no resistance. People cheer it on. People think it is hilarious and fumy and LOL LOL with meme images / amusement jokes at the suffering of other people who do not comprehend or understand they are being manipulated by billionaires who tell everyone to flock to the advertising and marketing messages instead of flocking to Wikipedia common ground and seeing how much we as humans all have as common needs and common concerns. Because "common-ism" sounds like "communism". Which I don't support FORCED marketing and advertising manipulation / trickery any more than forced communism. One has to reach a level of volunteer desire, shared compassion, shared understanding of the reliance we have on systems and values created and refined by other people. We all stand on the shoulders of all.
 
 
 &nbsp;
