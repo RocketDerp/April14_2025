@@ -137,6 +137,21 @@ GloomyBison 2018-10-11
 
 &nbsp;
 
+"country is a joke"
+
+Formal-Hawk9274 2025-03-09 (new this year)
+
+https://old.reddit.com/r/law/comments/1nhlbil/americans_told_to_watch_what_we_say_about_free/necatgw/
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhlbil/americans_told_to_watch_what_we_say_about_free/necl4s5/
+
+OS2_Warp_Activated 2024-04-19
+
+"Nothing is constitutionally protected anymore. The Supreme Court gave Trump the power to do whatever he wants to do up to and including shredding the constitution. The wealthiest Americans are running the country for the first time in our nation's history. We are in uncharted territory. One thing I'm sure of though, there are no constitutional protections any longer."
+
+&nbsp;
 
 # Sunday September 14, 2025
 
