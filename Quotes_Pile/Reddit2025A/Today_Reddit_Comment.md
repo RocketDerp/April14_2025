@@ -320,3 +320,10 @@ https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_nat
 struggleislyfe 2025-04-10 (new this year)
 
 "This is all of his tweets. I've been trying to figure out how to characterize it and this is it."
+
+* :::=== RoundSparrow_Commentary : Trump is a gifted natural at these roles. The training feedback he got at Moscow in November 2013 https://en.wikipedia.org/wiki/Miss_Universe_2013 befoe the big December 2013 announcement https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ - and then in February the IRA war going into hot stage with invasion of Ukraine in February 2014 ... Trump is incredibly talented at adatping Michael Scott and Tony Clifton performances with his own personal style. People at up the orange makeup, Trump has turned social media into a constant ***skin color*** call out of black skin / brown skin / orange skin. The mind-fucking that Surkov students have deployed since March 2013 in media ecology is amazing.
+reference
+... ... ...
+McManus: "I see. What now, briefly, is this thing called media ecology?
+17:16 McLuhan: "It means arranging various media to help each other so they won’t cancel each other out—to buttress one medium with another." https://www.organism.earth/library/document/mcluhan-mcmanus
+===:::
