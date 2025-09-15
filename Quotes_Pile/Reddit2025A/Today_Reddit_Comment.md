@@ -462,9 +462,9 @@ I’m not surprised that this administration is lying about Kirk’s death to sp
 
 &nbsp;
 
-Meb2x 2018-04-18
-
 https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_jd_vance_vows/neearnw/
+
+Meb2x 2018-04-18
 
 "I’d argue it’s a little more complicated than that. Part of it is targeting college-aged kids to focus on the next generation of Republicans (a scary thought), but it’s also eroding public trust in higher education. Republicans are pushing the idea that colleges indoctrinate students into believing liberal ideas, so having someone “debate” college students makes Republicans believe that colleges students aren’t actually smart and college is failing to teach students real facts. The truth is educated people are more likely to lean left because college teaches students to think reasonably and better distinguish between fact and fiction. It also helps that college forces students to experience new cultures and lifestyles that they might never have seen before. I grew up conservative but became more liberal after having black, gay, and Indian roommates in college that helped me realize my small town wasn’t the entire world."
 
