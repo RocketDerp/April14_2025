@@ -1,4 +1,26 @@
-# Sunday September 13, 2025
+# Monday September 15, 2025
+
+&nbsp;
+
+"A Russian priest has been on a religious mission for years at an isolated mountain church.
+
+He finally returns to Moscow, where he meets his friend at the bar.
+
+"I just heard about the war, I can't believe it, we're fighting Ukraine and NATO?!?!" he asks his friend.
+
+"Yes comrade, it's been a furious 3 day special operation that's lasted for years, we've lost 16 thousand armoured vehicles, a million soldiers, our Navy is defeated and over 1000 aircraft destroyed".
+
+" my lord!" the priest retorts "and what about NATO?!".
+
+"Oh, they haven't shown up yet"."
+
+The war against reality described in nonfiction. We are tricking, manipulating, informing each other into hate and dehumanization since year 2013 on a world wide web scale. And the entertainment industry, amusement mills of Bluesky and Reddit eat up evey Putin and Trump / Kremlin and White House method of Surkovian governing since year 2013. We have drowned ourselves in bullshiting. Our meme machines favor fiction and lies and deception and Russia has exploited that with Surkov students since March 2013. Any person can click this Septemvber 9, 2014 link and face up to what we are liiving under, but people want to avoid the nonfiction reality of the self-harm humanity has engaged: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ and the year before pandemic February 12, 2019 floating of how success it was https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793 - and the evidence of measles and COVID-19 pandemic deaths intended by the anti-reality pro-disease manipulation warfare disclosed August 24, 2018 and validated by informaiton experts: https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+&nbsp;
+
+
+
+# Sunday September 14, 2025
 
 &nbsp;
 
