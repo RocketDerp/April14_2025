@@ -1,6 +1,6 @@
 The freedom to hate on Charlie Kirk is self-harm. It accmplishes nothing.
 
-People have not built anything productive or goodness based foward. There is no call for anything but hate of trump and mockery of Trump, when Trump himself is a constant source of hate and mockey.
+People have not built anything productive or goodness based foward. There is no call for anything but hate of Trump and mockery of Trump, when Trump himself is a constant source of hate and mockey.
 
 People haven't been able to escape the conditioned reaction patterns of the Russian IRA since March 2013, and have fleshed them out into cliches and thought-terminating dead-ends.
 
