@@ -413,3 +413,27 @@ GarethGazzGravey 2022-11-07
 How this wasn't the end of Trump's campaign is still baffling to me."
 
 * :::=== RoundSparrow_Commentary : Trump situation baffels anyone who doesn't analyze and comprehend Surkov Russian governing methods, Kremlin informaiton warfare, Cambridge Analytica discoveries. ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nh6elt/19yearold_man_tramples_charlie_kirk_memorial/ne9h1rd/
+
+Choreopithecus 2020-09-29
+
+<img width="1304" height="792" alt="image" src="https://github.com/user-attachments/assets/6d99f60d-7c08-4028-9dd8-f9ef4b899705" />
+
+&nbsp;
+
+"In case there was any doubt before, the aftermath of this whole thing proves we’ve finally completed the descent into unhinged irrational tribalism."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nh6elt/19yearold_man_tramples_charlie_kirk_memorial/ne9d72v/
+
+Ok_Cucumber_7954 2022-01-17
+
+"Reminds me of the memorials to PoC or LGBTQ victims of violence that has been trampled by right wing hate groups."
