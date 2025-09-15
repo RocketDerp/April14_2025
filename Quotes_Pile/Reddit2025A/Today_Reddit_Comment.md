@@ -300,3 +300,15 @@ NullaCogenta 2019-11-03
 * :::=== RoundSparrow_Commentary : Reddit community reads these messages of how it is *like* we are in a situation comedy, and nobody can recall 2014 books printed about the subject. [Eating the Surkovian onions](Surkovian_Onion_Eating.md), people who think they are smarter than Putin and Trump's techniques (Putin 16D + chess) without any self-awareness that it isn't accidental that fiction sitcom addictions are exploited. Only *one* of the characters doubles down? You think Elon Musk doesn't double down on this Hitler gestures? That JD Vance isn't? That it is all just one single person... Trump fixation playing Tony Clifton. Putin doubles down on the Ukraine war since February 2014. It's all laid out, the Russian Surkovian techniques, proven for 25 years. ===:::
 
 &nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedctza/
+
+GuitarbytheTon 2020-10-06
+
+<img width="816" height="376" alt="image" src="https://github.com/user-attachments/assets/b69fb2ef-19f3-4ebc-acb2-d0b8049f6d9a" />
+
+"I actually struggle watching the office now because of how similar Trumps stupidity is to Michael"
+
+* :::=== RoundSparrow_Commentary : Donald Trump playing Michael Scott (The Office / White House as The Office fiction engagement / Reality Truth Social) also similar to Donald Trump playing Tony Clifton. Trump is an amazing actor and has found the performance of a lifetime, people just can not resist mockin ghow dumb stupid idiot Putin and Trump are for leading the nation with Michael Scott character scripts / Tony Clifton character scripts / Surkov student screenplays since November 7, 2012 agreement. ["Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года."](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Cambridge_Analytica_Quotes.md) ===:::
