@@ -92,3 +92,6 @@ https://old.reddit.com/r/whenthe/comments/1nfliwe/the_whiteknighting_is_crazy/
 
 Charlie Kirk killing pro-hate / pro-mockery content     
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nflb4q/black_man_offers_his_help_to_his_white_brothers/
+
+This is the way MAGA USA / Trump USA / September 2025 Reddit and Bluesky audiences behaved when Donald Trump was not as active on Truth Social and television channels over a holiday weekend at the start of September. This is how people behaved when Joe Biden was in office for 4 years, that life was so boring with Donald Trump wasn't constantly every minute the center of every media systems.     
+https://old.reddit.com/r/Steam/comments/1nhndtp/which_game_was_this_for_you/
