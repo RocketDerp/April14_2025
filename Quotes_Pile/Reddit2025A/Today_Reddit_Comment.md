@@ -463,3 +463,11 @@ https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/neazqgj/
 SheriffBartholomew 2018-11-07
 
 "And as ugly as that was, at least it was normal and standard for multiple generations to live in the same home together. Kids took care of their parents when their parents couldn't take care of themselves anymore. That is no longer normal."
+
+&nbsp;
+
+https://old.reddit.com/r/SipsTea/comments/1nhdzmb/any_thoughts/nebk4oa/
+
+citymousecountyhouse 2022-01-14
+
+"Yep,I am currently taking care of my mother. The area where she and everyone on this road chose to live was wonderful at one time. Plenty of property to raise horses, really wonderful places. Until they all grew old. None of them can take care of their properties, or really even take the trash down long driveways to the curb. The homes themselves are all problems. All with stairs, no walk-in showers. Slowly they each are losing their ability to drive. Speaking of driving, when a bad winter hits, they all find themselves trapped for days. And they're all sort of trapped because they all moved here 40 years ago when they were young and they all have 40 years of "furnishings" and "antiques" to prove it. I'm currently in the process of convincing my mom to rent some booths at an antique mall just to get the stuff moving."
