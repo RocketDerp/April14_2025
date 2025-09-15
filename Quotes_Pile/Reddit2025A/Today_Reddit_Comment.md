@@ -172,6 +172,18 @@ Reddit comment today: "I might be able to laugh later, but it's getting scary. F
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1nhlbil/americans_told_to_watch_what_we_say_about_free/necjgz8/
+
+Bloorajah 2020-12-03
+
+"I had a comment removed on another sub for saying we lost our jobs thanks to trumps cuts.
+
+Like, that’s not a political stance, the cuts he enacted literally lead to me and my wife losing our jobs, it’s a fact.
+
+But the auto mod was like “nuhuh that’s political” "
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
