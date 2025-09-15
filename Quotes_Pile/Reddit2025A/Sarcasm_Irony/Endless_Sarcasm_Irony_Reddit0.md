@@ -336,3 +336,7 @@ https://old.reddit.com/r/ChatGPT/comments/1nhg1lv/elon_continues_to_openly_try_a
 MURDERED BY WORDS framing on Reddit. The problem is KILLED, now and forever, MRUDERED! The anti-science anti-comprehension anti-understadning Kremlin and White House information warfare was solved by calling people morons! Such thrilling entertainment and mockery on Reddit, eating the Surkovian Onions and declaring the Russiain information warfare problem solved!    
 https://old.reddit.com/r/MurderedByWords/comments/1nhm22t/renewables_storage_is_key/
 
+&nbsp;
+
+Entertainment-washing, mockery-washing misunderstandings of Hitler / Nazi Germany media techniques. Insteadof being serious and teaching symbolism, the menaing of the pyramid on the Great Seal of the United States of America from the founding fathers / year 1776 - people use all their free time and spare time on social machines to entertainment-wash the Russian Internet Research Agency winning a symbolism war against NATO / USA.     
+https://old.reddit.com/r/MurderedByWords/comments/1nhox4g/historical_deceptive_branding_exposed/
