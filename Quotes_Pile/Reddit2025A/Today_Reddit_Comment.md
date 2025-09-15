@@ -662,3 +662,15 @@ https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_an
 mamamackmusic 2017-07-14
 
 "At some point, one has to face that the Epstein stuff IS THE DISTRACTION while they implement a fascist Christian Nationalist state that purges all the undesirables. None of the Epstein collaborators and clients will ever face justice, but they will use it to pacify people while they make the country into a hellhole we can't get out of."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_and_miller_unveil_plan_to/neeuxji/
+
+vergina_luntz 2018-03-08
+
+"They're calling those on the left, which is anyone they don't like, demons on X.
+
+No Mercy they are posting.
+
+How is this not illegal?"
