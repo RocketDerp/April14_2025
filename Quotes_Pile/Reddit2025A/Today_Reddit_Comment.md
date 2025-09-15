@@ -382,4 +382,12 @@ NotNamedBort 2023-12-13
 
 "Sundowning or not, he’s got way too much power. He’s basically Stupid Palpatine, and no one in this administration is going to defy him."
 
-* :::=== RoundSparrow_Commentary :And people think it is only one person, Donald J Trump, what about RFK Jr? What about the Pentagon? What about all the antics the military is doing? everyone isn't sundownning. People really need to study Russia year 2011. Such as... October 20, 2011 - learn some NON fiction. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Reddit society is gullibilty in a feedback loop of gullible. ===:::
+* :::=== RoundSparrow_Commentary : And people think it is only one person, fixated on Donald J Trump, what about RFK Jr? What about the Pentagon? What about Charlie Kirk before his murder? What about Joe Regan? They aren't all sundowing! What about all the antics the military is doing? everyone isn't sundownning. People really need to study Russia year 2011. Such as... October 20, 2011 - learn **some NON-fiction**. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin Reddit society is gullibilty in a feedback loop of gullible. "Stupid Palpatine" - monomyth fiction! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedtt8h/
+
+Memitim 2009-12-18
+
+"The only emergency I've seen is the ongoing aggression of conservatives against America."
