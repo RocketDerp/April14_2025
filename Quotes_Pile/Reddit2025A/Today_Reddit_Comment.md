@@ -85,6 +85,32 @@ AaronsAaAardvarks 2021-12-07
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/PublicFreakout/comments/1nhkx2v/charlie_kirk_called_for_bidens_execution/necqt11/
+
+AggravatingSpace5854 2025-08-05 (recent account)
+
+<img width="1136" height="1164" alt="image" src="https://github.com/user-attachments/assets/73ab7751-c6b0-4a8b-a537-1baf0fe02882" />
+
+&nbsp;
+
+"I'm more baffled at a Hindu FBI director calling a Christian conservative "brother" and telling him that he'll see him in Valhalla, and that "we have the watch" WTF does that even mean?
+
+Did this dude really go in front of a crowd and think to himself, "oh yeah the people will love this. It's going to sound so badass".
+
+and what the fuck does "we have the watch mean" mean in this context?
+
+Like honestly this quote just replays in my head rent free and I'm trying to make sense of it.
+
+Rent free..."
+
+* :::=== RoundSparrow_Commentary :   Monomyth fiction patterns. https://en.wikipedia.org/wiki/A_Skeleton_Key_to_Finnegans_Wake That's ("this quote just replays in my head ") the foundation of embedding mind patterns into citizens minds. Russian techniques described by Adam Curtis on BBC broadcast December 31, 2014. "BBC's Adam Curtis On The ***"Contradictory Vaudeville"*** Of Post-Modern Politics" - "a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time" - https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html - Reddit user saying "I'm more baffled at" - because they have not studied Marshall McLuhan's media ecology (Finnegans Wake https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village warfare) and Russian Surkov. ===:::
+
+&nbsp;
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
