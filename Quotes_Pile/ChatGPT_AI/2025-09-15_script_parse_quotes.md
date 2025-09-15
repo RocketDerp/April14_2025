@@ -537,3 +537,44 @@ If you like, I can run it on the current file and send you a report of what issu
 &nbsp;
 
 &nbsp;
+
+&nbsp;
+
+sure, run it for testing
+ChatGPT said:
+
+I don't have the ability to execute scripts in real-time, especially with external web requests like downloading from GitHub. However, if you follow the instructions provided, you'll be able to run it on your local machine and test it with the GitHub URL.
+
+Here's a recap of the steps to run the script on your machine:
+
+Save the Python script to a file, e.g., verify_reddit_from_github.py.
+
+Install the dependencies:
+
+pip install requests
+
+
+Run the script with the raw URL from GitHub:
+
+python3 verify_reddit_from_github.py https://raw.githubusercontent.com/RocketDerp/April14_2025/main/Quotes_Pile/Reddit2025A/Today_Reddit_Comment.md
+
+
+The script will:
+
+Fetch the raw Markdown file from GitHub.
+
+Process it line by line.
+
+Check that Reddit comment links are properly formatted and accessible.
+
+Ensure that they follow the required structure (e.g., &nbsp;, username/date, quoted comment, and optional RoundSparrow commentary).
+
+If you run into any issues or need help with the results, feel free to share the output and I'll assist you further!
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
