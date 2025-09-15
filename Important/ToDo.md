@@ -1504,3 +1504,8 @@ https://old.reddit.com/r/comics/comments/1ngwcai/behold_the_patriots/
 
 Only category of helping people.    
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ngy1n0/our_reality/
+
+&nbsp;
+
+Colossus 1970 film - review calls people dumb and stupid for avoiding watching it.    
+https://www.youtube.com/watch?v=s9aU5AA8g1Y
