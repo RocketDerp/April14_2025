@@ -327,3 +327,19 @@ reference
 McManus: "I see. What now, briefly, is this thing called media ecology?
 17:16 McLuhan: "It means **arranging various media to help each other so they won’t cancel each other out—to buttress one medium with another**." https://www.organism.earth/library/document/mcluhan-mcmanus
 ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhq3ke/trump_threatens_to_declare_new_national_emergency/nedgrz8/
+
+capnsmirks 2014-10-16
+
+<img width="776" height="416" alt="image" src="https://github.com/user-attachments/assets/ac35c878-5723-4c28-9a72-1eb8ed69e8d2" />
+
+&nbsp;
+
+"Holy shit. You just made me realize we have a Michael Scott running the country. But at least Mike was good at his job 🤦‍♂️"
+
+* :::=== RoundSparrow_Commentary : I like Tony Clifton more as an example, because it is a life performance. Tony Clifton goes off the stage and engages the audience with personal insults and mocking, which much more fits Truth Social and Donald Trump's world travels. And Tony Clifton is a NYC based character (Andy / Trump both from NYC) and Trump owned Casinos - and Clifton often uses casinos and TV shows (Taxi simualcra TV show like The Apprentice simualcra TV show, Casinos simualcra of a legit act). WHO IS TONY CLIFTON? https://www.youtube.com/watch?v=JKTR8Yj5hg4 ===:::
