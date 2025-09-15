@@ -528,3 +528,15 @@ Phyrexian_Archlegion 2015-11-19
 "And didn’t this over correction to the right begin when unfunny “comedians” were complaining about getting “cancelled” for things they said in their acts when in actuality they were just upset no one was laughing at their unfunny jokes?"
 
 * :::=== RoundSparrow_Commentary : Is Donlad Trump playing Tony Clifton *funny* or are people engaged in Levant religion of Torah vs. Quran, Quran vs. Bible out-group hate mocking. Is *funny* the only way to look at it, when fiction addicts use hate to attack copetiting fiction addicts (Quran vs. Torah vs. Bible vs. nonfiction science, Islamic and Christian terrorism, Israel attacking Muslims over domination of Torah science fiction, Hebrew vs. Arabic language / Iran language "Persian", using weapons to bombard the metaphor of the Tower of Babel langauge conflicts / poetry fiction slam taken to street gang violence)... is "funny" really the motivation or hate itself? Love of a mythological story or love of a Fox News wealth televagelism fiction story, etc. I sometimes call this the Bible verse "1 John 4;20" problem from 2,000 years ago. Where "1 John 4:20" says it is a mistake to "Love God" and "hate living human persons", and how "I love Jesus" is a mistake / error in interpetation when paired with hate of any person. Do people enjoy murder and killing when they are promised a fiction afterlie reward of "Heaven"? Does the Mosque demonstrate this with terrorists / jihad? Military boot camp training mythology and military message to solders willing to die mythology? "they were just upset no one was laughing at their unfunny jokes?" - do Taliban terrorists attack Malala on her school bus because she doesn't think fiction Quran poetry is more entertaining than nonfiction science books? The book supremacy / story supremacy conficts? People in Pakistan willing to die for Radio Mullah fiction storytelling, people in USA willing to die for Newsmax HDTV and Fox News HDTV and Charlie Kirk fiction podcasts? ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1nhna2g/dave_portnoy_said_donald_trump_played_a_huge_part/necohhv/
+
+AnteaterPositive6939 2025-02-05 (new this year)
+
+" "His assassination attempt, there’s like a three-hour period of, ‘Oh, let’s tone down the rhetoric,’ and then we are right back to it.”
+
+He's right.
+
+Trump is trying to do a January 6 against the left. He's riling up the nut jobs to attack us, it's as clear as day. Trump wants a civil war and the cult will oblige."
