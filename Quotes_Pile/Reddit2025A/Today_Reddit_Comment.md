@@ -194,6 +194,21 @@ Future_Principle_213 2020-08-10
 
 &nbsp;
 
+https://old.reddit.com/r/law/comments/1nhlbil/americans_told_to_watch_what_we_say_about_free/necbhat/
+
+bd2999 2023-09-24
+
+"The hypocrisy among the so called "free speech absolutists". They have had no issues mocking others suffering or death when it suits them in the end.
+
+For that matter, the government should not be able to stop anything through action. As it is a direct violation of the First Amendment for the government to do that. Even if the speech is in poor taste."
+
+* :::=== RoundSparrow_Commentary : The contraditions drive Americans wild. People can not resist these contradictions of media messages, constantly rushing to meme amusement mill platforms and showing how much they are attracted to this technique of Russian information warfare since March 2013. Nothing can reverse the cults of contradiction message mockery, the Surkovian methods.
+... ... ...
+"my Moscow peers are filled with a sense that they are both cynical and enlightened. When I ask them about Soviet-era dissidents, like my parents, who fought against communism, they dismiss them as naïve dreamers and my own Western attachment to such vague notions as “human rights” and “freedom” as a blunder. “Can’t you see your own governments are just as bad as ours?” they ask me. I try to protest—but they just smile and pity me. To believe in something and stand by it in this world is derided, the ability to be a shape-shifter celebrated. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act. Surkov himself is the ultimate expression of this psychology." Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, 2014
+===:::
+
+&nbsp;
+
 # Sunday September 14, 2025
 
 &nbsp;
