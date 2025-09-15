@@ -433,3 +433,11 @@ Oleg101 2020-06-11
 "I think these guys just actually want people to refer to them as Nazi’s more so they can play the victim more and blame any and everything on the opposition."
 
 * :::=== RoundSparrow_Commentary : Tony Clifton acts thrive on audience attacking the performers. Vice President Tony Clifton hosting the podcast to rile up the audience. https://www.youtube.com/watch?v=eyAWBJULFso Surkovian governing in action. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1nhtu4s/broadcasting_from_the_white_house_jd_vance_vows/nee5gf1/
+
+RocketSocket765 2023-07-30
+
+"My first question exactly. Why is Vance saying this like he's in charge, and where the hell is Trump?"
