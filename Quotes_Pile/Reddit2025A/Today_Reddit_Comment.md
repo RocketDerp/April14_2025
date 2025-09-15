@@ -18,7 +18,18 @@ He finally returns to Moscow, where he meets his friend at the bar.
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nhj6rd/nato_at_war_with_russia_kremlin_says/nebw6zn/
 
+WillSRobs  2013-06-06
+
+"Almost feels like a South Park episode at this point."
+
+* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal South Park like mind attraction](Surkovian_Onion_Eating.md). Constant media entertainment being the Russian technique that has kept Putin in power for 25 years. Oblivious to the situation, treating it as a minor annoyance and not the very means of Russia defeating USA in information warfare. *Warfare* has got to feel like South Park or a Movie techniques of Russia.
+... ... ... https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/       
+At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: **“We all know there will be no real politics,”** he said. “But we still have to give our viewers the sense something is happening. **They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”**
+===:::
+
+&nbsp;
 
 # Sunday September 14, 2025
 
