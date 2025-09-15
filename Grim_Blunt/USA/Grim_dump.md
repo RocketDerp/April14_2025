@@ -16,7 +16,7 @@ Goodness is avoided. Nonfiction discussion of mob mentality avoided. Nonficiton 
 
 &nbsp;
 
-## Nonfiction matterns
+## Nonfiction matters
 
 Non-entertainment, not-amusement, non-fiction matters. People with the spare time and free time to use social media machines to spread pranks, tricks, manipulation, falsehoods, lies, deception against other people every hour of every day as a form of entertainment. Donald Trump does so with Truth Social, and hudnreds of millions of people in USA adopt these values and behaviors with no resistance. People think it is hilarious and funy and LOL LOL with meme images / amusement jokes at the suffering of other people who do not comprehend or understand they are being manipulated by billiioares who tell everyone to flock to the advertising and marketing messages instead of flocking to Wikipedia common ground and seeing how much we as humans all have as common needs and common concerns. Because "commonism" sounds like "comunism". Which I don't support FORCED marketing and advertising manipulation / trickery any more than froced communism. One has to reach a level of volunteer desire, shared compassion, shared understanding of the relance we have on systems and values created and refined by other people. We all stand on the shoulders of all.
 
@@ -34,3 +34,11 @@ So let me explain why I like to pay taxes for schools, even though I don't perso
 
 “Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens?”
 ― Neil Postman, The End of Education: Redefining the Value of School, September 1995 (Eternal September year 1)
+
+&nbsp;
+
+Reference:    
+Freedom: Alchemy for a Voluntary Society    
+Stephan A. Hoeller      
+Quest Books, Jun 1, 1992 - Philosophy - 263 pages     
+Dr. Stephan Hoeller examines the philosophic basis for freedom as expressed in the writings of the Gnostics and Carl Jung. He relates this philosophy to that of America's founders and to such recent events as the collapse of Communist regimes throughout the world.
