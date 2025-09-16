@@ -435,5 +435,7 @@ https://old.reddit.com/r/AdviceAnimals/comments/1niefjq/we_agreed_there_would_be
 
 &nbsp;
 
-Surkov govening techniques in the face of Reddit from the White House. Trump is meeting with Putin in Alaska recently. And social media mockery addicts, addicts to reaction mocking JD Vance / Trump, are unable to cite nonficiton books from year 2014 about how Russia uses media systems. A completely mentally "owned" society, unable to resist Kremlin media techniques. JD Vance is owned, Reddit audience is owned, everyone owned. Since March 2013.    
+Surkov govening techniques in the face of Reddit from the White House. Trump is meeting with Putin in Alaska recently. And social media mockery addicts, addicts to reaction mocking JD Vance / Trump, are unable to cite nonficiton books from year 2014 about how Russia uses media systems. A completely mentally "owned" society, unable to resist Kremlin media techniques. JD Vance is owned, Reddit audience is owned, everyone owned. Since March 2013.
+
+For sake of clarity: "owned" means "adicted to Tony Clifton mocking", being audience members who mock and insult Tony Clifton acts - often calling Clifton performnres as {terrible dumb idiots stupid}, Eating the Surkovian onions without any self-awareness that the most sophsticated military infomation warfare is expliting their mind.        
 https://old.reddit.com/r/CringeTikToks/comments/1nin5m3/he_never_said_that/
