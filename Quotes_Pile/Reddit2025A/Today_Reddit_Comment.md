@@ -25,6 +25,23 @@ djazzie 2009-08-13
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1niaoee/peeta/nej4a4n/
+
+Haunting-Savings7097 2025-06-26 (recent account)
+
+<img width="1454" height="1512" alt="image" src="https://github.com/user-attachments/assets/3a3f66d1-91b9-4285-a47c-056f3576ac5f" />
+
+&nbsp;
+
+"I know you aren't going to care about this but you seem to have some sort of mental illness, perhaps you are manic or hypomanic, or perhaps it is schizophrenia. Or maybe something more benign. The tangential thoughts are the giveaway."
+
+&nbsp;
+
+&nbsp;
+
+
 # Monday September 15, 2025
 
 &nbsp;
