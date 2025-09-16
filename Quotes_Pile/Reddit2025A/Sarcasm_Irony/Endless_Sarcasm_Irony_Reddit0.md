@@ -407,3 +407,8 @@ https://old.reddit.com/r/clevercomebacks/comments/1niim5r/remember_he_swore_twic
 
 Media addicts of Reddit keep counting over and over for 10 years and oberving it, but not willing to engage nonfiction books from Neil Postman 1985. Unwilling to engage nonfiction books about Russian information warfare, instead mesmerized by the constant content streaming out of Donald Trump / MAGA / Putin / Russia entertainment-based politics. Surkov won, Russia won, since March 2013.     
 https://old.reddit.com/r/NoFilterNews/comments/1niej0q/none_of_the_last_31_political_attacks_was_by/
+
+&nbsp;
+
+Reddit meme cultist can't grasp or undestand Charlie Kirk media cultists. media cult vs. media cult. The Internet Resarch Agency created 5,000 patterns of meme cults. All avoidant of nonficiton learning about media ecology and information warfare self-awareness.     
+https://old.reddit.com/r/sandiego/comments/1nilltx/unexpected_from_my_favorite_local_coffee_shop/
