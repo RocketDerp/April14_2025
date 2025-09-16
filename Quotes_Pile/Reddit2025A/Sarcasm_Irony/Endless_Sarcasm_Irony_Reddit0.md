@@ -378,3 +378,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1nicwmi/being_black_is_now_bei
 
 More jokes and memes and dumb as fuck Reddit and Bluesky shit will drown out this. There is no call for sustained focus. Just endless removal of "old" content on Bluesky and Reddit so that in 4 hours it will not be getting any more attenton while sports games will keep to their schedule and appear over and over. The IMPORTANT discussion of human brain content / thinking systems / attitudes / mass dehumanization going on won't stay focused on because everything is sports-watshed video-game-washed entertainment-washed amusement-washed on a constant stream of fa less important topics.   
 https://old.reddit.com/r/science/comments/1ni6w6s/trumps_frequent_claims_of_victimhood_were_more/
+
+&nbsp;
+
+Reddit society eats this shit up, USA society eats this shit up, peple can not cite Surkov Contradictory Vauderville techniques.  Books and videos since year 2014 describing Russian control methos of society.    
+https://old.reddit.com/r/law/comments/1nifvhk/attorney_general_pam_bondi_theres_free_speech_and/
