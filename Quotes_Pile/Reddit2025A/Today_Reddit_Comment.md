@@ -92,6 +92,20 @@ This is caused by Russians overextending in a thin strip of land surrounded by U
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nighrf/russias_pokrovsk_offensive_collapses_into_chaos/neis9hh/
+
+Fast-Day-6162 2025-06-01 (recent account)
+
+"Not for pratically free unlike Ukraine. Russia has to pay China now for what they buy, at a premium as dodging sanctions and keeping things discrete tend to make a product more expensive.
+
+Ukraine can run a Lend Lease tab and pay in decades after the conflict ends.
+
+Or more recently they buy from US and the EU pays the bill.
+
+The EU alone can outspend Russia by a large margin. Defense budgets are not even at 2%, NATO has not even entered the fight and Russia has been effectivelly stopped dead in its tracks with 1M casualties already."
+
+&nbsp;
+
 
 # Monday September 15, 2025
 
