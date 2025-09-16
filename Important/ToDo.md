@@ -1525,3 +1525,8 @@ https://old.reddit.com/r/HistoryMemes/comments/1ni9qpe/the_answer_will_not_surpr
 
 media ecology of extra cost and labor to insert content on top of screens.   
 https://old.reddit.com/r/mildlyinfuriating/comments/1nijt5r/putting_brand_name_on_a_screen_protector/
+
+&nbsp;
+
+Media ecology topics: book burning, manipulation via media systems, public library, Banksy.    
+https://old.reddit.com/r/todayilearned/comments/1nijj0o/til_an_advertising_agency_faked_a_movement_to/
