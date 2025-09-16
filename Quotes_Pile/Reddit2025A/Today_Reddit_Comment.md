@@ -41,6 +41,19 @@ Haunting-Savings7097 2025-06-26 (recent account)
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nighrf/russias_pokrovsk_offensive_collapses_into_chaos/neioocb/
+
+hirobine 2017-08-14
+
+"It’s a good news but it’s far from ‘collapse’. Udachne could secure the flank but ultimately the pressure from the South and the East still remains. We need more favorable development in the Northern salient first…"
+
+* :::=== RoundSparrow_Commentary : The Russian Internet Research Agency since March 2013 has altered mindsets so extremely that media practitioners / news publishers have to amplify everything into breaking news / urgent news reports with extreme language to reach the tone-deaf (meaning-deaf) audience who has been mind-fucked beyond all recogniziton by the IRA.
+... ... ...
+Gatov, who is the former head of Russia's state newswire's media analytics laboratory, told BuzzFeed the documents were part of long-term Kremlin plans to swamp the internet with comments. "Armies of bots were ready to participate in media wars, and the question was only how to think their work through," he said. "Someone sold the thought that Western media, which specifically have to align their interests with their audience, won't be able to ignore saturated pro-Russian campaigns and will have to change the tone of their Russia coverage to placate their angry readers." - published June 2, 2014 https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+===:::
+
+&nbsp;
+
 
 # Monday September 15, 2025
 
