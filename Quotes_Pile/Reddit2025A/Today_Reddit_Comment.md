@@ -313,3 +313,11 @@ psyopsagent 2024-09-07 (note the meaning of username in context of IRA)
 
 "I live in germany, and it's happening here too. It's scary. We're way closer to the US than most people seem to recognize"
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1niidu9/an_eyewitness_to_charlie_kirks_murder_was_cut_off/nej65ba/
+
+HerMajestyTheQueef1 2023-03-22
+
+"Nothing to see here, the free speech crowd does not have to listen to neutral accounts of an event we all saw and can physically remove anyone doing so, no biggy!"
+
