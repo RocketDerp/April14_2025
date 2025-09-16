@@ -363,3 +363,8 @@ https://old.reddit.com/r/therewasanattempt/comments/1nhxoie/to_cancel_her/
 
 Reddit fantasy bullshit that a Fox News host is magically defeated. He is programming the Fox News audience, including the Reddit audience who is watching the clip.     
 https://old.reddit.com/r/CringeTikToks/comments/1ni26ua/fox_news_host_melts_down/
+
+&nbsp;
+
+Melissa Hortman, the Minnesota House Speaker, was gunned down by an assassin? TRUMP: I'm not familiar. The who?     
+https://old.reddit.com/r/minnesota/comments/1ni0egs/q_do_you_think_it_wouldve_been_fitting_to_lower/
