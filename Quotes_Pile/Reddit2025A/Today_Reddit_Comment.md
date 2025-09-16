@@ -373,3 +373,31 @@ https://old.reddit.com/r/news/comments/1nir57q/13_people_hurt_in_2_mass_shooting
 Edmatador82 2017-10-08
 
 "It’s happening, there was 2 shootings in Two different homeless encampments in Minneapolis."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nir57q/13_people_hurt_in_2_mass_shootings_at_minneapolis/nelb2sf/
+
+DamiensDelight 2024-03-05
+
+"Too busy praying for the resurrection of Charlie Kirk"
+
+* :::=== RoundSparrow_Commentary : Too busy using all free time and spare time to give shit little low-effort mockery comments, mocking the out-groups. Feeding evey media addiction and avoiding nonfiction learning about Russia Internet Research Agency and Cambridge Analytica techniques being used all over the world and these self-harm behaviors of USA like attacking Canada to force into being the 51st state, and attacking Greenland, are what Russia wants. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nir57q/13_people_hurt_in_2_mass_shootings_at_minneapolis/nel7qbk/
+
+luongolet20goalsin 2020-04-15
+
+"Because empathy is woke or something, idk"
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nir57q/13_people_hurt_in_2_mass_shootings_at_minneapolis/nelbpxr/
+
+joeysflipphone 2016-09-24
+
+"I'd say this was no different than Charles Manson giving orders to his brainwashed followers. Fox News has been systematically brainwashing their viewers for over two decades. When a talking head gives them a direct order to murder a specific group of people and they listen, yeah, I'd say there's cause to charge him too."
+
+* :::=== RoundSparrow_Commentary : You see these lines about Fox News on social media, but nobody can name-drop authros or nonfiction on the subject. Why hasn't Reddit made Jen Senko a household name since year 2015? Her film came out before the 2016 election. A baby boomer stood up to Fox News, and Reddit commmunity can't organize around a role model person "the little guy" who stood up to Fox News. Reddit lacks media ecology self-awareness of how they aren't opposing Fox News because they too are in a cult of messages and don't want to be bored without a Fox News audience to constantly mock and insult. It is Fox News beleivers mocking Reddit, Reddit mocking Fox News audience. Russia won, the IRA won, Sukov won, USA lost the information war since March 2013. ===:::
