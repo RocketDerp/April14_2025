@@ -1517,3 +1517,7 @@ https://old.reddit.com/r/comics/comments/1nhqnfn/late_gator_days/
 
 More reactions to funeral rituals, Reddit comments about funeral rituals. Finnegans Wake concerns.    
 https://old.reddit.com/r/interestingasfuck/comments/1niifgy/tower_of_silence_the_sacred_zoroastrian_structure/
+
+Power of Autism (hashtag F Wake Autism Superpower) on front page of Reddit     
+https://old.reddit.com/r/HistoryMemes/comments/1ni9qpe/the_answer_will_not_surprise_you/
+
