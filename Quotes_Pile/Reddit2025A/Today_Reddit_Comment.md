@@ -230,3 +230,15 @@ bobcatgoldthwait 2011-06-20
 We just don't know yet, people."
 
 * :::=== RoundSparrow_Commentary : Media addicts are attracted to constatn stimulation of electric media systems (Reddit, Bluesky, etc) and are not concerned with deep undestanding and comprehension of media ecology. They only desire to get their *fix* of the memes and junk message that are delivered on high speed networks, message notifications, content addictions. Reddit / Bluesky are everything anti-Wikipedia - against refined comprehension and understanding with citations and logging of every edit - and instead favor sucking down constant shit-quality low-effort comments that are constantly being genreated by the millions per hour on their feeds by anonymous (no-identity) users. Avoiding with extreme effort nonfiction books and citations on subjects. Meme addicts of Reddit find refinement of understanding repulsive, the IRA has induced extreme recency bias and self-centered (ego pleasing) reactionary mindsets: https://en.wikipedia.org/w/index.php?title=Killing_of_Charlie_Kirk&action=history  ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/nei5u49/
+
+Even_Ad9525 **2025-09-04 (new account)**
+
+"It is wild how two people can live in the same reality but see totally different truths."
+
+* :::=== RoundSparrow_Commentary : In the wild, all over Reddit since March 2013, indeed.
+... ... ...
+"This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
