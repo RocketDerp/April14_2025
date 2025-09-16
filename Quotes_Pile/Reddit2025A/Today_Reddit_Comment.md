@@ -203,6 +203,24 @@ terminal157 2010-08-26
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/neid6bq/
+
+Hazee302 2019-02-14
+
+<img width="1688" height="436" alt="image" src="https://github.com/user-attachments/assets/50051ef4-45b4-44e4-9b22-bbc21958fa70" />
+
+&nbsp;
+
+"It doesn't matter how much evidence I give my family. They just reject it and say its liberal propaganda, but then they believe AI generated images on Facebook with Trump rescuing children from a fire. That's where we're at. I really wish Switzerland would let me move there."
+
+* :::=== RoundSparrow_Commentary : No defense has been found to the mental states conditioned by the Putin Media Invasion since March 2013. The 5,000 paterns of alternate reality warfare that has induced people to avoid nonfiction and flock to fiction / falsehoods: "they believe AI generated images on Facebook" - addiction to fiction. Fantasy monomyth patterns of Surkov students. ===:::
+
+&nbps;
+
+&nbsp;
+
 
 # Monday September 15, 2025
 
