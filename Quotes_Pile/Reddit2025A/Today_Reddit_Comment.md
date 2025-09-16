@@ -1,3 +1,17 @@
+# Tuesday Septmber 16, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1niaoee/peeta/neijcui/
+
+Memento_Vivere8  2021-12-20
+
+"This is Reddit. We don't do sources here."
+
+* :::=== RoundSparrow_Commentary : Was one of the big changes in Reddit long-form comment culture when the Putin media invasion started in year 2013. People became far more concerned about insulting and mocking other people than educating and teaching - providing links and citations - that the Google search engine could hit upon topics and keywords. Even if the person you were directly replying to in public discourse didn't care about the link, 7 years later on Reddit a search engine hit could bring people to the old conversation. That media ecology self-awareness started to boil off in the out-group hate heat the IRA induced. ===:::
+
+&nbsp;
+
 # Monday September 15, 2025
 
 &nbsp;
