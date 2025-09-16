@@ -713,4 +713,14 @@ jasondigitized 2008-11-07
 
 "Who are so dumb that they think alienating / trying to destroy over 50% of the country is 1) smart or 2) feasible. Like dude, imagine you are the coach of a football team and you tell the team you hate the defense. That's a sure fire way to win the superbowl."
 
-* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is all about feeding media addictions (this Reddit user shows zero self-awareness their own comments are predictable dumb-calling other Americans / condtioned by IRA) to self-harm the nation because people would rather die for fiction storytelling than nonfiction all coming together - fighting back against Russia since year 2013](Surkovian_Onion_Eating.md). People think this all just came up this month with Charlie Kirk and can not egage nonfiction learning from year 2014 about the messaging warfare, content warfare, the war against nonfiction. "imagine you are the coach of a football team and you tell the team you hate the defense. That's a sure fire way to win the superbowl." - just oblivious to military conepts. Imagine Russia getting the most powerful NATO nation to self-harm and attack Canada and attack Greenland and meet Putin in Alaska and other self-harm choices! That's what IRA and CA payloads do to people, self-harm. Instead of suicide by cop, suicide by Reddit and sucide by Bluesky and sucide by Charlie Kirk content podcast addictions! ===:::
+* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is all about feeding media addictions (this Reddit user shows zero self-awareness their own comments are predictable dumb-calling other Americans / condtioned by IRA) to self-harm the nation because people would rather die for fiction storytelling than nonfiction all coming together - fighting back against Russia since year 2013](Surkovian_Onion_Eating.md). People think this all just came up this month with Charlie Kirk and can not egage nonfiction learning from year 2014 about the messaging warfare, content warfare, the war against nonfiction. "imagine you are the coach of a football team and you tell the team you hate the defense. That's a sure fire way to win the superbowl." - just oblivious to military conepts. Imagine Russia getting the most powerful NATO nation to self-harm and attack Canada and attack Greenland and meet Putin in Alaska and other self-harm choices! That's what IRA and CA payloads do to people, self-harm. Similar to suicide by cop, suicide by Reddit and sucide by Bluesky and sucide by Charlie Kirk content podcast addictions! Death by fiction addiction, self-destruction by being unable to escape predictable hate reactions and see the Russian instegator! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_and_miller_unveil_plan_to/neey12a/
+
+Confused_mess8888 2023-12-13
+
+"Stop underestimating your opponent, especially when they are winning.
+
+Overconfidence is a slow and insidious killer."
