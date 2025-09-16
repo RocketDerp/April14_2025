@@ -66,6 +66,22 @@ Dealing with those things will last decades after the last Russian gets turned i
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nighrf/russias_pokrovsk_offensive_collapses_into_chaos/neiwhkr/
+
+WhenTheLightHits30 2024-07-22
+
+"I agree, the headline is certainly a bit extreme.
+
+To be as generous as possible to it, what I would say is that, on a larger scheme, the Russian offensive to take Pokrovsk has largely culminated. The disaster for Russia that was the “breakthrough” from a few weeks ago north of the city has really resulted in a major kneecapping of the already weakening push.
+
+When you add to that Ukraine’s effective striking at logistics and assets that were recently diverted to the Pokrovsk offensive, it really points to the fact Russia is in trouble.
+
+That also ignores the trouble brewing in the Sumy region for Russia as well with Ukraine now making flanking strikes into Russia itself at this point. Normally you’d think such a situation would warrant more assets, but we’re hearing that Russia is sending troops AWAY from Sumy and towards supporting the Pokrovsk offensive.
+
+I think soon enough we may see the first month of more Ukrainian gains than Russian gains in a long time, and it won’t be due to a sudden massive rout. Ukraine is learning how to effectively clear out Russians, and Russia is rapidly losing the ability to maneuver cleanly and safely with the amount of armor lost."
+
+&nbsp;
+
 
 # Monday September 15, 2025
 
