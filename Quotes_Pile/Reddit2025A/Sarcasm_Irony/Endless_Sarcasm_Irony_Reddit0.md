@@ -412,3 +412,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1niej0q/none_of_the_last_31_polit
 
 Reddit meme cultist can't grasp or undestand Charlie Kirk media cultists. media cult vs. media cult. The Internet Resarch Agency created 5,000 patterns of meme cults. All avoidant of nonficiton learning about media ecology and information warfare self-awareness.     
 https://old.reddit.com/r/sandiego/comments/1nilltx/unexpected_from_my_favorite_local_coffee_shop/
+
+&nbsp;
+
+Reddit community predictable "Eats the Onion" of Surkovian absurd conradictory messages (as described by Adam Curtis, BBC, December 31, 2014). Meme addicts on social machines can not resist these inverted meanings and backwards-ideas mind exploits and react in predictable condtioned patterns that the Russian IRA has induced. Complete lack of self-awareness of their own mind being exploited using Surkov student techniques.     
+https://old.reddit.com/r/MurderedByWords/comments/1nikfou/vances_false_claim/
