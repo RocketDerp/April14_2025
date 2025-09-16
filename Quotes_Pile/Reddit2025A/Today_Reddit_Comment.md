@@ -54,6 +54,18 @@ Gatov, who is the former head of Russia's state newswire's media analytics labor
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nighrf/russias_pokrovsk_offensive_collapses_into_chaos/neizemo/
+
+BadMondayThrowaway17 2017-12-04
+
+"The Russians could disappear into thin air and it would probably still take months for Ukraine to recapture the country.
+
+Millions of landmines, anti-personnel traps, ditches, trenches, nets, tank traps, razor wire, poisoned wells, booby trapped houses and dugouts, caltrops, and many other horrible things stand between Ukraine and any hope of normalcy.
+
+Dealing with those things will last decades after the last Russian gets turned into fertilizer."
+
+&nbsp;
+
 
 # Monday September 15, 2025
 
