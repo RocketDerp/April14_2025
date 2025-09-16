@@ -416,3 +416,20 @@ It's amazing how far the United States has fallen in just ten years. I went from
 
 &nbsp;
 
+https://old.reddit.com/r/NoFilterNews/comments/1niskdp/i_had_enough_of_his_hatred_tyler_robinson_on_why/nelm2ew/
+
+ThePuttingGreen **2025-09-14 (joined yesterday)**
+
+"Nothing personal, but the echo chamber on this site is wild. This is a fabrication drawn from a predetermined conclusion."
+
+* :::=== RoundSparrow_Commentary : New reddit account with to feed the flames of cravings and desires. There are so many people on Bluesky and Reddit raging for Epstein sex fantasy info about Donald Trump. Sexual realtionshps fantasy about shooters / guns. Wrecking the entire nation with social media comments and postings, on on on wanting to know about sex life of Donald Trump. Even if they don't vote for Trump, they turn all conversation into the most fantasy-driven fiction-believing QAnon nonsense about magical information about private jets (Epstein) and sex lives. Can not accept or seek out a normal sate intelligent government leadership - have to have sex content nonsense information be the number one concern! Donald Trump Jr. HIMSELF teased them into information addictions. https://www.yahoo.com/news/fact-check-did-donald-trump-235900050.html - and you can't get people to face up that all this behavior is "Amusing Ourseles To Death" as a nation, Neil Postamn's 1985 nonfiction book. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1niskdp/i_had_enough_of_his_hatred_tyler_robinson_on_why/nelyw2c/
+
+musicman835 2011-07-14
+
+"Also while MSN is hosting it, this article is from HindustanTimes? Like why don’t people wait for actual information. At this point outlets are just posting whatever they want for clicks."
+
+* :::=== RoundSparrow_Commentary :  And Reddit community is the evidence of the desire and cravings for content. People unable to engage nonfiction about their own media addiction, media-centered mob mentality of out-group hate. ===:::
