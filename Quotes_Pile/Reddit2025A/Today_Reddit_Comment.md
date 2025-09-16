@@ -732,3 +732,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_an
 gratefulkittiesilove 2021-05-06
 
 "Exactly. They have been setting themselves up (some) militarily/national guard /border patrol and pulling in members of any state group that will sign up to empower them to get rid of immigrants. The amount of people they are weaponizing is huge. Maybe they will just pick up garbage or maybe we’re watching a real time build up against citizens to change over to the technofascists network state plan. Is certainly foreboding."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ni0we1/glenn_they_still_have_their_1st_amendment_right/nefr3da/
+
+Scott_Liberation 2017-06-25
+
+"Point this out and they just say, "haha, you just don't like it now because it's happening to you," like liberals are the hypocrites in this scenario, somehow."
