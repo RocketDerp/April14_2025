@@ -748,3 +748,11 @@ https://old.reddit.com/r/law/comments/1ni0we1/glenn_they_still_have_their_1st_am
 Exeltv0406 2019-01-17
 
 "Well just in case I catch a hot one to my noggin soon for defending Democracy, let me at least leave this here. Here's a research project released by the NIJ last year that was conveniently redacted from their website recently. Thank God we have archives on the web because apparently this whole report is false now and the numbers changed overnight. https://archive.is/2024.10.24-222147/https://nij.ojp.gov/topics/articles/what-nij-research-tells-us-about-domestic-terrorism "
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ni0we1/glenn_they_still_have_their_1st_amendment_right/nefqwh9/
+
+bradimir-tootin 2025-06-13 (new this year)
+
+"if you're anything like my parents, it is too hard for them to admit that they were the main reason it was ushered in."
