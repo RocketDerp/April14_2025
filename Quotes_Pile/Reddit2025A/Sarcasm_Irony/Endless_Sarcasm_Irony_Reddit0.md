@@ -402,3 +402,8 @@ https://old.reddit.com/r/Fauxmoi/comments/1nilxkc/the_uk_welcomes_donald_trumps_
 
 More paradox, inverted meaning, and not a soul can call this out as Russia's innovations in governing methods. Surkov governing / Kremlin governing techniques.  People at this up in media addiction on social emdia (This Reddit posting is from another media platform).     
 https://old.reddit.com/r/clevercomebacks/comments/1niim5r/remember_he_swore_twice/
+
+&nbsp;
+
+Media addicts of Reddit keep counting over and over for 10 years and oberving it, but not willing to engage nonfiction books from Neil Postman 1985. Unwilling to engage nonfiction books about Russian information warfare, instead mesmerized by the constant content streaming out of Donald Trump / MAGA / Putin / Russia entertainment-based politics. Surkov won, Russia won, since March 2013.     
+https://old.reddit.com/r/NoFilterNews/comments/1niej0q/none_of_the_last_31_political_attacks_was_by/
