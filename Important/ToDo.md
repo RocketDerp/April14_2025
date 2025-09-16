@@ -1530,3 +1530,8 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1nijt5r/putting_brand_name_o
 
 Media ecology topics: book burning, manipulation via media systems, public library, Banksy.    
 https://old.reddit.com/r/todayilearned/comments/1nijj0o/til_an_advertising_agency_faked_a_movement_to/
+
+&nbsp;
+
+Same month, Israel is wrecking home / housings. Trump is declaring war on homeless.    
+https://old.reddit.com/r/TikTokCringe/comments/1nil2bp/since_september_5_israeli_air_strikes_have/
