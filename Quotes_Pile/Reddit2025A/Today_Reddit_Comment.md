@@ -798,3 +798,13 @@ Runkleford 2012-07-15
 "This administration is all about "shoot now, ask questions later". Except they don't ask questions they just make unsubstantiated claims."
 
 * :::=== RoundSparrow_Commentary : Another way of describing it: they are authoring fiction. They are orginating reality to media consumers who based reality on the media they consume. Like Mecca and Quran / Islamic nations. But this is ficiton for addicts to technology, USA society. This is Surkov governing techniques of Russia, imported to USA. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/gifs/comments/1nih7mt/rest_in_peace_robert/nej0azz/
+
+Rogue_Squadron 2012-11-04
+
+"Yeah. Same here. A meme on the internet is how we get this news now. I think it's time to rewatch "All the President's Men" tonight out respect for a great Actor/Director we've just lost, and for the hard-hitting investigative journalism that died long ago."
+
+* :::=== RoundSparrow_Commentary : "A meme on the internet is how we get this news now." - did they expect a personal phone call from a person they never met in person in their lifetime? The police should visit their front door and knock to tell them a very old man, Robert, died at 89 years old. When the average life expenctacy of a male in the USA is under age 79 (age of Donald Trump) by some estimates. A man who lived 10 years past other people, needs a door knock notification visit? (I wish I was half joking about this relationship people have with acting stars like "Robert" (title of the Reddit posting) and Donald and other old men who die of old-men related disorders, the shock Reddit society people have). ===:::
