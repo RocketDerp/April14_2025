@@ -432,3 +432,8 @@ https://old.reddit.com/r/therewasanattempt/comments/1nihhgh/to_truthfully_report
 
 Eating the White House Onions / right out of the hands of counter-MAGA IRA CA conditoned mindsets.    
 https://old.reddit.com/r/AdviceAnimals/comments/1niefjq/we_agreed_there_would_be_no_fact_checking/
+
+&nbsp;
+
+Surkov govening techniques in the face of Reddit from the White House. Trump is meeting with Putin in Alaska recently. And social media mockery addicts, addicts to reaction mocking JD Vance / Trump, are unable to cite nonficiton books from year 2014 about how Russia uses media systems. A completely mentally "owned" society, unable to resist Kremlin media techniques. JD Vance is owned, Reddit audience is owned, everyone owned. Since March 2013.    
+https://old.reddit.com/r/CringeTikToks/comments/1nin5m3/he_never_said_that/
