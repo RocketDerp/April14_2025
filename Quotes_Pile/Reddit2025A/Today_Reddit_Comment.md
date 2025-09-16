@@ -278,3 +278,13 @@ Ummmgummy 2022-11-16
 * :::=== RoundSparrow_Commentary : Since March 2013. Russia won, USA lost / NATO lost the War Against Reality. [Psycological denial abounds, the Bamboozled are sleeping / not Wake Woke / Media Woke](../Carl_Sagan_Quotes.md).
 ... ... ...
 "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/neifokd/
+
+MissionaryOfCat 2021-02-17
+
+"I think a worse problem is that many people don't think they can trust mainstream news anymore, and their only fallback is raving conspiracy theorists on social media. There's no consensus anymore, no shared facts to draw from. The water well America drinks from has been poisoned - and most likely, it was poisoned on purpose because an educated populace was inconvenient for someone.
+
+I miss the Fairness Doctrine."
