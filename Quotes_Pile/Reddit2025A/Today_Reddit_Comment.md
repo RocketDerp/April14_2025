@@ -433,3 +433,17 @@ musicman835 2011-07-14
 "Also while MSN is hosting it, this article is from HindustanTimes? Like why don’t people wait for actual information. At this point outlets are just posting whatever they want for clicks."
 
 * :::=== RoundSparrow_Commentary :  And Reddit community is the evidence of the desire and cravings for content. People unable to engage nonfiction about their own media addiction, media-centered mob mentality of out-group hate. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1niskdp/i_had_enough_of_his_hatred_tyler_robinson_on_why/nelkwsv/
+
+GhostMug 2015-03-19
+
+"There is just no way this text exchange is real. If you made a movie or TV show you would be laughed at for this unrealistic text exchange that perfectly lays out all needed evidence to prosecute. 
+
+Also, one thing that's clear about this kid is he was terminally online. Not a single terminally online person texts like this. Not even close. 
+
+I don't buy into conspiracies but this is suspect as f\*\*k."
+
+* :::=== RoundSparrow_Commentary : Russia has been waging a War Against Reality on Reddit since year 2013. Reddt is a Russian manipulation and gaslight chamber. A website where people cower and hide their real names and reality out of sheer terror of being a human person. Video game addicts, sports addicts, Trump mockery addicts, The_Donald, anti-citation / constantly wanting people to create original comments instead of look things up on Wikipedia and create FAQ - praising low-effort jokes and noise that drown out any good common understanding or comprehension in favor of people writing and writng the same low-effort shit without reading or seeking out refined (Wiikpedia editing and logging of changes) ideas. All comments get abandoned after huurs when new posts start with zero commetns and people race to create trash reaction comments all over again. It is a butchering factory for comrpehension as what matters if the constant flow of refreshing /new /new / new on every subreddit. This is the community with the free time / spare time and organization skills to face up to the nonfiction writings from { Christopher Wylie, Peter Pomerantsev, Neil Postman } - but instead uses all the energy to humor-wash and LOL-wash and amusement-wash everything Donald Trump does as entertainment. Can not resist mocking MAGA and mocking President Tony Clifton style of acting. ===:::
