@@ -533,3 +533,11 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1nflvhw/why_cant_robots_p
 
 Obsecene wealth created by just minutes of content on screens. An actor who got $100,000,000.00 for working on a single film - hundred of millions of dollars... as he knew the kind of technology entertainment, the props and space ship technology, would sell like the Jaws machine technology. Fiction machine shark vs. nonfiction shark reality, fiction outer-space vs. nonfiction science learning money spending by consumers.       
 https://old.reddit.com/r/todayilearned/comments/1ngstu1/til_9_days_after_star_wars_opened_in_1977_alec/
+
+&nbsp;
+
+### Media ecology publishing expeirence
+
+The experience of publishing a photograph and having an audience who is addicted to reaction-commenting / reviewing every single photograph and comment they encounter. Line-item reaction voting / "likes" / comments on every media with other media.    
+
+https://old.reddit.com/r/comics/comments/1nipm5z/ribbon_oc/
