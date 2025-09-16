@@ -30,3 +30,6 @@ We must do our best to teach this problem!
 
 ### HELP HELP HELP!!!!!!
 
+"he boon brought from the transcendent deep becomes quickly rationalized into nonentity, and **the need becomes great** for another hero to refresh the word. How teach again, however, what has been taught correctly and incorrectly learned a thousand thousand times, throughout the millenniums of mankind’s prudent folly? That is the hero’s ultimate difficult task. How render back into light-world **language the speech**-defying pronouncements of the dark? How represent on a two-dimensional surface a three-dimensional form, or in a three-dimensional image a **multi-dimensional meaning**? How **translate** into terms of “yes” and “no” revelations that **shatter into meaninglessness** every attempt to define the pairs of oppo-sites? How communicate to people who insist on the exclusive evidence of their senses **the message** of the all-generating void? Many failures attest to **the difficulties of this life-affirmative** threshold." - The Hero with a Thousand Faces (first published in 1949) is a work of comparative mythology by Joseph Campbell
+
+This was published after Campbell's work with James Joyce's Finnegans Wake book of Dublin Ireland metaphors and singsong poetry.
