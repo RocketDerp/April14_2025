@@ -1510,7 +1510,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ngy1n0/our_reality/
 Colossus 1970 film - review calls people dumb and stupid for avoiding watching it.    
 https://www.youtube.com/watch?v=s9aU5AA8g1Y
 
-&nbp;
+&nbsp;
 
 Funeral wake / funeral rituals after the rise of Tim Finnegan in the bar.     
 https://old.reddit.com/r/comics/comments/1nhqnfn/late_gator_days/
