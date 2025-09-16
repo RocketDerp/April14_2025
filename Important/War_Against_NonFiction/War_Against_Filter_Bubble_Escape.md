@@ -10,3 +10,5 @@ See also: Ted Koppel on HDTV news networks (Fox News, MSNBC, Sky News, etc) [Quo
 ## Induced egomania
 
 The Internet Researh Agency and Cambridge Analyt9ica induce extreme egomania, pain in the human mind, so people do not escape thier fixation on specific styels of leadership signals / leading indicators / signals to follow.
+
+See also: [Cambridge Analytica quotes / Russian IRA formation November 7, 2012](../../Quotes_Pile/Cambridge_Analytica_Quotes.md)
