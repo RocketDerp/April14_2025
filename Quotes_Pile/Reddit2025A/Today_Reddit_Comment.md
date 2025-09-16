@@ -775,3 +775,12 @@ Max-Phallus 2020-10-18
 
 Generally nobody cares about decorum in the USA, and the world outside of the USA doesn't matter."
 
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nhxmg0/trump_says_us_has_struck_another_alleged_drug/neeutmp/
+
+Runkleford 2012-07-15
+
+"This administration is all about "shoot now, ask questions later". Except they don't ask questions they just make unsubstantiated claims."
+
+* :::=== RoundSparrow_Commentary : Another way of describing it: they are authoring fiction. They are orginating reality to media consumers who based reality on the media they consume. Like Mecca and Quran / Islamic nations. But this is ficiton for addicts to technology, USA society. This is Surkov governing techniques of Russia, imported to USA. ===:::
