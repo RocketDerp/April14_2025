@@ -82,6 +82,16 @@ I think soon enough we may see the first month of more Ukrainian gains than Russ
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nighrf/russias_pokrovsk_offensive_collapses_into_chaos/neiorrf/
+
+CBT7commander 2020-05-24
+
+"This has nothing to do with sanctions. Sanctions are showing their effect, but elsewhere.
+
+This is caused by Russians overextending in a thin strip of land surrounded by Ukrainian forces on all sides, betting they won’t have the manpower to counter attack, somehow forgetting this is the most densely manned part of the front."
+
+&nbsp;
+
 
 # Monday September 15, 2025
 
