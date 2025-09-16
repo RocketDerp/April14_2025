@@ -740,3 +740,11 @@ https://old.reddit.com/r/law/comments/1ni0we1/glenn_they_still_have_their_1st_am
 Scott_Liberation 2017-06-25
 
 "Point this out and they just say, "haha, you just don't like it now because it's happening to you," like liberals are the hypocrites in this scenario, somehow."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ni0we1/glenn_they_still_have_their_1st_amendment_right/nefnwjb/
+
+Exeltv0406 2019-01-17
+
+"Well just in case I catch a hot one to my noggin soon for defending Democracy, let me at least leave this here. Here's a research project released by the NIJ last year that was conveniently redacted from their website recently. Thank God we have archives on the web because apparently this whole report is false now and the numbers changed overnight. https://archive.is/2024.10.24-222147/https://nij.ojp.gov/topics/articles/what-nij-research-tells-us-about-domestic-terrorism "
