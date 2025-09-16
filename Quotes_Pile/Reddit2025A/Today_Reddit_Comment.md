@@ -156,6 +156,20 @@ Now this."
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/nei2523/
+
+Alz_Own  2022-09-22
+
+<img width="1816" height="776" alt="image" src="https://github.com/user-attachments/assets/0e3299ef-f0e5-4a25-9565-dc264fcc0423" />
+
+&nbsp;
+
+"As an outsider (non US citizen) what's scary is not the blame game but the fractured reality. Many believe the complete opposite thing. Like really believe it"
+
+&nbsp;
+
 # Monday September 15, 2025
 
 &nbsp;
