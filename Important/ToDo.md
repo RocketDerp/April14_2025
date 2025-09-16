@@ -1540,3 +1540,8 @@ https://old.reddit.com/r/TikTokCringe/comments/1nil2bp/since_september_5_israeli
 
 Media ecology. Live at Leeds The Who / Unlive broadcast via cameras / sports mentality.    
 https://old.reddit.com/r/soccercirclejerk/comments/1nieh4p/never_forget_when_leeds_fans_sent_cardboard_cut/
+
+&nbsp;
+
+The Bible says to teach your slaves well, but kicked out of a Church for treating black skin color / slaves well in year 1923.    
+https://old.reddit.com/r/interestingasfuck/comments/1nimld4/john_m_wright_was_a_white_man_who_hid_black/
