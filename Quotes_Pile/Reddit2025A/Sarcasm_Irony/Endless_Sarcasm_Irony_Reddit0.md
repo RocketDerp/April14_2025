@@ -439,3 +439,9 @@ Surkov govening techniques in the face of Reddit from the White House. Trump is 
 
 For sake of clarity: "owned" means "adicted to Tony Clifton mocking", being audience members who mock and insult Tony Clifton acts - often calling Clifton performnres as {terrible dumb idiots stupid}, Eating the Surkovian onions without any self-awareness that the most sophsticated military infomation warfare is expliting their mind.        
 https://old.reddit.com/r/CringeTikToks/comments/1nin5m3/he_never_said_that/
+
+&nbsp;
+
+My god, did the IRA mind-fuck everyone so deeply. Constantly: conservatives dumb, liberals dumb, consevatives stupid, liberals stupid, conservatives idiots, liberals idiots. People have lost thier minds and hearts to Putin's information warfare and can not escape the total mockery.    
+https://old.reddit.com/r/IThinkYouShouldLeave/comments/1niophq/when_conservatives_try_to_convince_us_that/
+
