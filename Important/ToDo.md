@@ -1521,3 +1521,7 @@ https://old.reddit.com/r/interestingasfuck/comments/1niifgy/tower_of_silence_the
 Power of Autism (hashtag F Wake Autism Superpower) on front page of Reddit     
 https://old.reddit.com/r/HistoryMemes/comments/1ni9qpe/the_answer_will_not_surprise_you/
 
+&nbsp;
+
+media ecology of extra cost and labor to insert content on top of screens.   
+https://old.reddit.com/r/mildlyinfuriating/comments/1nijt5r/putting_brand_name_on_a_screen_protector/
