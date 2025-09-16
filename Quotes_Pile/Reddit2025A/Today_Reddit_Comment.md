@@ -146,6 +146,16 @@ I hope and send atheist prayers that the Russian command lied to Putin again. Be
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1ni4wz3/dsu_student_found_hanging_in_tree_no_foul_play/negx8as/
+
+deltalitprof 2012-05-26
+
+"That college really seems cursed. Taught there for 14 years. By the end, so many crazy things had happened, on-campus shooting perpetrated by an instructor on a professor then the instructor shooting himself dead the same day (and no report released on what even really happened), terrible car accident killing an education professor, the murder of a music professor by a stepson. A feckless, vindictive, stupid asshole of a maniac president (Bill Laforge) who built himself a palace of a home from alumni money and took the school into financial disaster after a post-COVID downturn in enrollment. A chair of a division letching on his female students. Hiring an unqualified con man life coach dean. Another dean going off the deep end and confining an instructor physically in his office. The decimation of all its programs with special attention on the humanities, which is what gave DSU its identity.
+
+Now this."
+
+&nbsp;
+
 # Monday September 15, 2025
 
 &nbsp;
