@@ -400,4 +400,19 @@ joeysflipphone 2016-09-24
 
 "I'd say this was no different than Charles Manson giving orders to his brainwashed followers. Fox News has been systematically brainwashing their viewers for over two decades. When a talking head gives them a direct order to murder a specific group of people and they listen, yeah, I'd say there's cause to charge him too."
 
-* :::=== RoundSparrow_Commentary : You see these lines about Fox News on social media, but nobody can name-drop authros or nonfiction on the subject. Why hasn't Reddit made Jen Senko a household name since year 2015? Her film came out before the 2016 election. A baby boomer stood up to Fox News, and Reddit commmunity can't organize around a role model person "the little guy" who stood up to Fox News. Reddit lacks media ecology self-awareness of how they aren't opposing Fox News because they too are in a cult of messages and don't want to be bored without a Fox News audience to constantly mock and insult. It is Fox News beleivers mocking Reddit, Reddit mocking Fox News audience. Russia won, the IRA won, Sukov won, USA lost the information war since March 2013. ===:::
+* :::=== RoundSparrow_Commentary : You see these lines about Fox News on social media, but nobody can name-drop authros or nonfiction on the subject. Why hasn't Reddit made Jen Senko a household name since year 2015? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Her nonfiction film came out before the 2016 election. A baby boomer stood up to Fox News, and Reddit commmunity can't organize around a role model person "the little guy" who stood up to Fox News. Reddit lacks media ecology self-awareness of how they aren't opposing Fox News because they too are in a cult of messages and don't want to be bored without a Fox News audience to constantly mock and insult. People are addicted to mocker lead by Trump. It is Fox News beleivers mocking Reddit, Reddit mocking Fox News audience. Russia won, the IRA won, Sukov won, USA lost the information war since March 2013. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nir57q/13_people_hurt_in_2_mass_shootings_at_minneapolis/nel5tuz/
+
+DamonLazer 2016-02-29
+
+"When I first saw that clip, I was certain the subtitles were changed to make it look like he said that. Then I turned the sound on, and I thought for sure that someone had dubbed his voice over to make it look like he said that. Then I thought it must be AI-generated. I mean, I knew Kilmeade was a real piece of shit, but I couldn't even imagine that he'd say something so horrific on camera.
+
+It's amazing how far the United States has fallen in just ten years. I went from living into the "shining city on the hill" to living in a "shithole country" without even changing zip codes."
+
+* :::=== RoundSparrow_Commentary : "It's amazing how far the United States has fallen in just ten years" The Russian media invasion started in March 2013. People can not name the nonfiction authors and dates.  https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
