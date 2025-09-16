@@ -321,3 +321,16 @@ HerMajestyTheQueef1 2023-03-22
 
 "Nothing to see here, the free speech crowd does not have to listen to neutral accounts of an event we all saw and can physically remove anyone doing so, no biggy!"
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1niidu9/an_eyewitness_to_charlie_kirks_murder_was_cut_off/nejdkb7/
+
+vegaspimp22 2013-05-15
+
+"Either this or they think it’s disrespectful for some reason. The right is very sensitive even though they pretend the left is the sensitive ones."
+
+* :::=== RoundSparrow_Commentary : Twitter-think Tweet-length mind pattens. This is a major misunderstanding of how humans behave regarding media ecology. Monomyth vs. Monomyth. Media system vs. Media system / systems. Study of Quran fiction media vs. Torah ficiton media, fiction vs. fiction, alternate-realty vs. alternate-reality reveal people get extremely agressive when their fiction story does not dominate the whole world ("God" above all else, Levant trillogy fiction storytelling). Even internal factions of a single-source science fiction storytelling, Quran, can have meme consumers attacking other meme consumers who read the exact same book. 
+"The right is very sensitive even though they pretend the left is the sensitive ones" is out-grup hate patterns. Both groups are correct that human minds are extremel sensitive (all people, over 8 billion on earth) to their favorite media format / media venues / media seasoning / media flavoring / media tone / media storytelling regarding fiction addictions. Thinking that all human behavior is "left or right" is a horrible way of interpreting media ecology and human behaviors. Trying to apply how Bible fiction addicts sat in left or right (where there was no other choice of seating) in front of the King's throne is a practice of mental self-limiting taking to the extreme. A thought-terminating patten. Fiction vs. nonfiction is far more our USA situation regarding the crisis caused by the Internet Research Agency invasion of Redddit (and other) media systems since March 2013. People are fighting fiction vs. fiction, mythology vs mythology, monomyth vs. monomyth paterns as condiitioned by IRA deploying CA memepattern payloads.
+... ... ...
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?”
+― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013 ===:::
