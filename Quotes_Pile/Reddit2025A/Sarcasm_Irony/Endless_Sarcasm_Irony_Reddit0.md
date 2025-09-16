@@ -449,3 +449,8 @@ https://old.reddit.com/r/IThinkYouShouldLeave/comments/1niophq/when_conservative
 
 As conditioned by the IRA + CA, Charlie Kirk used absurd surreal monomyth memes (Bible, "Turning Point Faith" created year 2021) - so now Reddit society s cheering on adding even more surreal absurd mocking. Mock for mock, exactly how Russia information warfare has defeated USA since year 2013. Compusive reactionary mocking to monomyth meme patterns.   
 https://old.reddit.com/r/sandiego/comments/1nir8kx/hahahha_which_one_of_u_did_this/
+
+&nbsp;
+
+Media addicts binging on media paradox and self-harm content. Mind fucked beyond all recognition into compusive flocking to polarity out-group messages and content.     
+https://old.reddit.com/r/Music/comments/1niqnfr/outrage_as_protrump_rapper_and_country_singer/
