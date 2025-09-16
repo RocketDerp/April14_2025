@@ -181,6 +181,17 @@ mc_bee 2013-12-02
 “Joyce is, in the *Wake*, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of tribal institutions can return in the electric age, but if again, then let’s make it a wake or awake or both. Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream. He discovered the means of living simultaneously in all cultural modes while quite conscious.” - from the book “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in March 1967 https://www.themediumisthemassage.com/the-book/
 ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/neigavw/
+
+bathtubsplashes 2014-12-17
+
+"There is a massive propoganda campaign on both sides to get in early and establish he was the opposite side of the aisle.
+
+What's terrifying for me is the left learners recognising how dangerously the right wing commentators are being with zero tangible evidence ...and then turning around and doing the exact same thing 
+
+Way to prove we're actually the rational and principled ones in this debate, fair play"
 
 &nbsp;
 
