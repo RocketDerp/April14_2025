@@ -1,4 +1,4 @@
-# War Against Language Tarnslation
+# War Against Language Translation
 
 It is incredibly difficult for most people, typically gifted people, neurotypical people, to translate from one spoken and written language to another.
 
