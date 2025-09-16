@@ -724,3 +724,11 @@ Confused_mess8888 2023-12-13
 "Stop underestimating your opponent, especially when they are winning.
 
 Overconfidence is a slow and insidious killer."
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1nhw941/the_purge_begins_vance_and_miller_unveil_plan_to/neez446/
+
+gratefulkittiesilove 2021-05-06
+
+"Exactly. They have been setting themselves up (some) militarily/national guard /border patrol and pulling in members of any state group that will sign up to empower them to get rid of immigrants. The amount of people they are weaponizing is huge. Maybe they will just pick up garbage or maybe we’re watching a real time build up against citizens to change over to the technofascists network state plan. Is certainly foreboding."
