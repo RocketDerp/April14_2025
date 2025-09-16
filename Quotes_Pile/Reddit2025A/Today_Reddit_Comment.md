@@ -217,7 +217,16 @@ Hazee302 2019-02-14
 
 * :::=== RoundSparrow_Commentary : No defense has been found to the mental states conditioned by the Putin Media Invasion since March 2013. The 5,000 paterns of alternate reality warfare that has induced people to avoid nonfiction and flock to fiction / falsehoods: "they believe AI generated images on Facebook" - addiction to fiction. Fantasy monomyth patterns of Surkov students. ===:::
 
-&nbps;
+&nbsp;
 
 &nbsp;
 
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/neigo2w/
+
+bobcatgoldthwait 2011-06-20
+
+"Yeah I see the majority of reddit dead convinced he was a Republican, and if you wander into conservative spaces they're convinced he was radicalized by his trans girlfriend/roommate.
+
+We just don't know yet, people."
+
+* :::=== RoundSparrow_Commentary : Media addicts are attracted to constatn stimulation of electric media systems (Reddit, Bluesky, etc) and are not concerned with deep undestanding and comprehension of media ecology. They only desire to get their *fix* of the memes and junk message that are delivered on high speed networks, message notifications, content addictions. Reddit / Bluesky are everything anti-Wikipedia - against refined comprehension and understanding with citations and logging of every edit - and instead favor sucking down constant shit-quality low-effort comments that are constantly being genreated by the millions per hour on their feeds by anonymous (no-identity) users. Avoiding with extreme effort nonfiction books and citations on subjects. Meme addicts of Reddit find refinement of understanding repulsive, the IRA has induced extreme recency bias and self-centered (ego pleasing) reactionary mindsets: https://en.wikipedia.org/w/index.php?title=Killing_of_Charlie_Kirk&action=history  ===:::
