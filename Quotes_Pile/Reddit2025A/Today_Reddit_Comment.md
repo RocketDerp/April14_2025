@@ -342,3 +342,21 @@ https://old.reddit.com/r/news/comments/1nir57q/13_people_hurt_in_2_mass_shooting
 ehjun18 2017-03-19
 
 "The context was honestly so much worse. The first person in the conversation was going on about how we need to put them in concentration camps when the lethal injection comment was made."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nir57q/13_people_hurt_in_2_mass_shootings_at_minneapolis/nelk934/
+
+1egg_4u 2024-03-16
+
+"Theyre repeating history
+
+We already saw this play out before
+
+They came for socialists, communists, union leaders LGBTQ+ people, racial minorities, "Useless Eaters" and the "Work Shy"
+
+We know where this is going. It has already happened before. It is infuriating watching it ramp up again.
+
+The groundwork is being laid for establishing the out groups and outing them to peers and police. The borders are being primed for detaining and removing people.
+
+Honestly, Americans in an "out" group, the time to leave was like... yesterday."
