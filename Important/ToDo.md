@@ -1514,3 +1514,6 @@ https://www.youtube.com/watch?v=s9aU5AA8g1Y
 
 Funeral wake / funeral rituals after the rise of Tim Finnegan in the bar.     
 https://old.reddit.com/r/comics/comments/1nhqnfn/late_gator_days/
+
+More reactions to funeral rituals, Reddit comments about funeral rituals. Finnegans Wake concerns.    
+https://old.reddit.com/r/interestingasfuck/comments/1niifgy/tower_of_silence_the_sacred_zoroastrian_structure/
