@@ -195,6 +195,14 @@ Way to prove we're actually the rational and principled ones in this debate, fai
 
 &nbsp;
 
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/neii2i1/
+
+terminal157 2010-08-26
+
+"Well said. That’s the sort of thing that keeps me up at night, people pointing fingers who are somehow incapable of seeing that they’re doing exactly the same thing."
+
+&nbsp;
+
 
 # Monday September 15, 2025
 
