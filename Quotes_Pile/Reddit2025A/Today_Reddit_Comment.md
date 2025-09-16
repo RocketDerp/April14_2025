@@ -106,6 +106,13 @@ The EU alone can outspend Russia by a large margin. Defense budgets are not even
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nighrf/russias_pokrovsk_offensive_collapses_into_chaos/neizzfu/
+
+Vermachelen 2016-01-24
+
+"11 day old account with 700 comments mmmhm"
+
+&nbsp;
 
 # Monday September 15, 2025
 
