@@ -417,3 +417,10 @@ https://old.reddit.com/r/sandiego/comments/1nilltx/unexpected_from_my_favorite_l
 
 Reddit community predictable "Eats the Onion" of Surkovian absurd conradictory messages (as described by Adam Curtis, BBC, December 31, 2014). Meme addicts on social machines can not resist these inverted meanings and backwards-ideas mind exploits and react in predictable condtioned patterns that the Russian IRA has induced. Complete lack of self-awareness of their own mind being exploited using Surkov student techniques.     
 https://old.reddit.com/r/MurderedByWords/comments/1nikfou/vances_false_claim/
+
+&nbsp;
+
+Age 27     
+https://old.reddit.com/r/MurderedByWords/comments/1nikfou/vances_false_claim/
+
+
