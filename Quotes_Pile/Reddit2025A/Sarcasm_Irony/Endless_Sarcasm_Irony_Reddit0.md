@@ -358,3 +358,8 @@ https://old.reddit.com/r/PoliticalHumor/comments/1nhuv0k/strange_but_true/
 
 Reddit eats up the endless satire / Twitter messages / absurd / surreal Truth Social and Elon Musk Twitter behaviors / Internet Research Agency since year 2013. Every day it gets worse since year 2013. People so entertained and amused by paradox anti-humanism behaviors around comic and meme format addictions.  Russia won, Surkov students won.    
 https://old.reddit.com/r/therewasanattempt/comments/1nhxoie/to_cancel_her/
+
+&nbsp;
+
+Reddit fantasy bullshit that a Fox News host is magically defeated. He is programming the Fox News audience, including the Reddit audience who is watching the clip.     
+https://old.reddit.com/r/CringeTikToks/comments/1ni26ua/fox_news_host_melts_down/
