@@ -428,3 +428,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1nikfou/vances_false_claim/
 Reddit mind-fuck, author of Reddit post uses "truthfully", absolute with unknowable situation. Reddit war against reality and war against truth.    
 https://old.reddit.com/r/therewasanattempt/comments/1nihhgh/to_truthfully_report_the_recent_lynching_of_a/
 
+&nbsp;
+
+Eating the White House Onions / right out of the hands of counter-MAGA IRA CA conditoned mindsets.    
+https://old.reddit.com/r/AdviceAnimals/comments/1niefjq/we_agreed_there_would_be_no_fact_checking/
