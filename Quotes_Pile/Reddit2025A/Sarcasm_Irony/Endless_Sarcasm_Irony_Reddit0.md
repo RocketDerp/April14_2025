@@ -423,4 +423,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1nikfou/vances_false_claim/
 Age 27     
 https://old.reddit.com/r/MurderedByWords/comments/1nikfou/vances_false_claim/
 
+&nbsp;
+
+Reddit mind-fuck, author of Reddit post uses "truthfully", absolute with unknowable situation. Reddit war against reality and war against truth.    
+https://old.reddit.com/r/therewasanattempt/comments/1nihhgh/to_truthfully_report_the_recent_lynching_of_a/
 
