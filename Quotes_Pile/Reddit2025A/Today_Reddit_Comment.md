@@ -242,3 +242,13 @@ Even_Ad9525 **2025-09-04 (new account)**
 * :::=== RoundSparrow_Commentary : In the wild, all over Reddit since March 2013, indeed.
 ... ... ...
 "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/nei7f5j/
+
+P1r4nha 2010-12-27
+
+"Dude, the media. They just pick up any narrative they are fed. Where's their integrity to call out the bullshit spread by all the crazies?"
+
+* :::=== RoundSparrow_Commentary : Wild and crazy antics by Donald Trump playing President Tony Clifton has created more loyal media engagement than any person in all human history. Bigger than Jesus and The Beastles combined. [D. J. is the media disc jockey, Trump is King of Pop Culture! LSD / LSDJ Trump master can spin minds with NYC Edward Bernays NYC Tony Clifton NYC Howard Bloom like no other](../../Grim_Blunt/Donald_Trump_SuperStar.md) ===:::
