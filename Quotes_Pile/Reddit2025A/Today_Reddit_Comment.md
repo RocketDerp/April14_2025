@@ -360,3 +360,16 @@ We know where this is going. It has already happened before. It is infuriating w
 The groundwork is being laid for establishing the out groups and outing them to peers and police. The borders are being primed for detaining and removing people.
 
 Honestly, Americans in an "out" group, the time to leave was like... yesterday."
+
+* :::=== RoundSparrow_Commentary : We are repeating history because we are in information overload. That was the heart of James Joyce's book Finnegans Wake, the patterns of mental overload and malfunction when conflicting fiction systems / mythology systems hit walls. We can learn the inward emotional control from history and not just act out our anger and hate.
+... ... ...
+“Joyce is, in the *Wake*, making his own Altamira cave drawings of the entire history of the human mind, in terms of its basic gestures and postures during all the phases of human culture and technology. As his title indicates, he saw that the **wake of human progress can disappear again** into the night of sacral or auditory man. The Finn cycle of **tribal institutions can return** in the electric age, but if again, then let’s **make it a wake or awake or both**. Joyce could see **no advantage in our remaining locked up in each cultural cycle as in a trance or dream**. He discovered the means of living simultaneously in all cultural modes while quite conscious.” - from the book “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in March 1967 https://www.themediumisthemassage.com/the-book/
+===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nir57q/13_people_hurt_in_2_mass_shootings_at_minneapolis/nelkjjq/
+
+Edmatador82 2017-10-08
+
+"It’s happening, there was 2 shootings in Two different homeless encampments in Minneapolis."
