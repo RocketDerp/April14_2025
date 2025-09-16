@@ -766,3 +766,12 @@ ShiftBMDub 2024-03-25 (The HolidayDay Mary got Impregnated with Jesus)
 "Everyone's therapist is telling them to detach from it..."
 
 &nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nhxmg0/trump_says_us_has_struck_another_alleged_drug/nefdo68/
+
+Max-Phallus 2020-10-18
+
+"The answer is not because there isn't evidence, it's because the vast majority of brainless idiots in the US want ***"action"***. They want simple answers to questions that seem simple to idiots, and therefore are voters to secure.
+
+Generally nobody cares about decorum in the USA, and the world outside of the USA doesn't matter."
+
