@@ -114,6 +114,28 @@ Vermachelen 2016-01-24
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nighrf/russias_pokrovsk_offensive_collapses_into_chaos/neixcb5/
+
+Jordantherockjohnson 2020-11-02
+
+"Reddit commenter just making things up as usual go figure."
+
+* :::=== RoundSparrow_Commentary : Since the Putin Media Invaison of Reddit from March 2013 onward, there is a lacking of people who name-drop authors and titles of books or other off-Reddit citaitons in favor of inband message (bullshitting). The intended media environment outcomes is people forget yesterday's stale comments (boring) as they constantly crave new consuming for fresh new low-effort jokes and memes. Sophisticated mental exploits of CA and IRA. Donald Trump has been influenced by all this since March 2013 and you can witness in summer of 2025 how he uses insults and creativity ("making things up") poetically to draw audiences deeper and deeper into compusive Tony Clifton audience reactions. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nighrf/russias_pokrovsk_offensive_collapses_into_chaos/neivj59/
+
+TheTeflonDude 2025-05-17 (new this year)
+
+"Russia sent hundreds of men into a sewage pipe.Not knowing its blocked off at the end.
+
+Before many of the men came to that horrific knowledge they had to swim through sewage before drowning… since the last 20-30m was full of sewage
+
+Traveled 4 days in those pipes before dying in a disgusting way"
+
+&nbsp;
+
 # Monday September 15, 2025
 
 &nbsp;
