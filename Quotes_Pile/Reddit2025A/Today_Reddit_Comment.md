@@ -136,6 +136,16 @@ Traveled 4 days in those pipes before dying in a disgusting way"
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nighrf/russias_pokrovsk_offensive_collapses_into_chaos/neipw8k/
+
+Smartimess 2024-12-21 (new this year)
+
+"Russia doesn‘t train its soldiers anymore. They really hope that Ukrainians get tired killing the meatwaves and will run out of ammo.
+
+I hope and send atheist prayers that the Russian command lied to Putin again. Because he really seem to think that the alcoholics and drug addicts he sends to the front lines will make a diference."
+
+&nbsp;
+
 # Monday September 15, 2025
 
 &nbsp;
