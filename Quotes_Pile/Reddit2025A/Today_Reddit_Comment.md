@@ -1,4 +1,4 @@
-# Tuesday Septmber 16, 2025
+# Tuesday September 16, 2025
 
 &nbsp;
 
