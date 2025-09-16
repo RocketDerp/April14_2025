@@ -12,6 +12,19 @@ Memento_Vivere8  2021-12-20
 
 &nbsp;
 
+https://old.reddit.com/r/gifs/comments/1nih7mt/rest_in_peace_robert/nej39wb/
+
+djazzie 2009-08-13
+
+"Me too. Damn that’s sad I had to learn from a meme."
+
+* :::=== RoundSparrow_Commentary : Fiction content consumers get incredibly sad when a very old man, age 89, dies. A person they do not know except through film and television content. The same younger film media / movie media fiction addicts (Robert Redford context) **can not relate how fiction addicts to Charlie Kirk content (podcasts) being killed shockingly in public while speaking at a University has induced media mania in audience members**. There is a complete lack of comprehension of media ecology and how emotion (["heart strings" metaphors](https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s)) are pulled and manipulated by wealth content holders / copyright holders. And who pulls such heart strings. The film industry cartels / musi industry cartels / video game characer cartels / who manipulate audiences to build massive wealth / social emdia fiction content cartels (Reddit, Facebook, Elon Musk Twitter) do it even mroe personalized since year 2013 using Cambridge Analtyica and Kremlin techniques.
+... ... ...
+“We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to exploit evolutionary flaws in our cognition? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?”
+― Christopher Wylie, Mindf\*ck: [Cambridge Analytica and the Plot to Break America](../Cambridge_Analytica_Quotes.md), year 2019. ===:::
+
+&nbsp;
+
 # Monday September 15, 2025
 
 &nbsp;
