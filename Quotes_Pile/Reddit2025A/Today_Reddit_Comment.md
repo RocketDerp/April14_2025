@@ -304,3 +304,12 @@ How about this: just some random psycho mentally ill enough to murder, in the gr
 * :::=== RoundSparrow_Commentary : Chucklehead nation. LOL LMAO LOL LMAO from every person mocking the misfurtune of *other American people* as conditioend by the Russian Internet Research Agency since March 2013. Self-harm. Ameicans mock Americans, and have never found any video screen games (ARG) more entertaining that low-effort no-citation nonfiction-avoiding social media comments and reaction images. Russia won, Surkov won, USA lost to Putin since March 2013.
 ... ... ...
 “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply **too painful to acknowledge, even to ourselves, that we’ve been taken**. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/neiisv1/
+
+psyopsagent 2024-09-07 (note the meaning of username in context of IRA)
+
+"I live in germany, and it's happening here too. It's scary. We're way closer to the US than most people seem to recognize"
+
