@@ -445,3 +445,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1nin5m3/he_never_said_that/
 My god, did the IRA mind-fuck everyone so deeply. Constantly: conservatives dumb, liberals dumb, consevatives stupid, liberals stupid, conservatives idiots, liberals idiots. People have lost thier minds and hearts to Putin's information warfare and can not escape the total mockery.    
 https://old.reddit.com/r/IThinkYouShouldLeave/comments/1niophq/when_conservatives_try_to_convince_us_that/
 
+&nbsp;
+
+As conditioned by the IRA + CA, Charlie Kirk used absurd surreal monomyth memes (Bible, "Turning Point Faith" created year 2021) - so now Reddit society s cheering on adding even more surreal absurd mocking. Mock for mock, exactly how Russia information warfare has defeated USA since year 2013. Compusive reactionary mocking to monomyth meme patterns.   
+https://old.reddit.com/r/sandiego/comments/1nir8kx/hahahha_which_one_of_u_did_this/
