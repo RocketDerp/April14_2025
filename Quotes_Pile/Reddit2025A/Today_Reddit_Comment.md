@@ -756,3 +756,13 @@ https://old.reddit.com/r/law/comments/1ni0we1/glenn_they_still_have_their_1st_am
 bradimir-tootin 2025-06-13 (new this year)
 
 "if you're anything like my parents, it is too hard for them to admit that they were the main reason it was ushered in."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1ni0we1/glenn_they_still_have_their_1st_amendment_right/neflcgy/
+
+ShiftBMDub 2024-03-25 (The HolidayDay Mary got Impregnated with Jesus)
+
+"Everyone's therapist is telling them to detach from it..."
+
+&nbsp;
