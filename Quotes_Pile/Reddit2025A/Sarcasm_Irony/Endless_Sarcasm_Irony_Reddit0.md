@@ -383,3 +383,7 @@ https://old.reddit.com/r/science/comments/1ni6w6s/trumps_frequent_claims_of_vict
 
 Reddit society eats this shit up, USA society eats this shit up, peple can not cite Surkov Contradictory Vauderville techniques.  Books and videos since year 2014 describing Russian control methos of society.    
 https://old.reddit.com/r/law/comments/1nifvhk/attorney_general_pam_bondi_theres_free_speech_and/
+
+&nbsp;
+
+https://old.reddit.com/r/Snorkblot/comments/1niewo7/lets_see_what_the_backlash_is/
