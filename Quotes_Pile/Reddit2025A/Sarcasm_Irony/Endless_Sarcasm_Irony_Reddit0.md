@@ -459,3 +459,8 @@ https://old.reddit.com/r/Music/comments/1niqnfr/outrage_as_protrump_rapper_and_c
 
 Something big, and then something big, and then someething big. Media addiction to Russia informatio warfare techniques has taken over the nation. No person in society hasn't learned and seen by now that the key to power is antics and media systems.    
 https://old.reddit.com/r/Millennials/comments/1nin34l/anyone_else_feel_like_the_world_is_holding_its/
+
+&nbsp;
+
+Everyone has heard of *trinity*, correct? Jesus and the 3-point cross symbol every person over age 12 in world has seen? Not just two sides, not just left vs right, righ vs. left, bi-polar one-bit... but actaully knows of the iea of transcending logic binary? Not just 1 and 2, but also 3? And 3 being s sybolism of trascneding 1 or 2 to the entire cosmos / heavens? But people on Reddit can not stop eading the polarity logic of opposition. That they hhave been gamed into a media simulacra of back and forth hate amplifiers. Avoiding of nonfiction, avoidaing of studying Russian information warfare, avoiding of pro-humanism, avoiding of MLK Jr's writings, avoidant of learning media ecology, avoidint of learning Malala's writings about education trascending terrorism and hate. Nothing breaks this compulsive left vs. right,right vs. left mutually assured destruction logic.    
+https://old.reddit.com/r/MurderedByWords/comments/1nirpb1/receipts_say_otherwise/
