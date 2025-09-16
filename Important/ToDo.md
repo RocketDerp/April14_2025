@@ -1535,3 +1535,8 @@ https://old.reddit.com/r/todayilearned/comments/1nijj0o/til_an_advertising_agenc
 
 Same month, Israel is wrecking home / housings. Trump is declaring war on homeless.    
 https://old.reddit.com/r/TikTokCringe/comments/1nil2bp/since_september_5_israeli_air_strikes_have/
+
+&nbsp;
+
+Media ecology. Live at Leeds The Who / Unlive broadcast via cameras / sports mentality.    
+https://old.reddit.com/r/soccercirclejerk/comments/1nieh4p/never_forget_when_leeds_fans_sent_cardboard_cut/
