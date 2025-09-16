@@ -397,3 +397,8 @@ https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much
 
 Worshiping the image of Donald Trump non-stop for over a decade. Front page of Reddit more image worship of Trump's sexual power and conquest sexuality ("Grab them by the pussy) as compuslive media addicts are unable to stop entertainment and be serious - to egage nonfiction learning of media ecology (McLuhan / Postamn, etc) and Russian information warfare (learn of Internet Research Agency / Cambridge Analytica, etc).    
 https://old.reddit.com/r/Fauxmoi/comments/1nilxkc/the_uk_welcomes_donald_trumps_state_visit_by/
+
+&nbsp;
+
+More paradox, inverted meaning, and not a soul can call this out as Russia's innovations in governing methods. Surkov governing / Kremlin governing techniques.  People at this up in media addiction on social emdia (This Reddit posting is from another media platform).     
+https://old.reddit.com/r/clevercomebacks/comments/1niim5r/remember_he_swore_twice/
