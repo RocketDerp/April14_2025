@@ -288,3 +288,19 @@ MissionaryOfCat 2021-02-17
 "I think a worse problem is that many people don't think they can trust mainstream news anymore, and their only fallback is raving conspiracy theorists on social media. There's no consensus anymore, no shared facts to draw from. The water well America drinks from has been poisoned - and most likely, it was poisoned on purpose because an educated populace was inconvenient for someone.
 
 I miss the Fairness Doctrine."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/neighde/
+
+Eskotar 2019-06-03
+
+"Its either: Left: ”lmao maga friendly fire” or Right: ”lmao radicalized by left rhetoric”
+
+How about this: just some random psycho mentally ill enough to murder, in the grand scheme of things, a nobody social media influencer. What side the perp leans on should be the least of peoples worry."
+
+* :::=== RoundSparrow_Commentary : Chucklehead nation. LOL LMAO LOL LMAO from every person mocking the misfurtune of *other American people* as conditioend by the Russian Internet Research Agency since March 2013. Self-harm. Ameicans mock Americans, and have never found any video screen games (ARG) more entertaining that low-effort no-citation nonfiction-avoiding social media comments and reaction images. Russia won, Surkov won, USA lost to Putin since March 2013.
+... ... ...
+“One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply **too painful to acknowledge, even to ourselves, that we’ve been taken**. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 ===:::
