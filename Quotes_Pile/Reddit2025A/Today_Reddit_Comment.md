@@ -334,3 +334,11 @@ vegaspimp22 2013-05-15
 ... ... ...
 “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?”
 ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1nir57q/13_people_hurt_in_2_mass_shootings_at_minneapolis/nel9jay/
+
+ehjun18 2017-03-19
+
+"The context was honestly so much worse. The first person in the conversation was going on about how we need to put them in concentration camps when the lethal injection comment was made."
