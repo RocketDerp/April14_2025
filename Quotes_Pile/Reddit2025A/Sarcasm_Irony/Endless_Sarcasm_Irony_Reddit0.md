@@ -454,3 +454,8 @@ https://old.reddit.com/r/sandiego/comments/1nir8kx/hahahha_which_one_of_u_did_th
 
 Media addicts binging on media paradox and self-harm content. Mind fucked beyond all recognition into compusive flocking to polarity out-group messages and content.     
 https://old.reddit.com/r/Music/comments/1niqnfr/outrage_as_protrump_rapper_and_country_singer/
+
+&nbsp;
+
+Something big, and then something big, and then someething big. Media addiction to Russia informatio warfare techniques has taken over the nation. No person in society hasn't learned and seen by now that the key to power is antics and media systems.    
+https://old.reddit.com/r/Millennials/comments/1nin34l/anyone_else_feel_like_the_world_is_holding_its/
