@@ -3,3 +3,5 @@
 Thomas Babington Macaulay     
 Critical and Miscellaneous Essays    
 year 1843
+
+"Every sect clamors for toleration when it is down." - Thomas Babington Macaulay
