@@ -261,8 +261,20 @@ justadudeinohio 2014-03-20
 
 "the media is owned by the crazies. and one side of the population is useful idiots that fight against their own interests."
 
-* :::===  ONE SIDE, ONE AND ONLY ONE SIDE. Sukovian onon eater! Twitter-think short-message Blueskhy-thinking. No author reference, no book citations, no links. Ignoring Ted Kopel's (media practitioner) spelling it out nearly a decade ago (already more than 2 years into Putin media invasion / IRA): 
+* :::===  ONE SIDE, ONE AND ONLY ONE SIDE. Sukovian onon eater! Twitter-think short-message Bluesky-thinking. No author reference, no book citations, no links. Ignoring Ted Kopel's (media practitioner) spelling it out nearly a decade ago (already more than 2 years into Putin media invasion / IRA): 
 ... ... ...
 “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
 ... ... ...
 “If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a favoured concept of both Beijing and Moscow, and essentially a cover for enforcing censorship.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019 ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nidroz/yeah_thats_pretty_much_it/neiani0/
+
+Ummmgummy 2022-11-16
+
+"Yeah there are a lot of people living in an alternate reality and it's terrifying. They also truly believe that when Biden got cancer all the right wing people were nothing but sympathetic. That happened like less than a few months ago and they have already changed their entire reality to include that lie. They are going to start committing mass violence against the country soon. Especially when you have Vance and Miller literally dousing gasoline on everything and lighting a match."
+
+* :::=== RoundSparrow_Commentary : Since March 2013. Russia won, USA lost / NATO lost the War Against Reality. [Psycological denial abounds, the Bamboozled are sleeping / not Wake Woke / Media Woke](../Carl_Sagan_Quotes.md).
+... ... ...
+"This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." https://en.wikipedia.org/wiki/This_Is_Not_Propaganda ===:::
