@@ -215,8 +215,10 @@ look like they were written on the back of a mega yacht.
 Campaign donations aren't speech. They're just bribes with better public
 relations. And democracy is pretty much turned into a performance
 art with worse acting and higher stakes.
-And we're just the extras clapping on Q.
+And we're just the extras clapping on cue.
 I mean, you don't even have to be cynical to see any of this. You just have to read your own bank statement.
+
+18:42     
 All right. So once upon a time
 the problem used to be too little information.
 I know that's hard to believe now but uh now as we all know it's too much
@@ -341,6 +343,8 @@ theories are now in the main story line right next to the news reports and the
 policy updates um right there next to the science
 and nobody knows knows what's real anymore
 because we have a a crisis of trust.
+
+32:18     
 All right. So, some of you may remember that not too long ago, we actually used to share
 a baseline reality. Crazy, right?
 You knew that snow was white, grass was green, and you knew that taxes existed
