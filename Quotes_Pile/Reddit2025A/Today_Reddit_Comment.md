@@ -185,5 +185,13 @@ Robo-boogie 2009-12-17
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/neqgarb/
+
+SelenaMeyers2024 2024-05-09
+
+"Hahaha. Thanks for that memory.
+
+I'm certain this isn't the usual middle age dulling of wit, I I forgive my lapse. I'm certain that in the 90s this would be so absurdly hilarious it'd be seared into memory daily, but in the 2020s it's merely the absurdity of the week."
+
 &nbsp;
 
