@@ -153,6 +153,15 @@ Narrow thinking."
 
 * :::=== RoundSparrow_Commentary : [Context bewilderment abounds with our millions of media channels / comment patterns from different auhtors line by line in meme society](../../Media_Ecology/Context_Bewilderment.md). James Joyce's Finnegans Wake (published year 1924 onward) is a third-eye (metaphors) opening to the experience and self-awareness of the Tower of Babel. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/neoyi2y/
+
+bobface222 2020-12-16
+
+"The grand irony in all of this is that these fuckers are *thrilled* this happened. They got a useful marytr out of it."
+
+* :::=== RoundSparrow_Commentary : Reddit and Bluesky meme addicts are *thrilled* to have a media content creator / podcaster to mock and insult and call stupid with millions and millions of unique comments! Such media engagement by the White House / Kremlin pairing! Endless mockery and adoption of Truth Social values. Entirely avoiding the nonficiton public library section regarding how Surkov governing works in Russia for the past 25 years and how Russia wages information warfare that defeated the USA since year 2013. "The grand irony in all of this" is how exploitable meme addict minds are in craving more and more events to comment upon! These American meme machine users ae *thrilled*!!! ===:::
 
 &nbsp;
 
