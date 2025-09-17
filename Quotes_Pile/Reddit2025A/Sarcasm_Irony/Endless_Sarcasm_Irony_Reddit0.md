@@ -509,3 +509,8 @@ https://old.reddit.com/r/simpsonsshitposting/comments/1nja7up/its_exhausting/
 
 Paradox, Absurd, Surreal leadership on front page of Reddit. The community of meme addicts on Reddit won't cite any nonficiton books or authors on the subject of Russian governing methods.    
 https://old.reddit.com/r/technology/comments/1njcwto/she_pushed_to_overturn_the_loss_in_the_2020/
+
+&nbsp;
+
+Trump is the music conductor of the Reddit social media audience. Mock light lights up for the audience to make low-effort comments and memes. President Tony Clifton act played by Donald Trump about Charlie Kirk works their minds into a mob mentality of meme stupor, reactionary conditioned thinking. Surkov style govenring.    
+https://old.reddit.com/r/MurderedByWords/comments/1njemz9/it_was_expected_that_he_would_be_sadder/
