@@ -477,3 +477,11 @@ Ok_Animal_2709 2024-11-27
 "I have come to understanding that ivy League schools are actually some of the worst schools in the world. They apparently don't even have the most basic of ethics classes. They are just banks that also serve as nepotism factories."
 
 * :::=== RoundSparrow_Commentary : Freedom to hate, hate one another, hate thy neighbor is a core value of educated pepole. Freedom to mock and trick and manipulate with Edward Bernays techniques since the 1920's. Freedom to out-smart everyday rural people with Russian informationw warfare paired with Cambridge Analytica payloads. Freedom to use the most educated psychologists and psyciatirsts from Cambridge Analytica in a plot to manipualte rural less-educated MAGA famers and supporters. Freedom to use Rupert Mudoch media empire to predatory manipulate people who have zero education on human mind subconious and addictions to media itself (Bible addiction, Quran addiciton of September 11 2001, Quran addiction of October 7, 2013 - all educated avoided to the general public but taught in marketing and advertising schools to serve Trump / Murdoch / Musk / Putin / etc). The general publi is not educated on how Dr. Arbraham Brill worked with Edward Bernays, the general publid does not grasp the mechanics of wealth televagelism of Fox News, the Mosque, the Church, the Temple.  “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013. The wealthy hire advertising agencies and actors to build their manipulation techniques and product palcement / idea placement systems. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1nizu31/famous_twitch_streamer_destiny_got_fired_and/nenfjcz/
+
+Jas86 2010-11-02
+
+"Fact-checkers and background research? Sounds way too WOKE for me."
