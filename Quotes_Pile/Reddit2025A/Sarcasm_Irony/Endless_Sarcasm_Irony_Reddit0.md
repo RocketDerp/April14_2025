@@ -504,3 +504,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1nj7kim/america_fuck_yeah/
 
 Front page of Reddit: exhausting. Simplistic Twiter-length reactions. It's evertying Neil Postman described in 1985 book "Amusing Ourselves To Death" now wepaonzied by the Russian Internet Research agency since march 2013. Yet, Reddit sells message affter message, crowds flock to Reddit to eat it and taste-test the turds and grade how ell the tird-givers are in the toal mockey. Russia won, Surkov won, USA lost the information war. Addiction to trash mocking back and forth, left to rgith, right to left, is the outcome of the lost war. Nonfiction serious books on Russia inforamtion warfare itself discarded.       
 https://old.reddit.com/r/simpsonsshitposting/comments/1nja7up/its_exhausting/
+
+&nbsp;
+
+Paradox, Absurd, Surreal leadership on front page of Reddit. The community of meme addicts on Reddit won't cite any nonficiton books or authors on the subject of Russian governing methods.    
+https://old.reddit.com/r/technology/comments/1njcwto/she_pushed_to_overturn_the_loss_in_the_2020/
