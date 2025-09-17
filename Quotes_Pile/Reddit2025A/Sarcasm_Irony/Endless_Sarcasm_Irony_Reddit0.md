@@ -559,3 +559,9 @@ https://old.reddit.com/r/pettyrevenge/comments/1njntqv/he_did_what/
 
 Front page of Reddit paradox. Fiction addicts can't face up to seeing a person in media fiction addiction. Can't face nonfiction of learning how Cambridge Analytica actually impacted minds, how Russian information warfare alteres behaviors. "Seriously, what the hell is it!" a population so meme addeled that they can't stay focused since March 2013 about the IRA.  Instaed, more streaming comments of Americans attacking Amiercans without resisting Putin's media invasion of USA Internet content.    
 https://old.reddit.com/r/MurderedByWords/comments/1njprg1/mehdi_hasan_just_tweet/
+
+&nbsp;
+
+The hourly Reddit "Trump told you!!!!" - how many times has Reddit community been told about the IRA and ignored it? Why doesn't Reddit repeat about the Russian information warfare instead of nonstop fication on Donald Trump? Do you really believe Donald Trump is intelligent enough to brainwash an entire population, or Putin for 25 years is brainwashing Trump and Musk and MAGA all? What evidence do you need to see about the IRA reported by multiple NATO nations having media brainwashing efforts? Can't cite a single author, can't escape the constant "He told you" messages all year 2025, day after day since January 20, 2025 - while not facing up that this is exactly what Russia induces. Americans attacking Amercians and not facing up to the most sophisticated information warfare ever created in all world history!    
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1njniu3/he_told_you_his_plans/
+
