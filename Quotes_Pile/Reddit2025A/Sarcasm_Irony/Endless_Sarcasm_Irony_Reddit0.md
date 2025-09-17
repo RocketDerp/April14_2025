@@ -544,3 +544,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1njlrv0/tucker_carlson_is_r
 
 Reddit sees absurd and satire against White House absurd and satire, fiction vs. fiction, but can't see it happening on Reddit and Bluesky too. Only "big names" in media, not small comments and the Intenet Research Agency and similar small-comment techniques.   
 https://old.reddit.com/r/technology/comments/1njnb5k/fcc_chair_threatens_jimmy_kimmel_over_monologue/
+
+&nbsp;
+
+This guy is THRILLED to have such aweful content to mock, that USA keeps finding new low bars of measue to create content about, and Reddit is thrilled to react-comment how Russia has mind-fucked MAGA into self-harm of the USA without any self-awareness of multiple NATO nations reporting the media invasion. But USA is the most media-addicted culture, so a song celebrating ignorance and celebrating hate fits in with nation of media adicts.   
+https://old.reddit.com/r/TikTokCringe/comments/1njo07y/they_are_now_making_songs_about_lynching_black/
