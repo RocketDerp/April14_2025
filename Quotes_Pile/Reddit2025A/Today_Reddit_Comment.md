@@ -56,6 +56,16 @@ Good4Noth1ng 2014-07-03
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1njasuj/even_candace_owens_cant_bring_herself_to_pretend/nepxovl/
+
+Either-Percentage-78 2021-06-02
+
+"And, no real mistakes anywhere?  I had to re swipe 'anywhere' twice in my reply.. And I skipped 'my' .. Lol. I also really don't understand why he ditched his rifle before leaving? Wasn't it in his backpack on the way up and down the stairs?  I'm confused all together."
+
+* :::=== RoundSparrow_Commentary : Not a Reddit media addict on their computer screens can cite the ELIZ effect from year 1966 https://en.wikipedia.org/wiki/ELIZA_effect by name. Despite consuming messages off Reddit that they constantly are bewildered if a real person with no-identity accoutns from anywhere on the world. Constantly confusing authentic people with "bots", dehumanizing others. Their personal excellent good taste in trash memes has made them experts on Finnegans Wake language patterns and seams in the human brain around the Tower of Babel experience. Glued with every spare moment to filter-bubble subreddits refreshing for the latest trending style and meme-format fashion, the latest South Park animation to inform them in Spongebob-meme thinking what is current fashion for Morman family in Utah for a young man who maintains his grandfather's old-school rifle. "I'm confused all together" - you are on Reddit media enviornment where Russian IRA messages from year 2013 are never met with non-fiction education: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
 # Tuesday September 16, 2025
 
 &nbsp;
