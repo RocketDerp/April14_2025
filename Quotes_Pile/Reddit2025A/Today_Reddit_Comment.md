@@ -378,3 +378,13 @@ MinuteMaidMarian 2024-07-30
 Thank god I found a new ob/gyn and am 8 weeks uterus-free!"
 
 * :::=== RoundSparrow_Commentary : "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. **The power of the voice of women frightens** them. And that is why they killed 14 innocent **medical students** in the recent attack in Quetta. And that is why they killed many female teachers and polio workers in Khyber Pukhtoon Khwa and FATA. That is why they are blasting schools every day. Because they were and they are afraid of change, afraid of the equality that we will bring into our society." - https://malala.org/news-and-voices/malala-un-speech ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administration_says_iuds_and_the_pill/neqvypu/
+
+AureliaDrakshall 2016-04-16
+
+"Every person who's ever said I was being hysterical about Trump isn't a person I've kept in my life. I've been trying to get people to see what was coming since 2016, but the amount of people that didn't believe me was insane."
+
+* :::=== RoundSparrow_Commentary : Russian War Against Reality was waged agsint Reddit / social machines / media macines since March 2013. Russia won hearts and minds to self-harm the USA since year 2013. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
