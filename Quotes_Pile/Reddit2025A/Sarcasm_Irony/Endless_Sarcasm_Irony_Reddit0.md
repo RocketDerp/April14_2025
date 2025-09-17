@@ -489,3 +489,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1niubab/an_idiot_learns_what_d
 
 Story after story about howo right-wing media teaches fiction. But complete avoidance of nonfiction. Why can't Reddit community come together and make Jen Senko's 2015 film a household name? Why just a constant stream of comments about Fox News fiction wrecking lives and promoting dehumanization and hate... and no sustained focus (every day schedueld meetings / posting on Reddit) to address the fiction addiction / Kremlin war against Reality / Rupert Murdoch anti-reality content?     
 https://old.reddit.com/r/insaneparents/comments/1niz0v3/my_mother_thinks_that_i_had_something_to_do_with/
+
+&nbsp;
+
+In face bold enial, complete black/white conradiction of reality. Absurd surreal Russian Surkov techniques staring Reddit users in the face. Donald Trump Jr. himself posted on social media about Epstein. Reddit users eat up this polarity / inverted message and mock and insutl and call the Kremlin and White House stupid dumb idiots. Unable to name authors or books (nonfiction) about Russian infomation warfare and Surkov leadership.     
+https://old.reddit.com/r/NoFilterNews/comments/1nixndf/kash_patel_makes_an_epstein_comment_that_is/
