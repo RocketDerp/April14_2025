@@ -457,3 +457,13 @@ Gen-Jack-D-Ripper 2023-11-11
 "But first, we need to teach them how to spot the world’s most obvious con-man! Before 2016, I assumed anyone that could tie their shoes could do that."
 
 * :::=== RoundSparrow_Commentary : Since March 2013, the Russian Internet Research Agency manipulated the everyday people of USA. Alas, people are unable to look past their fixaton on one person: Donald Trump, who they imagine was given suitcases of cash and hookers like in a Hollywood film (fiction learning / entertainment films), and study how non-fiction information warfare actually works. Evidence going back to year 2014: https://www.bbc.com/news/world-us-canada-45294192 that entertainment-focused population of USA avoids. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1niy2ev/justice_sotomayor_every_time_i_listen_to_a/nemz91y/
+
+TheRealBittoman  2019-11-07
+
+"Every damned tv evangelist for the past 60 years has been pulling a similar con as Trump. There's a parallel there and it's one reason trump and the Republican party has been successful in their current grift."
+
+* :::=== RoundSparrow_Commentary : Bible is science fiction, Quran is science fiction, Torah is science fiction. Fiction outsells nonfiction. Donald Trump Truth Social provides fiction that audiences desire. We are now a fiction-driven society like Saudi Arabia with Mecca, like Putin's Russia with Surkov techniques. Fiction storytelling techniques attract media addict American population (We The People). The rise of the Streaming Media age (Creation and popularity of Netflix, Disney+, HBO Max, YouTube, etc) is the rise of fiction addictions. No longer do peoople have to wait for the cinema to open, or only get the move cable TV HBO offers on a schedule, it is a filter-bubble of egoism non-stop choose as you wish. And people choose: Hate Trump, Mocky Trump. The endless insporation of Truth Social values / Twitter values of 24 hour a day hate messages and mockery, fiction content, self-harm manipulation. That's what Trump provides for everyone, a person to insult and mock. A total population of 341 million people who prize and value hate messages and mockery of pople they disagree with, egomania self-harm. We could all unite and learn about Russian informationw warfare that streamed over the Internet since March 2013, but that is nonfiction, that is real reality. Nonfiction is not popular, nonfiction does not sell. Neil Postman's 40 books are ignored.. because nonfiction was left beyond in favor of Truth Social leadership of fiction. Trump himself sells and markets fition Bible books. ===:::
