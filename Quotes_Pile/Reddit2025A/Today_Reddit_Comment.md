@@ -66,6 +66,16 @@ Either-Percentage-78 2021-06-02
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1njasuj/even_candace_owens_cant_bring_herself_to_pretend/nepkuil/
+
+redpoemage 2011-09-30
+
+"This is the most convincing thing to me that something inauthentic is likely up. I don't paint with a broad brush, so among the millions of people his age there's probably some that text like that...but it's a lot harder to imagine someone that texts like that *and* puts those kinds of memes on bullet casings."
+
+The Reddit audience is entirely *glued* to their touchscreen caressing describing the emotional sense of mystery they feel in the Trump Putin Kirk media enviornment of mythology storytelling. Elect liars and deceivers and fiction ("The Apprentice" Reality TV is fiction) content creators for the sake of constant meme entertainment and mockery and drive your REAL WORLD United States of America into ruin! Media addiction won, Russia won, Surkov students won, USA lost to Russia! "You are closing the door and leaving the world behind, throwing away a fortune in goodness compassion fellings for trash meme addiction": https://www.youtube.com/watch?v=ySb1f9zWJkQ ===:::
+
+&nbsp;
+
 # Tuesday September 16, 2025
 
 &nbsp;
