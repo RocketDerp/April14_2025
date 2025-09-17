@@ -8,6 +8,15 @@ Acceptable_Burrito 2024-11-24
 
 &nbps;
 
+https://old.reddit.com/r/clevercomebacks/comments/1nj9f67/reading_is_fundamental/neooh9f/
+
+grimy_slugger **2025-09-16 (new yesterday)**
+
+"It really just sounds like they’re asking people to stay uninformed so they won’t question anything"
+
+
+&nbsp;
+
 
 # Tuesday September 16, 2025
 
