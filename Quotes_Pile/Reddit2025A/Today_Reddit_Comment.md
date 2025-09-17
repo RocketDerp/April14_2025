@@ -281,6 +281,8 @@ Sometimes, it feels like I'm waiting for the rest of the world to catch up. Acce
 
 &nbsp;
 
+&nbsp;
+
 https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/neq0yyg/
 
 Malaix 2016-02-07
@@ -288,6 +290,20 @@ Malaix 2016-02-07
 "Liberals really need to come to the understanding that fascists for the most point don’t actually beleive in anything and rejoice in this nihilistic nothing matters haha you mad kind of attitude. They love hypocrisy. They think it’s hilarious when someone else values consistency or logic."
 
 * :::=== RoundSparrow_Commentary : WRONG! WRONG! "*They* think it’s hilarious when someone else" cries in tears. *They, them, out-group*... NO, ALL AMEICANS, 100%!!! Look at the front page "libtard, liberal tears, leopads ate my face", mocking endlessly all day and night on meme machines. "MAGA dumb stupid idiots. Rural farmers have no education stupid idiots. Look at farmers cry during harvest season, LOL LOL LOL LMAO Americans suffering LOL LOL LOL LOL" constantly!!! People think it is amusing, hilarious. This is everything Neil Postman wrote about in his 1985 book "Hllariously Amusing Ourselves To Death with Electric Media Systems and Information Machines" - https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley ... meme addicts need to understand! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/nep4va8/
+
+Zulmoka531 2020-10-08
+
+"I got a reddit warning that I’m upvoting too much violent content. The only thing new I’ve been upvoting is anything critical of Kirk.
+
+They’re coming for everyone, everywhere."
+
+* :::=== RoundSparrow_Commentary :  Watch the video clip I published on Reddit itself from December 2014. https://redd.it/1msqs1t
+... ... ...
+time index of 7:55 in total video. "would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV". source for video clip: https://youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ Video was published December 5, 2014 ===:::
 
 &nbsp;
 
