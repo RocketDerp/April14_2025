@@ -1,5 +1,7 @@
 # Wednesday September 17, 2025
 
+&nbsp;
+
 https://old.reddit.com/r/clevercomebacks/comments/1nj9f67/reading_is_fundamental/neok8py/
 
 Acceptable_Burrito 2024-11-24
@@ -516,3 +518,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_spe
 Bright_Bet5002 2025-04-24 (new this year)
 
 "What should concern everyone is that he's saying it will be the last time a president will visit .. sooo, no more elections?? No more presidents?? WTF"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/nes7enc/
+
+CariadocThorne 2015-12-12
+
+"Nothing impressive about playing a senile old man who would have lost a game of rock-paper-scissors to a boulder even at his peak."
