@@ -549,3 +549,8 @@ https://old.reddit.com/r/technology/comments/1njnb5k/fcc_chair_threatens_jimmy_k
 
 This guy is THRILLED to have such aweful content to mock, that USA keeps finding new low bars of measue to create content about, and Reddit is thrilled to react-comment how Russia has mind-fucked MAGA into self-harm of the USA without any self-awareness of multiple NATO nations reporting the media invasion. But USA is the most media-addicted culture, so a song celebrating ignorance and celebrating hate fits in with nation of media adicts.   
 https://old.reddit.com/r/TikTokCringe/comments/1njo07y/they_are_now_making_songs_about_lynching_black/
+
+&nbsp;
+
+The fantasy absurd training ground. What the Taliban wishes to do to little school girls, what Reddit wants to do to MAGA voters. The worship of hate thy neighbor, hate thy enemy. A terrorist mindset training ground. Especially when President Donald J. Trump is factual reality as the terrorism nation leaders of such mindsets. Conditioned by Putin, and Reddit community will do amything and everything to avoid nonficiton learning about Russian information warfare methods since year 2013.     
+https://old.reddit.com/r/pettyrevenge/comments/1njntqv/he_did_what/
