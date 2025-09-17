@@ -495,3 +495,11 @@ drt0 2011-11-08
 "He said a senior ABC reporter reached out to ask him about his ban and when Destiny told him it was bait for right wing ghouls, the reporter said "FFS" lmao
 
 At least that guy did some due diligence."
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1nizu31/famous_twitch_streamer_destiny_got_fired_and/nenesey/
+
+Sharikacat 2020-06-22
+
+"You're a little mistaken on that. Fox News has shows that they classify as "news" programs and shows they classify as "entertainment" programs. It's the "entertainment" programs that they argued should not be held to journalistic standards. Guess which type of show they put on their prime time lineup to talk about the events of the day."
