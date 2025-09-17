@@ -529,3 +529,8 @@ https://old.reddit.com/r/NonPoliticalTwitter/comments/1njiayd/scam/
 
 Reddit eating the paradox Surkovian Onions messages. Eating "The Onion" satire and not self aware it is satire. Mocking as stimulated, stimualted to mock, by the White House. Mocking away goodness, joing in with the Truth Social / White House Press Room total mockery of nonfiction. Entirely unable to engage nonfiction of Neil Postman and Peter P.     
 https://old.reddit.com/r/PoliticalHumor/comments/1njfj9j/too_far/
+
+&nbsp;
+
+Reddit absurd surreal can't tie to Malala's October 8, 2013 book about girl / women bing the target of conservatives. Instead of using spare time / free time on Reddit to promote girls voices and girls learning English to promote global confrontation with conservative elders (Taliban leader elders, Trump leader elders, Putin leader elders), instead of promoting little girls doing a Pussy Riot... Reddit community eats right out of the media vs. media poloraity and amusement-washes joke-washes exactly as Neil Postman's 1985 book "Amusing Ourselves To Death" describes about electric media system audiences (aka Reddit / Blueksy / Twitter / Facebook LOL LOL LOL culture at mocking women's rights instead of promoting non-fiction Malala books and speeches).    
+https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administration_says_iuds_and_the_pill/
