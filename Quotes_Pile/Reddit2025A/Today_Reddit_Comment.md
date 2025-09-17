@@ -165,6 +165,16 @@ bobface222 2020-12-16
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/nep1s9s/
+
+JosephGordonLightfoo 2019-02-08
+
+"The Charlie Kirk Show didn’t even take a week off when *Charlie Kirk* died." 
+
+* :::=== RoundSparrow_Commentary : People do not grasp basic Media Ecology 101 (I am teaching lessons here on this Github). When Elvis Presley died, his music was played all over the podcast networks of their time, radio networks. F.M. streaming. https://youtu.be/YVkUvmDQ3HY?t=158 ===:::
+
+&nbsp;
+
 &nbsp;
 
 # Tuesday September 16, 2025
