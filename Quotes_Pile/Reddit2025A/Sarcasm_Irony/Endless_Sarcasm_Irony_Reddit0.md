@@ -484,3 +484,8 @@ https://old.reddit.com/r/AdviceAnimals/comments/1niyy1x/changed_my_mind/
 
 "Congratulations", "Idiots", "Libtards", "Descrimation".. back and forth over and over in glib quips and thought-terminating cliches.    
 https://old.reddit.com/r/MurderedByWords/comments/1niubab/an_idiot_learns_what_dei_is/
+
+&nbsp;
+
+Story after story about howo right-wing media teaches fiction. But complete avoidance of nonfiction. Why can't Reddit community come together and make Jen Senko's 2015 film a household name? Why just a constant stream of comments about Fox News fiction wrecking lives and promoting dehumanization and hate... and no sustained focus (every day schedueld meetings / posting on Reddit) to address the fiction addiction / Kremlin war against Reality / Rupert Murdoch anti-reality content?     
+https://old.reddit.com/r/insaneparents/comments/1niz0v3/my_mother_thinks_that_i_had_something_to_do_with/
