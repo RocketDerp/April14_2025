@@ -447,3 +447,13 @@ Also, one thing that's clear about this kid is he was terminally online. Not a s
 I don't buy into conspiracies but this is suspect as f\*\*k."
 
 * :::=== RoundSparrow_Commentary : Russia has been waging a War Against Reality on Reddit since year 2013. Reddt is a Russian manipulation and gaslight chamber. A website where people cower and hide their real names and reality out of sheer terror of being a human person. Video game addicts, sports addicts, Trump mockery addicts, The_Donald, anti-citation / constantly wanting people to create original comments instead of look things up on Wikipedia and create FAQ - praising low-effort jokes and noise that drown out any good common understanding or comprehension in favor of people writing and writng the same low-effort shit without reading or seeking out refined (Wiikpedia editing and logging of changes) ideas. All comments get abandoned within hours when new posts start with zero commetns and people race to create trash reaction comments all over again. It is a butchering factory for comprehension as what matters if the constant flow of refreshing /new /new /new on every subreddit. This is the community with the free time / spare time and organization skills to face up to the nonfiction writings from { Christopher Wylie, Peter Pomerantsev, Neil Postman } - but instead uses all the energy to humor-wash and LOL-wash and amusement-wash everything Donald Trump does as entertainment. Can not resist mocking MAGA and mocking President Tony Clifton style of acting. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1niy2ev/justice_sotomayor_every_time_i_listen_to_a/nemnf52/
+
+Gen-Jack-D-Ripper 2023-11-11
+
+"But first, we need to teach them how to spot the world’s most obvious con-man! Before 2016, I assumed anyone that could tie their shoes could do that."
+
+* :::=== RoundSparrow_Commentary : Since March 2013, the Russian Internet Research Agency manipulated the everyday people of USA. Alas, people are unable to look past their fixaton on one person: Donald Trump, who they imagine was given suitcases of cash and hookers like in a Hollywood film (fiction learning / entertainment films), and study how non-fiction information warfare actually works. Evidence going back to year 2014: https://www.bbc.com/news/world-us-canada-45294192 that entertainment-focused population of USA avoids. ===:::
