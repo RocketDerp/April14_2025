@@ -46,6 +46,16 @@ underkill 2012-01-05
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1njasuj/even_candace_owens_cant_bring_herself_to_pretend/nep91ev/
+
+Good4Noth1ng 2014-07-03
+
+"This is a lie ment to fool a certain percentage of old people. It’s already done its job!"
+
+* :::=== RoundSparrow_Commentary : In filter-bubble egomania, media addicts of Reddit find it incredibly popular (likes / upvotes) to declare everyone they disagree with liars. Avoiding the very concepts of: misunderstanding, comprehension, reactionary short-thinking patterns. The Russian Information Warfare since March 2013 created ***5,000 patterns of anti-reality, all fiction based, calling the other channels all liars***. ["Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа."](../Quotes_Pile/Cambridge_Analytica_Quotes.md) ===:::
+
+&nbsp;
+
 # Tuesday September 16, 2025
 
 &nbsp;
