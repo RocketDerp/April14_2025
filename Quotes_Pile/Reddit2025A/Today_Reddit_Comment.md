@@ -14,6 +14,15 @@ grimy_slugger **2025-09-16 (new yesterday)**
 
 "It really just sounds like they’re asking people to stay uninformed so they won’t question anything"
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nj9f67/reading_is_fundamental/neopfnl/
+
+TheAngryStudent 2019-02-02
+
+"I can't stress this enough. It's not the subjects you study at college that puts people off conservatism. It's the fact that you spend time with people from different walks of life."
+
+* :::=== RoundSparrow_Commentary : Mallaa from Pakistan in fighting right-wing Radio Mullah media cults in Swat Valley made this point October 2013 in one of her interviews https://youtu.be/gjGL6YY6oMs?t=864 "students are provided the same benches" "how to live with others" ===:::
 
 &nbsp;
 
