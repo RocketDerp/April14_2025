@@ -307,4 +307,10 @@ time index of 7:55 in total video. "would go on to call the Fifth World War. The
 
 &nbsp;
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administration_says_iuds_and_the_pill/neqsyeg/
+
+lesbiab 2017-11-12
+
+"I'm shocked. This one goes out to my family calling me dramatic for jumping through hoops to get my bisalp scheduled within the year."
+
 &nbsp;
