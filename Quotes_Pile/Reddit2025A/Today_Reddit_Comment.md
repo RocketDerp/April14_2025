@@ -352,3 +352,17 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administrati
 Rockinphin 2017-10-17
 
 "Holy shit, this was why! I never understood why the whole ‘forced birth but not IVF’ logic - not that the hateful crowd has much logic but you know what ai mean - but THIS was why. Woah 🤯"
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administration_says_iuds_and_the_pill/ner0xs5/
+
+spa22lurk 2016-11-29
+
+"It’s very easy to figure out what is real and what is lies, by simply asking if that will own the libs. Everything in project 2025 will own the lib, so they are real.
+
+Lowering the grocery costs? Lowering cost of living? Bringing back manufacturing jobs to the US? Cutting taxes for the poor? Reducing inflation? They are faked and lies.
+
+The highest priority of republicans is to own the libs. All the other ones are lower priority for the republican base and they counter the interest of the republican donors and Trump. Sadly, too many non-trump supporters decide to believe them and stay home or vote for third party or even vote for trump."
+
+* :::=== RoundSparrow_Commentary : Fiction addictions vs. nonfiction science. ===:::
