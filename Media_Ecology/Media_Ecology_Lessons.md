@@ -560,3 +560,12 @@ Nintendo is really bit on propritary hardware married to their game software. Al
 
 Anyway, some intersting discussin here:    
 https://old.reddit.com/r/SteamDeck/comments/1nj58na/been_having_debates_with_my_friends_on_the/
+
+&nbsp;
+
+# The Body is the Medium
+
+Automtic hate of Japan body types, sign writen in English by Chinese worker.    
+https://old.reddit.com/r/Damnthatsinteresting/comments/1nj8obm/a_chinese_american_wearing_a_sign_saying_hes/
+
+"the consciousness of which it is a vehicle. This is something I learned from myths. What am I? Am I the bulb that carries the light, or am I the light of which the bulb is a vehicle?" - Joseph Campbell, Poer of Myth, age 82
