@@ -557,5 +557,5 @@ https://old.reddit.com/r/pettyrevenge/comments/1njntqv/he_did_what/
 
 &nbsp;
 
-Front page of Reddit paradox. Fiction addicts can't face up to seeing a person in media fiction addiction. Can't face nonfiction of learning how Cambridge Analytica actually impacted minds, how Russian information warfare alteres behaviors. Instaed, more streaming comments about it for 10 years.    
+Front page of Reddit paradox. Fiction addicts can't face up to seeing a person in media fiction addiction. Can't face nonfiction of learning how Cambridge Analytica actually impacted minds, how Russian information warfare alteres behaviors. "Seriously, what the hell is it!" a population so meme addeled that they can't stay focused since March 2013 about the IRA.  Instaed, more streaming comments of Americans attacking Amiercans without resisting Putin's media invasion of USA Internet content.    
 https://old.reddit.com/r/MurderedByWords/comments/1njprg1/mehdi_hasan_just_tweet/
