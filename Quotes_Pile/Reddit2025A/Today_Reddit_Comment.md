@@ -366,3 +366,15 @@ Lowering the grocery costs? Lowering cost of living? Bringing back manufacturing
 The highest priority of republicans is to own the libs. All the other ones are lower priority for the republican base and they counter the interest of the republican donors and Trump. Sadly, too many non-trump supporters decide to believe them and stay home or vote for third party or even vote for trump."
 
 * :::=== RoundSparrow_Commentary : Fiction addictions vs. nonfiction science. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administration_says_iuds_and_the_pill/neqxd8x/
+
+MinuteMaidMarian 2024-07-30
+
+"Shoutout to my gynecologist who patted me on the knee and laughed when I said I wanted a hysterectomy because they were going to ban contraceptives.
+
+Thank god I found a new ob/gyn and am 8 weeks uterus-free!"
+
+* :::=== RoundSparrow_Commentary : "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. **The power of the voice of women frightens** them. And that is why they killed 14 innocent **medical students** in the recent attack in Quetta. And that is why they killed many female teachers and polio workers in Khyber Pukhtoon Khwa and FATA. That is why they are blasting schools every day. Because they were and they are afraid of change, afraid of the equality that we will bring into our society." - https://malala.org/news-and-voices/malala-un-speech ===:::
