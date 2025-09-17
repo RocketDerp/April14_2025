@@ -26,6 +26,14 @@ TheAngryStudent 2019-02-02
 
 &nbsp;
 
+https://old.reddit.com/r/clevercomebacks/comments/1nj9f67/reading_is_fundamental/neopf1i/
+
+Esme-Scoop63  **2025-09-04 (new account)**
+
+"Imagine using Charlie Kirk as the shining example of why higher education isn’t necessary. That’s not the flex she thinks it is."
+
+* :::=== RoundSparrow_Commentary : This Reddit comment is not the flex one-line Twitter-lenth reply to a Laura Loomer Twitter-length message that the community thinks it is. Russian information warfre uncited, deliberate ass-bacwads contradictions to create engagement. Spelled out by BBC's Adam Curtis at the end of y=ear 2014: https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html - The ignroance of how Twitter information wroks with Surkov techniques is horrific. People can not resist the *engagement* of mocking bak at Putin techniques. Mockind back is not resisting Tony Clifton methods / mocking back is not assertin nonfiction education of media ecology / media addiction behavior. It is being a media addict to simplistic "gotcha" low-effort noise mental states. That'show Russia defeated the USA since March 2013 using Twitter-think. This very Reddit comment is doing it. Another ttile for Neil Postmans' 1985 book "Mocking Ourselves To Death with high-speed electric media engagement" ===:::
+
 
 # Tuesday September 16, 2025
 
