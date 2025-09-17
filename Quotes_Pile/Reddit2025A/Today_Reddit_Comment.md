@@ -465,4 +465,30 @@ Ithinkso85 2019-09-02
 
 * :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal that exploits fiction media tastes, that Joe Biden was replaced by a robot, etc.](Surkovian_Onion_Eating.md). Finding it hillarious that Donald Trump does antics in front of cameras and on Truth Social and any other media outlet he can engage. Tony Clifton performance eaten up by meme addicts who refuse to enage or cite nonfiction about Russain Surkov techniques of governing. The gullibility of USA meme consumers on Reddit is staggering. Calling Trump a "russian bot" machine, a parrot point on Reddit that everyone is a bot. Can't possibly be that everyone is a media addict that craves a Reality TV President who constantly does wild and crazy entertaining things for an audience that flocks to trash media and low-effort memes. An audience that can't study **NONFICTION book** by Neil Postman from 1985 titled "Amusing Ourselves To Death" https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley with short Twitte-length Tweet-think insult comments. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/nes0tq3/
+
+adieudaemonic 2019-09-29
+
+"I speak dipshit, this is my interpretation:
+
+He is drawing attention to how he is a special boy, as this is the first time an American president has been invited twice to Windsor for a state visit. He hopes that that this first is never followed by a second, a second being that a future president gets to make 2 state visits, because that means he will be specialist boy forever. Hope that helps."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/nersnhs/
+
+EinsteinsMind 2024-06-05
+
+"The world is laughing at US"
+
+* :::=== RoundSparrow_Commentary : President Tony Clifton antics are funny to the audience. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/nerxyws/
+
+SeamusOShane 2020-88-27
+
+"There's a lot of brilliance in the US, unfortunately the news, media and loudest people on the internet out shine that brilliance with idiocy and ignorance"
