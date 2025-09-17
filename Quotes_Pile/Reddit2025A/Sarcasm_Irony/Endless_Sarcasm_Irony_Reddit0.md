@@ -514,3 +514,8 @@ https://old.reddit.com/r/technology/comments/1njcwto/she_pushed_to_overturn_the_
 
 Trump is the music conductor of the Reddit social media audience. Mock light lights up for the audience to make low-effort comments and memes. President Tony Clifton act played by Donald Trump about Charlie Kirk works their minds into a mob mentality of meme stupor, reactionary conditioned thinking. Surkov style govenring.    
 https://old.reddit.com/r/MurderedByWords/comments/1njemz9/it_was_expected_that_he_would_be_sadder/
+
+&nbsp;
+
+People with faith in mocking. People with faith in hate. People with faith in absurd surreal ironic tricking of other people with nonfiction games. See also: Alan Parsons Project song "Games People Play"     
+https://old.reddit.com/r/Snorkblot/comments/1njdc4l/is_simply_divided/
