@@ -539,3 +539,8 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administrati
 
 Reddit eats this communications up. This kind of contardictory messaging blows the minds of Reddit audience eery time. Tucker Carlson went and praised Russia, traveled there to interview and praise Putin. BBC Adam's Curtis called this "Contradictory Vaudeville" in December 2014. But that is non-fiction learning and social media addicts in USA can't maintain reality in their minds of nonfiction study.     
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1njlrv0/tucker_carlson_is_right_i_hate_it_here/
+
+&nbsp;
+
+Reddit sees absurd and satire against White House absurd and satire, fiction vs. fiction, but can't see it happening on Reddit and Bluesky too. Only "big names" in media, not small comments and the Intenet Research Agency and similar small-comment techniques.   
+https://old.reddit.com/r/technology/comments/1njnb5k/fcc_chair_threatens_jimmy_kimmel_over_monologue/
