@@ -201,5 +201,14 @@ ncc74656m 2012-04-03
 
 "To be fair, Trump literally went on Howard Stern in the wake of September 11th to brag that he now had the tallest building in Lower Manhattan."
 
-* :::=== RoundSparrow_Commentary :  What kind of media ecology of NYC is it to live in the penthouse of a building that is 666 feet tall (symbolic, give or take standing on top). ===:::
+* :::=== RoundSparrow_Commentary : What kind of media ecology of NYC is it to live in the penthouse of a building that is 666 feet tall (symbolic, give or take standing on top). ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/nepa9ge/
+
+smoggyvirologist 2017-04-14
+
+"And TPUSA and the Charlie Kirk Show are selling dozens of shirts, new shirts, about his death. It's actually disgusting. It'd be one thing if the profits went to some non-profit, but they all go back to his organization. They're selling merch of his death its crazy"
+
+* :::=== RoundSparrow_Commentary : "TPFaith", "Talking Point Faith", he was a fiction-based entertainer, monomyth podcaster / media star. Why is this so suprising to Reddit media addicts who purchase merch off youtube and Twitch? Death creates a media content circus, and Charlie Kirk has world wide media pesence now with Trump and Murdoch amplifiers, let alone Reddit amplifiers! When a media star dies, people flock to their symbolism addictions. Sex sells, hate sells, death sells. Charlie Kirk had Epstein sex topics, hate sells, death sells! ===:::
