@@ -98,6 +98,21 @@ kfmsooner 2016-01-31
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1njasuj/even_candace_owens_cant_bring_herself_to_pretend/nep403w/
+
+Strange-Conflict9774 2021-06-07
+
+"It’s insane how no one’s satisfied with the investigation like at all. I’ve seen left and right say the official story is terrible and doesn’t make any sense. Frankly the official story is kinda bad, I still haven’t seen any explanations about why that guy in the crowd screaming he did it for you know why he did that and I’ve heard nothing about the pellet rifle guy. The whole he took apart and rebuilt his gun multiple times just to abandoned it. Now the guy who faked it has CP charges too. Plus I’m 4 years older than this guy and yeah I think the text exchanges seem wack."
+
+* :::=== RoundSparrow_Commentary : Left is in 5,000 patterns of simulacra, right in 5,000 patterns of inverted simulacra since March 2013 deployment by the Internet Research Agency. ["Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа."](../Quotes_Pile/Cambridge_Analytica_Quotes.md) -- all people in September 2025 care is left vs. right, right vs. left, subredit vs. subreddit, today vs. yesterday, media platform vs. media platform, Bluesky vs. Twitter, in alternate universes / alternate reality touchscreen games (ARG). Endlessly message unique individual reaction comments on media machines whilte simultaneously doing everyhing possible to avoid nonfiction citations from printed books on paper.    
+... ... ...
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+... ... ...
+Reddit comment "It’s insane how no one’s satisfied" - infromation strip tease, endless new fresh comments, constant addiction behaviors to Reddit aging out 4 hour old comments for an empty zero-comment posting to start the cycle all over again. Light speed informaiton systems, constant 24 hours a day of low-effort comments and avoidance of the public library nonfiction section. "It’s insane how no one’s satisfied" - information strip tease just like the magica wildcard Epstein Super List ARG game on Reddit! Here is a sound track to go along with this Reddit page of fleeting content. https://www.youtube.com/watch?v=vKwsiXOAVvk
+===:::
+
+&nbsp;
+
 # Tuesday September 16, 2025
 
 &nbsp;
