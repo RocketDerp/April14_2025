@@ -428,3 +428,12 @@ https://old.reddit.com/r/technology/comments/1njnb5k/fcc_chair_threatens_jimmy_k
 RipComfortable7989 2025-03-16 (new this year)
 
 "First Colbert and now Kimmel? Next up will be Oliver and Meyers. This snowflake of an administration cannot handle criticism, the only downside is the corporate side that will gladly bend the knee and kiss Trump's shit encrusted golden ring. Conservatives used to mock countries like China and Russia for having policies that prevented people from criticizing the government and now that its happening here, they are cheering for it. Unbelievable."
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1njnb5k/fcc_chair_threatens_jimmy_kimmel_over_monologue/nerkl9r/
+
+StarsapBill 2024-05-19
+
+"There is no “bar” have you not been paying any attention. There are no checks and balances. If Trump sent his brown shorts after Oliver he would be gone in a. Heartbeat and there would be no recourse or consequences for anyone involved."
+
