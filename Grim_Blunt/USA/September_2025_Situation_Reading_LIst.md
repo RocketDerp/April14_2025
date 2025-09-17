@@ -33,17 +33,13 @@ Further reading....
 
 9. Capitalist Realism: Is There No Alternative? by Mark Fisher
 
-   10. Food for the Few: Neoliberal Globalism and Biotechnology in Latin America by Jennifer Clapp
+10. Food for the Few: Neoliberal Globalism and Biotechnology in Latin America by Jennifer Clapp
 
-   11. True Hallucinations by Terence McKenna
+11. True Hallucinations by Terence McKenna
 
-   12. The Age of Surveillance Capitalism by Shoshana Zuboff
+12. The Age of Surveillance Capitalism by Shoshana Zuboff
 
-   13. Empire of Pain by Patrick Radden Keefe
+13. Empire of Pain by Patrick Radden Keefe
 
-   14. Evicted: Poverty and Profit in the American City by Matthew Desmond
-
-
-
-
+14. Evicted: Poverty and Profit in the American City by Matthew Desmond
 
