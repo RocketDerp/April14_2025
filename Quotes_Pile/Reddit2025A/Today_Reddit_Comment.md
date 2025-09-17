@@ -388,3 +388,13 @@ AureliaDrakshall 2016-04-16
 "Every person who's ever said I was being hysterical about Trump isn't a person I've kept in my life. I've been trying to get people to see what was coming since 2016, but the amount of people that didn't believe me was insane."
 
 * :::=== RoundSparrow_Commentary : Russian War Against Reality was waged agsint Reddit / social machines / media macines since March 2013. Russia won hearts and minds to self-harm the USA since year 2013. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1njm67i/maga_lawmaker_calls_to_forcefully_mass/nerkc0l/
+
+maskaddict 2015-01-19
+
+"What he's trying to do is exterminate them. 
+
+I'm not trans, and I'm not gonna be some guy yelling at the LGBTQ commujity that they need to get militant, but the truth is we all need to get fucking militant, like now. We wanna call ourselves allies? Time to fucking step up. Time to get loud. Time to make these nazi motherfuckers scared. They're trying to wipe our siblings out of existence. I'm sick of feeling powerless and scared. We need to mobilize."
