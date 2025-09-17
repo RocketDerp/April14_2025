@@ -503,3 +503,13 @@ https://old.reddit.com/r/LivestreamFail/comments/1nizu31/famous_twitch_streamer_
 Sharikacat 2020-06-22
 
 "You're a little mistaken on that. Fox News has shows that they classify as "news" programs and shows they classify as "entertainment" programs. It's the "entertainment" programs that they argued should not be held to journalistic standards. Guess which type of show they put on their prime time lineup to talk about the events of the day."
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1nizu31/famous_twitch_streamer_destiny_got_fired_and/nen9uu1/
+
+"I also read social media, therefore I am journalist."
+
+* :::=== RoundSparrow_Commentary : I do git commits on GitHub of Reddit social media comments, therefore I am... This whole lacking self-awareness of social media influence in this comment. Twiter-think Tweet-length short message shit ideas. When a jouralist interviews a human person with "oral tradition", is that not news? Exactly whart part about writing e-mail differes from postal mail egarding fiction vs. nonfiction? Is a paper postal letter from Albert Eisten with an assertion https://en.wikipedia.org/wiki/Einstein%E2%80%93Szilard_letter suddently non-ficiton if he were to have used e-mail from Googel? This is a nation that is so overdue for EVERY PERSON age 12 to age 120 to learn about Russian information warfare techniques (and Neil Postamn's media ecology). Russia's tactics go BEYOND just Reddit comments into props and entertainment exploitation.
+... ... ...
+"Locals shrug off being paid, played by Russians. WEST PALM BEACH, Fla. -- The choir singer from Jupiter and the Leisureville retiree from Boynton Beach proved to be easy marks for the Russian meddlers." https://www.wral.com/story/locals-shrug-off-being-paid-played-by-russians/17374701/ ===:::
