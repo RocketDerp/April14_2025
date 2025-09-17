@@ -344,3 +344,11 @@ ittapeworm 2012-09-11
 "If only they were stupid. It’s hateful ignorance. Plenty of them are smart. Just hate filled and myopic."
 
 * :::=== RoundSparrow_Commentary : Egomania, myopic, self-centered interpretation of the Cosmos. Competitive to harm other people and animals "to win". Sports win mentallity. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administration_says_iuds_and_the_pill/ner6u9l/
+
+Rockinphin 2017-10-17
+
+"Holy shit, this was why! I never understood why the whole ‘forced birth but not IVF’ logic - not that the hateful crowd has much logic but you know what ai mean - but THIS was why. Woah 🤯"
