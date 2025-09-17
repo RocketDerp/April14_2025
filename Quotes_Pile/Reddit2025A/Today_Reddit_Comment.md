@@ -34,6 +34,17 @@ Esme-Scoop63  **2025-09-04 (new account)**
 
 * :::=== RoundSparrow_Commentary : This Reddit comment is not the flex one-line Twitter-lenth reply to a Laura Loomer Twitter-length message that the community thinks it is. Russian information warfre uncited, deliberate ass-bacwads contradictions to create engagement. Spelled out by BBC's Adam Curtis at the end of y=ear 2014: https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html - The ignroance of how Twitter information wroks with Surkov techniques is horrific. People can not resist the *engagement* of mocking bak at Putin techniques. Mockind back is not resisting Tony Clifton methods / mocking back is not assertin nonfiction education of media ecology / media addiction behavior. It is being a media addict to simplistic "gotcha" low-effort noise mental states. That'show Russia defeated the USA since March 2013 using Twitter-think. This very Reddit comment is doing it. Another ttile for Neil Postmans' 1985 book "Mocking Ourselves To Death with high-speed electric media engagement" ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1njasuj/even_candace_owens_cant_bring_herself_to_pretend/neozhs4/
+
+underkill 2012-01-05
+
+"The texts are very weird to me. They intricately detail each piece of evidence we knew authorities have and are worded like they were written by a 60 year old."
+
+* :::=== RoundSparrow_Commentary : When Reddit no-identity (self dehumaniziing values of Reddit are to do everything you can to hide your real name, real human person, real workplace, real company names, real city - to trick and manipulate other people) rules, and you let the Russian Internet Research Agency overrun your nation with the ***War Against Reality*** / War Against Nonfiction - then you have this entertainment mystery every day to reaction-comment about on Reddit. A media addicts dream. MY HELL AND NIGHTMARE, TRUTH SOCIAL NOW RUNS THE USA, ELON MUSK TWITTER / REDDIT BULLSHITING IS CONSIDERED GOOD TASTE, FALSEHOODS AND TRICKY INFORMATION! Twitter-length messages that are predictable in ther shallow superficial, citing no author names, citing no book names on media ecology. Neil Postman spinning in his grave at how this is the force of human amusement and LOL that are driving the nation. Fuck meme-speak of Twitter-length simplistic answers to Russian informaton warfare wtihout being able to rub any nonfiction citations together! ===:::
+
+&nbsp;
 
 # Tuesday September 16, 2025
 
