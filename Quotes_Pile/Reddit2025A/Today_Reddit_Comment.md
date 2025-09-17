@@ -230,3 +230,13 @@ People rarely shoot at cops or feds because it's a very effective way of getting
 * :::=== RoundSparrow_Commentary : Constant recency bias. Transgender sex / trans sex has been spelled out as core goboal focus since December 20, 2013 publication:
 ... ... ...
 "Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his **derision of the West's "genderless and infertile"** liberalism" https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/nepso5j/
+
+Oh_Look_AnotherOne 2021-02-19
+
+"It's a propaganda outlet bought & paid for. What's it going to do, wind down? Of course it's going to escalate its already extreme rhetoric. The US is approaching an inflection point."
+
+* :::=== RoundSparrow_Commentary : Reddit community in media mania, Bluesky in media mania, White house in media mania, Alaska meeting with Putin... the economic waves of offshore reaction are going to crash upon USA with all the fuck-off *to friends* trade policy and fuck-off to NATO. Thanksgiving gatherings and Christmas gifts and meals are going to be shock for the meme addicts who can't escape the constant streaming low-effort bullshit comments of Bluesky and Reddit. There are *plenty* of wildcards in play. Israel wildcards, Ukraine war wikdcards with Putin, Trump domestic shock and awe wildcards, RFK Jr flu season and his promised cures for autism, South Park sybolism ripe to pluck, etc, etc, etc. Mass mind is wilding in media low-effort hate comments. ===:::
