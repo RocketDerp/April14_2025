@@ -454,3 +454,15 @@ https://old.reddit.com/r/technology/comments/1njnb5k/fcc_chair_threatens_jimmy_k
 dezmd 2007-10-29
 
 "Just like Fox News, Kimmel is just entertainment and thus is fully protected by the First Amendment and exempt from the FCC's rules."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/nertkuf/
+
+Ithinkso85 2019-09-02
+
+"He's glitching. This model was not field tested properly, so expect a hot fix patch update to be rolled out in the next 24-48hours"
+
+* :::=== RoundSparrow_Commentary : [Surkovian onion eating, completely unaware that Russian information warfare is based on absurd surreal that exploits fiction media tastes, that Joe Biden was replaced by a robot, etc.](Surkovian_Onion_Eating.md). Finding it hillarious that Donald Trump does antics in front of cameras and on Truth Social and any other media outlet he can engage. Tony Clifton performance eaten up by meme addicts who refuse to enage or cite nonfiction about Russain Surkov techniques of governing. The gullibility of USA meme consumers on Reddit is staggering. Calling Trump a "russian bot" machine, a parrot point on Reddit that everyone is a bot. Can't possibly be that everyone is a media addict that craves a Reality TV President who constantly does wild and crazy entertaining things for an audience that flocks to trash media and low-effort memes. An audience that can't study **NONFICTION book** by Neil Postman from 1985 titled "Amusing Ourselves To Death" https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley with short Twitte-length Tweet-think insult comments. ===:::
+
+
