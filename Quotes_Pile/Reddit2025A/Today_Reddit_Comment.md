@@ -277,4 +277,18 @@ StJeanMark 2018-11-07
 
 Sometimes, it feels like I'm waiting for the rest of the world to catch up. Accept, they lie and they don't use words like normal people do. Accept that the only thing that matters is victory, and pointing out hypocrisy means nothing, it means less than nothing you just wasted your time and energy."
 
-* :::=== RoundSparrow_Commentary : WRONG! "It's not a lack of knowledge on their part, it's a lack of caring." is a shallow and superficail conclusion. ***THEY CARE A LOT*** media addicts care a lot about feeding thier monomyth fiction cravings. What EVERYONE in USA is doing is avoiding NONFICTION PUBLIC LIBRARY: Neil Postman nonfiction, Peter Pomerantsev nonfiction. Enertainment addiction runs the entire all-inclusive population of USA, meme for meme, insult for insult, total mockery for total mockery, simualcra for simulacra, media platform for media platform. Russia won, Surkov won, since year 2013. Fiction addiction abounds. Reality is hate patterns, the ficiton is the social media addiction to bullshit. ===:::
+* :::=== RoundSparrow_Commentary : WRONG! "It's not a lack of knowledge on their part, it's a lack of caring." is a shallow and superficail conclusion. ***THEY CARE A LOT*** media addicts care a lot about feeding thier monomyth fiction cravings. What EVERYONE in USA is doing is avoiding NONFICTION PUBLIC LIBRARY: Neil Postman nonfiction, Peter Pomerantsev nonfiction. Enertainment addiction runs the entire all-inclusive population of USA, meme for meme, insult for insult, total mockery for total mockery, simualcra for simulacra, media platform for media platform. Russia won, Surkov won, since year 2013. Fiction addiction abounds. Reality is hate patterns, the ficiton is the social media addiction to bullshit. People care DEEPLY about Charlie Kirk because he provided *fiction content*, monomyth Levant storytelling, "Talking Point Faith" media venue. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/neq0yyg/
+
+Malaix 2016-02-07
+
+"Liberals really need to come to the understanding that fascists for the most point don’t actually beleive in anything and rejoice in this nihilistic nothing matters haha you mad kind of attitude. They love hypocrisy. They think it’s hilarious when someone else values consistency or logic."
+
+* :::=== RoundSparrow_Commentary : WRONG! WRONG! "*They* think it’s hilarious when someone else" cries in tears. *They, them, out-group*... NO, ALL AMEICANS, 100%!!! Look at the front page "libtard, liberal tears, leopads ate my face", mocking endlessly all day and night on meme machines. "MAGA dumb stupid idiots. Rural farmers have no education stupid idiots. Look at farmers cry during harvest season, LOL LOL LOL LMAO Americans suffering LOL LOL LOL LOL" constantly!!! People think it is amusing, hilarious. This is everything Neil Postman wrote about in his 1985 book "Hllariously Amusing Ourselves To Death with Electric Media Systems and Information Machines" - https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley ... meme addicts need to understand! ===:::
+
+&nbsp;
+
+&nbsp;
