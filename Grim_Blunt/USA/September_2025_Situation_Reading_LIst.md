@@ -2,6 +2,8 @@ https://www.youtube.com/watch?v=S46YVoKy3qI
 
 Twilight Zone America: The USA Dystopia
 
+"This video takes a psychological, philosophical, sociological and dystopian look at the human condition and human nature in an age of AI, algorithms, surveillance, and mass loneliness. Step into a post apocalyptic America where the line between sci-fi and reality has vanished. With dark humor and an existential edge, we explore how we got here, why it feels like an endless Twilight Zone episode, and how to keep your mind intact in a culture built to manipulate you."
+
 &nbsp;
 
 Comment from author
