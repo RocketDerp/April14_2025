@@ -1550,3 +1550,8 @@ https://old.reddit.com/r/interestingasfuck/comments/1nimld4/john_m_wright_was_a_
 
 Reddit can not take this at face value, because Reddit society won't face what Carl Jung said in 1945 "After The Catastrophe" about Gremans not being self-aware. There is stil this extreme attitude of American Exceptonalism that brains here can't be fucked over by Russians and brains here can't become fiction addicted / compelled like Midddle East terrorists who aren't self-aware there is no Heaven waiting after death as a reward (fiction story, like Star Wars 1977 planets don't exist).       
 https://old.reddit.com/r/SelfAwarewolves/comments/1ninc5b/colin_wright_almost_gets_it/
+
+&nbsp;
+
+Comic. Malaa: alpha males / Taliban rulers / Taliban warriors - are afaid of education, afraid of women quote from Malala.     
+https://old.reddit.com/r/comics/comments/1nixynw/types_of_men/
