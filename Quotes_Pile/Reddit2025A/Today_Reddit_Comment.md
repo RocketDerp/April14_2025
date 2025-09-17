@@ -446,3 +446,11 @@ VonBlorch 2012-12-10
 "It doesn’t overwhelm them at all, though. They have developed a mental mutation which allows them to simultaneously believe multiple mutually exclusive things without the irritating cognitive dissonance that plagues a normal mind. Hypocrisy, as a concept, is wholly meaningless to them, because their perceived correctness of any given notion is independent from its repercussions on their other notions. “Free speech,” becomes, in the background of their thoughts, any speech they support and all other speech should be curtailed. Is that counter to their stated belief? Yes. Do they care about being caught in that paradox? They do not."
 
 * :::=== RoundSparrow_Commentary : As long as it avoids nonfiction and sincerity, it sells. Fiction outsells nonfiction. A population raised that a person, and actor, can move between different fiction realites. The same actor can be in multiple television and films with contradictory ideas. When constantly being stimulted by Truth Social fiction and Fox News fiction and Bible fiction media venues is your childhood, that's your cravings. Everyone in USA agrees on mocking and insutling Trump's acting skills / media content creation. No other President can satisfy the fiction addicts like Donald Trump. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1njnb5k/fcc_chair_threatens_jimmy_kimmel_over_monologue/nerkihm/
+
+dezmd 2007-10-29
+
+"Just like Fox News, Kimmel is just entertainment and thus is fully protected by the First Amendment and exempt from the FCC's rules."
