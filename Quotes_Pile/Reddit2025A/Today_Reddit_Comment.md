@@ -314,3 +314,23 @@ lesbiab 2017-11-12
 "I'm shocked. This one goes out to my family calling me dramatic for jumping through hoops to get my bisalp scheduled within the year."
 
 &nbsp;
+
+"I'm shocked. This one goes out to my family calling me dramatic for jumping through hoops to get my bisalp scheduled within the year."
+
+&nbsp;
+
+"The thing about stupid people is that they don't actually have consistent beliefs because they are stupid."
+
+* :::=== RoundSparrow_Commentary : WRONG! They believe in fiction, not stupid. Fiction Quran. Fiction Bible. Fiction low-effort Bluesky comments. Fiction Fox News. Fiction storytelling of Charlie Kirk. Fiction of Toah. Fiction of Truth Social. Endlessly avoiding nonfiction and learning about media ecology (nonfiction teachings from Neil Postman, Marshall McLuhan). ===::
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administration_says_iuds_and_the_pill/ner3fu4/
+
+swolfington 2014-12-26
+
+"it's a surprisingly consistent take when you presume that they want to legally codify fertilized eggs as having the full set of human rights that an actual born person does. and because IVF itself is not exactly an easy or for sure process, you end up with extra fertilized eggs that end up going to waste, which if you follow their logic means you've just murdered a bunch of babies.
+
+even still, I'm honestly surprised they're taking this route to its logical conclusion since IVF has given so many people a chance to have babies when they otherwise would simply not be able to, and that in and of itself is such a nonpartisan act that everyone could seemingly get behind it. I like think they will get a lot more push back from the conservative rabble who would otherwise be vehemently against abortion since by its very nature the entire idea is to make more babies... but then again betting that conservative voters will act in their own best interest has never been a smart play."
+
+* :::=== RoundSparrow_Commentary :  Long-form comments are often great for complex topics, Reddit vs. Bluesky tiny-length, but typical of 2025 is there is no author name drop, no book or citation mentioned. Just off-the-cuff anonymous commentary that reddit craves and desires so it can forget it minutes later changing topics to entertainment / fiction. There is no dsire on Reddit society to assert the same nonfiction common ground of reality itself, instead video game (Reddit screen game) addiction to fiction. Like Pac-Man eating tiny little comment dots for food, screen after screen of words taht are never weighted to be more improtant beyond popularity itself (upvoting). People do not say: WE ALL NEED TO STOP STREAMING NEW MESSAGES AND FOCUS ON COMMON MESSAGE, ONE WELL-EXPRESSED IDEA, LIKE HOW THE FOUNDING FATHERS GOT TOGETHER July 4, 1776 TO PUBLISH A COMMON AGREEMENT OF A MANIFESTO! Instead, the community constantly wants to stream now-effort jokes and comments as throw-away entertainment trash / junk food ideas. Anti-refinement of thinking, anti-progress except for faster and faster Internet connectiosn to stream comments faster. ===::
