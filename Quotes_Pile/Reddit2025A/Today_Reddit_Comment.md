@@ -240,3 +240,23 @@ Oh_Look_AnotherOne 2021-02-19
 "It's a propaganda outlet bought & paid for. What's it going to do, wind down? Of course it's going to escalate its already extreme rhetoric. The US is approaching an inflection point."
 
 * :::=== RoundSparrow_Commentary : Reddit community in media mania, Bluesky in media mania, White house in media mania, Alaska meeting with Putin... the economic waves of offshore reaction are going to crash upon USA with all the fuck-off *to friends* trade policy and fuck-off to NATO. Thanksgiving gatherings and Christmas gifts and meals are going to be shock for the meme addicts who can't escape the constant streaming low-effort bullshit comments of Bluesky and Reddit. There are *plenty* of wildcards in play. Israel wildcards, Ukraine war wikdcards with Putin, Trump domestic shock and awe wildcards, RFK Jr flu season and his promised cures for autism, South Park sybolism ripe to pluck, etc, etc, etc. Mass mind is wilding in media low-effort hate comments. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/neovkup/
+
+PopularComplaint9113 2025-05-31 (new this year)
+
+"Am I in fucking bizarro world? Isn’t this the same party that said denying visas to those who espouse hate speech is against the first amendment and the very foundation of the country not 10 years prior?
+
+Small government, party of non-intrusiveness.
+
+Don’t facts not matter for your fucking feelings?
+
+Hate speech = uncomfortable speech = free speech. You pansies. You can either have free speech or you don’t. And god help you if you ever lose power in that scenario.
+
+Edit: We’re going to eventually be in a society that will ban people from entering the US for a twitter post when they were 12 at this rate. Also fake social media posts with AI bots. How do you verify the post is really that person? Fucks sake no one thinks beyond a week here. Nuts."
+
+* :::=== RoundSparrow_Commentary :  USA September 2025 "Am I in fucking bizarro world?" of Reddit messages / USA meme culture can be translated to:   
+... ... ...
+"Nothing Is True and Everything Is Possible: The **Surreal** Heart of the New Russia is a **2014 book by Peter Pomerantsev**. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible ===:::
