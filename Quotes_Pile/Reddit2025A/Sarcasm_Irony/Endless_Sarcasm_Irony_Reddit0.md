@@ -554,3 +554,8 @@ https://old.reddit.com/r/TikTokCringe/comments/1njo07y/they_are_now_making_songs
 
 The fantasy absurd training ground. What the Taliban wishes to do to little school girls, what Reddit wants to do to MAGA voters. The worship of hate thy neighbor, hate thy enemy. A terrorist mindset training ground. Especially when President Donald J. Trump is factual reality as the terrorism nation leaders of such mindsets. Conditioned by Putin, and Reddit community will do amything and everything to avoid nonficiton learning about Russian information warfare methods since year 2013.     
 https://old.reddit.com/r/pettyrevenge/comments/1njntqv/he_did_what/
+
+&nbsp;
+
+Front page of Reddit paradox. Fiction addicts can't face up to seeing a person in media fiction addiction. Can't face nonfiction of learning how Cambridge Analytica actually impacted minds, how Russian information warfare alteres behaviors. Instaed, more streaming comments about it for 10 years.    
+https://old.reddit.com/r/MurderedByWords/comments/1njprg1/mehdi_hasan_just_tweet/
