@@ -519,3 +519,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1njemz9/it_was_expected_that_h
 
 People with faith in mocking. People with faith in hate. People with faith in absurd surreal ironic tricking of other people with nonfiction games. See also: Alan Parsons Project song "Games People Play"     
 https://old.reddit.com/r/Snorkblot/comments/1njdc4l/is_simply_divided/
+
+&nbsp;
+
+Wikipedia is opposite of Reddit / Bluesky. On Reddit, everything is built for fresh latest comments. New comments, millions and millions of new comments, with low-effort memes / no citations / no references / no fact-checking. Just constant *off the cuff* bullshitting over and over, anti-citation. Constantly entertained by banal low-quality shit information. Wikipedia is the opposite, refining knowledge, improving citations, improving references, improving cross-connection of comprehension and understanding. Translating ideas to all the world langauges for each topic. Reddit, us USA mastaboratory mocking of reality. Competition to be the class clown and wreck Wikipedia.   
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1njiayd/scam/
