@@ -499,3 +499,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1nixndf/kash_patel_makes_an_epste
 
 Front page of Reddit. Crowd reaction: LOL LOL LOL, "Troll". Why is trolling considered acceptable? Why does labeling it "a troll" somehow eliminate the need of society to confront Russian infomration warfare educaiton and teaching? We have to actually convince each other that murder and war is bad. Normalzing it by just calling it "troll" ad moving on is indeed... normlaizng it. As I repeat; normalizng badness. Just as we normalize out-group-hate. Just declaring "troll" and "cult" isn't stand up and addressing the loss of war to Russia.    
 https://old.reddit.com/r/MurderedByWords/comments/1nj7kim/america_fuck_yeah/
+
+&nbsp;
+
+Front page of Reddit: exhausting. Simplistic Twiter-length reactions. It's evertying Neil Postman described in 1985 book "Amusing Ourselves To Death" now wepaonzied by the Russian Internet Research agency since march 2013. Yet, Reddit sells message affter message, crowds flock to Reddit to eat it and taste-test the turds and grade how ell the tird-givers are in the toal mockey. Russia won, Surkov won, USA lost the information war. Addiction to trash mocking back and forth, left to rgith, right to left, is the outcome of the lost war. Nonfiction serious books on Russia inforamtion warfare itself discarded.       
+https://old.reddit.com/r/simpsonsshitposting/comments/1nja7up/its_exhausting/
