@@ -534,3 +534,8 @@ https://old.reddit.com/r/PoliticalHumor/comments/1njfj9j/too_far/
 
 Reddit absurd surreal can't tie to Malala's October 8, 2013 book about girl / women bing the target of conservatives. Instead of using spare time / free time on Reddit to promote girls voices and girls learning English to promote global confrontation with conservative elders (Taliban leader elders, Trump leader elders, Putin leader elders), instead of promoting little girls doing a Pussy Riot... Reddit community eats right out of the media vs. media poloraity and amusement-washes joke-washes exactly as Neil Postman's 1985 book "Amusing Ourselves To Death" describes about electric media system audiences (aka Reddit / Blueksy / Twitter / Facebook LOL LOL LOL culture at mocking women's rights instead of promoting non-fiction Malala books and speeches).    
 https://old.reddit.com/r/TwoXChromosomes/comments/1njk74q/the_trump_administration_says_iuds_and_the_pill/
+
+&nbsp;
+
+Reddit eats this communications up. This kind of contardictory messaging blows the minds of Reddit audience eery time. Tucker Carlson went and praised Russia, traveled there to interview and praise Putin. BBC Adam's Curtis called this "Contradictory Vaudeville" in December 2014. But that is non-fiction learning and social media addicts in USA can't maintain reality in their minds of nonfiction study.     
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1njlrv0/tucker_carlson_is_right_i_hate_it_here/
