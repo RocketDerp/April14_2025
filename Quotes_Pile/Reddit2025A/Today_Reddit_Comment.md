@@ -492,3 +492,19 @@ https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_spe
 SeamusOShane 2020-88-27
 
 "There's a lot of brilliance in the US, unfortunately the news, media and loudest people on the internet out shine that brilliance with idiocy and ignorance"
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/nerzitt/
+
+Ok-Needleworker-9841 2020-08-03
+
+"The right loves their idiot king. Makes them feel smart. But even he knows how smart people feel about him. He’s a fraud and a criminal."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/neruwd8/
+
+Educational_Ninja327 2023-07-26
+
+"Lmao. No on in the UK wants him there. This is such a fucking joke. HE is a joke."
