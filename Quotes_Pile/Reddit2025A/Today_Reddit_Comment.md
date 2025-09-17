@@ -175,6 +175,16 @@ JosephGordonLightfoo 2019-02-08
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/neqgkji/
+
+"lmao that was fucking hilarious, then they renamed the twitter account the Cain gang or some shit"
+
+Robo-boogie 2009-12-17 
+
+* :::=== RoundSparrow_Commentary : So amusing, LMAO, so entertaining, LMAO as we "Amusing Ourselves To Death" (Neil Postman 1985) to all the Russian information warfare wins about pandemic deaths! Nonfiction: https://www.bbc.com/news/world-us-canada-45294192 ===:::
+
+&nbsp;
+
 &nbsp;
 
 # Tuesday September 16, 2025
