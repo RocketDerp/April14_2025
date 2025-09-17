@@ -84,6 +84,20 @@ Jtrocks269 2019-12-06
 
 * :::=== RoundSparrow_Commentary : A sus message. Tool / Owned / plant / confused? Encourage Reddit community to trust a 22 year old person who blindly trusts the Trump White House / Trump and Putin administration. A 22 true believer that the future of the USA is served by these leaders. That's the expert Reddit message is calling for. Why not call for text messages and emails from OUTSIDE the incident that this Charlie Kirk shooter created over the past 10 years? They have been posting photos of him as a teenager on Reddit posing with guns and military hardwarew. Why not request hundreds of pages of his personal writings to friends and roommates? Because that is media ecology, and Reddit users want an ingorant population to constantly stimulate them with rerpetitive one-line jokes as Reddit comments. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1njasuj/even_candace_owens_cant_bring_herself_to_pretend/neozg51/
+
+kfmsooner 2016-01-31
+
+"This is what will be one of the downfalls of MAGA: they don’t even believe themselves. Seriously. They have conspiracies for their conspiracies. Lmao. They can’t live in reality for one day."
+
+* :::=== RoundSparrow_Commentary : On Reddit can you trust other Reddit users with hidden identity, going to extreme efforts to conceal any identifying information? Yet here this Reddit user is with zero situational awareness of Reddit community https://www.bbc.com/news/technology-43301643 itself. Unable to cite any published authors or name the Internet Research Agency that mind-fucked MAGA and Reddit into polairty out-group hate patterns since march 2013. Why can't Reddit turn to actual nonfiction public library section and say more than Twitter-length reaction commetns every single minute of every single day over and over? Because Putin has *owned* the hearts and minds of USA sicne March 2013.   
+... ... ...
+"And as a world view it grants those who subscribe to it certain pleasures: if all the world is a conspiracy, then your own failures are no longer all your fault. The fact that you achieved less than you hoped for, that your life is a mess – it’s all the fault of the conspiracy. More importantly, conspiracy is a way to maintain control. In a world where **even the most authoritarian regimes struggle to impose censorship, one has to surround audiences with so much cynicism about anybody’s motives**, persuade them that behind every seemingly benign motivation is a nefarious, if impossible-to-prove, plot, that they lose faith in the possibility of an alternative, **a tactic a renowned Russian media analyst called Vasily Gatov calls ‘white jamming’. And the end effect of this endless pile-up of conspiracies** is that you, the little guy, can never change anything. For if you are living in a world where shadowy forces control everything, then what possible chance do you have of turning it around? In this murk it becomes best to rely on a strong hand to guide you. ‘Trump is our last chance to save America,’ is the message of his media hounds. Only Putin can ‘raise Russia from its knees’. ‘The problem we are facing today is less oppression, more lack of identity, apathy, division, no trust,’ sighs Srdja.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019 ===:::
+
+&nbsp;
+
 # Tuesday September 16, 2025
 
 &nbsp;
