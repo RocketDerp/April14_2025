@@ -508,3 +508,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_spe
 Educational_Ninja327 2023-07-26
 
 "Lmao. No on in the UK wants him there. This is such a fucking joke. HE is a joke."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/neryp3w/
+
+Bright_Bet5002 2025-04-24 (new this year)
+
+"What should concern everyone is that he's saying it will be the last time a president will visit .. sooo, no more elections?? No more presidents?? WTF"
