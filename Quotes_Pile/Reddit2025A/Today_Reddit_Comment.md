@@ -212,3 +212,21 @@ smoggyvirologist 2017-04-14
 "And TPUSA and the Charlie Kirk Show are selling dozens of shirts, new shirts, about his death. It's actually disgusting. It'd be one thing if the profits went to some non-profit, but they all go back to his organization. They're selling merch of his death its crazy"
 
 * :::=== RoundSparrow_Commentary : "TPFaith", "Talking Point Faith", he was a fiction-based entertainer, monomyth podcaster / media star. Why is this so suprising to Reddit media addicts who purchase merch off youtube and Twitch? Death creates a media content circus, and Charlie Kirk has world wide media pesence now with Trump and Murdoch amplifiers, let alone Reddit amplifiers! When a media star dies, people flock to their symbolism addictions. Sex sells, hate sells, death sells. Charlie Kirk had Epstein sex topics, hate sells, death sells! ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/ner2iur/
+
+Morat20 2017-01-12
+
+"Given the entire right wing was blaming trans people before Kirk's body even got to the hospital, it's clear they were primed for something.
+
+And given since then it's been this endless drumbeat of trying to make it trans people's fault somehow? All like what, a week after Trump floated banning trans people from owning guns?
+
+If you're looking at less than 1% of the population and instantly blaming them for everything, and you're also talking about disarming just them -- the shit you have planned for that group starts as "atrocity" and ends in "mass extermination".
+
+People rarely shoot at cops or feds because it's a very effective way of getting yourself killed. "We better take their guns first" means the odds of living are even worse if you don't shoot back."
+
+* :::=== RoundSparrow_Commentary : Constant recency bias. Transgender sex / trans sex has been spelled out as core goboal focus since December 20, 2013 publication:
+... ... ...
+"Vladimir Putin is calling on the conservatives of the world to unite—behind him. The Kremlin leader's full-throated defense of Russia's "traditional values" and his **derision of the West's "genderless and infertile"** liberalism" https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ ===:::
