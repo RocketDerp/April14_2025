@@ -1,5 +1,7 @@
 https://www.youtube.com/watch?v=S46YVoKy3qI
 
+91,556 views September 14, 2025
+
 Twilight Zone America: The USA Dystopia
 
 "This video takes a psychological, philosophical, sociological and dystopian look at the human condition and human nature in an age of AI, algorithms, surveillance, and mass loneliness. Step into a post apocalyptic America where the line between sci-fi and reality has vanished. With dark humor and an existential edge, we explore how we got here, why it feels like an endless Twilight Zone episode, and how to keep your mind intact in a culture built to manipulate you."
@@ -13,23 +15,23 @@ Further reading....
 
 
 
-    1. Amusing Ourselves to Death by Neil Postman
+1. Amusing Ourselves to Death by Neil Postman
 
-    2. The Shock Doctrine by Naomi Klein
+2. The Shock Doctrine by Naomi Klein
 
-    3. Technopoly by Neil Postman
+3. Technopoly by Neil Postman
 
-    4. Brave New World by Aldous Huxley
+4. Brave New World by Aldous Huxley
 
-    5. 1984 by George Orwell
+5. 1984 by George Orwell
 
-    6. The Medium is the Massage by Marshall McLuhan
+6. The Medium is the Massage by Marshall McLuhan
 
-    7. Program or Be Programmed by Douglas Rushkoff
+7. Program or Be Programmed by Douglas Rushkoff
 
-    8. The End of the Myth: From the Frontier to the Border Wall by Greg Grandin
+8. The End of the Myth: From the Frontier to the Border Wall by Greg Grandin
 
-    9. Capitalist Realism: Is There No Alternative? by Mark Fisher
+9. Capitalist Realism: Is There No Alternative? by Mark Fisher
 
    10. Food for the Few: Neoliberal Globalism and Biotechnology in Latin America by Jennifer Clapp
 
