@@ -76,6 +76,14 @@ The Reddit audience is entirely *glued* to their touchscreen caressing describin
 
 &nbsp;
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1njasuj/even_candace_owens_cant_bring_herself_to_pretend/nepjz34/
+
+Jtrocks269 2019-12-06
+
+"Ironically, they have a 22 year old as part of their Homeland Security leadership. Did nobody think to run the messages through him, given that it's probably one of the only jobs he would have actually been somewhat qualified for?"
+
+* :::=== RoundSparrow_Commentary : A sus message. Tool / Owned / plant / confused? Encourage Reddit community to trust a 22 year old person who blindly trusts the Trump White House / Trump and Putin administration. A 22 true believer that the future of the USA is served by these leaders. That's the expert Reddit message is calling for. Why not call for text messages and emails from OUTSIDE the incident that this Charlie Kirk shooter created over the past 10 years? They have been posting photos of him as a teenager on Reddit posing with guns and military hardwarew. Why not request hundreds of pages of his personal writings to friends and roommates? Because that is media ecology, and Reddit users want an ingorant population to constantly stimulate them with rerpetitive one-line jokes as Reddit comments. ===:::
+
 # Tuesday September 16, 2025
 
 &nbsp;
