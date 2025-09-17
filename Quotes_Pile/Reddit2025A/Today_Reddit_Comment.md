@@ -526,3 +526,20 @@ https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_spe
 CariadocThorne 2015-12-12
 
 "Nothing impressive about playing a senile old man who would have lost a game of rock-paper-scissors to a boulder even at his peak."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/nes2yyv/
+
+Freddy-Borden 2016-09-15
+
+"How can anyone listen to him speak and still want him to lead the country? I just can’t comprehend that."
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/nerzay3/
+
+POSH9528 2024-04-04
+
+"He is the reason America is now the laughingstock of the world. We have an incoherent, bumbling idiot running the country. Sigh... can we fast forward to 2028 now? Please?"
+
