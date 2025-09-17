@@ -195,3 +195,11 @@ I'm certain this isn't the usual middle age dulling of wit, I I forgive my lapse
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/nepjfme/
+
+ncc74656m 2012-04-03
+
+"To be fair, Trump literally went on Howard Stern in the wake of September 11th to brag that he now had the tallest building in Lower Manhattan."
+
+* :::=== RoundSparrow_Commentary :  What kind of media ecology of NYC is it to live in the penthouse of a building that is 666 feet tall (symbolic, give or take standing on top). ===:::
+
