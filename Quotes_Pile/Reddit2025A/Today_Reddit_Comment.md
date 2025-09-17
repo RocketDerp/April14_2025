@@ -141,6 +141,21 @@ InfestedJesus 2015-01-22 (note "Jesus" context of name with "Jews" in message)
 
 &nbsp;
 
+https://old.reddit.com/r/SipsTea/comments/1njedmm/do_yall_see_a_mistake_here/nepuhgk/
+
+Rusty_the_Red 2025-01-17 (new this year)
+
+"No your mind isn't cooked. Oral doesn't have an opposite without a context. It was a really dumb question to put on a test.
+
+This is an example of teaching children to memorize things for the test, rather than apply critical thinking skills to the problem in front of you.
+
+Narrow thinking."
+
+* :::=== RoundSparrow_Commentary : [Context bewilderment abounds with our millions of media channels / comment patterns from different auhtors line by line in meme society](../../Media_Ecology/Context_Bewilderment.md). James Joyce's Finnegans Wake (published year 1924 onward) is a third-eye (metaphors) opening to the experience and self-awareness of the Tower of Babel. ===:::
+
+
+&nbsp;
+
 &nbsp;
 
 # Tuesday September 16, 2025
