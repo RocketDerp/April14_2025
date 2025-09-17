@@ -524,3 +524,8 @@ https://old.reddit.com/r/Snorkblot/comments/1njdc4l/is_simply_divided/
 
 Wikipedia is opposite of Reddit / Bluesky. On Reddit, everything is built for fresh latest comments. New comments, millions and millions of new comments, with low-effort memes / no citations / no references / no fact-checking. Just constant *off the cuff* bullshitting over and over, anti-citation. Constantly entertained by banal low-quality shit information. Wikipedia is the opposite, refining knowledge, improving citations, improving references, improving cross-connection of comprehension and understanding. Translating ideas to all the world langauges for each topic. Reddit, us USA mastaboratory mocking of reality. Competition to be the class clown and wreck Wikipedia.   
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1njiayd/scam/
+
+&nbsp;
+
+Reddit eating the paradox Surkovian Onions messages. Eating "The Onion" satire and not self aware it is satire. Mocking as stimulated, stimualted to mock, by the White House. Mocking away goodness, joing in with the Truth Social / White House Press Room total mockery of nonfiction. Entirely unable to engage nonfiction of Neil Postman and Peter P.     
+https://old.reddit.com/r/PoliticalHumor/comments/1njfj9j/too_far/
