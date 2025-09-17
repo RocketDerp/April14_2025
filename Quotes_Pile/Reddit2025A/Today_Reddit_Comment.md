@@ -408,3 +408,15 @@ CommercialRemote3325 2020-10-21
 "I've never felt threatened by trans or gay people.   However I am always on edge when I discover someone is MAGA.    And now basically republicans in general, which was never really a thing prior to 2015."
 
 * :::=== RoundSparrow_Commentary : Russian War Against Reality was waged agsint Reddit / social machines / media macines since March 2013. Russia won hearts and minds **to self-harm the USA** since year 2013. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njkgas/tyson_foods_to_drop_corn_syrup_from_jimmy_dean/ner7ptn/
+
+BrewerCollie 2023-12-20
+
+"Which is insanity if you think about it, because we are the #1 corn producing nation but get most of our sugar from Brazil, a country we needlessly initiated a trade war with. So, all the tarrifs will go straight from American pockets to the government. Which is being run by a party who has famously bemoaned taxes and big government. You can't make this shit up."
+
+* :::=== RoundSparrow_Commentary :  Yes, you can make this shit up. It is spelled out in **nonficton book published way bakck in year 2019** that social media comment addicts won't read or mention.
+... ... ...
+"What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019** ===:::
