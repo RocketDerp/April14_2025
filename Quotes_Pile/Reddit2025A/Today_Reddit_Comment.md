@@ -417,6 +417,14 @@ BrewerCollie 2023-12-20
 
 "Which is insanity if you think about it, because we are the #1 corn producing nation but get most of our sugar from Brazil, a country we needlessly initiated a trade war with. So, all the tarrifs will go straight from American pockets to the government. Which is being run by a party who has famously bemoaned taxes and big government. You can't make this shit up."
 
-* :::=== RoundSparrow_Commentary :  Yes, you can make this shit up. It is spelled out in **nonficton book published way bakck in year 2019** that social media comment addicts won't read or mention.
+* :::=== RoundSparrow_Commentary :  Yes, you can make this shit up. It is spelled out in **nonficton book published way back in year 2019** that social media comment addicts won't read or mention.
 ... ... ...
 "What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, **year 2019** ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1njnb5k/fcc_chair_threatens_jimmy_kimmel_over_monologue/nerik5r/
+
+RipComfortable7989 2025-03-16 (new this year)
+
+"First Colbert and now Kimmel? Next up will be Oliver and Meyers. This snowflake of an administration cannot handle criticism, the only downside is the corporate side that will gladly bend the knee and kiss Trump's shit encrusted golden ring. Conservatives used to mock countries like China and Russia for having policies that prevented people from criticizing the government and now that its happening here, they are cheering for it. Unbelievable."
