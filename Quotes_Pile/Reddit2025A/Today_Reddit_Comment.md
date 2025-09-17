@@ -485,3 +485,13 @@ https://old.reddit.com/r/LivestreamFail/comments/1nizu31/famous_twitch_streamer_
 Jas86 2010-11-02
 
 "Fact-checkers and background research? Sounds way too WOKE for me."
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1nizu31/famous_twitch_streamer_destiny_got_fired_and/nemv7o3/
+
+drt0 2011-11-08
+
+"He said a senior ABC reporter reached out to ask him about his ban and when Destiny told him it was bait for right wing ghouls, the reporter said "FFS" lmao
+
+At least that guy did some due diligence."
