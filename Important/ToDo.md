@@ -1555,3 +1555,8 @@ https://old.reddit.com/r/SelfAwarewolves/comments/1ninc5b/colin_wright_almost_ge
 
 Comic. Malaa: alpha males / Taliban rulers / Taliban warriors - are afaid of education, afraid of women quote from Malala.     
 https://old.reddit.com/r/comics/comments/1nixynw/types_of_men/
+
+&nbsp;
+
+Mocking MLK Jr's lessons about turning the cheek and waht is worth dying for with memes. Opportunistic timing with the dramatic murder of Charlie Kirk images all over Reddit.    
+https://old.reddit.com/r/CuratedTumblr/comments/1njhajp/unexpected_issues_with_turning_the_other_cheek/
