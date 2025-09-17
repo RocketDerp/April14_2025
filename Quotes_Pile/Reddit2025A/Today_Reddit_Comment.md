@@ -260,3 +260,21 @@ Edit: We’re going to eventually be in a society that will ban people from ente
 * :::=== RoundSparrow_Commentary :  USA September 2025 "Am I in fucking bizarro world?" of Reddit messages / USA meme culture can be translated to:   
 ... ... ...
 "Nothing Is True and Everything Is Possible: The **Surreal** Heart of the New Russia is a **2014 book by Peter Pomerantsev**. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njaxm7/state_department_is_denying_visas_to_those_who/nepgzci/
+
+StJeanMark 2018-11-07
+
+<img width="1432" height="1456" alt="image" src="https://github.com/user-attachments/assets/dd041093-98ac-448e-beba-96d9efdef024" />
+
+&nbsp;
+
+"I am so fucking tired, so unbelievably tired, of coming onto Reddit and other places and each thread is the same snarky comments pointing out hypocrisy. "What about this...", "Wait, I thought...." and all that shit. I get it, what else can you do, but it's like hypocrisy gives them boners and you'll never inform them enough to change. It's not a lack of knowledge on their part, it's a lack of caring.
+
+Sometimes, it feels like I'm waiting for the rest of the world to catch up. Accept, they lie and they don't use words like normal people do. Accept that the only thing that matters is victory, and pointing out hypocrisy means nothing, it means less than nothing you just wasted your time and energy."
+
+* :::=== RoundSparrow_Commentary : WRONG! "It's not a lack of knowledge on their part, it's a lack of caring." is a shallow and superficail conclusion. ***THEY CARE A LOT*** media addicts care a lot about feeding thier monomyth fiction cravings. What EVERYONE in USA is doing is avoiding NONFICTION PUBLIC LIBRARY: Neil Postman nonfiction, Peter Pomerantsev nonfiction. Enertainment addiction runs the entire all-inclusive population of USA, meme for meme, insult for insult, total mockery for total mockery, simualcra for simulacra, media platform for media platform. Russia won, Surkov won, since year 2013. Fiction addiction abounds. Reality is hate patterns, the ficiton is the social media addiction to bullshit. ===:::
