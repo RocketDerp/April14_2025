@@ -543,3 +543,18 @@ The experience of publishing a photograph and having an audience who is addicted
 https://old.reddit.com/r/comics/comments/1nipm5z/ribbon_oc/
 
 The character's reaction depicts what Rick Roderick said in 1993: vertigo in the face of too much informatioon. A swarm of reaction-comments to a single photograph.
+
+&nbsp;
+
+### Propietary Hardwae
+
+The Steam Deck isn't open hardware (confirm that claim?).
+
+Android vs. Apple devices. Apple own't allow Apple operating system to run on non-apple software in almost all cases and has found huge success in selling hardware and software married into a single package. Consumers often try to think of content/software as "free" and selling it inside a "gadget" with specific buttons tends to make more sales / profit. Long history of this in the elctronics industry from the very start. General purpose tools confuse people.
+
+Hardware DRM / anti-piracy / unique hardware such as Nintendo 64 console cartridges that were not compatible with any of existing system.
+
+Microsoft had plenty of anti-compettive issues in the software, the argument can be made that they sabotaged their parterm IBM with OS/2 while developing Windows NT (IBM PC-DOS, Microsot MS-DOS had two companies with source code rihts. IBM OS/2 and Microsoft OS/2 would have been two companies with source code more like how hardware chips are often fabricated by competing companeis to have second-source).
+
+Anyway, some intersting discussin here:    
+https://old.reddit.com/r/SteamDeck/comments/1nj58na/been_having_debates_with_my_friends_on_the/
