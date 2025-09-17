@@ -113,6 +113,24 @@ Reddit comment "It’s insane how no one’s satisfied" - infromation strip teas
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1njasuj/even_candace_owens_cant_bring_herself_to_pretend/neowgek/
+
+the_millenial_falcon 2016-12-16
+
+<img width="1104" height="1330" alt="image" src="https://github.com/user-attachments/assets/01fe881a-f419-4902-b3ba-a4fb7fdefddf" />
+
+&nbsp;
+
+"Our country is in a real epistemological crisis."
+
+* :::=== RoundSparrow_Commentary : The crisis of avoiding Reddit self-awareness at the public library nonfiction sections, authors: Neil Postman, Marshall McLuhan. The crisis of avoiding ONE SINGLE LINK and REPEATING IT GENTLY AND KINDLY until EVERY PERSON AGE 12 to AGE 120 understand and comprehens the same-page crisis: https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ ===:::
+
+&nbsp;
+
+&nbsp;
+
 # Tuesday September 16, 2025
 
 &nbsp;
