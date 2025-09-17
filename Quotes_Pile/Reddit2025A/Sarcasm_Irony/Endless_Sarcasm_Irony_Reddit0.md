@@ -494,3 +494,8 @@ https://old.reddit.com/r/insaneparents/comments/1niz0v3/my_mother_thinks_that_i_
 
 In face bold enial, complete black/white conradiction of reality. Absurd surreal Russian Surkov techniques staring Reddit users in the face. Donald Trump Jr. himself posted on social media about Epstein. Reddit users eat up this polarity / inverted message and mock and insutl and call the Kremlin and White House stupid dumb idiots. Unable to name authors or books (nonfiction) about Russian infomation warfare and Surkov leadership.     
 https://old.reddit.com/r/NoFilterNews/comments/1nixndf/kash_patel_makes_an_epstein_comment_that_is/
+
+&nbsp;
+
+Front page of Reddit. Crowd reaction: LOL LOL LOL, "Troll". Why is trolling considered acceptable? Why does labeling it "a troll" somehow eliminate the need of society to confront Russian infomration warfare educaiton and teaching? We have to actually convince each other that murder and war is bad. Normalzing it by just calling it "troll" ad moving on is indeed... normlaizng it. As I repeat; normalizng badness. Just as we normalize out-group-hate. Just declaring "troll" and "cult" isn't stand up and addressing the loss of war to Russia.    
+https://old.reddit.com/r/MurderedByWords/comments/1nj7kim/america_fuck_yeah/
