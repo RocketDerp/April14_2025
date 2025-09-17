@@ -1560,3 +1560,9 @@ https://old.reddit.com/r/comics/comments/1nixynw/types_of_men/
 
 Mocking MLK Jr's lessons about turning the cheek and waht is worth dying for with memes. Opportunistic timing with the dramatic murder of Charlie Kirk images all over Reddit.    
 https://old.reddit.com/r/CuratedTumblr/comments/1njhajp/unexpected_issues_with_turning_the_other_cheek/
+
+&nbsp;
+
+“Confucius's "Rectification of Names" (正名 zhengming)is the concept that language should be accurate and consistent, so that words correspond to their true meanings and reality. By ensuring that names are "corrected" to reflect actual duties and responsibilities, society can achieve harmony and order. This doctrine stresses that a ruler must embody the role of a ruler, and similarly for other societal roles, leading to proper conduct and effective governance.”      
+https://old.reddit.com/r/politics/comments/1njm67i/maga_lawmaker_calls_to_forcefully_mass/nerqvc6/
+
