@@ -191,7 +191,7 @@ funhouse economy. So, the mirrors here are of course
 warped, but the cash registers are perfectly straight. Wealth flows up like
 helium and debt flows down like sewage.
 
-16:00 
+16:00    
 Now, we've all heard the phrase *land of opportunity*, right?
 That was the tagline. The fine print is for someone else.
 So, the middle class used to be the main character in the American story,
@@ -245,6 +245,8 @@ you to ask your doctor about pills you can't even pronounce the name of
 for conditions you didn't know existed. And we've got food deserts next to
 boutique juice bars. And don't you dare complain. Otherwise,
 someone will call you entitled because you thought full-time work should keep you above water.
+
+21:52     
 This whole thing is like a giant convoluted circus,
 but a very profitable circus. And you're not
 the audience, you are the act.
