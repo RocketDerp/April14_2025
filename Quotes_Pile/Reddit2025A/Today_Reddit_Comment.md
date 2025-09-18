@@ -776,3 +776,11 @@ https://old.reddit.com/r/nottheonion/comments/1njufgc/karoline_leavitt_posts_tha
 ManWhoTalksToHisHand 2025-06-05 (new this year)
 
 "It's funny how these people always know what God's wrath is, but never what God's mercy is. You never hear them say that something was proof of God's love. Nope."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1njut3g/trump_says_hes_designating_farleft_antifascism/net7j4o/
+
+HideousSerene 2023-01-09
+
+"I feel like our ability to discuss this stuff freely and openly on reddit is about to come to a halt..."
