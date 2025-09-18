@@ -104,6 +104,14 @@ Sashamirae17 2022-08-22
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nk6qzi/tyranny_threatens_europe_king_charles_voices/nevuec5/
+
+ForrestDials8675309 2024-11-07 (election 2024)
+
+"Washington, Jefferson, Adams, and other founding fathers never imagined that one day a British king would be defending democracy while an American president is working to destroy it."
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
