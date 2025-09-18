@@ -563,3 +563,26 @@ Chardan0001 2023-12-24 (Christmas Eve)
 
 Edit: to the comment about it seeming I see this as having come from nowhere I can't see any longer: I'm fully aware this didn't come out of nowhere, but it's the gloves off approach to it particularly in the last year. I would say the brazen cheek of it perhaps. There is a swift acceleration here vs the last 50 years I mean, the foundation has crumbled and its taking little effort to knock down the walls."
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njs8qr/abc_suspends_jimmy_kimmels_latenight_show/nesl841/
+
+CryptographerShot213 2021-03-23
+
+<img width="918" height="670" alt="image" src="https://github.com/user-attachments/assets/1dbdcb34-2a5d-4676-999c-b24e212c8b58" />
+
+&nbsp;
+
+"This whole thing has gone completely off the rails. CK wasn’t that important and everyone wants to act like he was some well-known saint 😭 I don’t know how we as a country can pull ourselves out of this madness, it’s so embarrassing"
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njs8qr/abc_suspends_jimmy_kimmels_latenight_show/nesklk3/
+
+Pierre_St_Pierre 2018-04-17
+
+"Even the “free press” is largely captured by Billionaires that use their voice to prop up policies that crush the underclass. So even as a bastion against less insidious presidents it’s been completely ineffective but now it’s ineffective and becoming illegal to do good unbiased journalism."
