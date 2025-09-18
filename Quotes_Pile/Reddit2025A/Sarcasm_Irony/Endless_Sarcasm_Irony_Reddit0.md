@@ -565,3 +565,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1njprg1/mehdi_hasan_just_tweet
 The hourly Reddit "Trump told you!!!!" - how many times has Reddit community been told about the IRA and ignored it? Why doesn't Reddit repeat about the Russian information warfare instead of nonstop fication on Donald Trump? Do you really believe Donald Trump is intelligent enough to brainwash an entire population, or Putin for 25 years is brainwashing Trump and Musk and MAGA all? What evidence do you need to see about the IRA reported by multiple NATO nations having media brainwashing efforts? Can't cite a single author, can't escape the constant "He told you" messages all year 2025, day after day since January 20, 2025 - while not facing up that this is exactly what Russia induces. Americans attacking Amercians and not facing up to the most sophisticated information warfare ever created in all world history!    
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1njniu3/he_told_you_his_plans/
 
+&nbsp;
+
+Sarcasm on front page. When faced with contradictory sarcasm originating from Donald Trump, the social media society always has one answer: MORE MORE MORE MORE SARCASM! We are drowning in bullshit fiction amusement systems, as defined by Neil Postman in his 1985 book "Amsuing Ourelves To Dath" about information and media systems... people can not be serious, stop compusive mocking at Trump's symbolic warfare.    
+https://old.reddit.com/r/MurderedByWords/comments/1nk8c95/freedom_is_coming_back_to_americas/
