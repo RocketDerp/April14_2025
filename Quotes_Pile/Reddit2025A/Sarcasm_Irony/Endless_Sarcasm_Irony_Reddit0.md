@@ -574,3 +574,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1nk8c95/freedom_is_coming_back
 
 Reddit socity can never cite the 2019 book titled "Plot to Break America" - which is all about Bannon / Trump / Social Media. A complete lack of social media self-awareness at the nonfiction level.    
 https://old.reddit.com/r/politics/comments/1nk95da/tiktok_to_be_sold_to_trumps_right_wing/
+
+&nbsp;
+
+Reddit community can't site anything about information warfare tactics of Putin, such as the Hillary Lock Her Up Cages in Florida.    
+https://old.reddit.com/r/chaoticgood/comments/1nkfa30/charlie_kirks_memorial_got_its_shit_defaced/
