@@ -588,5 +588,5 @@ study example: Star Wars asset owners supporting billionare media causes while s
 
 ### Trickle Down Content 
 
-Massive networks of billionare-owned media outlets speak with directed talking points? Saying it serves a local community without teaching Edward Bernays comprehension of telvision outcomes.    
+Massive networks of billionare-owned media outlets speak with directed talking points? Saying it serves a local community without teaching Edward Bernays students techniques, Neil Postman's media ecology comprehension of telvision outcomes.    
 https://old.reddit.com/r/ThatsInsane/comments/1nk5y8h/fox_abc_cbs_and_nbc_local_news_stations_all_owned/
