@@ -612,3 +612,13 @@ https://old.reddit.com/r/popculturechat/comments/1njru8r/abc_pulls_jimmy_kimmel_
 comeupforairyouwhore 2019-11-06
 
 "My friend’s elderly neighbors picked up and moved in the middle of the night, leaving all their belongings. They moved back to Germany where they lived when Hitler was in power. They moved to the US after WW2. They texted all their neighbors saying they’d already gone through this once and didn’t want to relive it. They told their neighbors to help themselves to their belongings."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njru8r/abc_pulls_jimmy_kimmel_live_after_charlie_kirk/nesr33r/
+
+Wissahickonchicken 2017-01-14
+
+"I get it but like at this point this administrations behavior is so outside the realm of normal, literally the checks and balances of our federal branches of government have been reduced to nothing, that like what are they even afraid of happening if the files were released? They have no shame. There’s nothing at this point to convince me that fully releasing the Epstein shit would even be able to right this ship. These criminals are in power and they intend to stay there.
+
+They are not conducting themselves in a way that suggests they intend to be held accountable at the ballot box ever again."
