@@ -91,3 +91,5 @@ Writing this shit is shit itself. But in this is why the uSA worhips and prizes 
 
 The utility of men, msut be entertaining (sports stars, actors, charming) or inner life is discarded.Unlelss, of course, you are a religon symbol: Moses, Trump, Putin, Buddha, Jesus - then people care about your marriage  / parenting / inner life and notice.    
 https://old.reddit.com/r/Adulting/comments/1nk1nsa/whats_your_take_on_this/
+
+Then those men feel they have to *earn* digity and emotonal worth, conquest women. Arrange systems of control over women. As Malala describes in her October 8, 2013 book of bieng a girl under the Taliban.  
