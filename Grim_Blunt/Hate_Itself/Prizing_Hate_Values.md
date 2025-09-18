@@ -47,6 +47,23 @@ The child custody battles I have witnessed. Adult divorced people at age 41 who 
 
 ## Forest level of humanity
 
+The big picture, forest for the trees.
+
+### Military training / Catch-22
+
+1. Joseph Heller's 1961 Catch-22
+2. Banality of Evil, Hannah Arendt 
+
 We know how people are masters of training hate, teaching hate. Multiple nations in the world have military. Military is organized killing / execution / murder out of anti-love, out of hate. Russia has millions of people who hate Ukraine people since February 2014 and kill them. People need to face up that hate and dehumanization can be witnessed. Killing and murdering people for incredibly shallow and super shallow reasons. Here is  no *good reason* for Russians to hate Ukrainian people since February 2014, and people are not facing up to this truth of reality itself.
 
 Russia has mastered manipulating minds to be anti-reality, detached from reality, and to follow messages and information as if they accurately represent reality. this is described September 9, 2014 - after the start of the February 2014 war: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+&nbsp;
+
+### Levant religions
+
+I moved to the Middle East during the Arab Spring to study media ecology and religion vs. religion conflicts.
+
+Oh boy, on my, what a fucking nightmare. People who have never met each other who trust messages and stories from religion clergy who HATE with the deepest faith in HATE, people they have neve met in person.
+
+Plenty to write on this subject.
