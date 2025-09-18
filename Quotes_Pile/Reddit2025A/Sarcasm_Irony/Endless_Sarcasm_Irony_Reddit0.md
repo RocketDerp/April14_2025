@@ -569,3 +569,8 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1njniu3/he_told_you_his_plan
 
 Sarcasm on front page. When faced with contradictory sarcasm originating from Donald Trump, the social media society always has one answer: MORE MORE MORE MORE SARCASM! We are drowning in bullshit fiction amusement systems, as defined by Neil Postman in his 1985 book "Amsuing Ourelves To Dath" about information and media systems... people can not be serious, stop compusive mocking at Trump's symbolic warfare.    
 https://old.reddit.com/r/MurderedByWords/comments/1nk8c95/freedom_is_coming_back_to_americas/
+
+&nbsp;
+
+Reddit socity can never cite the 2019 book titled "Plot to Break America" - which is all about Bannon / Trump / Social Media. A complete lack of social media self-awareness at the nonfiction level.    
+https://old.reddit.com/r/politics/comments/1nk95da/tiktok_to_be_sold_to_trumps_right_wing/
