@@ -863,7 +863,7 @@ https://old.reddit.com/r/antiwork/comments/1njxd5n/george_carlin_is_rolling_over
 
 marr 2007-07-14
 
-<img width="1972" height="854" alt="Screenshot from 2025-09-18 03-25-13" src="https://github.com/user-attachments/assets/576bb41a-540c-4331-8ad5-a680593b12c6" />
+<img width="840" height="346" alt="Screenshot from 2025-09-18 03-16-07" src="https://github.com/user-attachments/assets/2cc93e17-fe31-4113-b8b6-d949dbf10521" />
 
 &nbsp;
 
