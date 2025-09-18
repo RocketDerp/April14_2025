@@ -180,6 +180,14 @@ I think we're watching professional wrestling with two actors paid for by the sa
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1nkdylo/trump_says_charlie_kirk_could_have_been_a_future/nex4mi2/
+
+meatballwarlock 2025-07-20 (recent account)
+
+"he is pretty right about this. this man was steadily winning over young men. the older generation is passing away and he already had an army of 20 something men who have been fed propaganda their entire lives through social media to replace them. if he ran, he would likely win barring dramatic change."
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
