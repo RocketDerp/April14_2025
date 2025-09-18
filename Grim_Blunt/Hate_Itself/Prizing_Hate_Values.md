@@ -67,3 +67,21 @@ I moved to the Middle East during the Arab Spring to study media ecology and rel
 Oh boy, on my, what a fucking nightmare. People who have never met each other who trust messages and stories from religion clergy who HATE with the deepest faith in HATE, people they have neve met in person.
 
 Plenty to write on this subject.
+
+&nbsp;
+
+# Living in hate saturation
+
+Living in Palestine, parenting in Palestine, in year 2024.    
+Living in Russia in year 2024.    
+Living in United States of America year 2025.   
+
+Are people enjoying hate? Why do they continue hate when living in hate? Why is hate Prized?
+
+I think people don't understand love, do not comprehend compassion, that people have not expereinced or grasped what they have experienced. That's at the heart of this page's intended expansion / further writing.
+
+Why do people prize hate? They don't comprehend love and compassion.   
+People die for hate, war is death in service to hate. War killings, war deaths, military killings, military deaths, are surely not in service to compassion and love.   
+The wild idea that you love your family by going across the world to kill members of another family you never met. Even airplane pilots dropping bombs on members of families they can't even recognize from high altittue of air flight.... etc, etc, etc.   
+Writing this shit is shit itself. But in this is why the uSA worhips and prizes the Hate of Donlad Trump / MAGA / Rupert Murdoch / Putin in year 2025.
+
