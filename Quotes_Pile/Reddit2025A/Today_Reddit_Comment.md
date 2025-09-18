@@ -46,6 +46,14 @@ I wonder that no more."
 
 &nbsp;
 
+https://old.reddit.com/r/nottheonion/comments/1nk7bk4/bethesda_deletes_indiana_jones_and_the_great/nevrlxb/
+
+renome 2012-04-20
+
+"In an alternate universe, the headline would be "Bethesda Rejects Notion of Video Game Clip Mocking Something That Happened Afterward" but we live in hell."
+
+&nbsp;
+
 # Wednesday September 17, 2025
 
 &nbsp;
