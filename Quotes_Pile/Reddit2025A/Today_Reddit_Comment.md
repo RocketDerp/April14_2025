@@ -96,6 +96,14 @@ Sturmgeshootz 2016-06-22
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nk6qzi/tyranny_threatens_europe_king_charles_voices/nevk56r/
+
+Sashamirae17 2022-08-22
+
+"Calling out “tyranny” so directly shows how seriously he views the threat Russia poses, and how important support for Ukraine has become across Europe’s leadership. It's also notable that he said during a state dinner with Trump who was more skeptical about long-term support. It sends a clear message about where the UK stands, regardless of political shifts. Symbolically, it reinforces that defending Ukraine is seen as defending European stability as a whole"
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
