@@ -45,4 +45,13 @@ I have seen these behaviors within families my whole life, but I used to think i
 
 8. The prizing of ignorance / celebrationof igorance prented in the name of sports competittion and domination by parents? What Carl Sagan described in his 1995 book?
 
-9. 
+
+&nbsp;
+
+&nbsp;
+
+Any ideas? Why people prize hate of out-groups, the parenting values in USA?     
+
+https://old.reddit.com/r/JoeRogan/comments/1nkafag/the_voice_of_moral_clarity/
+
+
