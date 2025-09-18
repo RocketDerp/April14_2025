@@ -594,3 +594,21 @@ https://old.reddit.com/r/news/comments/1njs8qr/abc_suspends_jimmy_kimmels_lateni
 PrincessImpeachment 2023-12-12
 
 "And the entire subreddit full of Trump’s little mushroom suckers is celebrating the end of free speech. How fucking ironic."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njru8r/abc_pulls_jimmy_kimmel_live_after_charlie_kirk/neskl1c/
+
+OvulatingWildly 2025-08-07 (recent account)
+
+"Shit. The canaries in the coalmine are dropping fast.
+
+No one is coming to save us."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njru8r/abc_pulls_jimmy_kimmel_live_after_charlie_kirk/nesmli0/
+
+comeupforairyouwhore 2019-11-06
+
+"My friend’s elderly neighbors picked up and moved in the middle of the night, leaving all their belongings. They moved back to Germany where they lived when Hitler was in power. They moved to the US after WW2. They texted all their neighbors saying they’d already gone through this once and didn’t want to relive it. They told their neighbors to help themselves to their belongings."
