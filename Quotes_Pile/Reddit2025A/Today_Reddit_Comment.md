@@ -952,3 +952,15 @@ bbyxmadi 2020-06-07
 "I’ll never forgive them. They thought Harris was bad, but the current administration took their worries and quadrupled them. I still can’t believe people who claimed to care about Gaza voted for him, it blows my mind."
 
 * :::=== RoundSparrow_Commentary : Hate as religion. Hate as core faith value. Never ever forgive Americans. Thrilled that Russia won the meme war against USA since year 2013 so there are local people to hate upon. Don't address the Fox News system (HDTV television network systems) content proble, hate and dehumanize living persons. That's the messages of MAGA values: deport those you hate, block those you hate, hate harder, hate thy enemy, hate thy neighbor, prize hate itself. As if hate is fun and enjoyable, it is not. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/neteplv/
+
+deleted unable to determine account name or date
+
+"He’s not going to be satisfied until he has silenced any and all dissenters.
+
+Project 2025 is being brought in under budget and much earlier than their gantt timeline had predicted.
+
+All because the country has rolled over and is accepting the inevitable. Just close your eyes; it’ll all be over soon."
