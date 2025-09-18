@@ -176,6 +176,7 @@ Typical-Locksmith-35 2021-07-19
 
 I think we're watching professional wrestling with two actors paid for by the same organization and they need good storylines for their role to keep being worth their pay."
 
+* :::=== RoundSparrow_Commentary : I think it is better to look at media stars in terms of media ecology. Trump / Tucker Carlson both fanatics of Putin's mindwashing / meme patterns / public relations. Like two independently run churches who use the same Bible. They don't have to be paid to be addicted to The Bible, Churches rise up in communities all over based on the love the science fiction storytelling itself. The money and funding comes from the audience, which is clearly evident in the income / money earned by Tucker Carlson and Donald Trump both. Large audiences draw for their content creation, fiction storytelling. ===:::
 
 &nbsp;
 
