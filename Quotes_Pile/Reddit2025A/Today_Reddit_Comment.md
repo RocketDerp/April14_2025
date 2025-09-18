@@ -650,3 +650,11 @@ Screaming_Weak 2021-07-21
 "This is insane. WTAF
 
 They (the Trump administration) is absolutely going to come after Reddit at some point, there’s no doubt about it now."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njru8r/abc_pulls_jimmy_kimmel_live_after_charlie_kirk/nesllkj/
+
+Advanced-Trainer508 2021-03-16
+
+"This country is well and truly fucked. We have officially entered North Korean like territory with this absurd censorship. Jesus fucking Christ."
