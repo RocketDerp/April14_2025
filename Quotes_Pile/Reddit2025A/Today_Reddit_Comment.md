@@ -706,3 +706,13 @@ alison_bee 2011-08-29
 What do we do? I don’t fucking know. But I do know that the people in power right now are not going to give it up easily, and things are declining at an alarming rate.
 
 Every day that we stay in this shit, it’s going to get harder for us, and easier for them."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1njrkuq/breaking_per_wsj_media_reporter_disneys_abc_is/nesoo8z/
+
+DreadfulDemimonde 2023-05-17
+
+"Because Christianity is centered on martyrdom. The messiah was a martyr, so the church essentially deifies the practice. But you can't have a martyr without persecution, which is why so many Christians see persecution everywhere— they're told that non-Christians hate them and are being used by Satan to lure them away from their faith. Martyrdom is basically the top level achievement and offers the perfect opportunity to say "See? They all hate us! We must save this country from their evilness."
+
+CK's murder is literally a Christian Nationalist wet dream."
