@@ -54,4 +54,8 @@ Any ideas? Why people prize hate of out-groups, the parenting values in USA?
 
 https://old.reddit.com/r/JoeRogan/comments/1nkafag/the_voice_of_moral_clarity/
 
+Were there parents in USA who raised thier children to *act out* and *prize* this Holocaust memorial list when Putin or some othe tyrant rose up? To join in with world conquest and prize what Russia is doing to Ukraine?    
+
+https://old.reddit.com/r/pics/comments/1nkda7e/from_the_united_states_holocaust_memorial_museum/
+
 
