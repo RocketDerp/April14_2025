@@ -85,3 +85,9 @@ People die for hate, war is death in service to hate. War killings, war deaths, 
 The wild idea that you love your family by going across the world to kill members of another family you never met. Even airplane pilots dropping bombs on members of families they can't even recognize from high altittue of air flight.... etc, etc, etc.   
 Writing this shit is shit itself. But in this is why the uSA worhips and prizes the Hate of Donlad Trump / MAGA / Rupert Murdoch / Putin in year 2025.
 
+&nbsp;
+
+&nbsp;
+
+The utility of men, msut be entertaining (sports stars, actors, charming) or inner life is discarded.Unlelss, of course, you are a religon symbol: Moses, Trump, Putin, Buddha, Jesus - then people care about your marriage  / parenting / inner life and notice.    
+https://old.reddit.com/r/Adulting/comments/1nk1nsa/whats_your_take_on_this/
