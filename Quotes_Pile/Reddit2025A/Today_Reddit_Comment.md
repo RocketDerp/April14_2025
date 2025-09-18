@@ -543,3 +543,13 @@ POSH9528 2024-04-04
 
 "He is the reason America is now the laughingstock of the world. We have an incoherent, bumbling idiot running the country. Sigh... can we fast forward to 2028 now? Please?"
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1njonxh/trump_while_giving_a_speech_it_is_a_privilege_to/nerzeow/
+
+Lonely_Nature_7330 2021-08-29
+
+"He yet again is telling everyone to their faces he is a dictator and plans to not give up the presidency ever. People laughing at this is so gross. The world is insane right now. These aren't jokes, he has been following through on everything he "jokes" about"
+
+* :::=== RoundSparrow_Commentary : “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
+* 
