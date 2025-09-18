@@ -622,3 +622,11 @@ Wissahickonchicken 2017-01-14
 "I get it but like at this point this administrations behavior is so outside the realm of normal, literally the checks and balances of our federal branches of government have been reduced to nothing, that like what are they even afraid of happening if the files were released? They have no shame. There’s nothing at this point to convince me that fully releasing the Epstein shit would even be able to right this ship. These criminals are in power and they intend to stay there.
 
 They are not conducting themselves in a way that suggests they intend to be held accountable at the ballot box ever again."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njru8r/abc_pulls_jimmy_kimmel_live_after_charlie_kirk/nesoj7t/
+
+merlotbarbie 2019-09-12
+
+"So many ancestors are rolling in their graves. There were so many lives lost and ruined to build this country and we decided to just throw all of that in the trash"
