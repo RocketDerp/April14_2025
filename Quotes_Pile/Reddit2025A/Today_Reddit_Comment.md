@@ -658,3 +658,11 @@ https://old.reddit.com/r/popculturechat/comments/1njru8r/abc_pulls_jimmy_kimmel_
 Advanced-Trainer508 2021-03-16
 
 "This country is well and truly fucked. We have officially entered North Korean like territory with this absurd censorship. Jesus fucking Christ."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1njrkuq/breaking_per_wsj_media_reporter_disneys_abc_is/neshctf/
+
+final_spork_gg 2016-12-27
+
+"Oh big time - was shocked to see the love for him on instagram stories up here! Not shocked to see that it was ENTIRELY people that are not affected by his views at all - aka all cis white men and women. Gay man here so you know where I feel on this…. That he didn’t deserve to die for his opinions, he preached hateful rhetoric and the US needs gun reform yesterday (even if Charlie wouldn’t want that himself)."
