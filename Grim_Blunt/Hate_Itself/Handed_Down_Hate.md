@@ -1,5 +1,12 @@
 # Handed Down Hate
 
+VERY DRAFT. It is very hard to describe what I'm witnessing since the USA sent bombers to Iran this year 2025... I need to write and rewite and toss out and rewrite this, and I may not be up for it.
+
+A line from Billy Joel's Allentown about the "restlessness was handed down" comes to mind...
+
+&nbsp;
+
+
 In USA, it is becoming increasily clear
 
 Israel vs. Palestine? same situation?
