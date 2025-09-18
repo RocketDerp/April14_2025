@@ -1584,3 +1584,8 @@ https://www.youtube.com/watch?v=c7wCbbmLtiI
 
 Putinism spreading / Maximum Putnization    
 https://www.youtube.com/watch?v=7_L6ZU3zxOc
+
+&nbsp;
+
+Internet culture as dehumanization training ground topic     
+http://youtube.com/watch?v=I8UwjoaHPzw
