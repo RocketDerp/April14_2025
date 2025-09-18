@@ -742,3 +742,21 @@ https://old.reddit.com/r/AskReddit/comments/1njs5cd/abc_just_pulled_jimmy_kimmel
 wish1977 2021-01-31
 
 "Hannity says worse than that every single day of the week. I see little difference right now between the Trump administration and the Putin administration. If you don't kiss the ring they find a way to eliminate you."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1njs5cd/abc_just_pulled_jimmy_kimmel_live_indefinitely/nesohkl/
+
+JohnnyWeapon 2011-03-24
+
+"I just can’t believe that there are people out there who continue to support this spiral into fascism. It’s absolutely wild to me how stupid people are over being brainwashed by partisan politics.
+
+What. The. Fuck."
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1njs5cd/abc_just_pulled_jimmy_kimmel_live_indefinitely/nesmnn6/
+
+ButtersBC 2016-12-30
+
+"The movies about an America under authoritarianism always at least made it look less stupid than this, instead we have a senile moron directing a group of dipshits to pretend that a murdered white supremacist is something we all should care about forever, shit's bleak"
