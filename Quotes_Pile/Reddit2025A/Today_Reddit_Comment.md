@@ -4,6 +4,10 @@ https://old.reddit.com/r/politics/comments/1nkgr63/trump_floats_pulling_licenses
 
 https://old.reddit.com/r/liberalgunowners/comments/1nkj31w/well_that_was_quick/ney84oi/
 
+https://old.reddit.com/r/pics/comments/1nkmref/antifa_singer_woody_guthrie/nez3c01/
+
+
+
 
 # Thursday September 18, 2025
 
