@@ -552,4 +552,14 @@ Lonely_Nature_7330 2021-08-29
 "He yet again is telling everyone to their faces he is a dictator and plans to not give up the presidency ever. People laughing at this is so gross. The world is insane right now. These aren't jokes, he has been following through on everything he "jokes" about"
 
 * :::=== RoundSparrow_Commentary : “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985 ===:::
-* 
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njs8qr/abc_suspends_jimmy_kimmels_latenight_show/neso5n3/
+
+Chardan0001 2023-12-24 (Christmas Eve)
+
+"It's insane how it seems like the American Republic can be disassembled this swiftly right as it's about to hit its 250th anniversary. I know the rise of this filth isn't just a US thing either (we see it more now in UK too) but I could never have imagined it would be quite like this when I figured Trump would probably get his second term.
+
+Edit: to the comment about it seeming I see this as having come from nowhere I can't see any longer: I'm fully aware this didn't come out of nowhere, but it's the gloves off approach to it particularly in the last year. I would say the brazen cheek of it perhaps. There is a swift acceleration here vs the last 50 years I mean, the foundation has crumbled and its taking little effort to knock down the walls."
+
