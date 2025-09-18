@@ -784,3 +784,23 @@ https://old.reddit.com/r/law/comments/1njut3g/trump_says_hes_designating_farleft
 HideousSerene 2023-01-09
 
 "I feel like our ability to discuss this stuff freely and openly on reddit is about to come to a halt..."
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1njut3g/trump_says_hes_designating_farleft_antifascism/net88t4/
+
+moon_cake123 2024-04-01
+
+"Imagine traveling in and out of America now. Any left comments, designated antifa, now you’re a terrorist."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1njz57z/australian_broadcasting_corporation_blocked_from/neu48ea/
+
+PleaseStandClear 2016-11-06
+
+"This happened after John Lyons (a respected journalist with the Australian Broadcasting Corporation) asked Trump how much wealth he had accrued since becoming president. The Tangerine Toddler replied (after trying to deflect from the question by rambling on about a ballroom) that Lyons was “hurting Australia” and that he (Trump) was going to “tell him (our Prime Minister) about you”. Yes, seriously.
+
+This embarrassing clown has made America the laughing stock of the world.
+
+Edit - for those commenting that I shouldn’t have voted for him - I’m Australian."
