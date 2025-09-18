@@ -1581,3 +1581,6 @@ https://old.reddit.com/r/CuratedTumblr/comments/1nk70ho/as_an_autistic_person_id
 Cult language / Jesus / Jim Jones / Taylor Swift    
 17 million channel on YouTube    
 https://www.youtube.com/watch?v=c7wCbbmLtiI
+
+Putinism spreading / Maximum Putnization    
+https://www.youtube.com/watch?v=7_L6ZU3zxOc
