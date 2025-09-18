@@ -1,3 +1,21 @@
+# Thursday September 18, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/dataisbeautiful/comments/1nk73a8/politically_motivated_murders_in_the_us_by/nevqacr/
+
+LunarScholar 2016-09-17
+
+"Presumably left and right are domestic and Islamic is foreign?
+
+No wait cause foreign nationalism would cover that yea?
+
+Either way American conservatives and Islams are pretty distinct"
+
+* :::=== RoundSparrow_Commentary : Human brain isn't distinct. You take a 1 day old child born in Pakistan ad a Muslim and transport them to Texas and raise them in a Christian English-speaking framily, we can witness this. You aren't *born* with the Quran and a spoken language in your head, it is learned / aquired. Left vs. right reeks of longstanding brainrot. People in USA importing this French idea of where religion (fiction) believers sit compared to a king. Obidence to a God-ordained bloodline King. The Founding Fathers created the Great Seal to define directions: old world oder (front and back) vs. new world order, vertical climbing of 13 steps of thinking. But you will not find social media users discuss the Founding Fathers ideals and parrot this left vs. right. Islam is FICTION-concered. Mohammad's Quran story is a retcon science fiction story of The Bible. This isn't just me trying to be shockking and offensive. Seperation of science thinking from "sounds good" fiction is not a minor conflict in USA 2025! Arguing over favorite scinece fiction stories, Star Trek vs. Star Wars, and parenting with said storytelling creates a bias people will not wake up to. Finnegans Wake / Media Ecology wake *topic*. The Founding Fathers coudl have put Jesus into the Constitutiton or Great Seal, they did not. And this is not a minor topic of *why*. To deny the common heritage of Islam and Christianity is a major mistake. And we can't let street-gang violence of science fiction fans attacking science fiction fans be like football holligans attacking over a sports game fanaticism. We have to *sober up* from the wild and out of control media content addictions, be it Fox News, Reddit memes, Star Wars, or Quran / Torah / Bible! Faith in an afterlife without evidence can lead to horrible outcomes like Nazi Germany extermination of Jewish / Torah fanatics by Bible / Christian fanatics! The Founding Fathers *did know* of the Muslim vs. Christian Cruisades run by The People, the *old world order* perspective of the Great Seal. ===:::
+
+&nbsp;
+
 # Wednesday September 17, 2025
 
 &nbsp;
