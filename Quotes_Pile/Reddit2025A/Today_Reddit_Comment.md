@@ -54,6 +54,18 @@ renome 2012-04-20
 
 &nbsp;
 
+https://old.reddit.com/r/nottheonion/comments/1nk7bk4/bethesda_deletes_indiana_jones_and_the_great/nevpucr/
+
+phamalacka 2013-02-25
+
+"so they're admitting that charlie kirk was a fascist and so are they?
+
+is that what's happening here?"
+
+* :::=== RoundSparrow_Commentary : As [Howard Bloom NYC documented in his August 2000 book, pro-Nazi valuees are used by Russia as a military tactic. Adoption of any hate motivation system](../Howard_Bloom.md#hate-training-observations). The Putin Media Invasion by the Russian Internet Resarch Agency could very feed Germany hate symbol systems. There have been documented ussage of Nazi Gemany sybolism against Ukraine https://www.bbc.com/news/64718139 ===:::
+
+&nbsp;
+
 # Wednesday September 17, 2025
 
 &nbsp;
