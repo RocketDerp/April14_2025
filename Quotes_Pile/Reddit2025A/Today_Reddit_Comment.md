@@ -768,3 +768,11 @@ https://old.reddit.com/r/videos/comments/1njvf76/the_monologue_that_got_jimmy_ki
 pakkit 2011-04-28
 
 "It's not this one either. Trump has wanted Jimmy Kimmel gone for years, and was speculating on his exit just last month. This monologue is a scapegoat, but the way the media is reporting this as if this is the reason is dangerous and ignores the authoritarian bullying at the root of this move by the Trump administration."
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1njufgc/karoline_leavitt_posts_that_utah_earthquake_was_a/net2tw6/
+
+ManWhoTalksToHisHand 2025-06-05 (new this year)
+
+"It's funny how these people always know what God's wrath is, but never what God's mercy is. You never hear them say that something was proof of God's love. Nope."
