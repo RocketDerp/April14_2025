@@ -563,7 +563,7 @@ https://old.reddit.com/r/SteamDeck/comments/1nj58na/been_having_debates_with_my_
 
 &nbsp;
 
-# The Body is the Medium
+### The Body is the Medium
 
 Automtic hate of Japan body types, sign writen in English by Chinese worker.    
 https://old.reddit.com/r/Damnthatsinteresting/comments/1nj8obm/a_chinese_american_wearing_a_sign_saying_hes/
@@ -572,7 +572,7 @@ https://old.reddit.com/r/Damnthatsinteresting/comments/1nj8obm/a_chinese_america
 
 &nbsp;
 
-# The Rights to "Elvis" merchandise
+### The Rights to "Elvis" merchandise
 
 Media Ecology 120
 American Media Cartels
