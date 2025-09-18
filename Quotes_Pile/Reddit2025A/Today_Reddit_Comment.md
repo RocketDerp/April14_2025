@@ -210,6 +210,14 @@ Turfyleek93 2012-12-31
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1nkivi6/fcc_chair_carr_says_were_not_done_yet_after_jimmy/ney802h/
+
+ManifestDestinysChld 2015-02-08
+
+"Yeah, they are now proudly claiming responsibility for directly violating the First Amendment. The government punished Jimmy Kimmel for what he said."
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
