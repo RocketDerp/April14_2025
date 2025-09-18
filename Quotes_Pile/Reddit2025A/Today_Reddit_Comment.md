@@ -666,3 +666,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1njrkuq/breaking_per_wsj_media_reporte
 final_spork_gg 2016-12-27
 
 "Oh big time - was shocked to see the love for him on instagram stories up here! Not shocked to see that it was ENTIRELY people that are not affected by his views at all - aka all cis white men and women. Gay man here so you know where I feel on this…. That he didn’t deserve to die for his opinions, he preached hateful rhetoric and the US needs gun reform yesterday (even if Charlie wouldn’t want that himself)."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1njrkuq/breaking_per_wsj_media_reporter_disneys_abc_is/nesnn9d/
+
+onomatopeapoop 2025-07-02
+
+"It confirms that people will believe and spread whatever the hell they feel like. Nobody knows what’s true, especially since the Feds in this case are shifty and incompetent, and difficult to believe. We know for sure that he’s a hyper-online memelord, but not a ton else.
+
+It will take time to find out the full truth, but hardly anyone in our society actually cares about truth any more. Which is frightening, because what remains is indistinguishable from madness. Trumpian madness at that, basically choosing/constructing your own personal “reality” with no regard to actual reality. And circling back around, it’s social media brainrot that’s behind this phenomenon as well, IMO."
+
+* :::=== RoundSparrow_Commentary : So says the freshly created new Reddit account on social media systems. Zero author citation (Neil Postamn) or book citaton or link. Just *off the cuff* conversation that is in reader minds for 8 or 9 seconds and context change to a different author. Russia won Surkov won, Putin wonce since year 2013. Time and time again social media brainrot invovles avoiding nonfiction learning of media ecology. ===:::
