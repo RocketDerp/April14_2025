@@ -942,3 +942,13 @@ https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates
 elvensnowfae 2021-03-02
 
 "This is so stupid lol. Like if someone told me this was a photoshopped screen shot of what DT said I'd believe it. He's a caricature of himself. I'm not trying to get political, I just can't believe our president calls people losers and talks this way. It's so embarrassing."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/net8om6/
+
+bbyxmadi 2020-06-07
+
+"I’ll never forgive them. They thought Harris was bad, but the current administration took their worries and quadrupled them. I still can’t believe people who claimed to care about Gaza voted for him, it blows my mind."
+
+* :::=== RoundSparrow_Commentary : Hate as religion. Hate as core faith value. Never ever forgive Americans. Thrilled that Russia won the meme war against USA since year 2013 so there are local people to hate upon. Don't address the Fox News system (HDTV television network systems) content proble, hate and dehumanize living persons. That's the messages of MAGA values: deport those you hate, block those you hate, hate harder, hate thy enemy, hate thy neighbor, prize hate itself. As if hate is fun and enjoyable, it is not. ===:::
