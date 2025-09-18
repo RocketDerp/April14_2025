@@ -583,3 +583,10 @@ https://www.wytv.com/news/daybreak/surprising-marketing-gimmick-used-by-elvis-pr
 
 study example: Star Wars asset owners supporting billionare media causes while selling to the audience "I hate Disney-like The Media catels" content.    
 [https://i.redd.it/1u4uolmmexpf1.jpeg](https://old.reddit.com/r/AdviceAnimals/comments/1nk8ggg/not_cool_man/)
+
+&nbsp;
+
+### Trickle Down Content 
+
+Massive networks of billionare-owned media outlets speak with directed talking points? Saying it serves a local community without teaching Edward Bernays comprehension of telvision outcomes.    
+https://old.reddit.com/r/ThatsInsane/comments/1nk5y8h/fox_abc_cbs_and_nbc_local_news_stations_all_owned/
