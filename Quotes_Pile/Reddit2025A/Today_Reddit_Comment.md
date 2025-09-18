@@ -686,3 +686,11 @@ https://old.reddit.com/r/Fauxmoi/comments/1njrkuq/breaking_per_wsj_media_reporte
 irisxxvdb 2019-06-12
 
 "All of the memes the shooter wrote on those bullet casings were far far right dog whistles. Groypers (Nick Fuentes supporters) have an incredibly specific way of speaking and this is it. Why is this even up for discussion? Terrifying that this is getting him fired."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1njrkuq/breaking_per_wsj_media_reporter_disneys_abc_is/nesog7w/
+
+WALPURGlS 2021-06-04
+
+"Reddit already monitors upvotes. Twitter owned by Musk. Youtube agreed to do Israeli propaganda. TikTok about to become owned by the US. It is so over."
