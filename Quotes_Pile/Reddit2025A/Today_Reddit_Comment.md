@@ -120,6 +120,18 @@ Ethroptur1 2025-03-28 (new this year)
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1nk8nmq/trump_wants_the_people_he_deported_back/new295p/
+
+JoesGreatPeeDrinker 2025-08-07 (recent account)
+
+"I think a lot of people forget trumps playbook.
+
+Trump creates a manufactured problem. He has done this so many times in the past. Then he finds a solution, and he blames the problem on biden or Obama. Then conservatives just pretend that it was biden who actually caused the problem not Trump, and Trump fixed it easily."
+
+* :::=== RoundSparrow_Commentary : Recency bias. Putin's play. Surkov students play. People are uanble to sustain focus on important concerns. There is so much amusement-washing LOL-washing humor-washing on social meme sites that people are constantly having their minds reset to forget... exctly what Russian Surkovian governing techniques do to a population. Constantly stimulating We The People with absurd surreal brain exploits. No defense has been found, Russia has been controlled using these techniques for 25 years under Putin. Constant normalization of terrible and bad outcomes, such as death of Russians to Ukraine war - serving no goodness. ===:::
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
