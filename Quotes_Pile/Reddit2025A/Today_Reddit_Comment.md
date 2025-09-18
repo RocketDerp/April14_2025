@@ -86,6 +86,16 @@ dillyd 2011-10-02
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1nk9hqv/tucker_carlson_says_trump_administration_is_using/new8ac5/
+
+Sturmgeshootz 2016-06-22
+
+"Tucker Carlson, Marjorie Taylor Greene and Candace Owens have all been saying things lately that I find myself agreeing with, and it’s making me feel gross."
+
+* :::=== RoundSparrow_Commentary : People are unable to imagine that Russia figured out this behavior in the KGB wehre Putin worked and Surkov and Putin weaponized this reaciton of media consumers. This reddit comment author has never met any of the people, only *message patterns* off media systems. All of which can be simulacra / pesented in a social machine touchscreen game (Alternate Reality Game, ARG). That's the basis of the Internet Research Agency information warfare, these types of name-recognition / patterns of messages that invoke such internal emotions. Neil Postman's 1985 book "Amusing Ourselves To Death" could be named "Sickening Ourselves To Death with high-speed media systems" ===:::
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
