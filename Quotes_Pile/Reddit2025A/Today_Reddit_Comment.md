@@ -694,3 +694,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1njrkuq/breaking_per_wsj_media_reporte
 WALPURGlS 2021-06-04
 
 "Reddit already monitors upvotes. Twitter owned by Musk. Youtube agreed to do Israeli propaganda. TikTok about to become owned by the US. It is so over."
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1njrkuq/breaking_per_wsj_media_reporter_disneys_abc_is/nesn00j/
+
+alison_bee 2011-08-29
+
+"One day everyone will realize that no one is coming to help us. If we want this to stop, we have to do it.
+
+What do we do? I don’t fucking know. But I do know that the people in power right now are not going to give it up easily, and things are declining at an alarming rate.
+
+Every day that we stay in this shit, it’s going to get harder for us, and easier for them."
