@@ -2,6 +2,7 @@ https://old.reddit.com/r/politics/comments/1nkgr63/trump_floats_pulling_licenses
 
 https://old.reddit.com/r/politics/comments/1nkgr63/trump_floats_pulling_licenses_if_networks_are/ney4hjx/
 
+https://old.reddit.com/r/liberalgunowners/comments/1nkj31w/well_that_was_quick/ney84oi/
 
 
 # Thursday September 18, 2025
