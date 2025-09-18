@@ -66,6 +66,17 @@ is that what's happening here?"
 
 &nbsp;
 
+https://old.reddit.com/r/nottheonion/comments/1nk7bk4/bethesda_deletes_indiana_jones_and_the_great/nevps62/
+
+chaimberlainwaiting 2016-12-06
+
+"It's telling that just making a vague reference to fascists and they immediately take offence. No fingers need be pointed, there's an auto-association."
+
+* :::=== RoundSparrow_Commentary : Symptoms of the Russian mental manipulation since year 2013. Symptoms of the Internet Research Agency outcomes / Cambridge Analytica outcomes. ===:::
+
+
+&nbsp;
+
 # Wednesday September 17, 2025
 
 &nbsp;
