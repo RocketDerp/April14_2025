@@ -188,6 +188,14 @@ meatballwarlock 2025-07-20 (recent account)
 
 &nbsp;
 
+https://old.reddit.com/r/politics/comments/1nkdylo/trump_says_charlie_kirk_could_have_been_a_future/nex5zbj/
+
+TintedApostle 2022-01-15
+
+"They sure are pulling out all the myths now. I bet he could have walked on water, turned water into wine, been a virgin birth... who knows what they will attribute to him."
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
