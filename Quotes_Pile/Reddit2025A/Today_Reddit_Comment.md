@@ -832,3 +832,15 @@ VlCEROY 2017-11-06
 Albo did absolutely nothing when Trump threatened Canadian sovereignty and yet you expect the UK to throw a fit over something so minor as this?"
 
 * :::=== RoundSparrow_Commentary : Russian mental manipulation is being reported all over the world. For example Japan: https://www.japantimes.co.jp/news/2025/07/18/japan/politics/russia-influence-japan-election/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1njz57z/australian_broadcasting_corporation_blocked_from/neue4h5/
+
+Slinky812 2022-06-09
+
+"Trump: “In my opinion, you are hurting Australia very much right now, and they want to get along with me,” Lol Mate, you couldn’t find a country that hates/is laughing at you more."
+
+* :::=== RoundSparrow_Commentary : Amusement-washing / LOL-washing / humor-washing. Exactly what Trump does to all human minds as ane xploit. The foundation of Surkov governing is resetting minds / changing focus of minds to be addicted to humor and mocking. Entertainment-washing / mocking-washing of Trump becomes self-harm. All rituals of government get replaced by entertinment audience mindsets. Neil Postmans' 1985 book "Amusing Ourselves To Death". Even **Austrlian* strategic thinking recognized minor aspects of this year Neil Postman described crisis. 
+... ... ...
+"‘Amusing ourselves to death’ in age of TikTok" 1 March 2025 https://www.aspi.org.au/opinions/amusing-ourselves-to-death-in-age-of-tiktok/ ===:::
