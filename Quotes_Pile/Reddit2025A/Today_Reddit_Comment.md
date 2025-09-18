@@ -196,6 +196,14 @@ TintedApostle 2022-01-15
 
 &nbsp;
 
+https://old.reddit.com/r/news/comments/1nkcdls/president_trump_asks_the_supreme_court_for_an/nexh7d5/
+
+Turfyleek93 2012-12-31
+
+"I am so fucking sick and tired of this country being run into the ground. Fuck everyone who is letting this happen."
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
