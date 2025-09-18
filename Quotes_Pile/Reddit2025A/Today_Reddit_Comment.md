@@ -162,6 +162,25 @@ PlutoJones42 2019-01-17
 
 &nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nkceyl/conservative_advocate_and_trump_supporter_tucker/newv7c5/
+
+Typical-Locksmith-35 2021-07-19
+
+<img width="1036" height="1036" alt="image" src="https://github.com/user-attachments/assets/46ccf861-a624-45ee-aa34-1e270558da89" />
+
+&nbsp;
+
+"He still works for them. But Trump has for decades longer.
+
+I think we're watching professional wrestling with two actors paid for by the same organization and they need good storylines for their role to keep being worth their pay."
+
+
+&nbsp;
+
+&nbsp;
+
 # Wednesday September 17, 2025
 
 &nbsp;
