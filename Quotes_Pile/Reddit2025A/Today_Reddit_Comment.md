@@ -678,3 +678,11 @@ onomatopeapoop 2025-07-02
 It will take time to find out the full truth, but hardly anyone in our society actually cares about truth any more. Which is frightening, because what remains is indistinguishable from madness. Trumpian madness at that, basically choosing/constructing your own personal “reality” with no regard to actual reality. And circling back around, it’s social media brainrot that’s behind this phenomenon as well, IMO."
 
 * :::=== RoundSparrow_Commentary : So says the freshly created new Reddit account on social media systems. Zero author citation (Neil Postamn) or book citaton or link. Just *off the cuff* conversation that is in reader minds for 8 or 9 seconds and context change to a different author. Russia won Surkov won, Putin wonce since year 2013. Time and time again social media brainrot invovles avoiding nonfiction learning of media ecology. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1njrkuq/breaking_per_wsj_media_reporter_disneys_abc_is/neshmvu/
+
+irisxxvdb 2019-06-12
+
+"All of the memes the shooter wrote on those bullet casings were far far right dog whistles. Groypers (Nick Fuentes supporters) have an incredibly specific way of speaking and this is it. Why is this even up for discussion? Terrifying that this is getting him fired."
