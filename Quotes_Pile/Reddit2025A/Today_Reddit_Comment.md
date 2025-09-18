@@ -16,6 +16,24 @@ Either way American conservatives and Islams are pretty distinct"
 
 &nbsp;
 
+https://old.reddit.com/r/dataisbeautiful/comments/1nk73a8/politically_motivated_murders_in_the_us_by/nevwrpu/
+
+The_Emu_Army **2025-09-12 (new account)**
+
+"I don't agree. The elephant in the room (9/11) was Osama's surprisingly successful plan, and Osama said quite plainly that he did it because of US troops on holy land, and US support of Israel.
+
+That is, nationalism.
+
+And in a sense, Osama got some of what he wanted. Most of the hijackers were Saudis, and now Saudi Arabia has armed itself (with US weapons) so it can take care of business without US help. Osama also got a war in Iraq, and a war in Afghanistan. In Iraq a Sunni dictator was deposed, and a Shia government took over. That's not exactly what Osama would have wanted, but it's a step in the right direction. And Afghanistan is EXACTLY what he wanted it to be.
+
+You can't fight a religion. You can only fight against states or their terrorist representatives, and some states are motivated by religion so you'll have to occupy them for generations before their religious fervor is gone.
+
+If we'd only known this before. But we (and I include Australia) were fighting mad."
+
+* :::=== RoundSparrow_Commentary : Religions based on science fiction, cults based on science ficiton have to not take over. A suicide cult that believes in heaven after death, with no evience, is a know exploit of the human mind / brain and needs to be treated this way. Weapon systems are too powerful. Democracy can not work if people don't actually desire to love one another / comapssion for one another. Racial based conquest and hate are toxic to the world. ===:::
+
+&nbsp;
+
 # Wednesday September 17, 2025
 
 &nbsp;
