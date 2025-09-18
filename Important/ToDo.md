@@ -1575,3 +1575,9 @@ https://old.reddit.com/r/traumatizeThemBack/comments/1nk3doy/my_coworker_loved_m
 
 Front page: Autism vs. Measles     
 https://old.reddit.com/r/CuratedTumblr/comments/1nk70ho/as_an_autistic_person_id_rather_have_autism_than/
+
+&nbsp;
+
+Cult language / Jesus / Jim Jones / Taylor Swift    
+17 million channel on YouTube    
+https://www.youtube.com/watch?v=c7wCbbmLtiI
