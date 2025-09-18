@@ -804,3 +804,13 @@ PleaseStandClear 2016-11-06
 This embarrassing clown has made America the laughing stock of the world.
 
 Edit - for those commenting that I shouldn’t have voted for him - I’m Australian."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1njz57z/australian_broadcasting_corporation_blocked_from/neu6e5h/
+
+Blood-blood-blood 2025-06-12 (new this year)
+
+"He is making the world laughing stock as other countries bend to his will as well."
+
+&nbsp;
