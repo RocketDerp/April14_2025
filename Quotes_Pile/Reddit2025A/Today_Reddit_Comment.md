@@ -586,3 +586,11 @@ https://old.reddit.com/r/news/comments/1njs8qr/abc_suspends_jimmy_kimmels_lateni
 Pierre_St_Pierre 2018-04-17
 
 "Even the “free press” is largely captured by Billionaires that use their voice to prop up policies that crush the underclass. So even as a bastion against less insidious presidents it’s been completely ineffective but now it’s ineffective and becoming illegal to do good unbiased journalism."
+
+&nbsp;
+
+https://old.reddit.com/r/news/comments/1njs8qr/abc_suspends_jimmy_kimmels_latenight_show/neslm0t/
+
+PrincessImpeachment 2023-12-12
+
+"And the entire subreddit full of Trump’s little mushroom suckers is celebrating the end of free speech. How fucking ironic."
