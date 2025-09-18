@@ -42,6 +42,10 @@ When there **are children** in the marriage, say age 36 and the couple has been 
 
 The child custody battles I have witnessed. Adult divorced people at age 41 who have children now age 10 and age 8. And I have met dozens of them in person in taverns / bars / my travels all over USA in an RV. And the HATE these people have for the person they married, the person they loved the most in the entire world at age 26, now at age 41 they HATE they HATE they HATE and the hate is incredibly toxic. They wreck the children's future in competitive hate with their ex-spouse, ex-wife, ex-husband. They describe it for hours in details and if you meet these people multiple times over months and years it sustains, a constant stage of extreme hate. For the person they loved more than any other in the world. the egomaniac situations I have witnessed. And I have seen it time and time again in multiple geographic conditions. Dozens and dozens of such people since year 1982 when I started truly listening to people's motivations. Hate.
 
+&nbsp;
+
+After I created this draft page, a Reddit front page example same morning:    
+https://old.reddit.com/r/interestingasfuck/comments/1nka7h8/man_buys_house_next_to_his_ex_wife_and_installs_a/
 
 &nbsp;
 
