@@ -760,3 +760,11 @@ https://old.reddit.com/r/AskReddit/comments/1njs5cd/abc_just_pulled_jimmy_kimmel
 ButtersBC 2016-12-30
 
 "The movies about an America under authoritarianism always at least made it look less stupid than this, instead we have a senile moron directing a group of dipshits to pretend that a murdered white supremacist is something we all should care about forever, shit's bleak"
+
+&nbsp;
+
+https://old.reddit.com/r/videos/comments/1njvf76/the_monologue_that_got_jimmy_kimmel_canceled/netezn2/
+
+pakkit 2011-04-28
+
+"It's not this one either. Trump has wanted Jimmy Kimmel gone for years, and was speculating on his exit just last month. This monologue is a scapegoat, but the way the media is reporting this as if this is the reason is dangerous and ignores the authoritarian bullying at the root of this move by the Trump administration."
