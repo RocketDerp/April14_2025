@@ -74,6 +74,17 @@ chaimberlainwaiting 2016-12-06
 
 * :::=== RoundSparrow_Commentary : Symptoms of the Russian mental manipulation since year 2013. Symptoms of the Internet Research Agency outcomes / Cambridge Analytica outcomes. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/shittymoviedetails/comments/1nk5ydq/in_pulp_fiction_mia_wallace_eats_an_entire/new1ug7/
+
+dillyd 2011-10-02
+
+"Do people in this sub even watch the movies they’re making fun of?"
+
+* :::=== RoundSparrow_Commentary : Reddit is full of nonsensical paradox mind exploits. As too are other social sites. I can't keep up documenting even a fraction of one site on how this is a mind-fuck training camp to create bewildered and confused meme addicts since year 2013. People who think mocking Donald Trump is the peak of intelligence and cleverness. This is Hell itself. Anything to avoid nonfiction and media ecology self-awareness is the payload. ===:::
+
+&nbsp;
 
 &nbsp;
 
