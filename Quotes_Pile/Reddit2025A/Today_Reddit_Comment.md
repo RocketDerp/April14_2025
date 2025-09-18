@@ -200,7 +200,13 @@ https://old.reddit.com/r/news/comments/1nkcdls/president_trump_asks_the_supreme_
 
 Turfyleek93 2012-12-31
 
+<img width="960" height="340" alt="image" src="https://github.com/user-attachments/assets/7c57e5af-8d48-471c-ba6e-2d081b9ddb4b" />
+
+&nbsp;
+
 "I am so fucking sick and tired of this country being run into the ground. Fuck everyone who is letting this happen."
+
+* :::=== RoundSparrow_Commentary :  I keep witnessing the same messages: Fuck Ameicans. I hate Americans. I hate Americans label A, I hate Ameians label B. A united fiath in September 2025: hate Americans. ===:::
 
 &nbsp;
 
