@@ -218,6 +218,14 @@ ManifestDestinysChld 2015-02-08
 
 &nbsp;
 
+https://old.reddit.com/r/SonicTheHedgehog/comments/1nkc0g2/hhe_did_it/newz0jw/
+
+ICouldIfIWanted 2017-06-07
+
+"Man, you haven't been on Twitter have you? Plumber boys got really, and I mean REALLY, mad at that Crossworlds ad and Sonic fans making fun of them and Mario Kart World. They've been wishing the game to fail and spewing vitriol non-stop these past few days over some jokes and banter, calling Sonic fans every name under the Sun. It's like SEGA and the rest of us killed their pet or something. They're clearly pressed and insecure that MKW was a miss and Sonic came out swinging just some months after"
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
