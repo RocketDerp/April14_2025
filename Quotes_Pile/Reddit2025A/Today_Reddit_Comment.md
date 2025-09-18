@@ -630,3 +630,13 @@ https://old.reddit.com/r/popculturechat/comments/1njru8r/abc_pulls_jimmy_kimmel_
 merlotbarbie 2019-09-12
 
 "So many ancestors are rolling in their graves. There were so many lives lost and ruined to build this country and we decided to just throw all of that in the trash"
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njru8r/abc_pulls_jimmy_kimmel_live_after_charlie_kirk/nespvco/
+
+fishonthemoon 2012-06-02
+
+"This is egregious. I cannot believe these networks are just folding and participating in the erosion of this country.
+
+When are Americans going to wake up and realize what’s happening?? Meanwhile, the dude who said homeless people should be killed on Fox News still has a job."
