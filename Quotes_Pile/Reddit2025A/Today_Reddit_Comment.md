@@ -844,3 +844,27 @@ Slinky812 2022-06-09
 * :::=== RoundSparrow_Commentary : Amusement-washing / LOL-washing / humor-washing. Exactly what Trump does to all human minds as ane xploit. The foundation of Surkov governing is resetting minds / changing focus of minds to be addicted to humor and mocking. Entertainment-washing / mocking-washing of Trump becomes self-harm. All rituals of government get replaced by entertinment audience mindsets. Neil Postmans' 1985 book "Amusing Ourselves To Death". Even **Austrlian* strategic thinking recognized minor aspects of this year Neil Postman described crisis. 
 ... ... ...
 "‘Amusing ourselves to death’ in age of TikTok" 1 March 2025 https://www.aspi.org.au/opinions/amusing-ourselves-to-death-in-age-of-tiktok/ ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1njz57z/australian_broadcasting_corporation_blocked_from/neut5de/
+
+FemmeWizard 2023-06-27
+
+"It's so fucking pathetic how seemingly everyone in power is catering to this disgusting manchild. Makes me lose all hope in humanity."
+
+* :::=== RoundSparrow_Commentary : David Foster Walace tried to get serious people to focus on not using mindsets of humor and jokes all the time, "New Sincerity" movement. This is a human brain inward problem. People who prize hate if it is funny to LOL at suffering, like the wealthy are now LOL mocking at the poor under Putin and Trump's leadership signals of *hate harde*, *mock harder*. Laughter is the best mind-fuck, self-dehumanization, self-exploit of brain. https://en.wikipedia.org/wiki/New_sincerity ===:::
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/antiwork/comments/1njxd5n/george_carlin_is_rolling_over_in_his_grave_right/nev0mr8/
+
+marr 2007-07-14
+
+<img width="1972" height="854" alt="Screenshot from 2025-09-18 03-25-13" src="https://github.com/user-attachments/assets/576bb41a-540c-4331-8ad5-a680593b12c6" />
+
+&nbsp;
+
+"Burn it all down is a popular philosophy with those who haven't experienced being on fire yet."
