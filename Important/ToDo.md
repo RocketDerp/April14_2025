@@ -1570,3 +1570,8 @@ https://old.reddit.com/r/politics/comments/1njm67i/maga_lawmaker_calls_to_forcef
 
 Autism, autism *disorder* of language. Spoken, written,listening. Autism is accent outside of everyone else. "Wrong Planet" autism support website metaphor. Finnegans Wake by James Joyce is the autism langauge expeirence with how people react and treat you. I've been in support groups for 16 years and hear the story and patterns of behavior / hate / over and over. and Tower of Babel study / I've lived in North America, South Ameirica, North Africa, Middle East, Indonesia, Malaysia, Cypruss. All over USA in RV, both North and SOuth, both East and West I have lived. And the way humans mock and hate upon each other over language, the core of what Finnegans Wake exposes....    
 https://old.reddit.com/r/traumatizeThemBack/comments/1nk3doy/my_coworker_loved_mocking_my_accent_so_i_gave_it/
+
+&nbsp;
+
+Front page: Autism vs. Measles     
+https://old.reddit.com/r/CuratedTumblr/comments/1nk70ho/as_an_autistic_person_id_rather_have_autism_than/
