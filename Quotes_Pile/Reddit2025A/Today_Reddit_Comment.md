@@ -935,3 +935,10 @@ AdmiralJaneway8 2021-08-23
 
 "Better be careful what we say here. Before the shutting down of our freedom of speech filters down to reddit. Before we can't say how much we fucking hate Donald Trump and his entire regime. Before we can't say that dear leader and his fuckface fuckers are literally hurting us all for their own joy in our suffering."
 
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/netvd7x/
+
+elvensnowfae 2021-03-02
+
+"This is so stupid lol. Like if someone told me this was a photoshopped screen shot of what DT said I'd believe it. He's a caricature of himself. I'm not trying to get political, I just can't believe our president calls people losers and talks this way. It's so embarrassing."
