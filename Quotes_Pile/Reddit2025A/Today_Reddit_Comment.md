@@ -134,6 +134,22 @@ Trump creates a manufactured problem. He has done this so many times in the past
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1nk8nmq/trump_wants_the_people_he_deported_back/new0j4p/
+
+ImNotAPoetImALiar 2024-11-12 (election 2024, note meaning of username)
+
+<img width="958" height="424" alt="image" src="https://github.com/user-attachments/assets/c0271dcd-4054-417d-a544-3087eb230da6" />
+
+&nbsp;
+
+"At some point I hope, “but republicans said the opposite of what they’re doing!” Stops being an insult. Hypocrisy is not the dig you think it is to these people."
+
+* :::=== RoundSparrow_Commentary : Mocking Donald Trump is not resisting Donald Trump. Mocking MAGA is not resisting MAGA. Faith in anti-sicence, faith in entertainment-based leadership, faith in total mockery itself keeps expanding since the March 2013 Putin Media Invasion / Internet Research Agency ramp-up. Being serious and turning to nonfiction study of media ecology is resisting. Being anti-hate of ALL people is resisting. Promoting tribalism, one party dominating with fiction and amusement, is not resisting. ===:::
+
+&nbsp;
+
+&nbsp;
+
 # Wednesday September 17, 2025
 
 &nbsp;
