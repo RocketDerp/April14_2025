@@ -1164,3 +1164,16 @@ deleted unable to determine account name or date
 Project 2025 is being brought in under budget and much earlier than their gantt timeline had predicted.
 
 All because the country has rolled over and is accepting the inevitable. Just close your eyes; it’ll all be over soon."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1nkagvd/donald_trump_says_vladimir_putin_has_really_let/newhm2w/
+
+andimacg 2014-09-10
+
+"The way this guy speaks is unbelievable.
+
+Putin invaded a sovereign nation and is bombing it's civilians, but it's YOU he let huh Donald? It's all about what he's doing to YOU."
+
+* :::===  "Hitler is himself the nation. That incidentally is why Hitler always has to talk so loud, even in private conversation — because he is speaking with 78 million voices." - Doctor Carl G. Jung -
+During an interview with H. R. Knickerbocker (1939) ===:::
