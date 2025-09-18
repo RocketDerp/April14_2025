@@ -734,3 +734,11 @@ https://old.reddit.com/r/PoliticalHumor/comments/1njsqwr/congratulations_to_jimm
 beeradvice 2015-01-03
 
 "Trailet parks on the south are more diverse than neighborhoods on the north, but you can bet the nearest polling place is miles away from them. Talking shit on the lower classes is how the base got lost to maga to begin with. Neither party has done much but simply not actively talking shit about the working class is how they won that culture war. Maybe don't dig that grave deeper"
+
+&nbsp;
+
+https://old.reddit.com/r/AskReddit/comments/1njs5cd/abc_just_pulled_jimmy_kimmel_live_indefinitely/nesjwqp/
+
+wish1977 2021-01-31
+
+"Hannity says worse than that every single day of the week. I see little difference right now between the Trump administration and the Putin administration. If you don't kiss the ring they find a way to eliminate you."
