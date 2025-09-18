@@ -868,3 +868,70 @@ marr 2007-07-14
 &nbsp;
 
 "Burn it all down is a popular philosophy with those who haven't experienced being on fire yet."
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/net7pak/
+
+DeeDeeW1313 2022-02-05
+
+"I can’t believe this is real life."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/net5v72/
+
+doomandgloomm 2023-08-27
+
+"It hasn't even been a full year yet since he started this term yet it feels like its been a damn life time."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/net4mh2/
+
+Silverdoesnark 2022-10-31
+
+"As a non American I still can’t get my head around a nation’s leader acting like this 😬😬"
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/netaav7/
+
+spilly_talent 2021-04-24
+
+"I literally will never get over the fact that these tweets come from the president of the United States. The leader of one of the most powerful nations in the world tweets like a middle schooler. Insane stuff."
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/netdfog/
+
+estedavis 2023-03-14
+
+"Yeah, I’ve been feeling extra sad for America this week. This is such an escalation. I feel like we are watching America fall in real time and it’s pretty unreal"
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/net3lml/
+
+kookiekoo 2018-04-18
+
+"The end of civilized society as we know it started in 2016 with the election of Trump"
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/net7iyq/
+
+Mochadoc23 2020-12-15
+
+"The social media post made by the president, is actually worse than the comment that got him “suspended indefinitely”. Funny how Trump gets to celebrate and make fun of everyone’s misfortune, but yet the Right is hunting actively for any comment that doesn’t absolutely condemn the killing…"
+
+&nbsp;
+
+https://old.reddit.com/r/popculturechat/comments/1njui4v/donald_trump_celebrates_jimmy_kimmel_cancellation/net64gw/
+
+AdmiralJaneway8 2021-08-23
+
+"Better be careful what we say here. Before the shutting down of our freedom of speech filters down to reddit. Before we can't say how much we fucking hate Donald Trump and his entire regime. Before we can't say that dear leader and his fuckface fuckers are literally hurting us all for their own joy in our suffering."
+
