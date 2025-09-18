@@ -590,3 +590,22 @@ study example: Star Wars asset owners supporting billionare media causes while s
 
 Massive networks of billionare-owned media outlets speak with directed talking points? Saying it serves a local community without teaching Edward Bernays students techniques, Neil Postman's media ecology comprehension of telvision outcomes.    
 https://old.reddit.com/r/ThatsInsane/comments/1nk5y8h/fox_abc_cbs_and_nbc_local_news_stations_all_owned/
+
+&nbsp;
+
+### The Message Crashes Your Brain
+
+Being able to fake voice calls and text messages to loved ones to declare someone was killed. Especially if some labor goes into matching it up to a airport trip or train trip or ocean crossing where a lot of conditoined society anxiety media exists.
+
+Being able to fake evidence of an affair / cheating at a job or in a intimate relationshp.
+
+A music video going vial from South Korea, which was not known for world music industry like "The Brish Invasion" of The Beatles world wide or Michael Jackson USA world wide, etc.
+
+Content that alters states of mind.
+
+Marshall McLuhan saying LSD drug users at his unversity said Finnegans Wake poetry, oral reading of The Wake...
+
+Animation triggering known defects in the mind. Is a specific genetic disorder identified on this now?  
+https://old.reddit.com/r/Damnthatsinteresting/comments/1nkh04y/a_pok%C3%A9mon_episode_caused_about_600_people_to_have/
+
+Is Lisztomania real? https://en.wikipedia.org/wiki/Lisztomania
