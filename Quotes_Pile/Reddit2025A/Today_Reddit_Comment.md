@@ -814,3 +814,21 @@ Blood-blood-blood 2025-06-12 (new this year)
 "He is making the world laughing stock as other countries bend to his will as well."
 
 &nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1njz57z/australian_broadcasting_corporation_blocked_from/neuwgm4/
+
+fiddle_me_timbers  2012-06-21
+
+"If you think this is the result of a single man, you have no idea what is really going on. There are many forces at play. Heritage Foundation, Newscorp, etc. etc. Trump was just the final card to make the stack fall."
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1njz57z/australian_broadcasting_corporation_blocked_from/neualhu/
+
+VlCEROY 2017-11-06
+
+"You're too naïve. Basically all Western leaders (including Australia) are trying to placate Trump until he's gone.
+
+Albo did absolutely nothing when Trump threatened Canadian sovereignty and yet you expect the UK to throw a fit over something so minor as this?"
+
+* :::=== RoundSparrow_Commentary : Russian mental manipulation is being reported all over the world. For example Japan: https://www.japantimes.co.jp/news/2025/07/18/japan/politics/russia-influence-japan-election/ ===:::
