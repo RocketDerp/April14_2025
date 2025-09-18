@@ -150,6 +150,18 @@ ImNotAPoetImALiar 2024-11-12 (election 2024, note meaning of username)
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1nk8nmq/trump_wants_the_people_he_deported_back/nevypte/
+
+PlutoJones42 2019-01-17
+
+"This administration is an absolute clown show"
+
+* :::=== RoundSparrow_Commentary : yes, and USA population is addicted to mocking and insulting clown shows. That's the whole basis of Putin's defeat of the USA. Surkovian governing. People compusively are drawn to hand over power and wealth to Donald Trumpb because the "clown show" is so entertaining. Reddit and Bluesky community constantly rate and insult how bad the clown performances are, day after day. Howdy Doody is a famous clown show.
+... ... ...   
+"For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. All that has happened is that the public has adjusted to incoherence and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World. ” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985 ===:::
+
+&nbsp;
+
 # Wednesday September 17, 2025
 
 &nbsp;
