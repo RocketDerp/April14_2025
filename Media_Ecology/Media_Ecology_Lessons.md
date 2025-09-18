@@ -569,3 +569,17 @@ Automtic hate of Japan body types, sign writen in English by Chinese worker.
 https://old.reddit.com/r/Damnthatsinteresting/comments/1nj8obm/a_chinese_american_wearing_a_sign_saying_hes/
 
 "the consciousness of which it is a vehicle. This is something I learned from myths. What am I? Am I the bulb that carries the light, or am I the light of which the bulb is a vehicle?" - Joseph Campbell, Poer of Myth, age 82
+
+&nbsp;
+
+# The Rights to "Elvis" merchandise
+
+Media Ecology 120
+American Media Cartels
+
+https://www.wytv.com/news/daybreak/surprising-marketing-gimmick-used-by-elvis-presleys-manager/
+
+"But some people did not love Elvis — older people who did not appreciate his hip-swigging new music. Parker began to sell “I Hate Elvis” buttons so he could make money either way. The only button he didn’t sell was something saying, “I feel ambivalent about Elvis.” In a book titled ‘Colonel (The True Story of Colonel Tom Parker and Elvis Presley),’ author Alanna Nash mentions the badges."
+
+study example: Star Wars asset owners supporting billionare media causes while selling to the audience "I hate Disney-like The Media catels" content.    
+[https://i.redd.it/1u4uolmmexpf1.jpeg](https://old.reddit.com/r/AdviceAnimals/comments/1nk8ggg/not_cool_man/)
