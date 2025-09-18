@@ -716,3 +716,13 @@ DreadfulDemimonde 2023-05-17
 "Because Christianity is centered on martyrdom. The messiah was a martyr, so the church essentially deifies the practice. But you can't have a martyr without persecution, which is why so many Christians see persecution everywhere— they're told that non-Christians hate them and are being used by Satan to lure them away from their faith. Martyrdom is basically the top level achievement and offers the perfect opportunity to say "See? They all hate us! We must save this country from their evilness."
 
 CK's murder is literally a Christian Nationalist wet dream."
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1njsqwr/congratulations_to_jimmy_state_media_fallon_for/nesryzm/
+
+HappyHarryHardOn 2008-12-04
+
+"they are desperately trying to create a left vs right problem when it should really be we have an ultra-rich problem"
+
+* :::=== RoundSparrow_Commentary : Such extreme denial in September 2025. The problem since March 2013 has been Russia vs. USA meme war, and *nobody* faought back. The commercial artists / graphics artists / clergy / comic artists / vidoe game artists - did not fight back against Russia in the monomyth meme war. Surkov won. Putin kicked NATO and USA ass since March 2013 and has sustained the Ukraine war since February 2014. Americans (We The People) can not engage and locate nonfiction about information warfare, minds are repulised by nonfiction learning of media ecology topics. Reddit and other amusemnet mills keep humor-washing the IRA invasion. ====:::
