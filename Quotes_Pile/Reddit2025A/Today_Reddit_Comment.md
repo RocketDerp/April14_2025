@@ -34,6 +34,18 @@ If we'd only known this before. But we (and I include Australia) were fighting m
 
 &nbsp;
 
+https://old.reddit.com/r/nottheonion/comments/1nk7bk4/bethesda_deletes_indiana_jones_and_the_great/nevr2r0/
+
+nankerjphelge 2013-02-10
+
+"I used to wonder how it could have been possible for fascist authoritarianism to have spread so quickly in a country like Germany in the 1930s, which had been one of the most progressive countries in the world up to that point.
+
+I wonder that no more."
+
+* :::=== RoundSparrow_Commentary : "And if this is 'banal' and even funny, if with the best will in the world one cannot extract any diabolical or demonic profundity from Eichmann, this is still far from calling it commonplace… That such remoteness from reality and such thoughtlessness can wreak more havoc than all the evil instincts taken together which, perhaps, are inherent in man—that was, in fact, the lesson one could learn in Jerusalem.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil ===:::
+
+&nbsp;
+
 # Wednesday September 17, 2025
 
 &nbsp;
