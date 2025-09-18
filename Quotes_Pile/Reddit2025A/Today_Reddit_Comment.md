@@ -112,6 +112,14 @@ ForrestDials8675309 2024-11-07 (election 2024)
 
 &nbsp;
 
+https://old.reddit.com/r/worldnews/comments/1nk6qzi/tyranny_threatens_europe_king_charles_voices/nevnoht/
+
+Ethroptur1 2025-03-28 (new this year)
+
+"The fact he's openly stating his political position on Ukraine is unprecedented for the modern day monarchy. Hopefully this reminds people of how serious this situation is, and to not vote for Farage, who engages in Putin apologia."
+
+&nbsp;
+
 &nbsp;
 
 # Wednesday September 17, 2025
