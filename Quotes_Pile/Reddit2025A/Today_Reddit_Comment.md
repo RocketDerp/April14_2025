@@ -1,3 +1,21 @@
+# Friday September 19, 2025
+
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nl0tew/the_president_suggests_broadcasters_could_be/nf1yl3h/
+
+Freud-Network 2023-12-05
+
+"With Republicans, every accusation is an admission of guilt that they have done or desire to do the thing they are raging about.
+
+The same shameless people who complained about cancel culture are now using the government to extort media networks to censor opinions they don't like."
+
+* :::=== RoundSparrow_Commentary :  Many People can't read any Levant religion text and locate goodness. And people behaved shocked that other information about goodness is completely bakwards. The Bible is 2,000 years old and meme sociies think it is not worth the effort to teach and educate he inverted meaning problems https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/ of Fox News, Newsmax, Reddit, Bluesky, Twitter, MAGA, Bible / Church.... Trump fanatics / Trump content addicts are not shameless people, they are deeply ashamed of haing homosexuals and transgeder people in their society. But Redit liks Twitter-think short messages that say they are shameless and can't recognize that they are ashamed of black skin color, ashamed of humanity and adore to worship wealth status symbols / NYC tall buildings and other objects. ===:::
+
+&nbsp;
+
+&nbsp;
+
 https://old.reddit.com/r/politics/comments/1nkgr63/trump_floats_pulling_licenses_if_networks_are/ney6k9f/
 
 https://old.reddit.com/r/politics/comments/1nkgr63/trump_floats_pulling_licenses_if_networks_are/ney4hjx/
