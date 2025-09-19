@@ -22,6 +22,18 @@ RebelStrategist 2024-12-31 (new this year)
 
 * :::=== RoundSparrow_Commentary : Every day the media addits flock to the meme networks to say these fetish lines about Donald Trump. They are trhilled to procliam how entertaining and thrilling it is to have a meme President playing Tony Clifton antics politics. Thrilled that these Russian Surkov techniques provide constant absurd surreal poop-diaper content discussion. Completely avoiding nonfiction learning of how to build a healthy society, instead wallowing in the mockery that Donald Trump creaes of the USA. This has been gong on for OVER TEN YEARS AND THREE MONTHS since Trump became the central fixation of media networks / media systems. This is a meme addled society, sickened by junk media consumption, wrecking the world with Donald Trump role model of thinking and insulting people. Shit-worshping society, year after year, admiring the media environment created by Trump and Putin. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/technology/comments/1nl0tew/the_president_suggests_broadcasters_could_be/nf1yzaf/
+
+FellowDeviant 2017-08-15
+
+"The amount of people that have been in support of what's going on with Colbert and Kimmel on FB is baffling to me. I try to tell them its not the cancelations that are concerning its the implications behind them and what they could mean going forward and I'm apparently in the minority with this thought process."
+
+* :::=== RoundSparrow_Commentary : Entertainment addicts can be very picky in their meme flavor and styles. Donald Trump has made everything in society about ratings and popularity, and fiction avoiding nonfiction. Implicates are welcomed, being able to remove music / art / spoken languages / content that is undesired, like block button on Bluesky is cheered on, like deporting undesired Spanish language speakers, filter bubble celebration. Facebook ability to use computer machines to dehumanize real people is embraced in USA society. ===:::
+
+
+
 
 &nbsp;
 
