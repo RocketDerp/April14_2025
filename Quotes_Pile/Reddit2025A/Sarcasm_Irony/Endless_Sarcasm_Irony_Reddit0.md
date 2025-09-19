@@ -604,3 +604,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1nkz9ih/crushing_response/
 
 Video gamers of Reddit (Steam) entertainment-wash the Reality TV addicts society. The Apprentice / video games / fiction addiction, "amusing ourselves to death" society thinks it is comical that Russia mind-fucked a population into endless amusement and total mockery since year 2013.   
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nl1rjf/whoops/
+
+&nbsp;
+
+"Clever Comebacks!" framing context. "Shocking" title. Endless eating of the Surkovian onions, as if Donald Trump antics to blow the mind of meme addicts on meme machines is not new. As if this is Trump's first term in office. Eldlessly shocked and mind blowing content to people unable to learn and study the mind-blowing teachings of University of Toronto's Marshall McLuhan.    
+https://old.reddit.com/r/clevercomebacks/comments/1nl3rq2/shocking_first_amendment_violation/
