@@ -42,6 +42,20 @@ Scheming_Deming 2020-05-02
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1nl0tew/the_president_suggests_broadcasters_could_be/nf2c7nf/
+
+EitherChannel4874 2023-08-18
+
+"America bitched out in a big way here. No one had the balls to stand up to Trump and now I fear it's too late.
+
+The home of the brave let a senile old criminal rapist take over and trash the constitution in less than a year with almost no pushback.
+
+It's gotta be one of the fastest and easiest hostile takeovers of a democracy in history."
+
+* :::=== RoundSparrow_Commentary : Putin spent his entire life in KGB, starting study in Germany before fall of Berlin Wall, learning manipulation. By the time the March 2013 media invasion of Reddit and other social media sites was activated, over a dozen years of success with domestic Russian warfare against comprehension, warfare against nonfictin. It was not as fast as people think, and Cambridge Analytica techniques were just not possble before the Apple iPhone addictions were / new media ecology of intimate touch screens / were fully deployed on rural less-educated USA areas. Mobile networks had to be expanded, users had to learn to use touch screens and cameras, etc. It has not bee "less than a year" as this Reddit comment says, it took since the November 7, 2013 agreement with Russia to mind-fuck the entire population into complete avoidance and citation of nonfiction on media ecology and Russian information warfare methods. ===:::
+
+&nbsp;
+
 &nbsp;
 
 https://old.reddit.com/r/politics/comments/1nkgr63/trump_floats_pulling_licenses_if_networks_are/ney6k9f/
