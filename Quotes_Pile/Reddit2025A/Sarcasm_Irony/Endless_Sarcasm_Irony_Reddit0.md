@@ -609,3 +609,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nl1rjf/whoops/
 
 "Clever Comebacks!" framing context. "Shocking" title. Endless eating of the Surkovian onions, as if Donald Trump antics to blow the mind of meme addicts on meme machines is not new. As if this is Trump's first term in office. Eldlessly shocked and mind blowing content to people unable to learn and study the mind-blowing teachings of University of Toronto's Marshall McLuhan.    
 https://old.reddit.com/r/clevercomebacks/comments/1nl3rq2/shocking_first_amendment_violation/
+
+&nbsp;
+
+Only able to see Facebook. At least on Facebook people post their face image, their house images, their real car. Reddit people cower and self-dehumanize and hide their real name and location. Mocking Facebook Americans who provide real name. Russian Internet Research Agency can't be called out by name on Reddit or Facebook. And Elon Musk Twitter, Trump Truth Social, all the other media values of a nation full of trash meme addicts who avoid nonficiton learning of media ecology from Neil Postman and go to extremes to avoid learning details of Russian information warfare and Surkov techniques of the "Fifth World War, War of All Against All".     
+https://old.reddit.com/r/mildlyinfuriating/comments/1nl6234/decided_to_join_facebook_for_the_first_time_5/
