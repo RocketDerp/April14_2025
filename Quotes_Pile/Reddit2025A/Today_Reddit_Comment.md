@@ -68,6 +68,16 @@ knock-on-the-door **2025-09-14 (new account)**
 
 &nbsp;
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1nkuilj/petah_what_is_the_worker_scared_of/nf0tlen/
+
+Ecstatic_Newspaper_5 2020-10-01
+
+"You know im starting to understand why people say the sexual abuse subtext of Chainsaw Man isn't taken seriously, cause this is real life and some of the people in this comment section should have been removed from the genepool a long time ago."
+
+* :::=== RoundSparrow_Commentary : The video game / film entertainment fantasy of "should have been removed from the genepool". Hate harder messages. Dehumanize harder messages. Anti-education, anti-teaching, short simple "removed from" without specifics. Jail? Prison? Killing? As Reddit is a teachnng ground / educating minds every hour of every day to prize low-value no-identity no-citation reactionary thinking of out-group mocking and bullying. People don't learn from rectangle classrooms, they are learning from Reddit. ===:::
+
+&nbsp;
+
 
 # Thursday September 18, 2025
 
