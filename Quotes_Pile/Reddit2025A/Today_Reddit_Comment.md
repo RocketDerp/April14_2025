@@ -18,6 +18,23 @@ Honestly all of broadcast late night's attempts to lampoon Trump for the past de
 
 * :::=== RoundSparrow_Commentary :  Always faith in mocking. The Middle East clegy mocks every other religion they don't like, what has that gotten the world? Always belief that if we keep mocking away and amusing away at our msunderstandings. Why not all hide real names and identity on Reddit and Bluesky, unless you are a Bluesky book author or comic creator selling - then you use your real name. Always more bullshit mocking, insicerity. People say it doesn't work against Trump, can not styd nonfiction of Surkov techniques in Russia for 25 years... Did mocking the GOP eliminate the GOP/ Mocking Busy save the USA from the IRA? It's a horrible deepest faith. Hate and mocking. Everything Neil Postman describes in "Amusing Ourselves To Death" 1985 book. It is the teams of writers doing organized bullying on a schedule with multiple shows of organized mad bullying. And you get bully murder/sucide acts like MAGA as the outcome. We created this with mocking bullying as money making content. We are completely unable to defend against Putin because we mastered humor-washing mockery-washing bullying-washing. South Park lampooned Charlie Kirk and he got murdered, that isn't sending the message of *win* against Putin and Cambridge Analytica that Reddit is convinced it is. People fundamentally can't grasp that millions of low-effort streaming comment messages are filter-bubble experiences. We drown in comments with zero sense of importance. We saw this play out where Russia mind-fucked the COVID-19 pandemi since year 2014, YES, way back in 2014 https://www.bbc.com/news/world-us-canada-45294192 - and people can't even cite Bill Gates giving a Ted Talk about COVID-19 in 2015, yes 2015. We CAN NOT get people with spare time and free time (Reddit comment creators) to fight intelligently with information systems. Mocking is the root amusement cause. ===:::
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nksbmg/guy_from_florida_with_120k_followers_calling_for/nf0an5i/
+
+Individual-Drawer-79 2023-11-13
+
+"Even Tik Tok won’t do anything about it anymore. They use to be sticklers for rules. Now it’s pretty much anything goes on that crappy app since Trump continues to save them from being shut down"
+
+* :::=== RoundSparrow_Commentary : Notable observation: On Tik Tok people often use their real face and/or voice, soetimes showing real outdoor locations. On Reddit, content creators of comments hide their ientity. ===:::
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1nksbmg/guy_from_florida_with_120k_followers_calling_for/nf0ejcn/
+
+PettyKaneJr 2023-09-05
+
+"During an investigation at work unrelated, we recently read text messages between a bunch of right-wing inspectors. They talked about finding places they believe liberals are concentrated like libraries, marches, nightclubs, hiking clubs, parks. These are wild times."
 
 &nbsp;
 
