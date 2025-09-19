@@ -614,3 +614,8 @@ https://old.reddit.com/r/clevercomebacks/comments/1nl3rq2/shocking_first_amendme
 
 Only able to see Facebook. At least on Facebook people post their face image, their house images, their real car. Reddit people cower and self-dehumanize and hide their real name and location. Mocking Facebook Americans who provide real name. Russian Internet Research Agency can't be called out by name on Reddit or Facebook. And Elon Musk Twitter, Trump Truth Social, all the other media values of a nation full of trash meme addicts who avoid nonficiton learning of media ecology from Neil Postman and go to extremes to avoid learning details of Russian information warfare and Surkov techniques of the "Fifth World War, War of All Against All".     
 https://old.reddit.com/r/mildlyinfuriating/comments/1nl6234/decided_to_join_facebook_for_the_first_time_5/
+
+&nbsp;
+
+Surkov techniques, shock Tony Clifton antics. Amsuement-based politics, mind-fuck based politics, antics-based politics. Trump family wore a jacket mocking the public / mocking goodness on a trip to Texas during hte first terms (ToDo: link story). Bluesky and Reddit is an audience of hate-watching the the Trump family, glued to the tourchscreen machines in extremely predictable behavior conditioned by the crowd particiation by the Internet Research Agench since March 2013.     
+https://old.reddit.com/r/pics/comments/1nl7btb/why_is_melania_standing_there_like_a_fashionable/
