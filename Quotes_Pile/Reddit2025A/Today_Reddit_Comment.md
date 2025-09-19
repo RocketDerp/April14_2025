@@ -6,7 +6,20 @@ https://old.reddit.com/r/liberalgunowners/comments/1nkj31w/well_that_was_quick/n
 
 https://old.reddit.com/r/pics/comments/1nkmref/antifa_singer_woody_guthrie/nez3c01/
 
+&nbsp;
 
+https://old.reddit.com/r/videos/comments/1nkserw/jon_stewart_responds_to_kimmel_censorship/nf0rimf/
+
+AnnenbergTrojan 2015-07-06
+
+"He just brought it back on The Late Show. It wasn't funny at all. The Colbert Report was designed to mock a Bush-era neoconservatism that has now been exterminated. In an era of MAGA fascism, it just feels limp and inadequate.
+
+Honestly all of broadcast late night's attempts to lampoon Trump for the past decade feel limp. Aside from Stewart, nothing short of South Park fits the bill. Which is what makes this whole sordid censorship saga even more pathetic."
+
+* :::=== RoundSparrow_Commentary :  Always faith in mocking. The Middle East clegy mocks every other religion they don't like, what has that gotten the world? Always belief that if we keep mocking away and amusing away at our msunderstandings. Why not all hide real names and identity on Reddit and Bluesky, unless you are a Bluesky book author or comic creator selling - then you use your real name. Always more bullshit mocking, insicerity. People say it doesn't work against Trump, can not styd nonfiction of Surkov techniques in Russia for 25 years... Did mocking the GOP eliminate the GOP/ Mocking Busy save the USA from the IRA? It's a horrible deepest faith. Hate and mocking. Everything Neil Postman describes in "Amusing Ourselves To Death" 1985 book. It is the teams of writers doing organized bullying on a schedule with multiple shows of organized mad bullying. And you get bully murder/sucide acts like MAGA as the outcome. We created this with mocking bullying as money making content. We are completely unable to defend against Putin because we mastered humor-washing mockery-washing bullying-washing. ===:::
+
+
+&nbsp;
 
 
 # Thursday September 18, 2025
