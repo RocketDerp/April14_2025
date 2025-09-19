@@ -88,6 +88,16 @@ The_Luthiers_Ap 2021-03-12
 
 &nbsp;
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1nkuilj/petah_what_is_the_worker_scared_of/nf1mcjy/
+
+Salt_Top_6583 2024-10-29
+
+"For the same reason it's okay, to show a person in a movie getting shot 20 times, bleeding out all over the ground and then getting stabbed in order to make sure they're dead. But show a 1 sec view of a penis and you're "HURTING THE CHILDREN AND RUINING OUR CULTURE!!"
+
+Abrahamic Religions demonize sex or even the thought of sex, while fully embracing violence in all form and western world is run by people who support those religious shitheads because they control the dumb majority of the populace in order to keep the powerful in power."
+
+&nbsp;
+
 
 # Thursday September 18, 2025
 
