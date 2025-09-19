@@ -58,6 +58,16 @@ DuckLuck357 2021-07-23
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1nksbmg/guy_from_florida_with_120k_followers_calling_for/nf0gv0h/
+
+knock-on-the-door **2025-09-14 (new account)**
+
+"They were duped, they are rubes. They have been lead to believe they are oppressed, they have been given a bunch of enemies, first immigrants and now people who think differently. People with "other ideas." This is how authoritarianism takes control."
+
+* :::=== RoundSparrow_Commentary : Name authors, name books, name organizations... *who* gave the list of enemies. It's just comments of mocking the out-grooup. Russia IRA conditoined all this since year 2013. Message avoids: Not *we* were duped. We are living under mass dupe, Surkov Won, Russia won. An author on authritarism teachings? Call to use education and stand up for goodness (stand up for Malala's education efforts)? ===:::
+
+&nbsp;
+
 
 # Thursday September 18, 2025
 
