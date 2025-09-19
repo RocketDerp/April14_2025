@@ -40,7 +40,13 @@ https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilha
 
 Why would they want to shut down their meme addiction to constantly mocking and insulting Donald Trump that's been going on for over 10 years? Why would they desire to stop the Russian IRA mindsets that ar so amusing and engaging on Reddit?
 
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf29dgs/
 
+Compuslive hate and compuslive dehumanization. Exactly as conditioned. Exactly what Russia wants. People so drawn to hate magnet, so draw to dehumanization values.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2frzz/
+
+Yes. 10 years of react-commenting at Donald Trump. Total media addict nation, who can't get enugh of hate Trump / mock Trump media. Completley overrun by the Russian information warfare to induce self-harm hate.
 
 &nbsp;
 
