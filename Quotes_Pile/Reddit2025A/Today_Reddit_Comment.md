@@ -78,6 +78,16 @@ Ecstatic_Newspaper_5 2020-10-01
 
 &nbsp;
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1nkuilj/petah_what_is_the_worker_scared_of/nf0xam3/
+
+The_Luthiers_Ap 2021-03-12
+
+"Reddit is where you go to find the worst relationship advice"
+
+* :::=== RoundSparrow_Commentary : Reddit is an addiciton. People compusively flock to low-effort commenting drowning out / washing out medim-term long-term thinking with a massive ocean of anti-citaiton anti-refinement of information. Comment after comment like rain turning mountins of undersanding into sand. ===:::
+
+&nbsp;
+
 
 # Thursday September 18, 2025
 
