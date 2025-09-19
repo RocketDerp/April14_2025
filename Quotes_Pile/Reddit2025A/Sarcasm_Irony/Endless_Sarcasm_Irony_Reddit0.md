@@ -595,3 +595,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1nko0cb/to_warn_american_peo
 Trump is vising te UK a time of this front-page posting. Humor-washing, joke-washing, banality of evil, symbolism-washing. Programming Reddit audence minds that only if your male face looks like Adloph Hitler are you a threat. Or worse, to LOL and joke comment with low-effort stream of comments when image is recognized. Meme stuor society. Anti-intelelctual, avoidant od nonfiction learning  of Russian media techniques and callinf for rescue and defense. Instead, cheering on the absurd surreal antics with meme-washing of situation. Showing support for anti-understanding image recognition amusement and entertainment takeover. Donald Trump Realit TV star "The Apprentie" leading values of Reddit total mocery club.   
 https://old.reddit.com/r/pics/comments/1nl0n9y/reform_partys_nigel_farage_giving_a_speech_in_2015/
 
+&nbsp;
+
+Paradox absurd surreal societ behavior on front page. Mocking a mockery.        
+https://old.reddit.com/r/MurderedByWords/comments/1nkz9ih/crushing_response/
