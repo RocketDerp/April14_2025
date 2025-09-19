@@ -74,7 +74,33 @@ https://old.reddit.com/r/politics/comments/1nl3du9/jon_stewart_goes_full_state_t
 
 Thinks this is domestic tabloids only. Ignorant of Russian infrmation warfare / Putin media invasion.
 
+https://old.reddit.com/r/movies/comments/1nl3xsk/v_for_vendetta_continues_to_be_a_history_lesson/nf2s0st/
 
+Topic_tags: media_ecology, reading_vs_film, morality_lessons
+
+https://old.reddit.com/r/movies/comments/1nl3xsk/v_for_vendetta_continues_to_be_a_history_lesson/nf3aekr/
+
+Topic_tags: media_ecology, media_deconstruction, media_environment, media_conventions
+
+https://old.reddit.com/r/movies/comments/1nl3xsk/v_for_vendetta_continues_to_be_a_history_lesson/nf2lone/
+
+https://old.reddit.com/r/movies/comments/1nl3xsk/v_for_vendetta_continues_to_be_a_history_lesson/nf33d9h/
+
+Topic_tags: Levant_monomyth, monomyth_vs_monomyth, fiction_vs_fiction
+
+https://old.reddit.com/r/movies/comments/1nl3xsk/v_for_vendetta_continues_to_be_a_history_lesson/nf2myfb/
+
+Topic_tags: pro_sneaks pro_manipulators anti_democracy gang_signals social_media_gangs
+
+https://old.reddit.com/r/LivestreamFail/comments/1nl8c6q/destiny_attempts_charlie_kirk_style_debate_at/nf3ielj/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nl8c6q/destiny_attempts_charlie_kirk_style_debate_at/nf3jwcn/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nl8c6q/destiny_attempts_charlie_kirk_style_debate_at/nf3izzi/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nl8c6q/destiny_attempts_charlie_kirk_style_debate_at/nf3taxp/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nl8c6q/destiny_attempts_charlie_kirk_style_debate_at/nf3mcnt/
 
 &nbsp;
 
