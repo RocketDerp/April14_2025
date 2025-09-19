@@ -68,6 +68,13 @@ https://old.reddit.com/r/politics/comments/1nl3du9/jon_stewart_goes_full_state_t
 
 Brainwashing via media systems. Why isn't Jen Senko's 2015 film a household name, why aren't the free time spare time people on Reddit promoting Jen Senko as a common cause to counter brainwashing? Where are the cult deprogramming nonfiction book teachings by Reddit users who react-comment to Trump every minute of every day for 10 years? Beause they are all in media cults of Hate Trump / Trump Mock values. Russia's win isn't just Republicans, it is everyone to abandon goodness in favor of hate and mockery, a nation of ***total mockery***, all inclusive mocking as faith. Avoidant of nonfictin on how Russia information warfware works and names of the methods.
 
+https://old.reddit.com/r/politics/comments/1nl3du9/jon_stewart_goes_full_state_tv_to_nail_trump_on/nf31v7v/
+
+https://old.reddit.com/r/politics/comments/1nl3du9/jon_stewart_goes_full_state_tv_to_nail_trump_on/nf353xv/
+
+Thinks this is domestic tabloids only. Ignorant of Russian infrmation warfare / Putin media invasion.
+
+
 
 &nbsp;
 
