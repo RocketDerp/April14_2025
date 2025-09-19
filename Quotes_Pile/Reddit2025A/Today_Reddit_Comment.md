@@ -6,6 +6,25 @@ https://old.reddit.com/r/NoFilterNews/comments/1nl1opq/cnns_brutal_enemy_from_wi
 
 https://old.reddit.com/r/NoFilterNews/comments/1nl1opq/cnns_brutal_enemy_from_within_montage_of_trump/nf2gs8o/
 
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2cvc2/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2qcb5/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2dsfb/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2948r/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf29cch/
+
+One-word answers, so trivial. "Cults". Yes, plura media cults: the media addicts who love Reality TV "The Apprentice" and the media addicts who hate Reality TV "The Apprentice", and 5,000 variations of meme cults deployed by the Russian Internet Research Agency since March 2013. One-word no-thinking reaction commment cults. People who spend all their free time and spare time on social machines declaring it is a cult without any engagement of nonfiction from the pullic library to teach cult deprogramming. Because the cults of cults, people in cults of mocking and insulting other cults, is the same media addiction problems centered around entertainer Reality TV superstar Donald Trump.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2d591/
+
+No authors named dropped, no book titles, no URL to more information. Just millions of comments day after day for over 10 years while not lifting a finger to get on the same page or rally around nonfiction education on the suject. Cults of commenting about the situation, entirely lacking in self-wareness of how Surkovian governing works on Reddit comment creators.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2cvk2/
+
+
 &nbsp;
 
 
