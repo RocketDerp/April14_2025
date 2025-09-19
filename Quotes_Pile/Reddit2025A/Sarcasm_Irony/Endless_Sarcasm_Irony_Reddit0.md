@@ -589,3 +589,9 @@ https://old.reddit.com/r/DailyShow/comments/1nkrd2l/jon_called_it/
 
 Reddit has this staring them in the face, but Reddit community doesn't see the amusement-washing insult-washing that Redit community itself has done all along since the Russian mind-fuck started in eyar 2013. There is no concern to rally around overlooked issues / missed issues. Just short little piles of reacton comments taht get ignored after hours and then more new comments, always more and more and more comments taht avoid rallying around "same page" / "this is more important than images of kittens and sports" - the kittens are in real houses, we do not need non-stop kitten images on Reddit - feed your cat, hug your cat, the images alone are using spare time and free time - and this is war, Russia won the war.     
 https://old.reddit.com/r/therewasanattempt/comments/1nko0cb/to_warn_american_people/
+
+&nbsp;
+
+Trump is vising te UK a time of this front-page posting. Humor-washing, joke-washing, banality of evil, symbolism-washing. Programming Reddit audence minds that only if your male face looks like Adloph Hitler are you a threat. Or worse, to LOL and joke comment with low-effort stream of comments when image is recognized. Meme stuor society. Anti-intelelctual, avoidant od nonfiction learning  of Russian media techniques and callinf for rescue and defense. Instead, cheering on the absurd surreal antics with meme-washing of situation. Showing support for anti-understanding image recognition amusement and entertainment takeover. Donald Trump Realit TV star "The Apprentie" leading values of Reddit total mocery club.   
+https://old.reddit.com/r/pics/comments/1nl0n9y/reform_partys_nigel_farage_giving_a_speech_in_2015/
+
