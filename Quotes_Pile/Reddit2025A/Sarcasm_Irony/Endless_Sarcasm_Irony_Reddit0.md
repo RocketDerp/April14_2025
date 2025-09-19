@@ -599,3 +599,8 @@ https://old.reddit.com/r/pics/comments/1nl0n9y/reform_partys_nigel_farage_giving
 
 Paradox absurd surreal societ behavior on front page. Mocking a mockery.        
 https://old.reddit.com/r/MurderedByWords/comments/1nkz9ih/crushing_response/
+
+&nbsp;
+
+Video gamers of Reddit (Steam) entertainment-wash the Reality TV addicts society. The Apprentice / video games / fiction addiction, "amusing ourselves to death" society thinks it is comical that Russia mind-fucked a population into endless amusement and total mockery since year 2013.   
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nl1rjf/whoops/
