@@ -48,6 +48,16 @@ Report this shit, go after the advertisers too. 120k followers someone is making
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1nksbmg/guy_from_florida_with_120k_followers_calling_for/nf0b4oz/
+
+DuckLuck357 2021-07-23
+
+"Media literacy is dead. These people will clap and bark like seals for things that run antithetical to what they believe because they’re just stupid."
+
+* :::=== RoundSparrow_Commentary : A twitter-length tweet-think out-group hate comment (out-group stupid) that can't cite or name any authors / name-drop any books or authors or any media education. Not even the simpleist "Marshall McLuhan wrote about this in the 1960's" to asser a professor from Univesity of Toronto, just call people stupid for amusement contents on Reddit. Brak like seals at individual trees and not see the forest nclusive of Reddit. Can't identify any timelines of when things change, the Internet Research Agency active measures on Reddit since year 2013. Just mocking group B from group A. Avoidant of *we*, *our* situation and outcomes, and idneitfy Trump as an entertainer mocking-based out-group base leader. ===:::
+
+&nbsp;
+
 
 # Thursday September 18, 2025
 
