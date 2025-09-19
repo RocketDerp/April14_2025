@@ -1589,3 +1589,8 @@ https://www.youtube.com/watch?v=7_L6ZU3zxOc
 
 Internet culture as dehumanization training ground topic     
 http://youtube.com/watch?v=I8UwjoaHPzw
+
+&nbsp;
+
+FinWakeIndraNet Joyce 11:32 - Rig Veda    
+https://old.reddit.com/r/jamesjoyce/comments/1nki90i/the_spooky_1132/
