@@ -579,3 +579,8 @@ https://old.reddit.com/r/politics/comments/1nk95da/tiktok_to_be_sold_to_trumps_r
 
 Reddit community can't site anything about information warfare tactics of Putin, such as the Hillary Lock Her Up Cages in Florida.    
 https://old.reddit.com/r/chaoticgood/comments/1nkfa30/charlie_kirks_memorial_got_its_shit_defaced/
+
+&nbsp;
+
+Don't change how audiences think... then why did Stewart host Malala? She is changing the audience: girls, educaitng them to think, that's changing how audiences think. Reddit wants a message that says yo8u don't need to change how audiences think. WHen evey Reddit comemnt is entertainment / mocking / mockey / amusement / comedy just like Donald Trump is comedy / Putin Surkov echniqeus are comedy. Stewart does not grasp that USA lost a meme war and Putin won to induce self-harm by praise of humor and absurd. The jokes will wash away the killings. People are willing to due for dumb jokes, Reddit aleady proved that against the Internet Research Agency. Stewert even joked his own children didn't enjoy authentic learning in school like Malala, and nor does Reddit society. The Pandemic IRA manipulation since year 2014 should be discussed daily, but Reddit society can't focus on serious non-humor topics. Topics without mocking.        
+https://old.reddit.com/r/DailyShow/comments/1nkrd2l/jon_called_it/
