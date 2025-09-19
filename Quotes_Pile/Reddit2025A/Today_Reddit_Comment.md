@@ -48,6 +48,27 @@ https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilha
 
 Yes. 10 years of react-commenting at Donald Trump. Total media addict nation, who can't get enugh of hate Trump / mock Trump media. Completley overrun by the Russian information warfare to induce self-harm hate.
 
+https://old.reddit.com/r/politics/comments/1nl3du9/jon_stewart_goes_full_state_tv_to_nail_trump_on/nf2peux/
+
+They have a constant humor amusement attitude. People clealry can not study the media ecology of Fox News, it is constantly mocking and insulting humanism. The sense of humor is entertainment and fiction. Mocking out-groups and creating a total mockery so there is polarity around bullshit. People on Reddit truly need to study the 1985 book "Amusing Ourselves To Death" by Neil Postman. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/
+
+https://old.reddit.com/r/politics/comments/1nl3du9/jon_stewart_goes_full_state_tv_to_nail_trump_on/nf2upnv/
+
+Comedian and entertainer Stephen Colbert has convinced Reddit meme consumers that more absurd surreal is the ideal way to solve the Russian Surkovian informaiton warfare. To keep dumping petrol / gasoline on the fires that the Russian use of Cambridge Analytia ceated. That the deepst faith is always add more fiction bullshit to a crisis of avoiding nonfiction. Nobody can even name the IRA oo Reddit, nobody can name Neil Postman or Rick Roderick, just constant falling into the anti-reality warfare that Putin started in March 2013.
+
+https://old.reddit.com/r/politics/comments/1nl3du9/jon_stewart_goes_full_state_tv_to_nail_trump_on/nf2pvzd/
+
+He makes profit selling cult coonent to the cults who mock other cults. Fiction / humor / sureal comedy content. Fiction outsells nonfiction.
+
+https://old.reddit.com/r/politics/comments/1nl3du9/jon_stewart_goes_full_state_tv_to_nail_trump_on/nf2mpmo/
+
+Only the out-group, Russia minf-cuked EVERYONE, all inclusive, Democrats too since Macrch 2013. Simulacra vs. simulacras. Denial abounds. Multiple NATO nations reporting, not just USA Dems vs. USA GOP.
+
+https://old.reddit.com/r/politics/comments/1nl3du9/jon_stewart_goes_full_state_tv_to_nail_trump_on/nf2vuem/
+
+Brainwashing via media systems. Why isn't Jen Senko's 2015 film a household name, why aren't the free time spare time people on Reddit promoting Jen Senko as a common cause to counter brainwashing? Where are the cult deprogramming nonfiction book teachings by Reddit users who react-comment to Trump every minute of every day for 10 years? Beause they are all in media cults of Hate Trump / Trump Mock values. Russia's win isn't just Republicans, it is everyone to abandon goodness in favor of hate and mockery, a nation of ***total mockery***, all inclusive mocking as faith. Avoidant of nonfictin on how Russia information warfware works and names of the methods.
+
+
 &nbsp;
 
 
