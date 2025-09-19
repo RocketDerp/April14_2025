@@ -38,6 +38,16 @@ PettyKaneJr 2023-09-05
 
 &nbsp;
 
+https://old.reddit.com/r/CringeTikToks/comments/1nksbmg/guy_from_florida_with_120k_followers_calling_for/nf0ct57/
+
+A-Helpful-Flamingo 2025-02-28 (new this year)
+
+"Love all these new accounts being like wHaT’s ThE pOiNT??
+
+Report this shit, go after the advertisers too. 120k followers someone is making money off this"
+
+&nbsp;
+
 
 # Thursday September 18, 2025
 
