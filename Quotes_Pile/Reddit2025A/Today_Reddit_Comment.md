@@ -24,6 +24,23 @@ No authors named dropped, no book titles, no URL to more information. Just milli
 
 https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2cvk2/
 
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2bnt4/
+
+It's possible for Rupert Murdoch media network to compltely brainwash the out-group, but no self awareness of the Internet Resarch Agency workign for Putin to brainwash Reddit /r/All consumers. To seek out no-citation low-effort short comments that provide no author names, book names, by people who can create as many accounts as they want wth no identity or location information. With Fox News, you have real faces of real people creating messages, not afraid to death of being human when commenting on Reddit dehumanizing machines. Self-dehumanization platform of hide real life. Calls out the trees of the Fox News audience as brainwashed - but does not name-drop Jen Senko year 2015 film (before Trump win of election in November 2016). Jen Senko should be a household name as the "the little guy" Baby Boobmer who stood up to Fox News, but instead, you get people using spare time / free time on Reddit to say *only HDTV audiences are brainwashed*, not Internet meme addicts on Facebook / Bluesky / Reddit. Surkov Won, Russia won, since March 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2akn3/
+
+No author name drop, no book name drop, just describing that people are thrilled to watch Ameicans suffer. Just like Reddit content sells of watching Americans suffer day after day to Russian Internet Research Agency and Cambridge Analytica pairing. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf29lnc/
+
+Twitter-length message, Tweet-think "It is that simple!" - Rick Roderick in 1993 describes this behavior. The Russian Internet Research Agency is waging the most sophisticated information war ever seen in the history of information war (NATO Breedlove declared in September 2014) and social media addicts swining in a mindfucked toxic nation can't muster any kind of defense or education on mind exploits of patterns of out-group hate.  
+
+https://old.reddit.com/r/CringeTikToks/comments/1nl2laj/trump_calls_for_rep_ilhan_omar_to_be_impeached/nf2ck1t/
+
+Why would they want to shut down their meme addiction to constantly mocking and insulting Donald Trump that's been going on for over 10 years? Why would they desire to stop the Russian IRA mindsets that ar so amusing and engaging on Reddit?
+
+
 
 &nbsp;
 
