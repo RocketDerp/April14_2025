@@ -14,6 +14,17 @@ The same shameless people who complained about cancel culture are now using the 
 
 &nbsp;
 
+https://old.reddit.com/r/technology/comments/1nl0tew/the_president_suggests_broadcasters_could_be/nf1vu08/
+
+RebelStrategist 2024-12-31 (new this year)
+
+"Diaper don the man baby has spoken."
+
+* :::=== RoundSparrow_Commentary : Every day the media addits flock to the meme networks to say these fetish lines about Donald Trump. They are trhilled to procliam how entertaining and thrilling it is to have a meme President playing Tony Clifton antics politics. Thrilled that these Russian Surkov techniques provide constant absurd surreal poop-diaper content discussion. Completely avoiding nonfiction learning of how to build a healthy society, instead wallowing in the mockery that Donald Trump creaes of the USA. This has been gong on for OVER TEN YEARS AND THREE MONTHS since Trump became the central fixation of media networks / media systems. This is a meme addled society, sickened by junk media consumption, wrecking the world with Donald Trump role model of thinking and insulting people. Shit-worshping society, year after year, admiring the media environment created by Trump and Putin. ===:::
+
+
+&nbsp;
+
 &nbsp;
 
 https://old.reddit.com/r/politics/comments/1nkgr63/trump_floats_pulling_licenses_if_networks_are/ney6k9f/
