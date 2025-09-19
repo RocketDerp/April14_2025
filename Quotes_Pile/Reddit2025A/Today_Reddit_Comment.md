@@ -30,10 +30,15 @@ FellowDeviant 2017-08-15
 
 "The amount of people that have been in support of what's going on with Colbert and Kimmel on FB is baffling to me. I try to tell them its not the cancelations that are concerning its the implications behind them and what they could mean going forward and I'm apparently in the minority with this thought process."
 
-* :::=== RoundSparrow_Commentary : Entertainment addicts can be very picky in their meme flavor and styles. Donald Trump has made everything in society about ratings and popularity, and fiction avoiding nonfiction. Implicates are welcomed, being able to remove music / art / spoken languages / content that is undesired, like block button on Bluesky is cheered on, like deporting undesired Spanish language speakers, filter bubble celebration. Facebook ability to use computer machines to dehumanize real people is embraced in USA society. ===:::
+* :::=== RoundSparrow_Commentary : Entertainment addicts can be very picky in their meme flavor and styles. Donald Trump has made everything in society about ratings and popularity, and fiction avoiding nonfiction. Implications are welcomed and embraced, being able to remove music / art / spoken languages / content that is undesired, like block button on Bluesky is cheered on, like deporting undesired Spanish language speakers, filter bubble celebration. Musk and Trump egomania as role model. Facebook ability to use computer machines to dehumanize real people is embraced in USA society. ===:::
 
+&nbsp;
 
+https://old.reddit.com/r/technology/comments/1nl0tew/the_president_suggests_broadcasters_could_be/nf2090c/
 
+Scheming_Deming 2020-05-02
+
+"America has crossed the Rubicon with this administration. There may be no way back if it continues"
 
 &nbsp;
 
