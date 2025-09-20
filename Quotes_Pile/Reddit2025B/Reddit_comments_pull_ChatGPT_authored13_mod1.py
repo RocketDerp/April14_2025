@@ -88,23 +88,41 @@ def convert_html_to_md(div):
     return "\n".join(lines).rstrip()
 
 
-def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_folder=None, idx=None):
+def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_folder=None, check_saved_first=True, idx=None):
     path_parts = urlparse(url).path.strip("/").split("/")
     if len(path_parts) < 6:
         raise ValueError(f"URL does not appear to include a comment ID: {url}")
     comment_id = path_parts[-1]
     comment_div_id = f"t1_{comment_id}"
-
-    res = requests.get(url, headers=HEADERS)
-    res.raise_for_status()
-    soup = BeautifulSoup(res.text, "html.parser")
+    
+    
+    
+    html_text = None
+    html_filename = None
 
     if save_html_folder and idx is not None:
         os.makedirs(save_html_folder, exist_ok=True)
         html_filename = os.path.join(save_html_folder, f"{idx}_{comment_id}.html")
-        with open(html_filename, "w", encoding="utf-8") as f:
-            f.write(res.text)
-        print(f"Saved fetched HTML to {html_filename}")
+
+        if check_saved_first and os.path.exists(html_filename):
+            print(f"[cached] Using saved HTML for {url}")
+            with open(html_filename, "r", encoding="utf-8") as f:
+                html_text = f.read()
+
+    if html_text is None:
+		# no HTML loaded from local storage, do live Internet fetch
+        res = requests.get(url, headers=HEADERS)
+        res.raise_for_status()
+        html_text = res.text
+
+        if html_filename:
+            with open(html_filename, "w", encoding="utf-8") as f:
+                f.write(html_text)
+            print(f"Saved fresh fetched HTML to {html_filename}")
+
+
+    soup = BeautifulSoup(html_text, "html.parser")
+
 
     comment_div = soup.find("div", id=comment_div_id)
     if not comment_div:
@@ -141,6 +159,7 @@ def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_fold
     return {
         "url": url,
         "author": author,
+        "comment_id": comment_id,
         "comment": comment_md,
         "comment_age": comment_age,
         "comment_timestamp": comment_timestamp,
@@ -210,6 +229,7 @@ def main():
                 url,
                 fetch_user_info=not args.no_user_info,
                 save_html_folder=args.fetched_html_folder,
+                check_saved_first=args.check_saved_first,
                 idx=idx
             )
         except Exception as e:
@@ -229,6 +249,7 @@ def main():
             "\n",
             "="*80,
             f"Entry {idx} ({idx - start}/{total}) - URL: {url}",
+            f"Comment ID:      {data['comment_id']}",
             f"Author:          {data['author']}",
             f"Account Created: {data['account_created']}",
             f"Link Karma:      {data['link_karma']}",
@@ -259,4 +280,3 @@ def main():
 
 if __name__ == "__main__":
     main()
-
