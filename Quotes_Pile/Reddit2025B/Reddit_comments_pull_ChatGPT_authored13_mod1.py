@@ -95,10 +95,10 @@ def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_fold
     comment_id = path_parts[-1]
     comment_div_id = f"t1_{comment_id}"
     
-    
-    
+
     html_text = None
     html_filename = None
+    live_fetch = False
 
     if save_html_folder and idx is not None:
         os.makedirs(save_html_folder, exist_ok=True)
@@ -114,6 +114,7 @@ def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_fold
         res = requests.get(url, headers=HEADERS)
         res.raise_for_status()
         html_text = res.text
+        live_feetch = True
 
         if html_filename:
             with open(html_filename, "w", encoding="utf-8") as f:
@@ -151,6 +152,7 @@ def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_fold
 
     account_date, bio, link_karma, comment_karma = None, None, None, None
     if fetch_user_info and author != "[deleted]":
+        live_fetch = True
         if use_hover:
             account_date, bio, link_karma, comment_karma = fetch_user_info_hover(author)
         else:
@@ -168,11 +170,13 @@ def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_fold
         "bio": bio,
         "link_karma": link_karma,
         "comment_karma": comment_karma,
+        "live_fetch": live_fetch,
     }
 
 
 def fetch_user_info_hover(username):
     url = f"https://old.reddit.com/user/{username}/about.json"
+    print(f"live-fetch for user_info_hover {url}")
     res = requests.get(url, headers=HEADERS)
     if res.status_code != 200:
         return None, None, None, None
@@ -187,8 +191,10 @@ def fetch_user_info_hover(username):
 
 def fetch_user_info_full(username):
     url = f"https://old.reddit.com/user/{username}/"
+    print(f"live-fetch for user_info_full {url}")
     res = requests.get(url, headers=HEADERS)
     res.raise_for_status()
+    
     soup = BeautifulSoup(res.text, "html.parser")
     age = soup.select_one(".age")
     account_created = (
@@ -273,9 +279,10 @@ def main():
                 f.write("\n".join(output_lines) + "\n")
 
         # Pause between entries
-        if idx - start < len(entries):
-            sleep_time = random.uniform(2, 8)  # 2–8 seconds pause
-            pause_with_quit(sleep_time)
+        if data['live_fetch']:
+            if idx - start < len(entries):
+                sleep_time = random.uniform(2, 8)  # 2–8 seconds pause
+                pause_with_quit(sleep_time)
 
 
 if __name__ == "__main__":
