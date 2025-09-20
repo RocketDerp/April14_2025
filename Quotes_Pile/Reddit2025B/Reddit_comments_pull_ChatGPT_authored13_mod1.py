@@ -9,6 +9,7 @@ import argparse
 from bs4 import BeautifulSoup, NavigableString, Tag
 import datetime
 from urllib.parse import urlparse
+import json
 import os
 
 HEADERS = {"User-Agent": "Mozilla/5.0"}
@@ -88,7 +89,16 @@ def convert_html_to_md(div):
     return "\n".join(lines).rstrip()
 
 
-def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_folder=None, check_saved_first=True, idx=None):
+def fetch_comment_data(url, idx=None, args=None):
+	
+    # params
+    # save_html_folder=None, check_saved_first=True
+    use_hover=True
+    fetch_user_info=not args.no_user_info
+    save_html_folder=args.fetched_html_folder
+    check_saved_first=args.check_saved_first
+	
+	
     path_parts = urlparse(url).path.strip("/").split("/")
     if len(path_parts) < 6:
         raise ValueError(f"URL does not appear to include a comment ID: {url}")
@@ -150,12 +160,14 @@ def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_fold
     score_tag = comment_div.select_one(".score.unvoted")
     score_text = score_tag.text.strip() if score_tag else None
 
-    account_date, bio, link_karma, comment_karma = None, None, None, None
+    account_date, bio, link_karma, comment_karma, account_live_fetch = None, None, None, None, False
     if fetch_user_info and author != "[deleted]":
-        live_fetch = True
         if use_hover:
-            account_date, bio, link_karma, comment_karma = fetch_user_info_hover(author)
+            account_date, bio, link_karma, comment_karma, account_live_fetch = fetch_user_info_hover(author, args)
+            if account_live_fetch:
+                live_fetch = True
         else:
+            live_fetch = True
             account_date, bio = fetch_user_info_full(author)
 
     return {
@@ -174,19 +186,43 @@ def fetch_comment_data(url, fetch_user_info=True, use_hover=True, save_html_fold
     }
 
 
-def fetch_user_info_hover(username):
+def fetch_user_info_hover(username, args=None):
     url = f"https://old.reddit.com/user/{username}/about.json"
-    print(f"live-fetch for user_info_hover {url}")
-    res = requests.get(url, headers=HEADERS)
-    if res.status_code != 200:
-        return None, None, None, None
-    data = res.json()["data"]
+    
+    account_filename = None
+    account_text = None
+    data = None
+    live_fetch = False
+    
+    if args.fetched_account_folder:
+        os.makedirs(args.fetched_account_folder, exist_ok=True)
+        account_filename = os.path.join(args.fetched_account_folder, f"{username}.json")
+
+        if args.check_saved_first and os.path.exists(account_filename):
+            print(f"[cached] Using saved account JSON for {username}")
+            with open(account_filename, "r", encoding="utf-8") as f:
+                # account_text = f.read()
+                data = json.load(f)
+
+    if data is None:
+        print(f"live-fetch for user_info_hover {url}")
+        res = requests.get(url, headers=HEADERS)
+        if res.status_code != 200:
+            return None, None, None, None, False
+        data = res.json()["data"]
+        live_fetch = True
+    
+        if account_filename:
+            with open(account_filename, "w", encoding="utf-8") as f:
+                # f.write(data)
+                json.dump(data, f, indent=4) # indent=4 makes the JSON output more readable
+                print(f"Saved fresh fetched account JSON to {account_filename}")
 
     created = datetime.datetime.utcfromtimestamp(data["created_utc"]).isoformat() + "Z"
     bio = data.get("subreddit", {}).get("public_description")
     link_karma = data.get("link_karma")
     comment_karma = data.get("comment_karma")
-    return created, bio, link_karma, comment_karma
+    return created, bio, link_karma, comment_karma, live_fetch
 
 
 def fetch_user_info_full(username):
@@ -213,6 +249,7 @@ def main():
     parser.add_argument("--skip-to", type=int, default=0, help="Number of entries to skip before starting (0 = start from first).")
     parser.add_argument("--stop-after", type=int, default=None, help="Stop after this many entries (default = process all).")
     parser.add_argument("--fetched-html-folder", default="fetched_pages", help="Folder to save HTML of all fetched pages.")
+    parser.add_argument("--fetched-account-folder", default="fetched_accounts", help="Folder to save JSON of all fetched Reddit account info.")
     parser.add_argument("--error-html-folder", default="error_pages", help="Folder to save HTML pages on error.")
     parser.add_argument("--check-saved-first", action="store_true", help="Use cached HTML if available")
     parser.add_argument("--compare-saved", action="store_true", help="Compare live fetch with saved HTML; save _N versions if changed/removed")
@@ -233,10 +270,8 @@ def main():
         try:
             data = fetch_comment_data(
                 url,
-                fetch_user_info=not args.no_user_info,
-                save_html_folder=args.fetched_html_folder,
-                check_saved_first=args.check_saved_first,
-                idx=idx
+                idx=idx,
+                args=args
             )
         except Exception as e:
             print(f"ERROR fetching comment: {e}")
