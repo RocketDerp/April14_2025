@@ -274,16 +274,19 @@ def main():
                 args=args
             )
         except Exception as e:
-            print(f"ERROR fetching comment: {e}")
+            print(f"\n****** ERROR fetching comment: {e}")
+            pause_with_quit(5)
             os.makedirs(args.error_html_folder, exist_ok=True)
             html_filename = os.path.join(args.error_html_folder, f"{idx}_{url.split('/')[-1]}.html")
             try:
                 r = requests.get(url, headers=HEADERS)
                 with open(html_filename, "w", encoding="utf-8") as f:
                     f.write(r.text)
-                print(f"Saved HTML page to {html_filename}")
+                print(f"***** Saved HTML page on ERROR to {html_filename}")
             except Exception as save_err:
-                print(f"Failed to save HTML: {save_err}")
+                print(f"***** ERROR Failed to save ERROR HTML: {save_err}")
+
+            pause_with_quit(30)
             continue
 
         output_lines = [
