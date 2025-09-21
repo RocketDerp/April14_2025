@@ -18,7 +18,7 @@ HEADERS = {"User-Agent": "Mozilla/5.0"}
 
 
 def pause_with_quit(total_seconds):
-    print(f"\nPausing for {int(total_seconds)} seconds. Press 'Q' to quit.")
+    print(f"\nPausing for {int(total_seconds)} seconds. Press 'Q' to quit app. [SPACE] to end pause.")
     fd = sys.stdin.fileno()
     old_settings = termios.tcgetattr(fd)
     try:
@@ -32,7 +32,13 @@ def pause_with_quit(total_seconds):
                 key = sys.stdin.read(1)
                 if key.lower() == "q":
                     print("Quit requested. Exiting.")
-                    sys.exit(0)
+                    return True
+                if key == " ":
+                    print("Pause ended by operator.")
+                    return False
+        
+        return False
+ 
     finally:
         termios.tcsetattr(fd, termios.TCSADRAIN, old_settings)
 
@@ -308,6 +314,7 @@ def main():
     start = args.skip_to
     end = start + args.stop_after if args.stop_after else len(entries)
     entries = entries[start:end]
+    errorCountA = 0
 
     total = len(entries)
     for idx, (url, commentary) in enumerate(entries, start=start + 1):
@@ -322,8 +329,11 @@ def main():
                 args=args
             )
         except Exception as e:
-            print(f"\n****** ERROR fetching comment: {e}")
-            pause_with_quit(5)
+            errorCountA += 1
+            print(f"\n****** ERROR fetching comment: {e} error count: {errorCountA}")
+            quit_request = pause_with_quit(5)
+            if quit_request:
+                sys.exit(1)
             os.makedirs(args.error_html_folder, exist_ok=True)
             html_filename = os.path.join(args.error_html_folder, f"{idx}_{url.split('/')[-1]}.html")
             try:
@@ -368,7 +378,13 @@ def main():
         if data['live_fetch']:
             if idx - start < len(entries):
                 sleep_time = random.uniform(2, 8)  # 2–8 seconds pause
-                pause_with_quit(sleep_time)
+                quit_request = pause_with_quit(sleep_time)
+                if quit_request:
+                    print("Exiting after pause after live fetch")
+                    sys.exit(0)
+
+    if errorCountA > 0:
+        print(f"\nERRORS encountered. Final error count: {errorCountA}")
 
 
 if __name__ == "__main__":
