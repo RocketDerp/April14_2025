@@ -1599,3 +1599,8 @@ https://old.reddit.com/r/jamesjoyce/comments/1nki90i/the_spooky_1132/
 
 Semi-arranged marriage. Peering for an arranged marriage with honesty. Choie marriage honesty!   
 https://old.reddit.com/r/blursed_videos/comments/1nkvhkl/blursed_german_passeport/
+
+&nbsp;
+
+Can food rising metal cost    
+https://youtu.be/FKxlqoKH78g?t=518
