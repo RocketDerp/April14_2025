@@ -619,3 +619,9 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1nl6234/decided_to_join_face
 
 Surkov techniques, shock Tony Clifton antics. Amsuement-based politics, mind-fuck based politics, antics-based politics. Trump family wore a jacket mocking the public / mocking goodness on a trip to Texas during hte first terms (ToDo: link story). Bluesky and Reddit is an audience of hate-watching the the Trump family, glued to the tourchscreen machines in extremely predictable behavior conditioned by the crowd particiation by the Internet Research Agench since March 2013.     
 https://old.reddit.com/r/pics/comments/1nl7btb/why_is_melania_standing_there_like_a_fashionable/
+
+&nbsp;
+
+Front page of Reddit mentions "surreal" but people in September 2025 on Reddit can't engage nonfiction books at the public library from year 2014 with Russia and "Surreal" in the title.    
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nmq94f/i_wish_it_were_surreal_but_it_is_not_surreal_the/
+
