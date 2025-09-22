@@ -14,9 +14,10 @@ import os
 from bs4 import NavigableString, Tag
 import traceback
 
-
+# Global variables
 
 HEADERS = {"User-Agent": "Mozilla/5.0"}
+errorCountB = 0
 
 
 def pause_with_quit(total_seconds):
@@ -73,7 +74,11 @@ def parse_markdown_entries(filepath):
 
 
 def convert_html_to_md(div):
+    global errorCountB
+	
     if div is None:
+        print("got empty div, missing comment?")
+        errorCountB += 1
         return ""
 
     def recurse(node, in_list=False, list_type=None, index=1, in_blockquote=False):
@@ -144,6 +149,7 @@ def convert_html_to_md(div):
 
         return "\n".join(lines).rstrip()
     except Exception as e:
+        errorCountB += 1
         print(f"ERROR converting HTML to markdown. {e}")
         print(div)
         return f"ERROR\nERROR on HTML to markdown. Providing raw HTML:\n{div}";
@@ -412,7 +418,10 @@ def main():
                     sys.exit(0)
 
     if errorCountA > 0:
-        print(f"\nERRORS encountered. Final error count: {errorCountA}")
+        print(f"\nERRORS encountered (type A). Final error count: {errorCountA}")
+    if errorCountB > 0:
+        print(f"\nERRORS encountered (type B). Final error count: {errorCountB}")
+
 
 
 if __name__ == "__main__":
