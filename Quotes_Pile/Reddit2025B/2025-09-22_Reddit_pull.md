@@ -244,3 +244,124 @@ https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_k
 
 Magical Santa stories with magical flying deer.
 
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl91qu/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflalok/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl62q4/
+
+George Lucas filmed lessons for Star Wars audiences in summer of 1986 and 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "We just don’t know very much about Jesus. All we know are four contradictory texts that purport to tell us what he said and did.", "Mythology is very fluid. Most of the myths are self-contradictory. You may even find four or five myths in a given culture, all giving different versions of the same mystery. Then theology comes along and says it has got to be just this way. Mythology is poetry, and the poetic language is very flexible. Religion turns poetry into prose. God is literally up there, and this is literally what he thinks, and this is the way you’ve got to behave to get into proper relationship with that god up there."
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl1l6l/
+
+November 19, 2018 https://www.yahoo.com/news/donald-trump-likes-much-other-173456297.html - how long has this media Trump society been going on? 
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl65th/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl0m37/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl76fe/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl5tfg/
+
+Trump playing Surkov Student screenplays and Tony Clifton acts. He is the most charming performaner in all world histoy by my measure. Trump draws Reddit in like no other fiction or nonfiction character. People on Reddit and Blueksy can not resist compulsive mocking how terribe President Tony Clifton's act is. Clifton character originates in New York City / Saturday Night Live / Television - all of Trump's home town younger years. https://www.youtube.com/watch?v=JKTR8Yj5hg4
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl6rqq/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflafyw/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfldjsi/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl7pm5/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl4201/
+
+Makes me sorry for 340 plus million people in USA who do not grasp media ecology and understand the impact broadcast media / Reddit media has on their thinking. OPERA_A "All your life is Time magazine! I read it too, what does it mean?" https://www.youtube.com/watch?v=Iyv905Q2omU
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl4w2i/
+
+The society does not teach the maning of love and compassion, and topic gets ignored when sociiety does teach - when George Lucas lessons for Star Wars audiences in summer of 1986 and 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "The big moment in the medieval myth is the awakening of the heart to compassion, the transformation of passion into compassion. That is the whole problem of the Grail stories, compassion for the wounded king. And out of that you also get the notion that Abelard offered as an explanation of the crucifixion: that the Son of God came down into this world to be crucified to awaken our hearts to compassion, and thus to turn our minds from the gross concerns of raw life in the world to the specifically human values of self-giving in shared suffering. In that sense the wounded king, the maimed king of the Grail legend, is a counterpart of the Christ. He is there to evoke compassion and thus bring a dead wasteland to life. There is a mystical notion there of the spiritual function of suffering in this world. The one who suffers is, as it were, the Christ, come before us to evoke the one thing that turns the human beast of prey into a valid human being. That one thing is compassion. This is the theme that James Joyce takes over and develops in Ulysses" - you won't find a bigger book pointer than that. George Lucas filming a lesson that tells everyone to focus on James Joyce's Ulysses to go beyond the 2,000 year old Bible storytelling.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl5skc/
+
+We have a crisis of people who can't grasp Bible vese "1 John 4:20" that "I love Jesus" is wrong, "I love God is wrong', you shouldn not love a fiction story character more than living real-world reality human beings. "1 John 4:20" explains all that in one sentence. Any hate of any human person is bad, "1 John 4:20" meaning.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfldezr/
+
+People think the Middle East is a role model of human decency, love teaching, compassion teaching. Have they not studied the Middle East violence and hate over fiction storytelling? I moved to Amman, Jordan during hte Arab Spring to study this topic for years. I was there March 2011 at the start of the Syria war to study media ecology of Internet censorship and filter-bubble behaviors. The 2,000 year old Bible story is rather thin book and there are many aspects of compassion and love poorly taught by the fiction peotry. Some of our greatest rock music lyrics from Woodstock supplement. Some of the lyrics and poetry spell out that we need to go beyond Middle East Thunderdome values, compassion and love: OPERA_A "Looking for something, we can rely on. There's gotta be something better out there... Ooh, love and compassion. Their day is coming (coming)... All else are castles built in the air. And, I wonder when we are ever gonna change, change. Living under the fear, 'til nothing else remains. All the children say: We don't need another hero!" https://www.youtube.com/watch?v=OIe7N3zH5eU 
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl5zbj/
+
+The real long-term power is the emotional power / audience of Reddit manipulation. Not just wealth / cash / money.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfltd5c/
+
+Nobody forced Reddit users to compusively mock to hate messages / dehumanization messages / leadership of Donald Trump media systems. Well, except for Cambridge Analytica mind programming and Russia's Internet Research Agency since March 2013. ... ... ...
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.facebook.com/konstantin.rykov/posts/10210621124674610 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl9688/
+
+And Reddit audience are surely influenced by the content.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl1oph/
+
+A phrasing that Reddit community / Bluesky community / Twitter community / all media consuemrs in USA can not resist adopting and mimicking over and over with milliions of comment messages. The attraction to this phrasing is Bible verse John 1:1 personified. People compusively flock to Trump content for over a decade. Endlessly engaged in hate values / mocking values of Trump coveage.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflapk0/
+
+Exaclty what minority of human persons and life on Earth does Donald Trump not hate? Hate is the constant signal of Trump / values of hate. I can't find a single person that he loves. Trump has been parented to have a massive misunderstanding of the word "love". Just as Charlie Kirk said the word "empathy" was bewildering to him, unable to translate it to other words. https://ca.news.yahoo.com/fact-check-charlie-kirk-once-001900786.html
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl281i/
+
+Media messages have engaged the audience, deeply "not over" the media content they consumed on media machines. That's the basis of Russian govenring of society the past 25 years, the power of media systems to engage people.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflgb3q/
+
+Surkov govening methods. "Noveber 4, 2011 — Mr. Surkov's job is to oversee the relationship of the executive branch with Russia's Parliament, its regional leaders, its political parties" https://www.nytimes.com/2011/11/05/world/europe/after-putin-and-medvedev-vladislav-surkov-is-russias-power-broker.html
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflmdiy/
+
+October 19, 2024. "America's gullibility crisis" by Zachary Basu  https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflbl7g/
+
+People on Reddit come to Reddit to create milliions and millions of comment that hate will improve the USA sitaution. That what we need is more and more hate to fix our problems. This has been going on for longer than a decade. ... ... ... "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflh2nq/
+
+Fanatics / fans of Trump have their favorite content.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl4obz/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl5gc7/
+
+Hundreds of millions of people. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M 
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflrghl/
+
+But it draws a crown on Reddit comment section.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfluljm/
+
+More entertaining than any person in all human history. Reddit media addictions constantly engaging the Trump performances.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflwvui/
+
+Yes. Mythology. The Bible is science fiction, Russia Kremlin runs on fiction storytelling too. Just like Saudi Arabia Mecca runs on science fiction storytelling from year 635. "This Is Not Propaganda: Adventures in the War Against Reality is a **2019 book** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfm1qpl/
+
+Mindless haters flock to Trump content / Trump images / Trump media platfroms like Bluesky / Reddit / Truth Social to comment how much they value and prize hate.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfm5zy3/
+
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk, when, in short, a people become an audience**, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfm6v29/
+
+Wishing that even more people were to consume Donald Trump and Charlie Kirk media content. Addicts to media wanting everyone else to consume hate messages.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl1n03/
+
+We The People of the United States of America have to step up and address the herd of Elephants on every social media enviornment. The addiction to fiction and attaction to hate and self-harm mindsetting messages that the IRA induced since March 2013. **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://time.com/7313999/neil-postman-trump-prediction/
+
