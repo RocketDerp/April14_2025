@@ -928,4 +928,35 @@ https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday
 Trickle Down memes and messages. Trickle Down Bible verses from the Church of Rome who spoke in Latin. Maritn Luther of Germany (Octoberfest going on as I type) translated the Bible into everyday langauge on Halloween! https://www.christianity.com/wiki/holidays/the-connection-between-halloween-reformation-day.html
 
 
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm5ax4/
+
+People confuse "reading" with comprehending and understanding. Same with Rock Music lyrics, Bible verses, poetry all. Sceince Fiction Quran and Bible bewilders many people who aren't media woke to James Joyce's 1924 onward Finnegans Wake remedial reading lessons. I believe she reads and can reciite The Bible words. Does not mean she grasps John 1:1 verse meaning of *poetry and only poetry, language and only language" - John 1:1
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm199o/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm199o/
+
+If only, if only a social media site could make Bible verse "1 John 3:17" known to every person in USA over age 12, especially adults, to use it as a judgement statement of love for Trump supporters.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflt8ka/
+
+If only, if only a social media site community could make Bible verse Matthew 6:5 known ton every person in USA over age 12 about a famous posing Bible picture in front of a Church before the November 2020 election date.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflw79s/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflrt1h/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfluec0/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflx7vm/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflysb2/
+
+Yes, that's the whole point of self-awareness of words and only words, langauge and only language, poetry and only poetry. Bible verse John 1:1 - rock music lyrics and only rock music lyrics. It is self-awareness of the media we eat, the garbage in, the garbage out. Instead of using weapon systems and smashing brains, using a poetry storytelling ot address the egomania people adopt.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm09gi/
+
+Thank God for this Reddit commentary and my commentary about the commentary on Reddit comments.
+
+
 
