@@ -1068,5 +1068,17 @@ https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lo
 
 https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfn2666/
 
-"Everybody tends to merge his identity with other people at the speed of light. It’s called being mass man. It began quite a (Text sourced from https://www.organism.earth/library/document/mcluhan-mcmanus) long time ago." -  MARSHALL MCLUHAN IN CONVERSATION WITH MIKE MCMANUS **September 19, 1977**, year 1977... https://www.organism.earth/library/document/mcluhan-mcmanus
+"Everybody tends to merge his identity with other people at the speed of light. It’s called being mass man. It began quite a long time ago." -  MARSHALL MCLUHAN IN CONVERSATION WITH MIKE MCMANUS **September 19, 1977**, year 1977... https://www.organism.earth/library/document/mcluhan-mcmanus
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnexgp/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnhux0/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnpdcd/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnzy4n/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnbmt9/
+
+Context bewilderment abounds. [/Media_Ecology/Context_Bewilderment.md](/Media_Ecology/Context_Bewilderment.md) - OPERA_A You Beter Figure it Out Now! I wish you could Understand! https://www.youtube.com/watch?v=eKrcd9o03SE
 
