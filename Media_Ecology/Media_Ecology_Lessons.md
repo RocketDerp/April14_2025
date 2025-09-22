@@ -609,3 +609,24 @@ Animation triggering known defects in the mind. Is a specific genetic disorder i
 https://old.reddit.com/r/Damnthatsinteresting/comments/1nkh04y/a_pok%C3%A9mon_episode_caused_about_600_people_to_have/
 
 Is Lisztomania real? https://en.wikipedia.org/wiki/Lisztomania
+
+&nbsp;
+
+# Music Owner screwing over Song creators
+
+One of my favorite examples    
+https://www.youtube.com/watch?v=BznKC3Umc8A     
+1,064,073 views  December 10, 2017    
+
+Questions for media ecology students to ponder:
+
+1. What year was the song published?
+2. What year was the video recorded?
+3. What year was the upload to YouTube video platform?
+4. What year was YouTube well known and recognized by media experts in music publishing?
+5. How many backup copies of the recording of the video did they keep?
+
+Ponder: How much money the music publisher makes vs. artist... and they let the copies corrupt and nobody had a backup copy?
+
+Pay attention to the YouTube upload dates of famous acts. Songs not published for years and years after YouTube was famous. It cost next to nothing to upload the song to YouTube, a couple hours of labor. Why not until December 4, 2018? https://www.youtube.com/watch?v=nnEBSY3leQQ "℗ 1978 Geffen Records. Released on: 1993-12-19"
+
