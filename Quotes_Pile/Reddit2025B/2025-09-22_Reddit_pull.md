@@ -66,7 +66,7 @@ Saturday October 7, 2023 is Putin's Birthday. "intelligence failure". https://th
 
 https://old.reddit.com/r/inflation/comments/1nnksba/the_dollar_is_collapsing/nfl7u2k/
 
-Reddit community can't provide author names, citations, references, book titles, links on these subjects. Just millions and millions of comments that lead to nothing sustained and focused on the most improtant issues. December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+Reddit community can't provide author names, citations, references, book titles, links on these subjects. Just millions and millions of comments that lead to nothing sustained and focused on the most important issues. December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
 
 https://old.reddit.com/r/inflation/comments/1nnksba/the_dollar_is_collapsing/nfl6z5a/
 
@@ -495,5 +495,81 @@ https://old.reddit.com/r/rareinsults/comments/1nnpc3g/shes_lovin_it/nfm55sq/
 
 https://old.reddit.com/r/rareinsults/comments/1nnpc3g/shes_lovin_it/nfm7sdt/
 
-"we see other people engaging in this same, sort of, attempting to reduce complexity. I mean, the political parties, to the extent that they exist at all anymore as anything other than fund raising devices, which I don’t know. I don’t think they have any ideologies because in a postmodern situation who would have an ideology except just as a momentary thing? Like your “Week as a Communist” by Suzie Saint Pierre at Duke [crowd laughter], “My Week as a Trotskyist”, “My Week as a Buddhist”, “My Two Weeks as a Follower of the Cult of Elvis”, I mean, these are papers that you could legitimately expect people to write if they still read or wrote. Not many people still do either – read or write, much – but in any case; reduction of complexity." - Texan Rick Roderick, Duke University, 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+"we see other people engaging in this same, sort of, attempting to reduce complexity. I mean, the political parties, to the extent that they exist at all anymore as anything other than fund raising devices, which I don’t know. I don’t think they have any ideologies because in a postmodern situation who would have an ideology except just as a momentary thing? Like your “Week as a Communist” by Suzie Saint Pierre at Duke \[crowd laughter\], “My Week as a Trotskyist”, “My Week as a Buddhist”, “My Two Weeks as a Follower of the Cult of Elvis”, I mean, these are papers that you could legitimately expect people to write if they still read or wrote. Not many people still do either – read or write, much – but in any case; reduction of complexity." - Texan Rick Roderick, Duke University, 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/rareinsults/comments/1nnpc3g/shes_lovin_it/nfmo64s/
+
+Many poorly-educated people don't grasp that the whole pont of King show is mythological. Drawing an audience to pomp.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflxygv/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfmaazb/
+
+Reddit tech-worship community drowning in millions of low-effort high-speed comment addictions: “With the rise of Technopoly, one of those thought-worlds disappears. Technopoly eliminates alternatives to itself in precisely the way Aldous Huxley outlined in Brave New World. It does not make them illegal. It does not make them immoral. It does not even make them unpopular. It makes them invisible and therefore irrelevant. And it does so by redefining what we mean by religion, by art, by family, by politics, by history, by truth, by privacy, by intelligence, so that our definitions fit its new requirements. Technopoly, in other words, is totalitarian technocracy.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflx1ti/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflz6fu/
+
+Recency bias of "Project 2025" abounds. Just millions and millions of comments that lead to nothing sustained and focused on the most important issues. December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflyucc/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflvfpr/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflw224/
+
+Simple people will look for simple Reddit comments without citations / quotes / author names / book titles. Celebrating how short the millions of comments creatd, the 7-second message lengths of social machines. ... ... ... “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 OPERA_A "Celebration of Ignorance" song https://www.youtube.com/watch?v=wcY-x1VuWtE
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfly1z5/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfme0so/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflvv6f/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflzba5/
+
+Media machine lust, human hate. Content lovers of Charlie Kirk podcast content who are not interested or attracted in boring nonfiction.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflyg6r/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflyyn4/
+
+Note the absence of time passsing, recency bias. Note the lack of links / authors / book titles / etc. ... ... ..."The **'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021** — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm1z64/
+
+Denial abounds. "nobody is coming after you", Putin has invated the United States of America media systems since March 2013 when tne Internet Research Agency was ramping up. ... ... ... "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." -https://www.facebook.com/konstantin.rykov/posts/10210621124674610
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfmff81/
+
+Funny, amusing, entertaining. As long as it is amusing, normalize it.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflyyrt/
+
+Recency bias, like this is new. It started March 2013 with the Russian Internet Research Agency that conditioned a population to avoid nonfiction learning of informationw warfare. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflwui8/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm2olx/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflvs39/
+
+Media ecology learning is not optional. Every person age 12 to age 120 needs to urgently learn Neil Postamn's 1985 book. "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. All that **has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that **it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm7rld/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm55gn/
+
+Russian Internet Research Agency and Putin's other organiztions have mind-fucked people. We The People need to rescue We The People. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M 
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm0yk6/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm5boi/
+
+Like South Park cult leaders create an imaginary "Satan" for real-world Trump in year 2025 fiction.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm6q7g/
+
+"Americans who worry about Russia election interference should stop focusing on such trivialities and instead realize that the idea that they have a choice over how they are governed is a mere illusion, Vladislav Surkov, an adviser to Russian President Vladimir Putin, wrote in an op-ed published this week. "The illusion of choice is the most important illusion, the main trick of Western democracy especially…. The rejection of this illusion in favor of the reality that everything is predestined will allow society to reflect first on our vision of democratic development," Surkov wrote. "Foreign politicians talk about Russia's interference in elections and referendums around the world. In fact, the matter is even more serious: Russia interferes in your brains, we change your conscience, and there is nothing you can do about it." - February 12, 2019 message to We The People USA. https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
 
