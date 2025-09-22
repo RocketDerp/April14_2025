@@ -365,3 +365,42 @@ https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_k
 
 We The People of the United States of America have to step up and address the herd of Elephants on every social media enviornment. The addiction to fiction and attaction to hate and self-harm mindsetting messages that the IRA induced since March 2013. **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nflvmal/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmfqi4/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nflwlaw/
+
+" the authorized Christian reading has been of an actual, concrete, historic event of atonement with an angry god, who for centuries had withheld his boon of paradise from mankind, until strangely reconciled by this curious self-giving of his only son to a criminal’s death on the Cross. The fact of the crucifixion was read as the central fact of all history, and along with it certain other associated “facts” were accepted, such as in other mythological traditions would be interpreted psychologically (or, as theologians say, “spiritually”) as symbols; such as (1) the Virgin Birth, (2) the Resurrection, (3) the Ascension, (4) the existence of a heaven to which a physical body might ascend, and, of course, (5) the Fall in the garden of Eden, c. 4004 B.C., from the guilt of which the Crucifixion has redeemed us. God in this system is a kind of fact somewhere, an actual personality to whom prayers can be addressed with expectation of a result." https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm1690/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmcyjw/
+
+Exactly what do people think "normal" human emotions are? People think this is USA only behavior. Study the history of Russia, the history of Palestine, the history of South Africa, the history of Iran, the history of Ireland, the history of USA, etc, etc, etc. Addiction to fiction has eclipsed nonfiction. OPERA_A https://www.youtube.com/watch?v=vKwsiXOAVvk
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm918r/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nflzdsm/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm21zh/
+
+Notice the absience of citing any nonfiction books about cults, how to address and rescue the USA from cult behaviors. Just millions and millions of comment messages that don't want to say some issues are more important than low-effort comments. ... ... ..."The **'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021** — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm4efy/
+
+September 9, 2014 publication. "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm3vle/
+
+Yes, if people with spare time / free time to comment on social machines could only **read nonfiction** about Russian Surkov governing techniques. Published way back in November 2014, more than a decade ago: https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm5tbf/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmb6ur/
+
+OPERA_A Please read James Joyce's Finnegans Wake from 1924 onward and Marshall McLuhan's lessons about Finengans Wake media ecology. https://www.youtube.com/watch?v=k0BWlvnBmIE
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmi8c4/
+
+"only half", look at this Reddit comment section eating the crazy media content and acting in predictable condition ways that the Russian Internet Research Agency conditioned since March 2013. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M 
