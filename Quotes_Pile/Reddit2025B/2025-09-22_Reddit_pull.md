@@ -803,3 +803,33 @@ https://old.reddit.com/r/politics/comments/1nnrymm/its_happened_the_united_state
 
 Flames and destruction entertainment values.
 
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nflnx0w/
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nfm3zg8/
+
+Describing Kremlin information warfare tactics of social media without any self awareness of multiple NATO nations being attacked with these patterns since year 2013. Unable to engage nonficton on the topic: https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nfly3hz/
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nfnc51k/
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nfnd4bb/
+
+Russia, Putin and Surkov, realized it 25 years ago. BBC Adam Curtis year end 2014, vido published more than a decade ago: https://www.youtube.com/watch?v=h9_L9GRRsQo
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nflzeji/
+
+Frame it with the right meme decoration image.
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nfnedz3/
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nfnelun/
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nfl8lb7/
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nflstvs/
+
+https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_trolls_weaponized_the/nfn8ca2/
+
+Every fiction story is valid, ever misundestanding is valid, every failure of comprehension is valid. Information overload is a real and serious problem. ... ... ... “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. **It is only now (1992) beginning to be understood that cultures may also suffer grievously from information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
+
