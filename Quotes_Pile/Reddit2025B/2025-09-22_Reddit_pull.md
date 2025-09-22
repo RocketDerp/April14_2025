@@ -1122,3 +1122,36 @@ Truth and fixing mistakes is against fiction addictions
 
 https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnxjqv/
 
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnzp7h/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfo1aue/
+
+https://old.reddit.com/r/SipsTea/comments/1nnn3c2/if_he_took_the_1k_why_did_she_ask_if_he_would_10k/nfmavzt/
+
+https://old.reddit.com/r/SipsTea/comments/1nnn3c2/if_he_took_the_1k_why_did_she_ask_if_he_would_10k/nflqpmo/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nnmwq9/hes_not_worthy/nflnbav/
+
+Truth Social, Reddit: All you need is hate. OPERA_A https://www.youtube.com/watch?v=4EGczv7iiEk
+
+https://old.reddit.com/r/clevercomebacks/comments/1nnmwq9/hes_not_worthy/nfn40dr/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nnmwq9/hes_not_worthy/nflq6h9/
+
+Reddit society can not name "Internet Net Research Agency", "Cambridge Analytica" doctors. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
+
+https://old.reddit.com/r/clevercomebacks/comments/1nnmwq9/hes_not_worthy/nflmyyf/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nnmwq9/hes_not_worthy/nflw5il/
+
+Two and only two answers. Cover both sides, we can't escape two-both.
+
+https://old.reddit.com/r/memes/comments/1nnsw8q/kids_look_at_me_like_ive_lost_my_mind_when_i_try/nfmvx3g/
+
+https://old.reddit.com/r/memes/comments/1nnsw8q/kids_look_at_me_like_ive_lost_my_mind_when_i_try/nfnhmnr/
+
+https://old.reddit.com/r/memes/comments/1nnsw8q/kids_look_at_me_like_ive_lost_my_mind_when_i_try/nfnrzv5/
+
+Fiction expeirence outsells nonfiction real raelity planet Earth.
+
+
