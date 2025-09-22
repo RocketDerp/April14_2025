@@ -588,3 +588,16 @@ Entertainment fiction addicts wanting to know when the next season of ths storyl
 https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm4ib1/
 
 Anything to deflect away from nonfiction books and learning how Russian information warfare started in March 2013 against Reddit. Messages to blame one single person instead of recognize mutliple NATO nations have reported on the Russian information warfare. ... ... ..."Dutch agencies provide crucial intel about Russia's interference in US-elections. Hackers from the Dutch intelligence service AIVD have provided the FBI with crucial information about Russian interference with the American elections. For years, AIVD had access to the infamous Russian hacker group Cozy Bear. That's what de Volkskrant and Nieuwsuur have uncovered in their investigation." "Dit artikel is geschreven doorHuib ModderkolkGepubliceerd op 25 januari 2018, 21:00" https://www.volkskrant.nl/wetenschap/dutch-agencies-provide-crucial-intel-about-russia-s-interference-in-us-elections~b4f8111b/?referrer=RoundSparrow
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm68in/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm9x10/
+
+Reddit messages conditioonng the Reddit audience that this is pleasure to have Russia defeat the USA in information warfare since March 2013.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfmcceq/
+
+Can't comprehend exactly what Cambridge Analtyica did to minds since year 2013 on social machines. How mindsets in USA have shfited towards self-harm and self-destruction of the USA at the hands of fiction addiction to avoid nonficiton learning about CA and IRA.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfmf72r/
+
