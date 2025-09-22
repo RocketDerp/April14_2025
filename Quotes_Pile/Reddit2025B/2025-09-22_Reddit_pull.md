@@ -124,3 +124,65 @@ https://old.reddit.com/r/inflation/comments/1nnksba/the_dollar_is_collapsing/nfl
 
 Anyone who thinks this short-style mocking style of Reddit comment hasn't drowned comprehension and understanding in USA doesn't grasp media ecology.
 
+https://old.reddit.com/r/inflation/comments/1nnksba/the_dollar_is_collapsing/nfllp77/
+
+It is almost as if people who author 11-word short message Reddit and Twitter messages don't grasp self-awareness of media ecology. That the constant imput into human brain of low-effort entertainment mocking comments results in a mind unable to grasp complex and difficult issues because all learning has been junk media comments. https://www.youtube.com/watch?v=cFwVCHkL-JU&t=196s
+
+https://old.reddit.com/r/inflation/comments/1nnksba/the_dollar_is_collapsing/nflm2cr/
+
+https://old.reddit.com/r/inflation/comments/1nnksba/the_dollar_is_collapsing/nflm5jc/
+
+Long-form Reddit comment, but observe the absence of quotations, named authors, links to sources, book titles, etc.
+
+https://old.reddit.com/r/inflation/comments/1nnksba/the_dollar_is_collapsing/nflne9m/
+
+On Reddit, they censor my comments all the time. People on Reddit don't seem to notice thier own media enviorment problems, as described in this 1967 video about people not being self-aware of their own media when calling out other media. https://www.youtube.com/watch?v=cFwVCHkL-JU&t=196s
+
+https://old.reddit.com/r/inflation/comments/1nnksba/the_dollar_is_collapsing/nflnj80/
+
+No citation, no links, no authors. Just short timy messages. Reddit messages that are Russia-washing that MULTIPLE nation of NATO and around the world are reporting media (Reddit) infiltration. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/inflation/comments/1nnksba/the_dollar_is_collapsing/nflryra/
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflvgdq/
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflfsbc/
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflj5uy/
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflr3nm/
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflsgjp/
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nfll2mb/
+
+It is short-tiny comment creators who pride themselves in comsung millions of comments per day and not haing any grasp of media beyond short tiny bites. Especially avoidant of nonfiction learning.
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflr0jd/
+
+"I hate Nickleback" bragging goes back a long time. People declaring how *hate* defines their taste in mass media consumption. People who *hate Truth Social* as a foundation, hating actors like Donald Trump. Clubs of hate messaging.
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflsxgo/
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nfle548/
+
+Dates are important situational awareness in media ecology.
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflhj3k/
+
+I notice this odd thing about USA society in September 2025. The numbe of people who use their spare time / free time to comment on social machines about how terrible the White House is, but unwilling to use that social media system to spread a repeating common message that is critical to defending against Russian informaiton warfef that has defeated the USA. **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflfiaj/
+
+Was it true at a specific period of time? Recency bias can give a different perspective.
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflhe29/
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nflbbhs/
+
+Just like Donald Trump, criminals are entertaining and amusing, funny content. This is what drives the USA society, blowing minds with funny content / absurd comedy / surreal humor. "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media" - https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
+
+https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nfld75f/
+
+Exactly how audiences behave towards Donald Trump. Flocking to every Q Drop / information about mocking and insutling Trump.
+
