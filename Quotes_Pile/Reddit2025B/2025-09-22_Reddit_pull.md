@@ -1213,3 +1213,7 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_
 
 30-second sound bites as Carl Jung called out specific duration in 1995 book. Reactions based on voice / tone / style that can be changed with autotune and other machines. Just a matter of tuning in for the audience ego listening. Mind-fuck exploiting. OPERA_A August 14, 1971 tuning into audience, RFK Jr can't pretend there is any meaning with the things White House is saying, but Putin media Surkov systems are going to tune right in on YOUR mind.  https://www.youtube.com/watch?v=XKLb6rz7cl8
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfnv6vl/
+
+Comment short-length, no link or author name or book name. "Hans Asperger was a pediatrician who lived in Vienna in the 1930s and '40s. What's been grabbing the headlines and what my book reveals is his involvement in the child euthanasia program which was murdering children considered to be disabled."  https://www.npr.org/2018/05/12/610716324/doctor-behind-asperger-s-syndrome-subject-to-name-change
+
