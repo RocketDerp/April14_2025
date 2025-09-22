@@ -1028,3 +1028,28 @@ https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday
 
 Practical response to the woman.
 
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnjdrg/
+
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnmbl2/
+
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnqpa2/
+
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnyxbz/
+
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfo2sdr/
+
+Predaotry billionare Rupert Murdoch messages the poors to worship the wealth real estate lords (Trump real estate empire). Alas, social media socities of Bluesky and Reddit can't make Jen Senko a household name for being "the little guy who stood up" to Murdoch. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnn2dq/
+
+Why bring back Donald Trump in November 2024? Simple-think Tweet-thining logic.
+
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnotv1/
+
+As directed by Putin and Trump using masterful execution of Surkov Student screenplays. Hate motivates, hate engagement, hate action! Like the murder of Charlie Kirk, hate gets people to drive hours to murder someone that creates media messages. Putin has used hate to motivate Russian soldiers to murder thy neighbors in Ukraine since February 2014.
+
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnnjzr/
+
+Fiction vs Fiction. MonoMyth story vs. MonoMyth story. Fiction sells!
+
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnqjhk/
