@@ -1209,3 +1209,7 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_
 
 Every day is fresh new fiction. Reddit people not knowing and educated on Russian information warfare methods and techniques. People avoiding nonfiction learning: Nonfiction, September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmnb0i/
+
+30-second sound bites as Carl Jung called out specific duration in 1995 book. Reactions based on voice / tone / style that can be changed with autotune and other machines. Just a matter of tuning in for the audience ego listening. Mind-fuck exploiting. OPERA_A August 14, 1971 tuning into audience, RFK Jr can't pretend there is any meaning with the things White House is saying, but Putin media Surkov systems are going to tune right in on YOUR mind.  https://www.youtube.com/watch?v=XKLb6rz7cl8
+
