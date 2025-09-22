@@ -771,3 +771,35 @@ https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_
 
 "I would love to see"... addicts to fiction call out their desires for more Trump content.
 
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nflv3kp/
+
+The joy of having Donald Trump, star of Reality TV, entertaining people day in and day out for over a decade with fiction content creation.
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfm336t/
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfmck7u/
+
+Minds blown by the absurd surreal content of Kremlin and White House.
+
+https://old.reddit.com/r/politics/comments/1nnpy3o/trump_orders_attorney_general_to_prosecute_his/nfn3zqh/
+
+https://old.reddit.com/r/politics/comments/1nnpy3o/trump_orders_attorney_general_to_prosecute_his/nfn6ddr/
+
+https://old.reddit.com/r/politics/comments/1nnrymm/its_happened_the_united_states_of_america_is_no/nfmq90b/
+
+https://old.reddit.com/r/politics/comments/1nnrymm/its_happened_the_united_states_of_america_is_no/nfn0o1k/
+
+https://old.reddit.com/r/politics/comments/1nnrymm/its_happened_the_united_states_of_america_is_no/nfmvtz2/
+
+https://old.reddit.com/r/politics/comments/1nnrymm/its_happened_the_united_states_of_america_is_no/nfn7bl4/
+
+https://old.reddit.com/r/politics/comments/1nnrymm/its_happened_the_united_states_of_america_is_no/nfmqwr4/
+
+https://old.reddit.com/r/politics/comments/1nnrymm/its_happened_the_united_states_of_america_is_no/nfn4d95/
+
+Denial of Russian information warfare since year 2013.
+
+https://old.reddit.com/r/politics/comments/1nnrymm/its_happened_the_united_states_of_america_is_no/nfngxy6/
+
+Flames and destruction entertainment values.
+
