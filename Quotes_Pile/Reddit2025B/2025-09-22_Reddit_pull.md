@@ -1217,3 +1217,7 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_
 
 Comment short-length, no link or author name or book name. "Hans Asperger was a pediatrician who lived in Vienna in the 1930s and '40s. What's been grabbing the headlines and what my book reveals is his involvement in the child euthanasia program which was murdering children considered to be disabled."  https://www.npr.org/2018/05/12/610716324/doctor-behind-asperger-s-syndrome-subject-to-name-change
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfn60wa/
+
+The phrase "Pump and Dump" often implies wealth systems of USA stock market or bitcoin market. But also applies to pump women full of sperm and dump them.
+
