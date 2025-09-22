@@ -1223,6 +1223,6 @@ The phrase "Pump and Dump" often implies wealth systems of USA stock market or b
 
 https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfn6fs3/
 
-Reddit machine messages to satire-wasy RFK Jr and mockery-wash the Trump White House situation. To wash away any grasp of Russian Putin win of information warfare against Reddit society. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
+Reddit machine messages to satire-wash satire-rinse RFK Jr and mockery-wash the Trump White House situation. Can't be nonfiction serious. To wash away any grasp of Russian Putin win of information warfare against Reddit society. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
 
 
