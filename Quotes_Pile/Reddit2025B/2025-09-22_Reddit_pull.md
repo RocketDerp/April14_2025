@@ -1053,3 +1053,20 @@ https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_
 Fiction vs Fiction. MonoMyth story vs. MonoMyth story. Fiction sells!
 
 https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnqjhk/
+
+https://old.reddit.com/r/politics/comments/1nnwaic/jimmy_kimmels_show_returning_on_tuesday_abc/nfnrk7a/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfngid6/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnywxw/
+
+I've been in social media public communications since 1983... and people do not lean media ecology. They act out chasing trends and fashion styles wihtout any self-awareness of the origins of the trending patterns. Sheep following electronic media messages. “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992 OPERA_A Is this all we have learned about living, December 11, 1987 Indiana - my final year in High School in Fort Wayne. https://www.youtube.com/watch?v=8qxDBiiVjlQ
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnjg87/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnk930/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfn2666/
+
+"Everybody tends to merge his identity with other people at the speed of light. It’s called being mass man. It began quite a (Text sourced from https://www.organism.earth/library/document/mcluhan-mcmanus) long time ago." -  MARSHALL MCLUHAN IN CONVERSATION WITH MIKE MCMANUS **September 19, 1977**, year 1977... https://www.organism.earth/library/document/mcluhan-mcmanus
+
