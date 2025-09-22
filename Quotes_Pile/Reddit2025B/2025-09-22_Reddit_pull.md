@@ -573,3 +573,18 @@ https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_can
 
 "Americans who worry about Russia election interference should stop focusing on such trivialities and instead realize that the idea that they have a choice over how they are governed is a mere illusion, Vladislav Surkov, an adviser to Russian President Vladimir Putin, wrote in an op-ed published this week. "The illusion of choice is the most important illusion, the main trick of Western democracy especially…. The rejection of this illusion in favor of the reality that everything is predestined will allow society to reflect first on our vision of democratic development," Surkov wrote. "Foreign politicians talk about Russia's interference in elections and referendums around the world. In fact, the matter is even more serious: Russia interferes in your brains, we change your conscience, and there is nothing you can do about it." - February 12, 2019 message to We The People USA. https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
 
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nflzycr/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfmczi4/
+
+Downplaying the situation, normalizing it, "run of the mill". No authors, no links, no citations, no references on the topic. Just millions and millions of low-effort comments where people delcare it is obvious and normal and nothing to stand up to. Joke-washing it. Bill Moyers, a journalist who worked in the White House for the President press services, is more aware of the situation than most. A source to take serious. March 11, 2016 - which is BEFORE the November 2016 win by Trump. https://billmoyers.com/story/trump-the-american-fascist/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfmq2je/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm2dq5/
+
+Entertainment fiction addicts wanting to know when the next season of ths storyline will be released like waiting for a new season of a Apple TV television show that takes years between releases. Fiction-washing the situation with Reddit messages.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfm4ib1/
+
+Anything to deflect away from nonfiction books and learning how Russian information warfare started in March 2013 against Reddit. Messages to blame one single person instead of recognize mutliple NATO nations have reported on the Russian information warfare. ... ... ..."Dutch agencies provide crucial intel about Russia's interference in US-elections. Hackers from the Dutch intelligence service AIVD have provided the FBI with crucial information about Russian interference with the American elections. For years, AIVD had access to the infamous Russian hacker group Cozy Bear. That's what de Volkskrant and Nieuwsuur have uncovered in their investigation." "Dit artikel is geschreven doorHuib ModderkolkGepubliceerd op 25 januari 2018, 21:00" https://www.volkskrant.nl/wetenschap/dutch-agencies-provide-crucial-intel-about-russia-s-interference-in-us-elections~b4f8111b/?referrer=RoundSparrow
