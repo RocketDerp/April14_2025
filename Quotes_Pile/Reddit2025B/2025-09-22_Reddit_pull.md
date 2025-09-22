@@ -1106,5 +1106,19 @@ https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lo
 
 Predictable conditioned Internet Research Agency ways since year 2013. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html OPERA_A I'm on your side, but you can't understand. https://www.youtube.com/watch?v=JsntlJZ9h1U
 
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfmxtga/
 
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnrg63/
+
+"would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"  - December 5, 2014 https://youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnsjva/
+
+Hate attractions, hate motivates, like Charlie Kirk media podcasting content.
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnx5vo/
+
+Truth and fixing mistakes is against fiction addictions
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnxjqv/
 
