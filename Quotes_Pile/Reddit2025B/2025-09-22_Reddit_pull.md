@@ -404,3 +404,30 @@ OPERA_A Please read James Joyce's Finnegans Wake from 1924 onward and Marshall M
 https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmi8c4/
 
 "only half", look at this Reddit comment section eating the crazy media content and acting in predictable condition ways that the Russian Internet Research Agency conditioned since March 2013. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M 
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmbmcl/
+
+Multiple competitng fiction storytelling emerges from such a shared media addiction experience of a podcast media creator. Fiction outsells nonfiction.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmewhg/
+
+The unusual technique, the shape of the hardware, used to persecute Jesus has become the lasting symbol. People who have never read one single senteice of The Bible have been exposed to the shape of the machine used to kill Jesus. It is the gun machine and dramatic killing that often outsells the person being killed.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmgoz7/
+
+Reddit is a meme consumerist cult of mocking MAGA and mocking Trump. A messaging club of hate messaging.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmj3c9/
+
+Don't do low-effort comments. Don't teach media ecology. Don't rescue the USA from Russian information warfare using nonfiction learning. **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmjs1b/
+
+The audience takeaway, that's why the media content creators created said media. Engaging and passed along on Reddit.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm1llb/
+
+"Everything is Media Ecology" [Media_Ecology/Everything_is_ME.md](../../Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmm855/
+
