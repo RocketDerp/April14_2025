@@ -469,3 +469,10 @@ https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_
 
 Competitive education values, sports school mentality messaging. Donald Trump went way beyond 1st grade: https://www.phillymag.com/news/2019/09/14/donald-trump-at-wharton-university-of-pennsylvania/
 
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nflynxd/
+
+The constant mindsets of two and only two answers. If answer one is bad, answer two is bad, give up and don't keep looking for more answers. "both sides" binary logic.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nflzlcn/
+
+Note the abscience of author name, book titles, links, citations, quotes. ... ... ... “In an ever-changing, incomprehensible world the masses had reached the point where they would, at the same time, believe everything and nothing, think that everything was possible and that nothing was true. ... Mass propaganda discovered that its audience was ready at all times to believe the worst, no matter how absurd, and did not particularly object to being deceived because it held every statement to be a lie anyhow. The totalitarian mass leaders based their propaganda on the correct psychological assumption that, under such conditions, one could make people believe the most fantastic statements one day, and trust that if the next day they were given irrefutable proof of their falsehood, they would take refuge in cynicism; instead of deserting the leaders who had lied to them, they would protest that they had known all along that the statement was a lie and would admire the leaders for their superior tactical cleverness.” ― Hannah Arendt, The Origins of Totalitarianism. Publshed year 1951.
