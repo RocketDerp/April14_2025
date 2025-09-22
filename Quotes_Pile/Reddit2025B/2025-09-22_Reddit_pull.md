@@ -1082,3 +1082,12 @@ https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lo
 
 Context bewilderment abounds. [/Media_Ecology/Context_Bewilderment.md](/Media_Ecology/Context_Bewilderment.md) - OPERA_A You Beter Figure it Out Now! I wish you could Understand! https://www.youtube.com/watch?v=eKrcd9o03SE
 
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfngc4r/
+
+If only Fox News found it irritating to ask questions and not understand, being rural outdoor farmers who didn't go to New York Universtiy and learn media ecology from Neil Postman. OPERA_A it is just a compromise of the things we do for Love and neighbors in USA. https://www.youtube.com/watch?v=P0rf3_viTxk
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfo0zzp/
+
+Age 79 you say? Year 2009 blogging in Swat Valley Pakistan yuou say? "۸- دروغگو حافظه ندارد"
+
+
