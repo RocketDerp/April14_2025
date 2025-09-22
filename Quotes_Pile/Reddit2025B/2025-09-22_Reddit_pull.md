@@ -1138,7 +1138,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1nnmwq9/hes_not_worthy/nfn40dr
 
 https://old.reddit.com/r/clevercomebacks/comments/1nnmwq9/hes_not_worthy/nflq6h9/
 
-Reddit society can not name "Internet Net Research Agency", "Cambridge Analytica" doctors. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
+Reddit society can not name "Internet Research Agency" and "Cambridge Analytica" doctors. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
 
 https://old.reddit.com/r/clevercomebacks/comments/1nnmwq9/hes_not_worthy/nflmyyf/
 
@@ -1154,4 +1154,29 @@ https://old.reddit.com/r/memes/comments/1nnsw8q/kids_look_at_me_like_ive_lost_my
 
 Fiction expeirence outsells nonfiction real raelity planet Earth.
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmkhq3/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmi5co/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmn0er/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmn0er/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmtfbp/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmm6dj/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmj7sh/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmwx20/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmy89m/
+
+Synptons of information overload. ... ... ... "the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. **It is only now (1992) beginning to be understood that cultures may also suffer grievously from information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfnb1lc/
+
+Reddit comment without link, author name, book name, etc.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmnarp/
 
