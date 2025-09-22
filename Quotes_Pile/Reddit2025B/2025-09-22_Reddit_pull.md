@@ -476,3 +476,24 @@ The constant mindsets of two and only two answers. If answer one is bad, answer 
 https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nflzlcn/
 
 Note the abscience of author name, book titles, links, citations, quotes. ... ... ... “In an ever-changing, incomprehensible world the masses had reached the point where they would, at the same time, believe everything and nothing, think that everything was possible and that nothing was true. ... Mass propaganda discovered that its audience was ready at all times to believe the worst, no matter how absurd, and did not particularly object to being deceived because it held every statement to be a lie anyhow. The totalitarian mass leaders based their propaganda on the correct psychological assumption that, under such conditions, one could make people believe the most fantastic statements one day, and trust that if the next day they were given irrefutable proof of their falsehood, they would take refuge in cynicism; instead of deserting the leaders who had lied to them, they would protest that they had known all along that the statement was a lie and would admire the leaders for their superior tactical cleverness.” ― Hannah Arendt, The Origins of Totalitarianism. Publshed year 1951.
+
+https://old.reddit.com/r/rareinsults/comments/1nnpc3g/shes_lovin_it/nfmi1vk/
+
+Reddit entertainment-washing the serious situation in USA. Constantly meme-washing the situation to serve the addiction to hate messaging that Trump and Putin created.
+
+https://old.reddit.com/r/rareinsults/comments/1nnpc3g/shes_lovin_it/nfmfoj1/
+
+September 9, 2014 publication. "At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare.” It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action." https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/rareinsults/comments/1nnpc3g/shes_lovin_it/nfmio97/
+
+https://old.reddit.com/r/rareinsults/comments/1nnpc3g/shes_lovin_it/nfmh7bj/
+
+"This Is Not Propaganda: Adventures in the War Against Reality is a **2019 book** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda
+
+https://old.reddit.com/r/rareinsults/comments/1nnpc3g/shes_lovin_it/nfm55sq/
+
+https://old.reddit.com/r/rareinsults/comments/1nnpc3g/shes_lovin_it/nfm7sdt/
+
+"we see other people engaging in this same, sort of, attempting to reduce complexity. I mean, the political parties, to the extent that they exist at all anymore as anything other than fund raising devices, which I don’t know. I don’t think they have any ideologies because in a postmodern situation who would have an ideology except just as a momentary thing? Like your “Week as a Communist” by Suzie Saint Pierre at Duke [crowd laughter], “My Week as a Trotskyist”, “My Week as a Buddhist”, “My Two Weeks as a Follower of the Cult of Elvis”, I mean, these are papers that you could legitimately expect people to write if they still read or wrote. Not many people still do either – read or write, much – but in any case; reduction of complexity." - Texan Rick Roderick, Duke University, 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
