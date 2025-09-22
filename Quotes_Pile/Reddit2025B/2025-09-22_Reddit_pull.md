@@ -1006,3 +1006,25 @@ https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday
 
 The concerns in these USA September 2025 situations of Trump White House.
 
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfluvsw/
+
+Why do I have to react-comment to Reddit reaction comments?
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflvvq2/
+
+Is Donald Trump Truth Social content above trash? What exactly in USA September 2025 is not trash content? For perspective? If you are a big fan of McDonald's trash and declare Burger King trash... it provides coaprative mythology perspective. 
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflrz5h/
+
+WHEN exactly did humanity not be batshit crazy? When exactly did human socities leave beyond mythology of religon? What geography, what date and time period? Batshit fiction poetry always outsells nonfiction science. I can find no determined effort to declare The Bible as science fiction that people accept. People in year 2025 think science fiction Star Wars Andor is going to save from real-world reality Trump self-harm of USA.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflss1p/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm4nz1/
+
+George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "A metaphor is an image that suggests something else. For instance, if I say to a person, “You are a nut,” I’m not suggesting that I think the person is literally a nut. “Nut” is a metaphor. The reference of the metaphor in religious traditions is to something transcendent that is not literally any thing. If you think that the metaphor is itself the reference, it would be like going to a restaurant, asking for the menu, seeing beefsteak written there, and starting to eat the menu. For example, Jesus ascended to heaven. The denotation would seem to be that somebody ascended to the sky. That’s literally what is being said. But if that were really the meaning of the message, then we have to throw it away, because there would have been no such place for Jesus literally to go. We know that Jesus could not have ascended to heaven because there is no physical heaven anywhere in the universe. Even ascending at the speed of light, Jesus would still be in the galaxy. Astronomy and physics have simply eliminated that as a literal, physical possibility. But if you read “Jesus ascended to heaven” in terms of its metaphoric connotation, you see that he has gone inward—not into outer space but into inward space, to the place from which all being comes, into the consciousness that is the source of all things, the kingdom of heaven within. The images are outward, but their reflection is inward. The point is that we should ascend with him by going inward. It is a metaphor of returning to the source, alpha and omega, of leaving the fixation on the body behind and going to the body’s dynamic source." - age 83, Joseph Campbell
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfmbmn8/
+
+Practical response to the woman.
+
