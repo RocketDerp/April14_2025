@@ -1088,7 +1088,21 @@ If only Fox News found it irritating to ask questions and not understand, being 
 
 https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfo0zzp/
 
-Age 79 you say? Year 2009 blogging in Swat Valley Pakistan yuou say? "بزرگی‌به عقل است،نه به سن" . ... ... ... “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013. Age 16. Public blogger since age 11. "Malala Yousafzai was 11 years old when she started blogging for BBC Urdu under the pseudonym Gul Makai in January 2009"
+Age 79 you say? Year 2009 blogging in Swat Valley Pakistan they say? "بزرگی‌به عقل است،نه به سن" . ... ... ... “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013. Age 16. Public blogger since age 11. "Malala Yousafzai was 11 years old when she started blogging for BBC Urdu under the pseudonym Gul Makai in January 2009"
 
- 
- 
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfo3vbv/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfnhwsz/
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfmuz4w/
+
+Tragedy of the commmons of social amusement mills. https://en.wikipedia.org/wiki/Tragedy_of_the_commons
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfmz7ue/
+
+Hate as faith. Faith in hate. Faith in burning goodness information to generate future search-engine landing hate.
+
+https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfmv7i0/
+
+Predictable conditioned Internet Research Agency ways since year 2013. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
+
