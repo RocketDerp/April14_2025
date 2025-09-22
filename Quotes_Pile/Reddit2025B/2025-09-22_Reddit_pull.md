@@ -713,3 +713,61 @@ Trump attracts people who prize hate. Hate messaging platforms flock to Trump vi
 
 https://old.reddit.com/r/CringeTikToks/comments/1nnr9x8/trump_bringing_up_curing_autism_during_a_memorial/nfmndls/
 
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfljrte/
+
+Audiences, Reddit community, is attracted to fiction content. Grading and ranking it, hate watching.
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nflimkb/
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfmjejq/
+
+They deserve Russia winning an information warfare that the Pentagon and We The People did not consider it civic duty to fight. Kremlin using Cambridge Analytica mental manipulation patterns to induce self-harm and egoamnia in the entire nation, all people, not just MAGA.
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nflfvc4/
+
+Reddit trolling media ddicts always want more Matthew 4:19 trolling for fiction. The constant messaging that what people need to do when encountering fiction wars created by Putina and Trump is to *add more fiction*. Aoviding nonfiction learning of media ecology and Russian information warfare techniques. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfmao48/
+
+So fun to have antics politics all the time, every day. So fun and enjoyable that Doanld Trump is leading the nation again in 2025. 
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nflftzs/
+
+Reddit comment media laugh-washes Trump constantly. Amusing-washing everything done by Putin Kremlin and Trump White House. **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nflgt1j/
+
+Short Reddit comments to satire-wash and assert the humor in having the USA wrecked by amusment. Cheering on what Neil Postman warned about in 1985 book "Amusing Ourselves To Death" 40 yeas ago.  "Neil Postman: Amusing Democracy to Death. March 31, 2025" https://www.thepublicdiscourse.com/2025/03/97527/
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nflopp9/
+
+Note the cult of comment messages behaviors: avoiding author names, books on the subject, quotes from experts, eetc. Just off-the-cuff comments. No call for cult deprogramming. No desire to fight back against Russia cult warfare that has defeated the USA since year 2013.
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nflma1z/
+
+Tiny short messages. Unable to engage nonfiction learning. ... ... ..."The **'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021** — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfloigo/
+
+The reddit comment section short-messages self-awareness situation has wrecked the nation. It isn't just one 79 year old man that is the crisis. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfm1oje/
+
+Tony Clifton and Surkov students screenplays. ... ... ... "we see other people engaging in this same, sort of, attempting to reduce complexity. I mean, the political parties, to the extent that they exist at all anymore as anything other than fund raising devices, which I don’t know. I don’t think they have any ideologies because in a postmodern situation who would have an ideology except just as a momentary thing? Like your “Week as a Communist” by Suzie Saint Pierre at Duke \[crowd laughter\], “My Week as a Trotskyist”, “My Week as a Buddhist”, “My Two Weeks as a Follower of the Cult of Elvis”, I mean, these are papers that you could legitimately expect people to write if they still read or wrote. Not many people still do either – read or write, much – but in any case; reduction of complexity." - Texan Rick Roderick, Duke University, **year 1993** https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfmxmgv/
+
+FYI Reddit community, the lack of shame for short-messsage comments like Twitter and a bunch of people flocking on Reddit to Trump content for low-effort applause of the comedy. You lost a Russian informaiton war and you can't even name the 'Internet Research Agency", name key dates such as November 7, 2013 - discuss any nonfiction on the subject. Instead, just millions and millions of comments that dumb-down the population in every way Carl Sagan described in his 1995 book before Reddit was created. ... ... ... "our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming"” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfleoa4/
+
+Constant messages on Reddit to declare that Donald Trump has a disease, so MAGA and Trump are not responsible for their choices and actions. Don't hold people in charge responsible. Very popular messaging on social machines.
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nfll5ty/
+
+Only the out-group. Exactly what MAGA says about Reddit and liberals. Everyone in USA declaring that everyone is dumb and ignorant. Nobody wanting to cite nonfiction learning on the subject. When reaction comments are all people are interested in consuming. ... ... ... “In America, everyone is entitled to an opinion, and it is certainly useful to have a few when a pollster shows up. But these are opinions of a quite different roder from eighteenth- or nineteenth-century opinions. It is probably more accurate to call them emotions rather than opinions, which would account for the fact that they change from week to week, as the pollsters tell us. What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information--misplace, **irrelevant, fragmented or superficial information--information that creates the illusion of knowing something but which in fact leads one away from knowing**. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/politics/comments/1nnlpxo/trump_79_so_desperate_to_win_nobel_prize_he_makes/nflrhip/
+
+"I would love to see"... addicts to fiction call out their desires for more Trump content.
+
