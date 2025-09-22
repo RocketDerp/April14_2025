@@ -958,5 +958,9 @@ https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday
 
 Thank God for this Reddit commentary and my commentary about the commentary on Reddit comments.
 
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfltb60/
+
+Question, what did Reddit users say to themselves when Trump wasn't dead the first few days of September 2025? Fantasy mythology storytelling of Reddiit and Bluesky media socities? reference non-fiction: September 3, 2025 world news about Bluesky and Reddit socities https://www.aljazeera.com/news/2025/9/3/how-false-rumours-of-trumps-untimely-death-spread-on-social-media
+
 
 
