@@ -677,3 +677,39 @@ https://old.reddit.com/r/news/comments/1nnspe0/after_cuts_to_food_stamps_trump_a
 
 "LMAO" laugh-track of Reddit comment section, to find Trump White House a constant source of humor-based entertainment and amusement.
 
+https://old.reddit.com/r/law/comments/1nnt0yo/leavitt_mr_homan_never_took_the_50000_so_you/nfmvuhs/
+
+The Bible (Jesus Cross) is science fiction storytelling about magical angel voices from outer space. A person who adores fiction.
+
+https://old.reddit.com/r/law/comments/1nnt0yo/leavitt_mr_homan_never_took_the_50000_so_you/nfn4vc9/
+
+Constant Reddit messages: Donald Trump a child, innocent child not responsible for adult choices to harm the USA serving Putin. 
+
+https://old.reddit.com/r/law/comments/1nnt0yo/leavitt_mr_homan_never_took_the_50000_so_you/nfn08ik/
+
+https://old.reddit.com/r/law/comments/1nnt0yo/leavitt_mr_homan_never_took_the_50000_so_you/nfmz169/
+
+https://old.reddit.com/r/europe/comments/1nnr71s/polish_mfa_sikorski_i_have_only_one_request_to/nfmjxpu/
+
+https://old.reddit.com/r/europe/comments/1nnr71s/polish_mfa_sikorski_i_have_only_one_request_to/nfmxre1/
+
+https://old.reddit.com/r/europe/comments/1nnr71s/polish_mfa_sikorski_i_have_only_one_request_to/nfmismd/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nnr9x8/trump_bringing_up_curing_autism_during_a_memorial/nfmigfj/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nnr9x8/trump_bringing_up_curing_autism_during_a_memorial/nfmojtl/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nnr9x8/trump_bringing_up_curing_autism_during_a_memorial/nfmk3t3/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nnr9x8/trump_bringing_up_curing_autism_during_a_memorial/nfmm84p/
+
+Our Country is driven by media addictons to Reality TV stars, Truth Social fiction, low-effort comment messages.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nnr9x8/trump_bringing_up_curing_autism_during_a_memorial/nfmpuio/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nnr9x8/trump_bringing_up_curing_autism_during_a_memorial/nfmigqa/
+
+Trump attracts people who prize hate. Hate messaging platforms flock to Trump videos and content.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nnr9x8/trump_bringing_up_curing_autism_during_a_memorial/nfmndls/
+
