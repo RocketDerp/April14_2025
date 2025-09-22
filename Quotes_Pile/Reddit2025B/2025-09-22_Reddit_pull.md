@@ -1221,3 +1221,8 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_
 
 The phrase "Pump and Dump" often implies wealth systems of USA stock market or bitcoin market. But also applies to pump women full of sperm and dump them.
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfn6fs3/
+
+Reddit machine messages to satire-wasy RFK Jr and mockery-wash the Trump White House situation. To wash away any grasp of Russian Putin win of information warfare against Reddit society. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
+
+
