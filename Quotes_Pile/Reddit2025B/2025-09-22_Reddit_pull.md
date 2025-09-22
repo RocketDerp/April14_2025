@@ -184,5 +184,63 @@ Just like Donald Trump, criminals are entertaining and amusing, funny content. T
 
 https://old.reddit.com/r/Music/comments/1nnlqan/singer_d4vd_is_apparently_the_sole_moderator_of/nfld75f/
 
-Exactly how audiences behave towards Donald Trump. Flocking to every Q Drop / information about mocking and insutling Trump.
+Exactly how audiences behave towards Donald Trump. Flocking to every Q Drop / information about mocking and insutling Trump. OPERA_A USA, you are Killing Yourself and you don't Believe it! https://www.youtube.com/watch?v=apTy_Wez4V4
+
+https://old.reddit.com/r/law/comments/1nnm5ab/john_oliver_argues_disney_should_legally_fight/nflu753/
+
+The USA is drowning in insults and fiction addictions.
+
+https://old.reddit.com/r/law/comments/1nnm5ab/john_oliver_argues_disney_should_legally_fight/nfm0lfn/
+
+Blaming dementia, very popular messaging. As dementia messsages on Reddit convicne the audience that Trump is not responsible for his choices and actions, because he has a physical brain problem. People eat this up. 
+
+https://old.reddit.com/r/law/comments/1nnm5ab/john_oliver_argues_disney_should_legally_fight/nfluhwx/
+
+Dr. Martin Luther King, Jr : "Actually, we who engage in nonviolent direct action are not the creators of tension. We merely bring to the surface the hidden tension that is already alive. We bring it out in the open, where it can be seen and dealt with. Like a boil that can never be cured so long as it is covered up but must be opened with all its ugliness to the natural medicines of air and light, injustice must be exposed, with all the tension its exposure creates, to the light of human conscience and the air of national opinion before it can be cured." - 16 April 1963
+
+https://old.reddit.com/r/law/comments/1nnm5ab/john_oliver_argues_disney_should_legally_fight/nflic2n/
+
+Reddit too.
+
+https://old.reddit.com/r/law/comments/1nnm5ab/john_oliver_argues_disney_should_legally_fight/nfm36t3/
+
+https://old.reddit.com/r/law/comments/1nnm5ab/john_oliver_argues_disney_should_legally_fight/nfm1r32/
+
+https://old.reddit.com/r/interestingasfuck/comments/1nnl7zp/for_years_the_irish_police_the_garda_siochana/nflf39a/
+
+The James Joyce Finnegans Wake Exprience, year 1924 onward.
+
+https://old.reddit.com/r/interestingasfuck/comments/1nnl7zp/for_years_the_irish_police_the_garda_siochana/nflgww7/
+
+https://old.reddit.com/r/interestingasfuck/comments/1nnl7zp/for_years_the_irish_police_the_garda_siochana/nflcbxa/
+
+https://old.reddit.com/r/interestingasfuck/comments/1nnl7zp/for_years_the_irish_police_the_garda_siochana/nfldfmb/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl0ojh/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflqtk3/
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflkuf8/
+
+Fiction outsells nonfiction. Simulacras outsell nonfiction. Millions and millions and millions of low-effort comment messages are far more popular than nonfiction learning of media ecology.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nfl3t8c/
+
+George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "We just don’t know very much about Jesus. All we know are four contradictory texts that purport to tell us what he said and did.", "Mythology is very fluid. Most of the myths are self-contradictory. You may even find four or five myths in a given culture, all giving different versions of the same mystery. Then theology comes along and says it has got to be just this way. Mythology is poetry, and the poetic language is very flexible. Religion turns poetry into prose. God is literally up there, and this is literally what he thinks, and this is the way you’ve got to behave to get into proper relationship with that god up there."
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflbj9r/
+
+George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression? This is a problem that the world is going to, have to face—because aggression is a natural instinct just as much as, and more immediate than, compassion, and it is always going to be there. It’s a biological fact. Of course, in biblical times, when the Hebrews came in, they really wiped out the Goddess. The term for the Canaanite goddess that’s used in the Old Testament is “the Abomination.” Apparently, throughout the period represented in the Book of Kings, for example, there was a back and forth between the two cults. Many of the Hebrew kings were condemned in the Old Testament for having worshiped on the mountaintops. Those mountains were symbols of the Goddess. And there was a very strong accent against the Goddess in the Hebrew, which you do not find in the Indo-European mythologies. Here you have Zeus marrying the Goddess, and then the two play together. So it’s an extreme case that we have in the Bible, and our own Western subjugation of the female is a function of biblical thinking."
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflafr2/
+
+Superman comics are science fiction about a far away planet where a baby is born. The Bible is science fiction story about magical ghosts / angels who message people from outer space. The Torah / Bible / Quran science ficiton trillogy.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflaqe7/
+
+Santa said you were on the "bad list" this year at Christmas / school break / winter solstice.
+
+https://old.reddit.com/r/politics/comments/1nnk98b/donald_trump_claims_charlie_kirks_last_request/nflde09/
+
+Magical Santa stories with magical flying deer.
 
