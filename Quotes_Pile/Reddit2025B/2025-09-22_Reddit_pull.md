@@ -1088,6 +1088,9 @@ If only Fox News found it irritating to ask questions and not understand, being 
 
 https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfo0zzp/
 
-Age 79 you say? Year 2009 blogging in Swat Valley Pakistan yuou say? "۸- دروغگو حافظه ندارد"
+Age 79 you say? Year 2009 blogging in Swat Valley Pakistan yuou say? "بزرگی‌به عقل است،نه به سن", 
+ "دروغگو حافظه ندارد". ... ... ...
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013. Age 16. Public blogger since age 11. "Malala Yousafzai was 11 years old when she started blogging for BBC Urdu under the pseudonym Gul Makai in January 2009"
 
-
+ 
+ 
