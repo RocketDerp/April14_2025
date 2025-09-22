@@ -833,3 +833,99 @@ https://old.reddit.com/r/politics/comments/1nnl9te/the_debate_me_bro_grift_how_t
 
 Every fiction story is valid, ever misundestanding is valid, every failure of comprehension is valid. Information overload is a real and serious problem. ... ... ... “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. **It is only now (1992) beginning to be understood that cultures may also suffer grievously from information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
 
+https://old.reddit.com/r/WorkReform/comments/1nnn0t9/a_little_math_shows_the_enormous_income_disparity/nfm0eff/
+
+https://old.reddit.com/r/WorkReform/comments/1nnn0t9/a_little_math_shows_the_enormous_income_disparity/nfls4xy/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflrr3i/
+
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfmhzv8/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfmrk4k/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfn6pxs/
+
+That's why Reddit needs to make Romans 11:32 the front-page education topic, the source of sins and the outcome equation. www.Romans1132.org ... ... ... George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "This is the theme that James **Joyce takes over and develops** in Ulysses — the awakening of his hero, Stephen Dedalus, to manhood through a shared compassion with Leopold Bloom. That was the **awakening of his heart to love and the opening of the way**. In Joyce’s next great work, Finnegans Wake, there is a mysterious number that constantly recurs. It is 1132. It occurs as a date, for example, and inverted as a house address, 32 West 11th Street. In every chapter, some way or another, 1132 appears. When I was writing A Skeleton Key to Finnegans Wake, I tried every way I knew to imagine, “What the dickens is this number 1132?” Then I recalled that in Ulysses, while Bloom is wandering about the streets of Dublin, a ball drops from a tower to indicate noon, and he thinks, “The law of falling bodies, 32 feet per sec per sec.” Thirty-two, I thought, must be the number of the Fall; 11 then might be the renewal of the decade, 1, 2, 3, 4, 5, 6, 7, 8, 9, 10—but then 11, and you start over again. There were a number of other suggestions in Ulysses that made me think, “Well, what we have here is perhaps the number of the Fall, 32, and Redemption, 11; sin and forgiveness, death and renewal.” Finnegans Wake has to do with an event that occurred in Phoenix Park, which is a major park in Dublin. The phoenix is the bird that burns itself to death and then comes to life renewed. Phoenix Park thus becomes the Garden of Eden where the Fall took place, and where the cross was planted on the skull of Adam: O felix culpa (“O Phoenix culprit!” says Joyce). And so we have death and redemption. That seemed a [pretty good answer, and that’s the one I gave in A Skeleton Key](https://en.wikipedia.org/wiki/A_Skeleton_Key_to_Finnegans_Wake). But while preparing a class one evening for my students in comparative mythology, I was rereading St. Paul’s Epistle to the Romans and came across a curious sentence that seemed to epitomize everything Joyce had had in mind in Finnegans Wake. St. Paul had written, “For God has consigned all men to disobedience, that he may show his mercy to all.” You cannot be so disobedient that God’s mercy will not be able to follow you, so give him a chance. “Sin bravely,” as Luther said, and see how much of God’s mercy you can invoke. The great sinner is the great awakener of God to compassion. This idea is an essential one in relation to the paradoxology of morality and the values of life. So I said to myself, “Well, gee, this is really what Joyce is talking about.” So I wrote it down in my Joyce notebook: “Romans, Chapter 11, verse 32.” Can you imagine my surprise? There was that same number again, 1132, right out of the Good Book! Joyce had taken that paradox of the Christian faith as the motto of the greatest masterwork of his life. And there he describes ruthlessly" - age 83, Joseph Campbell
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfn9zrg/
+
+See also... Year 635 Levant, the third book in the science fiction trillogy of agenls from outer space. "7 Levels Of Heaven In Islam, Surahs Of Jannah In The Quran" - https://zamzam.com/blog/seven-levels-of-heaven/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfmnb50/
+
+You won't find any social media addicts able to cite nonfiction on this subject, I can't: "A conservative blogger named Tracy Diaz was helped by Russian-linked Twitter accounts to promote QAnon as early as November 2017, records show" https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html Also note I (RoundSparrow / Sephen Gutknecht) shared that story **link on Reddit itself July 28, 2021** https://old.reddit.com/r/QAnonRussia/comments/ot5wk0/qanon_posts_promoted_by_russialinked_accounts/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfmgqrp/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm8boa/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfmhui9/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflqw0c/
+
+If Reddit community would face up to the media ecology crisis and Russian information warfare since year 2013... we could every 4 hours repeat and repeat and keep reapting Bible literacy lessons. We have a Bible literacy crisis. Starting with every person learning Bible verse "1 John 3:17" and how to judge and measure love from Elon Musk billionare, Rupert Murdoch billiionare, Donald Trump billionae. Then also the judgement statement of liars in verse "1 John 4:20" next.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflrjpu/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflstwf/
+
+Really, Bible verse "1 John 4:20" addresses so many of our interpretation problems. "I love Jesus" is WRONG!
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm0dzr/
+
+Really, Bible verse "1 John 4:20" addresses so many of our interpretation problems. "I love Allah" is WRONG!
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm0xd8/
+
+Really, Bible verse "1 John 4:20" addresses so many of our interpretation problems. It tells you to call people "liars" as instructed by The Bible if they HATE any person alive int he world!
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm2r52/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflz5qi/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfluak7/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflzxcs/
+
+And the height of Trump Tower in NYC is right near 666 feet, Trump lived in the Penthouse / top flor. What a Playboy of symbolism, that man! Symbolism mind-fucking constantly. Trump even draws attention to the height of Trump Tower when the Quran comes up as a big NYC topic. https://www.politico.com/video/2016/09/donald-trump-says-his-building-is-tallest-in-lower-manhattan-after-fall-of-twin-towers-9-11-060544
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfluyph/
+
+Toxic popularity.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm6vlq/
+
+The Russian Internet Research Agency invaded media systems starting in March 2013...
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfmi4t2/
+
+Why oh why do Reddit users not see thier own avoidance of nonfiction. "The **'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021** — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflt1ds/
+
+The fiction addicts who favor a 2,000 year old Levant imported storybook are easier to spot than the Reddit fiction comment section addicts who avoid nonfiction.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm28ys/
+
+out-group hate motivations. 
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflqnnn/
+
+In The Bible, there is no Hell, the punch-line of The Bible is in vese Romans 11:32.  www.Romans1132.org ... ... ... George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "This is the theme that James **Joyce takes over and develops** in Ulysses — the awakening of his hero, Stephen Dedalus, to manhood through a shared compassion with Leopold Bloom. That was the **awakening of his heart to love and the opening of the way**. In Joyce’s next great work, Finnegans Wake, there is a mysterious number that constantly recurs. It is 1132. It occurs as a date, for example, and inverted as a house address, 32 West 11th Street. In every chapter, some way or another, 1132 appears. When I was writing A Skeleton Key to Finnegans Wake, I tried every way I knew to imagine, “What the dickens is this number 1132?” Then I recalled that in Ulysses, while Bloom is wandering about the streets of Dublin, a ball drops from a tower to indicate noon, and he thinks, “The law of falling bodies, 32 feet per sec per sec.” Thirty-two, I thought, must be the number of the Fall; 11 then might be the renewal of the decade, 1, 2, 3, 4, 5, 6, 7, 8, 9, 10—but then 11, and you start over again. There were a number of other suggestions in Ulysses that made me think, “Well, what we have here is perhaps the number of the Fall, 32, and Redemption, 11; sin and forgiveness, death and renewal.” Finnegans Wake has to do with an event that occurred in Phoenix Park, which is a major park in Dublin. The phoenix is the bird that burns itself to death and then comes to life renewed. Phoenix Park thus becomes the Garden of Eden where the Fall took place, and where the cross was planted on the skull of Adam: O felix culpa (“O Phoenix culprit!” says Joyce). And so we have death and redemption. That seemed a [pretty good answer, and that’s the one I gave in A Skeleton Key](https://en.wikipedia.org/wiki/A_Skeleton_Key_to_Finnegans_Wake). But while preparing a class one evening for my students in comparative mythology, I was rereading St. Paul’s Epistle to the Romans and came across a curious sentence that seemed to epitomize everything Joyce had had in mind in Finnegans Wake. St. Paul had written, “For God has consigned all men to disobedience, that he may show his mercy to all.” You cannot be so disobedient that God’s mercy will not be able to follow you, so give him a chance. “Sin bravely,” as Luther said, and see how much of God’s mercy you can invoke. The great sinner is the great awakener of God to compassion. This idea is an essential one in relation to the paradoxology of morality and the values of life. So I said to myself, “Well, gee, this is really what Joyce is talking about.” So I wrote it down in my Joyce notebook: “Romans, Chapter 11, verse 32.” Can you imagine my surprise? There was that same number again, 1132, right out of the Good Book! Joyce had taken that paradox of the Christian faith as the motto of the greatest masterwork of his life. And there he describes ruthlessly" - age 83, Joseph Campbell
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfluj02/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflwccw/
+
+Reddit comment users are very real to meme fiction addicts. Bluesky comment addicts.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflzdsj/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm8t7i/
+
+Trickle Down memes and messages. Trickle Down Bible verses from the Church of Rome who spoke in Latin. Maritn Luther of Germany (Octoberfest going on as I type) translated the Bible into everyday langauge on Halloween! https://www.christianity.com/wiki/holidays/the-connection-between-halloween-reformation-day.html
+
+
+
