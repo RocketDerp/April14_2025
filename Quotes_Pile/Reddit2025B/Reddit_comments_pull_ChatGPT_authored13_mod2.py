@@ -12,6 +12,8 @@ from urllib.parse import urlparse
 import json
 import os
 from bs4 import NavigableString, Tag
+import traceback
+
 
 
 HEADERS = {"User-Agent": "Mozilla/5.0"}
@@ -129,17 +131,22 @@ def convert_html_to_md(div):
             return inner
         return ""
 
-    md_text = recurse(div).strip()
+    try:
+        md_text = recurse(div).strip()
 
-    # Tidy up line endings: force two-space at end of non-blank lines
-    lines = md_text.splitlines()
-    for i in range(len(lines)):
-        if lines[i].strip() and (i + 1 < len(lines) and not lines[i + 1].strip()):
-            continue
-        elif lines[i].strip() and not lines[i].endswith("  "):
-            lines[i] += "  "
+        # Tidy up line endings: force two-space at end of non-blank lines
+        lines = md_text.splitlines()
+        for i in range(len(lines)):
+            if lines[i].strip() and (i + 1 < len(lines) and not lines[i + 1].strip()):
+                continue
+            elif lines[i].strip() and not lines[i].endswith("  "):
+                lines[i] += "  "
 
-    return "\n".join(lines).rstrip()
+        return "\n".join(lines).rstrip()
+    except Exception as e:
+        print(f"ERROR converting HTML to markdown. {e}")
+        print(div)
+        return f"ERROR\nERROR on HTML to markdown. Providing raw HTML:\n{div}";
 
 
 
@@ -191,19 +198,34 @@ def fetch_comment_data(url, idx=None, args=None):
 
     comment_div = soup.find("div", id=comment_div_id)
     if not comment_div:
+        print("using fallback method to find comment")
         comment_div = soup.find("div", attrs={"data-fullname": f"t1_{comment_id}"})
+            
     if not comment_div:
         raise ValueError(f"Could not find comment div with id t1_{comment_id} on page {url}")
 
-    body_div = comment_div.select_one(".usertext-body .md")
-    comment_md = convert_html_to_md(body_div) if body_div else "[comment not found]"
+    print("processing comment")
+    try:
+        body_div = comment_div.select_one(".usertext-body .md")
+        comment_md = None
+        if body_div:
+            comment_md = convert_html_to_md(body_div)
+        else:
+            print("WARNING: comment not found")
+            comment_md = "[comment not found]"
 
-    author_tag = comment_div.select_one("a.author")
-    author = author_tag.text.strip() if author_tag else "[deleted]"
+        author_tag = comment_div.select_one("a.author")
+        author = author_tag.text.strip() if author_tag else "[deleted]"
 
-    time_tag = comment_div.select_one(".tagline time")
-    comment_age = time_tag.text.strip() if time_tag else None
-    comment_timestamp = None
+        time_tag = comment_div.select_one(".tagline time")
+        comment_age = time_tag.text.strip() if time_tag else None
+        comment_timestamp = None
+    except Exception as e:
+        print(f"problem processing comment checkpoint A. {e}")
+        #print(e)
+        print(traceback.format_exc())
+        raise ValueError(f"Could not process comment {comment_id} on page {url}")
+
     if time_tag and "title" in time_tag.attrs:
         try:
             dt = datetime.datetime.strptime(time_tag["title"], "%a %b %d %H:%M:%S %Y UTC")
@@ -274,6 +296,9 @@ def fetch_user_info_hover(username, args=None):
 
     created = datetime.datetime.utcfromtimestamp(data["created_utc"]).isoformat() + "Z"
     bio = data.get("subreddit", {}).get("public_description")
+    user_title = data.get("subreddit", {}).get("title")
+    if user_title:
+        bio = user_title + " : " + bio
     link_karma = data.get("link_karma")
     comment_karma = data.get("comment_karma")
     return created, bio, link_karma, comment_karma, live_fetch
@@ -330,7 +355,8 @@ def main():
             )
         except Exception as e:
             errorCountA += 1
-            print(f"\n****** ERROR fetching comment: {e} error count: {errorCountA}")
+            print(f"\n****** ERROR fetching comment: {e}. Error count: {errorCountA}")
+            print(traceback.format_exc())
             quit_request = pause_with_quit(5)
             if quit_request:
                 sys.exit(1)
@@ -344,7 +370,9 @@ def main():
             except Exception as save_err:
                 print(f"***** ERROR Failed to save ERROR HTML: {save_err}")
 
-            pause_with_quit(30)
+            quit_request = pause_with_quit(30)
+            if quit_request:
+                sys.exit(1)
             continue
 
         output_lines = [
