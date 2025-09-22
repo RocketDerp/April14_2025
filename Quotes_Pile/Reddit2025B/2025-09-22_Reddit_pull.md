@@ -601,3 +601,79 @@ Can't comprehend exactly what Cambridge Analtyica did to minds since year 2013 o
 
 https://old.reddit.com/r/PublicFreakout/comments/1nno82o/stephen_miller_they_cannot_imagine_what_they_have/nfmf72r/
 
+https://old.reddit.com/r/MemeVideos/comments/1nnmqx9/the_sign_of_being_abused/nfmmv69/
+
+Living in a society of people constantly manipulating / tricking you with media content. Donald Trump role model of Truth Social fiction, Rupert Murdoch fiction Fox News, Elon Musk Twitter fiction to wreck everyday people's minds with attractive and appealing media patterns.
+
+https://old.reddit.com/r/MemeVideos/comments/1nnmqx9/the_sign_of_being_abused/nfmo9bg/
+
+Entertainemnt-washing abuse, amusement-washing abuse.
+
+https://old.reddit.com/r/popculturechat/comments/1nnlhql/eminem_doesnt_like_the_us_president/nflhn94/
+
+https://old.reddit.com/r/popculturechat/comments/1nnlhql/eminem_doesnt_like_the_us_president/nfliz19/
+
+https://old.reddit.com/r/popculturechat/comments/1nnlhql/eminem_doesnt_like_the_us_president/nflqtqf/
+
+https://old.reddit.com/r/popculturechat/comments/1nnlhql/eminem_doesnt_like_the_us_president/nfn1b3b/
+
+https://old.reddit.com/r/popculturechat/comments/1nnlhql/eminem_doesnt_like_the_us_president/nflgf0j/
+
+Entertainment content addicts on the Reddit platform crying out for more Donald Trump media content.
+
+https://old.reddit.com/r/popculturechat/comments/1nnlhql/eminem_doesnt_like_the_us_president/nflkbjx/
+
+No links, no title. 
+
+https://old.reddit.com/r/popculturechat/comments/1nnlhql/eminem_doesnt_like_the_us_president/nflj44i/
+
+People compusively addicted to Reddit content that thrives off Donald Trump.
+
+https://old.reddit.com/r/popculturechat/comments/1nnlhql/eminem_doesnt_like_the_us_president/nfmceec/
+
+https://old.reddit.com/r/popculturechat/comments/1nnlhql/eminem_doesnt_like_the_us_president/nfluciq/
+
+So entertaining, funny, amusing to live in Donald Trump and MAGA world created by Russian information warfare since March 2013.
+
+https://old.reddit.com/r/therewasanattempt/comments/1nnrmaq/to_feed_the_homeless/nfmpx4o/
+
+https://old.reddit.com/r/therewasanattempt/comments/1nnrmaq/to_feed_the_homeless/nfmpwv4/
+
+Reddit machine messages saying that what the world needs is more and more hate.
+
+https://old.reddit.com/r/therewasanattempt/comments/1nnrmaq/to_feed_the_homeless/nfms1m0/
+
+https://old.reddit.com/r/therewasanattempt/comments/1nnrmaq/to_feed_the_homeless/nfmo7iy/
+
+https://old.reddit.com/r/therewasanattempt/comments/1nnrmaq/to_feed_the_homeless/nfmwbwh/
+
+https://old.reddit.com/r/therewasanattempt/comments/1nnrmaq/to_feed_the_homeless/nfmv8s0/
+
+https://old.reddit.com/r/therewasanattempt/comments/1nnrmaq/to_feed_the_homeless/nfmp4yy/
+
+https://old.reddit.com/r/therewasanattempt/comments/1nnrmaq/to_feed_the_homeless/nfmq1r6/
+
+https://old.reddit.com/r/news/comments/1nnspe0/after_cuts_to_food_stamps_trump_administration/nfmsxx4/
+
+https://old.reddit.com/r/news/comments/1nnspe0/after_cuts_to_food_stamps_trump_administration/nfmuumh/
+
+https://old.reddit.com/r/news/comments/1nnspe0/after_cuts_to_food_stamps_trump_administration/nfmutad/
+
+A quote with a date citation!
+
+https://old.reddit.com/r/news/comments/1nnspe0/after_cuts_to_food_stamps_trump_administration/nfmz2q8/
+
+"This Is Not Propaganda: Adventures in the War Against Reality is a **2019 book** by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." - https://en.wikipedia.org/wiki/This_Is_Not_Propaganda
+
+https://old.reddit.com/r/news/comments/1nnspe0/after_cuts_to_food_stamps_trump_administration/nfmw9v9/
+
+Just like the normal for society is low-effort social comments over and over drowning out important and serious focus on nonfiction topics.
+
+https://old.reddit.com/r/news/comments/1nnspe0/after_cuts_to_food_stamps_trump_administration/nfmv8ax/
+
+Sarcasm-washing the situation with millions and millions of comments. Not calling for change, not being serious about the situation ongoing for 10 yeas around Trump media and Russian informationw warfare.
+
+https://old.reddit.com/r/news/comments/1nnspe0/after_cuts_to_food_stamps_trump_administration/nfmxvt9/
+
+"LMAO" laugh-track of Reddit comment section, to find Trump White House a constant source of humor-based entertainment and amusement.
+
