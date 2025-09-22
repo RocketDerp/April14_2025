@@ -962,5 +962,27 @@ https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday
 
 Question, what did Reddit users say to themselves when Trump wasn't dead the first few days of September 2025? Fantasy mythology storytelling of Reddiit and Bluesky media socities? reference non-fiction: September 3, 2025 world news about Bluesky and Reddit socities https://www.aljazeera.com/news/2025/9/3/how-false-rumours-of-trumps-untimely-death-spread-on-social-media
 
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflxzd0/
 
+Now why can't we stop drowning in millions of low-quality comments and make this a teaching topic on Reddit front page every 6 hours until every person in USA grasps the meaning.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflt4m8/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfn2znd/
+
+People have one faith in common... that the answer to fiction Bible stories is add pranks and more fiction. Toa void nonfiction at all costs. A popular Reddit message payload.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflu3ec/
+
+The Sun expanding and consuming planets seems real as far as we can project maths and nuclear fires into the future. https://en.wikipedia.org/wiki/Future_of_Earth
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflvjoc/
+
+"never cease being" amusing / funny. Minds predicgably blown away by humor absurd surreal poetry. We have a crisis described by Neil Postman in 1985. **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nfm0wju/
+
+You reacted with hate, if only there was engagement self-awareness of how Tony Clifton performances by Trump White House and Kremlin Putin worked.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nnnotp/i_cant_wait_til_wednesday/nflqqcx/
 
