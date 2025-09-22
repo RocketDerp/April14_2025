@@ -431,3 +431,41 @@ https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_
 
 https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmm855/
 
+Cringe is what draws the WWE audience, cringe is what draws and exploits the Reddit commenting audience. Cringe is a core value to Russian information warfare. ... ... ... "As deputy head of the administration he would meet once a week with the heads of the television channels in his Kremlin office, instructing them on whom to attack and whom to defend, who is allowed on TV and who is banned, how the president is to be presented, and the very language and categories the country thinks and feels in. Russia’s Ostankino TV presenters, instructed by Surkov, pluck a theme (oligarchs, America, the Middle East) and speak for 20 minutes, hinting, nudging, winking, insinuating, though rarely ever saying anything directly, repeating words like “them” and “the enemy” endlessly until they are imprinted on the mind." https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm97bo/
+
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13. ... ... ... “If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a favoured concept of both Beijing and Moscow, and essentially a cover for enforcing censorship.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm7mie/
+
+Anti-maga message clubs. Sharing the same values of media addiciton to hate messages.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmdcko/
+
+Hate messages, out-group hate patterns. Russian informaiton warfare on Reddit since March 2013 induced the attraction to self-harm USA messaging.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmho11/
+
+Low-effort comments, millions nad millions.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmc734/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmdsx4/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmjcbd/
+
+Prizing of hate messages, "fuck you" thrill platform / humanism-washing media.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfmedzm/
+
+Street gang langauge / street gang colors of tone and message style. Monomyth vs. Monomyth. Media platform vs. media platform. Subreddit vs. Subreddit. Message addicts vs. message addicts. Filter-bubble vs. filter-bubble addictions. ... ... ... "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation." https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nflvsef/
+
+Constantly drowning in low-effort reaction comments on every media platform that people seek out.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nno7h6/maga_is_a_cult_observers_slam_charlie_kirk/nfm2z1d/
+
+Competitive education values, sports school mentality messaging. Donald Trump went way beyond 1st grade: https://www.phillymag.com/news/2019/09/14/donald-trump-at-wharton-university-of-pennsylvania/
+
