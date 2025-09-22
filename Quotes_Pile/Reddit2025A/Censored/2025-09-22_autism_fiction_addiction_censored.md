@@ -6,7 +6,7 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_
 
 &nbsp;
 
-&nbspl
+&nbsp;
 
 > I am also very worried about the obsession on autism overall.
 
