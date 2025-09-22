@@ -1104,5 +1104,7 @@ Hate as faith. Faith in hate. Faith in burning goodness information to generate 
 
 https://old.reddit.com/r/whenthe/comments/1nnrupn/whentheany_subreddit_really_lol/nfmv7i0/
 
-Predictable conditioned Internet Research Agency ways since year 2013. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
+Predictable conditioned Internet Research Agency ways since year 2013. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html OPERA_A I'm on your side, but you can't understand. https://www.youtube.com/watch?v=JsntlJZ9h1U
+
+
 
