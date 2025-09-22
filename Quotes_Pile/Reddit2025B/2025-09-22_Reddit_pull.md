@@ -1225,4 +1225,12 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_
 
 Reddit machine messages to satire-wash satire-rinse RFK Jr and mockery-wash the Trump White House situation. Can't be nonfiction serious. To wash away any grasp of Russian Putin win of information warfare against Reddit society. https://www.cnbc.com/2018/04/11/reddit-bans-accounts-linked-to-russia-internet-research-agency.html
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfnsc9e/
+
+What is wrong with being autistic? the constant abuse and joke-washing insult-washing of it. The retardation-treatement, the dumb-treatment, the stupid-treatment in USA society. The competition in society to hae higher education and intelligence, even if you promote hate messages like Donald Trump and other educated people that have worship of millions upon millions of people for hate messaging against brain-damaged people. Even if you promote love, you are hated. Even if you teach about authentic compassion, you are hated in USA society. Reddit hates autistic people cand in year 2025 calls them "machine bots" to deumanize them. Unable to grasph "The ELIZA effect" since year 1975. https://en.wikipedia.org/wiki/ELIZA_effect Donald Trump inspires hate, Donald Trump signals dehumanization, Donald Trump leads with signals of mockery of people with disorders, "autism spectrum DISORDER". Because Donald Trump knows the truth: Reality TV "The Apprentice" entertainment is USA values. Autism people are irritating and not enteratining TV stars.
+
+\
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmooki/
+
 
