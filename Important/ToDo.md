@@ -1609,3 +1609,8 @@ https://youtu.be/FKxlqoKH78g?t=518
 
 But people feel God through book reading "1 John 4:20"    
 https://old.reddit.com/r/worldnews/comments/1nocisz/pope_leo_refuses_to_authorise_an_ai_pope_and/
+
+&nbsp;
+
+Bible teaching / Levant religion values without "1 John 3:17" and "1 John 4:20"    
+https://old.reddit.com/r/ExplainTheJoke/comments/1nogahg/i_dont_get_it/
