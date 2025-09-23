@@ -1345,5 +1345,23 @@ https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_d
 
 USA society can not engage nonfiction learning and comprehension of how Russia won an information war since year 2013. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
 
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfoebii/
 
+"You all know" fiction storytelling, but can't recall nonfiction learning of Russian information warfare. That's the message, you can recall fiction, but avoid nonfiction.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfof21r/
+
+It would not generate the Reddit comment section attraction.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfoflp2/
+
+So entertaining and engaging. Sit around and wait until November when October 31 holiday decorations have gone out of style. Don't resist Trump, engage the symbolism.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfohyn4/
+
+Answer: how could annyone fall for trash media? Look at the Reddit comment section for answers. Amusment-washing, surreal humor-washing, media addictions.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfoxusp/
+
+Future. Because we can not teach media ecology nonfiction now today. We can't be bothered to learn about Russian information warfare, too busy with short-length comment messsaging with spare time and free time on Reddit apps.
 
