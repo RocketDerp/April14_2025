@@ -1261,4 +1261,22 @@ https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfnvozj/
 
 I slectively cherry-pick from The Bible: "1 John 3:17" verse on how to judge the love of Donald Trump wealth-lord and Elon Musk welath-lord. "1 John 3:17" a judgement audit statement for us people.
 
+https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfnm5xv/
+
+Street gang lingo, street gang language. Gun worship slang writing, gang messaging.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfojwq4/
+
+Look at the big picture, forest for the trees, of Russian information wrfare. Name out in public messaging: "Interne Research Agency" and "Cambridge Analytica" and precise dates of November 7, 2012. ... ... ... "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." -https://www.facebook.com/konstantin.rykov/posts/10210621124674610
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfoqi8q/
+
+No links, no author names, no titles of references. Encourging fabircation of fiction to add to the fiction contentent of Charlie Kirk.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfnrdxd/
+
+Machine messaging: Fuck people. Screw-over people, Harm people. Rape people, fuck them without consent.
+
+
+
 
