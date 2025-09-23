@@ -229,3 +229,82 @@ https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_
 The same addictions to trash content are the foundation of symbolism warfare of the Kremlin and White House.
 
 https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfrf38c/
+
+https://old.reddit.com/r/mtg/comments/1nofhkn/playing_the_long_game/nfrbmqw/
+
+Predictably meme-washing / video-game-washing / entertainment-washing / card-game-washing the horrors of mass dehumanization that RFK Jr / United States Government / Donald Trump is doing to society. Social machine addicts who joke-wash and normalize every step for OVER TEN YEARS AND THREE MONTHS, since June 16, 2015. Bloomsday 2015.
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfrvivm/
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfs1g2p/
+
+BINGO entertainment game-washing the USA September 2025 situation as compelling content on Reddit.
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfrwihd/
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfrugzu/
+
+Entertainment content creation for the Reddit comment section audience.
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfrrzf4/
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfrsv29/
+
+Feasting up on the mind-fucked that the Russian Internet Research Agency manipulated since March 2013.
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfrvryd/
+
+Putin is buning the world down using the USA as the bomb to explode. There is no "winning" in this game, this is self-harm of the planet Earth.
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfs2bra/
+
+Reddit constantly calls people "child", "dementia" and "senile" and responsibility-washes politicians. calling them innocent children. Saying that they have minds not responsible for choices.
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfrtkvw/
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfrs35i/
+
+People on media machines can not resist interpreting the entire world and human brain as left vs. right, as if every issue is explained by this. The Founding Fathers neve taught us to focus on left vs. right, conservative vs. liberal, left-wing vs. right-wing, that's a King system of France seating. Statan vs. God, pick which team you are on, both are valid choices to people. Satan is not a valid choice! There can be millions of GOOD choices, normalizing Satan / Devil / wreck planet Earth as a choice is self-harm and bad logic. OPERA_A Pretzel logic is what it is, bi-polar logic of choice A or choice B and B is not a good choice or a valid choice. Pretzled-up logic thinking. Reason thinking is not logic thinking. My Civic Ditty, Citizen Steely Dan Reason Thinking. https://www.youtube.com/watch?v=32CpYlJDkF4
+
+https://old.reddit.com/r/FluentInFinance/comments/1noikpm/breaking_us_representative_mtg_introduces/nfrte95/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1noeixy/being_confusing_saves_peoples_episodes/nfr3wyx/
+
+Reddit posting describing what KGB / FSB Putin figured out decades ago as mind exploit communications patterns to mind-fuck people into behaving as if horror shows are normal.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1noeixy/being_confusing_saves_peoples_episodes/nfr4auj/
+
+Reddit since March 2013 is a training ground for such information warfare / messaging / communications techniques. Surkovian Russian methods.
+
+https://old.reddit.com/r/nottheonion/comments/1nojull/massive_grindr_outage_reports_coincide_with_the/nfs2njj/
+
+https://old.reddit.com/r/nottheonion/comments/1nojull/massive_grindr_outage_reports_coincide_with_the/nfs3tyn/
+
+People have this attitude that hate and dehumanization are fun sport and rewarding. That humiliating and wrecking other people is enjoyable. I think it is a failure to convey the meaning of the words joy and fun. People who flock to war, desire to wreck planet Earth and harm animals and harm people seem to not grasp goodness itself. Being evil and adopting the fiction character of Satan as a job / business isn't enjoyable.
+
+https://old.reddit.com/r/nottheonion/comments/1nojull/massive_grindr_outage_reports_coincide_with_the/nfs69in/
+
+https://old.reddit.com/r/nottheonion/comments/1nojull/massive_grindr_outage_reports_coincide_with_the/nfs9plr/
+
+Raised by a Levant clergy teaching that Statan and God are both equal choices. Instead of choosing between millions of positive options, you are taught that the Devil / Satan role model fiction character is a valid and good choice. To admire Hitler and Putin as just as valid of a choice as any other profession.
+
+https://old.reddit.com/r/nottheonion/comments/1nojull/massive_grindr_outage_reports_coincide_with_the/nfsglup/
+
+Outcomes of toxic clergy thinking.
+
+https://old.reddit.com/r/50501/comments/1nohgso/arrests_happening_this_morning_in_nyc/nfs7qru/
+
+Bluesky and Reddit social media communities won't do acts of protest that get to the heart of Donald Trump: Reality TV entertainemnt, social media entertainment. Fiction addictions to anti-science fiction content. People won't become serious and sustain repeating important and serious topic. People in USA using free time and spare time of social media won't address that we are amusing ourselves to death as described by Neil Postman in his 1985 book. https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death
+
+https://old.reddit.com/r/50501/comments/1nohgso/arrests_happening_this_morning_in_nyc/nfrl3dx/
+
+It is a huge mistake to think everyone knows that they are being deceived, manipulated, that these are lies. It is a mistake to assume Trump realizes he is being lied to by Putin. Trump trusts Putin. White House staff trusts Putin. A cult of falsehoods, cult of fiction messages. Just like people in Palestine don't realize they are being lied to by Mosque clergy who does not comprehend that the Quran stories are science fictions tories, not science factual nonfiction. Humanity has a TERRIBLE track record of facing science nonfiction when given choices of far more entertaining storytelling like Putin and Trump and RFK Jr offer. People are afraid to stand up and offer lessons on goodness itself, they consider it weak to speak of goodness. February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. It's wrong to hate." - Martin Luther King Jr.
+
+https://old.reddit.com/r/50501/comments/1nohgso/arrests_happening_this_morning_in_nyc/nfroxfd/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nohymh/for_all_the_people_screaming_he_had_a_family/nfrtu54/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nohymh/for_all_the_people_screaming_he_had_a_family/nfrqalr/
+
+Toxic clergy who invents a Devil / Satan character and tells audiences it is perfectl OK to be a Putin or Hitler in life, because it's all good with God. What a warped teaching. Instead of spending their time teaching lessons to Putin and Trump about how they don't understand, people just move along and say Trump is perfectly fine to their Church.
+
