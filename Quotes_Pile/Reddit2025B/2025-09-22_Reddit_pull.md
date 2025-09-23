@@ -1319,5 +1319,31 @@ Reddit comment fiction consumers insult Bible fiction consumers in how fiction a
 
 https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfogc3v/
 
-I can indeed believe that Russian war against Reddit with unreality is real. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+I can indeed believe that Russian war against Reddit with unreality is real. NONFICTION learning of September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfod8nn/
+
+Not attracted enough. A fiction media addict calling for more Jesus fiction Bible content to be added to White House content creation messaging. 
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfoezu1/
+
+Anyone who worked for 2 of the 3 richest people in the entire world in Bellevue Washington who onwned software app empires, sports teams of NFL and NBA want to chime in on behaviors of media addiction exploitation. Me, Stephen Gutknecht, who worked there.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfohpk5/
+
+Proof that Russian Information Warfare techniques of Surkov since 1999 work on Reddit in still with September 2025 comment addiction consumers. Avoidance of nonfiction learning of Russian techniques avoided: https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfoeuzi/
+
+If Reddit couldn't resist tiny short messages that turned the topic away from Putin and Russia media methods.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfofilt/
+
+Reddit comment section.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfownyp/
+
+USA society can not engage nonfiction learning and comprehension of how Russia won an information war since year 2013. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+
 
