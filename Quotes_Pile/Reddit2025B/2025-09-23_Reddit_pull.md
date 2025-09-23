@@ -308,3 +308,29 @@ https://old.reddit.com/r/AdviceAnimals/comments/1nohymh/for_all_the_people_screa
 
 Toxic clergy who invents a Devil / Satan character and tells audiences it is perfectl OK to be a Putin or Hitler in life, because it's all good with God. What a warped teaching. Instead of spending their time teaching lessons to Putin and Trump about how they don't understand, people just move along and say Trump is perfectly fine to their Church.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs5ro9/
+
+Reddit comment community and voting community has done everyting it can to avoid nonfiction about defending against the Russian Internet Research Agency. Mockery-washing Putin, Trump, IRA agreement of November 7, 2012.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs7t2e/
+
+Only half. Denial abounds. People convinced that somehow there are winners in Putin and Trump wrecking all goodness in USA.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs8hu3/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs7zrn/
+
+Amusmeent-washing. Humor-washing. Just like the Reddit comment section does, in-peson crowds do the same thing. Entertainment-washing laugh-washing Trump and MAGA and Putin.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfsant2/
+
+This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs5wy5/
+
+An ignorant Reddit user who thinks this is accidental. Trump playing boastful Tony Clifton acts, and the compusive Reddit audience calling out how stupid and bad Tunly Clifton is for saying absurd surreall bragging about Clifton's talents. Ate The Onions.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs4y6x/
+
+Please explain: Russia won an informationw war on Reddit and Twitter and every other media systems since March 2013 using the Internet Research Agency. ... ... .. "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.facebook.com/konstantin.rykov/posts/10210621124674610 ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
