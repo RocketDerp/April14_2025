@@ -1494,3 +1494,38 @@ https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphone
 https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfomxes/
 
 https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfoakbd/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo0fir/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfp519s/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfocgvl/
+
+Reddit comment message: Brain stroke frees the adult from job responsibility. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo2qd4/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfoa02u/
+
+Social media laugh track: "LMAO" that the situations are all so funny that minds can be manipulated who are not educated on the tecniques of peer pressure and manipulation.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfocdl1/
+
+Messages of death-wishing the entire world, thinking it would be awesome if eveyone died.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo0x9a/
+
+Russia won an information war since year 2013 that nobody in USA wants to bother spending free time and spare time learning nonfiction about. Instead, react-commenting on Reddit and other media platforms.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo8nd1/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo2ums/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfoi7j2/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo5pbt/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfoej98/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo4ghe/
+
