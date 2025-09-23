@@ -384,3 +384,53 @@ https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_a
 
 For over TEN YEARS AND THREE MONTHS, all the media machine uses flock to this, it never ends.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfsdzhg/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfseb7n/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfslyz4/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfsmxz8/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs4zbe/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs5g02/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs5u3p/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs6cn8/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs6mxn/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs6rw4/
+
+Yes, the whole entire world, Reddit comment section inclusive. People can not stop their laugh-washing of Doanld Trump. ... ... ... “What Huxley teaches is that in the age of advanced technology, spiritual devastation is more likely to come from an enemy with a smiling face than from one whose countenance exudes suspicion and hate. In the Huxleyan prophecy, Big Brother does not watch us, by his choice. **We watch him, by ours**. There is no need for wardens or gates or Ministries of Truth. When a population becomes distracted by trivia, when cultural life is redefined as a **perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience and their public business a vaudeville act, then a nation finds itself at risk; a culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs737m/
+
+And Reddit comment community tunes in to the show.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs7bgm/
+
+Reddit can't engage nonficiton learning about cult deprogramming. https://msmagazine.com/2025/09/11/charlie-kirk-dead-feminism-gender-women-masculinity-violence-gun-control-shooting/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs7nmz/
+
+Good entertainment to Reddit fiction entertainment addicts. “If politics is like show business, then the idea is not to pursue excellence, clarity or honesty but to appear as if you are, which is another matter altogether.” ― Neil Postman, [Amusing Ourselves to Death](https://time.com/7313999/neil-postman-trump-prediction/): Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs7q3o/
+
+Got Reddit comment section to flock like it always does for over a decade.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs7rii/
+
+A meme-driven society abanoning nonfiction. Giving up on goodness in favor of amusement by a master entertainer.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs7u41/
+
+President Tony Clifton act, the NYC Tony Clifton character sells so well to Reddit wise-cracking audiences who don't give a shit about Russia winning an information war. https://www.youtube.com/watch?v=MtHyc43Firk
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs80q1/
+
+The trash memes and trash content soical media users vote / like / share every day has taken over the White House values. People can't get enough anti-education anti-nonfiction mockery. Put millions and millions of low-effort social media comments into your mind and attraction to mocking Trump and messages of Hate from Trump. ... ... ...  Reddit and compusive flocking to comment upon White House shit is "especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
