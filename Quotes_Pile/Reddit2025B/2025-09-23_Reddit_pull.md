@@ -952,3 +952,31 @@ No citation, no link to analysis, no auther name, no book name, etc.
 https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nftqvfg/
 
 Texan Rick Roderick of Duke University in year 1993: "But it’s certainly a good demand to place upon, ah, your society, its leaders, and so on. The trouble is, just as I have stated before, we are blocked. We are blocked **in a way by an unprecedented structure of what I have called here… sort of… cynical, sceptical reason. To me it’s historically unmatched. I have never read or heard of a period like this one. Now, I have read about many historical periods.** But not one in which you can talk to young people the way you can at the college level today, and find out that they believe… nothing. Want… nothing. Hope… nothing. Expect… nothing. Dream… nothing. Desire… nothing. Push ’em far enough and they’ll say: “Yeah, I gotta get a job. Spent a lot of money at Duke.” That’s not what I am talking about here. They hope nothing. Expect nothing. Dream nothing. Desire nothing. And it is a fair question to ask whether a society that produces this reaction in its young is worthy of existence at all. It really is. It’s worth asking that. Whether it’s worth being here at all. And my criticism of this society couldn’t get more bitter than it is in that case. It couldn’t possibly be. Remember, I am talking about the young I have encountered at Duke. These are privileged youth. At an elite southern school. Mostly white, mostly upper-middle to upper class." https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/ 
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nftt3iq/
+
+People fixate on one single tree, Donald J Trump, and recency bias wipes out that there are hundreds of millions of people who trust and believe a man who constnatly shares fiction. And Rupert Murodch media networks are in multiple nations. There are patterns of people who avoid nonfiction, including Donald J Trump. And even the start of year 2025 Elon Musk was center stage in January 2025 and February 2025 attacking Ukraine. There are behaviors of addiction to hyper reality fiction we can describe. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nftle7y/
+
+A single message from Donald Trump triggers blown mind reactions. As a media symbol, the power that Trump holds....
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nftktd1/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nftv2lv/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfudy13/
+
+My main concern is how fiction addicts flock to Trump and abandon nonfiction learning. The huge number of people who have entirely changed thier behaviors and attitudes to see Trump as good for the future of humanity. That baddness itself is attractive. People who hate Trump do not want to remove Trump because they are so addicted to his hate messaging systems.
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfuad5o/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfuubx2/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfu5310/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfu0x28/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nftquhe/
+
+The USA cults of hate messages. The Chrlie Kirk cult, the IRA cults, the Fox News cults, the Elon Musk Twitter cults... The Facebook cults... the addiciton to fiction goes far beyond one single 79 year old Donald Trump. We are dealing with an abandonment of thinking systems. Recency bias distorts people's self awareness of how much behavior in USA has changed. Look back. ... ... ... "Harvard scientist worries we’re **‘reverting to a pre-Enlightenment form of thinking’**" February 23, 2017 George Q. Daley, dean of Harvard Medical School.  https://www.washingtonpost.com/news/wonk/wp/2017/02/23/harvard-scientist-worries-were-reverting-to-a-pre-enlightenment-form-of-thinking/
