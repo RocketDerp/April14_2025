@@ -1604,3 +1604,8 @@ https://old.reddit.com/r/blursed_videos/comments/1nkvhkl/blursed_german_passepor
 
 Can food rising metal cost    
 https://youtu.be/FKxlqoKH78g?t=518
+
+&nbsp;
+
+But people feel God through book reading "1 John 4:20"    
+https://old.reddit.com/r/worldnews/comments/1nocisz/pope_leo_refuses_to_authorise_an_ai_pope_and/
