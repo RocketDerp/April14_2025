@@ -1383,3 +1383,15 @@ https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfoa0as/
 
 But not Reddit an arm of the Russian Internet Research Agency since March 2013. https://abcnews.go.com/Technology/reddit-bans-944-accounts-suspected-links-russian-troll/story?id=54379601
 
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfonfs4/
+
+Explaning to nonfiction real persons that the fiction storytelling of Reddit and fiction storytelling of Rupert Murdoch isn't nonfiction.
+
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfor19d/
+
+Reddit users prize and celebrate no-citation no-reference no-understanding short-length message comments.
+
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfoughl/
+
+Convinced it is the small number of people inside the White House and not the large number of people on Reddit comments, Truth Social comments, Twitter comments.
+
