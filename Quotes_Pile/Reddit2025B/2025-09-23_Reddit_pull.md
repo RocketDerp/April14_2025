@@ -708,3 +708,9 @@ https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received
 
 People are very serious about high-speed reaction commenting to every Trump image, Trump video, Trump Truth Social, Trump communications.
 
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfss7d9/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nftrctz/
+
+It explains hundreds of millions of people's behaviors. <img width="1014" height="648" alt="image" src="https://github.com/user-attachments/assets/8a1dd07f-4f88-4751-808f-0b5d54abb6cd" /> 
+Fox News does not give suicades of cash to the Fox News audience. Reddit meme addicts are not paid by Reddit owners. Terrorist Mosques do not pay audience members to read the Quran fiction storytelling. Putin's ficiton storytelling draws in television addict Donald Trump who is attracted to fiction, just like Reddit comment audiences are drawn to the fiction content. True Believers in fiction do not need bribes. Cults to fiction storytelling do not even need a living person as a cult leader. Jesus is dead but Bible fiction and Quran fiction still draws people fund the media. Just like cinema draws audiences to Star Wars 1977 fiction storytelling.
