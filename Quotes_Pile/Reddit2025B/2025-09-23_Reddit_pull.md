@@ -713,4 +713,60 @@ https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received
 https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nftrctz/
 
 It explains hundreds of millions of people's behaviors. <img width="1014" height="648" alt="image" src="https://github.com/user-attachments/assets/8a1dd07f-4f88-4751-808f-0b5d54abb6cd" /> 
-Fox News does not give suicades of cash to the Fox News audience. Reddit meme addicts are not paid by Reddit owners. Terrorist Mosques do not pay audience members to read the Quran fiction storytelling. Putin's ficiton storytelling draws in television addict Donald Trump who is attracted to fiction, just like Reddit comment audiences are drawn to the fiction content. True Believers in fiction do not need bribes. Cults to fiction storytelling do not even need a living person as a cult leader. Jesus is dead but Bible fiction and Quran fiction still draws people fund the media. Just like cinema draws audiences to Star Wars 1977 fiction storytelling.
+Fox News does not give suicaces of bribe cash to the Fox News audience. Reddit meme addicts are not paid by Reddit owners. Terrorist Mosques do not pay audience members to read the Quran fiction storytelling. Putin's ficiton storytelling draws in television addict Donald Trump who is attracted to fiction, just like Reddit comment audiences are drawn to the fiction content. True Believers in fiction do not need bribes. Cults to fiction storytelling do not even need a living person as a cult leader. Jesus is dead but Bible fiction and Quran fiction still draws people fund the media. Just like cinema draws audiences to Star Wars 1977 fiction storytelling.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfscxvg/
+
+Absurd messaging, arranging synbols in surreal and absurd ways, blows audiences minds.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs7kcb/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsex5r/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfslfcv/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfskw5c/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfstn9b/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfswen8/
+
+Being entertained by Reality TV entertainer Donald Trump people don't consider *lies* because in fiction entertainment storytelling it's normal to have fiction constructs.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfswhv7/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsx8kv/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsp5fj/
+
+"The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsmep5/
+
+Yes. Russia won, Surkov won, Putin won since March 2013 using the Internet Research Agency and Cambridge Analytica.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nft29q1/
+
+Ameicans on Reddit can't even name Cambridge Analytica or the Internet Resarch Agency. You don't ahve agency when you can't even go to the public library and study why everyone around you is suddenly beleiving and attracted to absurd fiction and surreal stories from media systems, including Donald Trump telling fiction. You lost a mind-fuck war so bad, lost your agency, and don't even have the mental agency to learn and understand that you put garbage Reddit comments into your mind without recognizing they were manipulating you into fiction addictions.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsmwf4/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs6dno/
+
+Amusement-washing laugh-washing that the USA isn't a danger to the world. Exactly what Russia has won with the information war since year 2013.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsaiuq/
+
+Reddit messages to give up on America, self-harm the USA, be hopeless, don't engage the nonfiction public library and learn about Russia invading Reddit comment section since year 2013. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfshjf6/
+
+A Twitter-length Tweet-thinking pattern of declaring others stupid without citing any books, author names, subject of Russia invading Reddit comment sections. Just low-effort commenting how dumb and stupid. Eating up the Tony Clifton techniques. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs91c9/
+
+The Reddit media comment section will keep commentiong on every Trump photograph, every Trump quote, every Trump video, every Trump mention to amusement-wash and laugh-wash Donald Trump as an important and essential part of daily entertainment.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs4nc8/
+
+Ignorance of how Putin has been in power for 25 years. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
