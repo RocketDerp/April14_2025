@@ -1289,3 +1289,35 @@ https://old.reddit.com/r/50501/comments/1nnxrbh/we_fucking_did_it/nfnvurk/
 
 Humanity drowning itself in low-effort comment message media cocerns itself with enteratinment Trump media vs. entertaoinment Disney media while non-entertaning nonfiction doesn't sell.
 
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfolsrl/
+
+A constant Reddit topic: black skin, orange skin, brown skin, white supremacy messaging.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfojtlg/
+
+Reddit content addict calling for more content from Trump / MAGA.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfofqxe/
+
+Starstruck. Entertained just like Reddit comment section is entertained.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfot20s/
+
+Wild the media addiction of Reddit app users.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfoqkgz/
+
+Not Reddit consumer egomania on a Trump page topic. Not filter-bubble audience of Reddit. Denial abounds in USA. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation." https://en.wikipedia.org/wiki/Filter_bubble Excllent personal good taste of filter egoism.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfonoxw/
+
+Reddit audiences compusively comment over and over for a decade plus.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfodkai/
+
+Reddit comment fiction consumers insult Bible fiction consumers in how fiction addiction is only the out-group, failing to engage nonfiction learning of comparative mythology science.
+
+https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_disturbingly/nfogc3v/
+
+I can indeed believe that Russian war against Reddit with unreality is real. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
