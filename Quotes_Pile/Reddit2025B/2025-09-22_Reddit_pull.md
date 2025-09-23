@@ -1529,3 +1529,18 @@ https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tyl
 
 https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo4ghe/
 
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo2j8t/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo36n9/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo4rnh/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo891c/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo5ni2/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfoiu1v/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfo8a7g/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nnyhzb/trump_officially_announces_tylenol_causes_autism/nfob4mh/
