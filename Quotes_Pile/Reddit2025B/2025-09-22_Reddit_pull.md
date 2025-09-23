@@ -1434,3 +1434,34 @@ Unable to cite famous superstar of film: https://www.youtube.com/watch?v=lF7NqeZ
 https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfnp9yv/
 
 "none of them like each other". Fox News vs. Facebook vs. Reddit vs. Twitter vs. Bluesky vs. Subreddit A vs Subreddit B. Filter Bubbles vs. Filter Bubbles. Fiction stories vs. Fiction stories. Bullshit comments vs. Bullshit comments. Truth Social leadership. ... ... ... "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation." https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmybmi/
+
+Reddit society and Bluesky society want people with rural USA education to lord over ("Leopards eat their faces" club) in the Russian information warfare since March 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfn4igs/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfnn9rb/
+
+Reddit messaging is always better accepted when everyone self-dehumanizes avoding rael-names real-identity and raelity itself.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfnvioz/ 
+
+So amusing and entertaining. So contennt funny to mock the out-group and insult the others in USA as conditoined by Russian Internet Research Agency on Reddit since year 2013. https://www.axios.com/2018/04/10/reddit-found-nearly-1000-1523402788
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfn43je/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmzogp/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmttlf/
+
+Note end of message "LOL", "What is happening". Amusement itself. **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmlje7/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmnkj2/
+
+Media ecology woke, year 1924 woke, Finnegans Wake fromm Irish author James Joyce. "Wake" woke. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmpoy2/
+
