@@ -102,3 +102,51 @@ https://old.reddit.com/r/NonPoliticalTwitter/comments/1nog7wb/and_they_were_room
 
 The segregation of men and women in North Africa was an experience for me. Young adults and men would walk together like boyfriend and girlfriend in public. And women were not that way towards their actual boyfrind and husband.
 
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1nog7wb/and_they_were_roommates/nfrmd5i/
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1nog7wb/and_they_were_roommates/nfrtcw4/
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1nohxsy/recently_removed_banksy_peice_redrawn_on_a_beach/nfrpdt3/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nobtwh/conservative_subreddits_are_too_easy/nfremi8/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nobtwh/conservative_subreddits_are_too_easy/nfrjkfe/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nobtwh/conservative_subreddits_are_too_easy/nfr4h6l/
+
+Clergy teaching. There is a Devil and God, and pick which team you want! Devil is created by God and it's perfectly acceptable to behave like Satan and be tricked into evil by Satan. Instead of choice betwen mutlipl good ideas, it's OK to have leaders like Putin and Hitler.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nobtwh/conservative_subreddits_are_too_easy/nfqfzgp/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nobtwh/conservative_subreddits_are_too_easy/nfrt1pe/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nobtwh/conservative_subreddits_are_too_easy/nfqo9ju/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nobtwh/conservative_subreddits_are_too_easy/nfqreyq/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nobtwh/conservative_subreddits_are_too_easy/nfr86b4/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfpylf4/
+
+An audience addicted to South Park values and entertainment as leadership signals. This is what South Park normalizez in 2025. Or, we would have to blame Surkovian govening techniques of Russia and informationw warfare - which also exploited 4Chan and nobody wants to face up nonfiction learning of Russian governing of the past 25 years media techniques.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfpvs6v/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfptczl/
+
+Amusement shows, comedy shows, entertainment shows. And Reddit comment section can't get enough of insulting and mocking shows.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfq3aag/
+
+Minds blown. "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - December 31, 2014. More than a decade ago. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfq7rek/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfq8g2t/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfq463m/
+
+So in school people had faith in hate, and now they grew up to form a USA goverment with faith in hate. Fatih in hate all around.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfq323v/
+
