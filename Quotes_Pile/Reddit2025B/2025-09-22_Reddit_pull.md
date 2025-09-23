@@ -1423,3 +1423,14 @@ https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfnik
 “We realize the importance of our voices only when we are silenced.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Age 16. October 8, 2013 publication date.
 
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfn5n4n/
+
+Still selfishness, still egomis, still egomania of one-upmanship thinking. As conditioend by the Russian Internet Research Agency and Cambridge Analytica since year 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfn8si0/
+
+Unable to cite famous superstar of film: https://www.youtube.com/watch?v=lF7NqeZuO3E "There's NO Such Thing, Self-Made Man (Arnold Schwarzenegger, motivational video)"
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfnp9yv/
+
+"none of them like each other". Fox News vs. Facebook vs. Reddit vs. Twitter vs. Bluesky vs. Subreddit A vs Subreddit B. Filter Bubbles vs. Filter Bubbles. Fiction stories vs. Fiction stories. Bullshit comments vs. Bullshit comments. Truth Social leadership. ... ... ... "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation." https://en.wikipedia.org/wiki/Filter_bubble
