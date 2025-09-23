@@ -177,3 +177,21 @@ https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_
 Yes, works on Reddit meme addicts. Comfort memes, comfort Japan images to feed the mind. <img width="1282" height="454" alt="Screenshot from 2025-09-23 08-15-09" src="https://github.com/user-attachments/assets/cf41e537-ff24-4229-9a86-de04a3ce0556" />
 
 https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqxben/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfr84ee/
+
+That's the entire point. Trump spread hate to every person who hates Trump. The entire government is based on the faith that peole value and prize hate.  <img width="1256" height="348" alt="image" src="https://github.com/user-attachments/assets/1f1f6d92-0be3-4940-9fa2-a09d45843221" /> Reddit and Bluesky are like meme-shooting fish in a barrel, it is so predictable how peole flock to hate when the White House / Homeland Security / I.C.E. creates meme content.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfr8u7e/
+
+Quran / Mecca / Mosque is a very proven system of leadership messaging and art symbolsm.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfrfetk/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfrhfy2/
+
+Russa won since March 2013. Internet Research Agency defeated USA.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqgy4z/
+
+
