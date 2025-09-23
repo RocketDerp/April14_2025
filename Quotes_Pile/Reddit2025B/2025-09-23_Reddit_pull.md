@@ -851,3 +851,25 @@ https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presid
 
 https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftpy6s/
 
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nfth43d/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftj3sx/
+
+Reddit comment community will do anything but sustain important discussion of nonfiction learning about cult deprogramming and what doctors of Cambridge Analytica did to USA mindsets.
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftmrkl/
+
+LOL to see "liberal tears". MAGA hates upon non-MAGA and now everyone hates back at MAGA. Nobody is sincerely teaching humanism, nobody is sincerely teaching fiction Bible literacy, nobody is sincrely teaching remedial morality in a crisis created by Russian Internet Research Agency invding media platforms with Cambridge Analytica payloads.
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftmljl/
+
+Reddit community using free time / spare time does almost nothing except engage in out-group mocking, insulting, mockery, joke-washing, enertainment-washing the situation. Entirely unabe to get people to stustain focus on the media ecology crisis of people being addicted to entertainment and fiction. ... ... ... “What Huxley teaches is that in the **age of advanced technology**, spiritual devastation is more likely to come from an enemy with a smiling face than from one whose countenance exudes suspicion and hate. In the Huxleyan prophecy, Big Brother does not watch us, by his choice. **We watch him, by ours**. There is no need for wardens or gates or Ministries of Truth. When a population becomes distracted by trivia, when cultural life is redefined as a **perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience and their public business a vaudeville act, then a nation finds itself at risk; a culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftr5ah/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nfttbr0/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftsgnn/
+
+FINALLY someone who engages NONFICTION! Sitting on the public library bookshelf since year 2014. <img width="1400" height="1536" alt="image" src="https://github.com/user-attachments/assets/924f3b5e-a299-4bb3-9632-4a222b4496f3" />
+
