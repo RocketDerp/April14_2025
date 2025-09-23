@@ -1478,3 +1478,19 @@ https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphone
 https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfp2s4o/
 
 https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfokcby/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfoh2dt/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfpdags/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfo9sfz/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfoas03/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfobnvi/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfok1rf/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfomxes/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfoakbd/
