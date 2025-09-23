@@ -1271,12 +1271,21 @@ Look at the big picture, forest for the trees, of Russian information wrfare. Na
 
 https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfoqi8q/
 
-No links, no author names, no titles of references. Encourging fabircation of fiction to add to the fiction contentent of Charlie Kirk.
+No links, no author names, no titles of references. Encourging fabircation of fiction to add to the fiction content media of Charlie Kirk.
 
 https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfnrdxd/
 
 Machine messaging: Fuck people. Screw-over people, Harm people. Rape people, fuck them without consent.
 
+https://old.reddit.com/r/50501/comments/1nnxrbh/we_fucking_did_it/nfnvaje/
 
+Celebration of ignorance and celebration of content abounds.
 
+https://old.reddit.com/r/50501/comments/1nnxrbh/we_fucking_did_it/nfnuumw/
+
+Trump trolls Reddit, Reddit adopts trolling methods and trolling techniques. Operation Matthew 4:19 since December 20, 2013 publicized annoucement. Disney fiction, Reddit fiction, Truth Social fiction, NONFICTION December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/50501/comments/1nnxrbh/we_fucking_did_it/nfnvurk/
+
+Humanity drowning itself in low-effort comment message media cocerns itself with enteratinment Trump media vs. entertaoinment Disney media while non-entertaning nonfiction doesn't sell.
 
