@@ -629,3 +629,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nmq94f/i_wish_it_were_surr
 
 Front page of Reddit describing a Bible interpretation paradox. And instead of asserting literacy lessons on Bible reading of verse "1 John 3:17" - just normalizing it like any other Reddit content. No call to sustain focus on serious misundestandings in society.    
 https://old.reddit.com/r/GetNoted/comments/1noj5xq/they_hide_behind_christianity_yet_know_nothing/
+
+&nbsp;
+
+Exactly!!! Reddit and Bluesky societies can't stop overlooking the Putin connection and study nonficton of Russian Surkov governing methods. Instead, orange-skin-humor washes away every other topic. Poop diaper attraction Bluesky and Reddit can't stop fixiating on the most unseious and low-effort comments by the millons to learn how the Russian Internet Research Agency actually works! As long as there is someone to mock and hate upon. Trump.   
+https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_with_the_passion_of_10000_sun/
