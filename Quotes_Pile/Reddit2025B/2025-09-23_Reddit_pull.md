@@ -660,3 +660,51 @@ Reddit minds blown by absurd comedy and surreal communications with inverted mea
 
 https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_with_the_passion_of_10000_sun/nftfeqs/
 
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs5i3u/
+
+USA society can't get enough of President Tony Clifton mocking. Unable to enage nonfiction learning of Russian governing methods.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfso0s5/
+
+He sounds like what a Reddit comment section craves: calling people bad, calling people stupid, messagong on machines how dumb people are. Endless entertainment to call others dumb and stupid on Reddit.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs3uyn/
+
+You wen power and wealth by gettign Reddit audicens to amusement-wash you and joke-wash you and mockery-wash you every day for OVER TEN YEARS AND THREE MONTHS.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsgh03/
+
+Trump started getting all media systems attention in Jun 2015, even before that, not November 2016.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsq48z/
+
+The Reddit comment crowd forms every time a Trump photograph or Trump quote or Trump video clip is shared. Everything is a Trump Rally of faith in hate, faith in mocking. All people in USA can't resist hate messaging.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsntgk/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfso1kv/
+
+Reddit media has a trash-content focus, /r/All is full of addictions to disposable thinking. Banality and superficial content, avoiding serious nonfiction sustained focus on important topics. A constant focus on reaction commenting to everything to drown out critical topics with a focus on dumpoing topics in favor of low-effort commenting.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsh3tq/
+
+It is getting worse as people use high-speed media to comment and comment instead of slowing down media consumption and repeating and focusing on important serious topics like Russian information warfare since year 2013 and counter-measures to the fiction addictions.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nft0am9/
+
+Bible is fiction addiction. Reddit is fiction media content addiction mill. Church or Reddit, it's all USA avoding repeating and focusing on important serious topics like Russian information warfare since year 2013 and counter-measures to the fiction addictions.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs57gc/
+
+Everyone on Reddit comment media is reacting to the cringe content, racing from Trump content to Trump content for reaction comments.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsnnq8/
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfsfdus/
+
+Minds easily blown, "you seeing this", with surreal and absurd Surkov Russian media methods.
+
+https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs6q6i/
+
+People are very serious about high-speed reaction commenting to every Trump image, Trump video, Trump Truth Social, Trump communications.
+
