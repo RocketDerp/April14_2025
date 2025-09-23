@@ -614,3 +614,49 @@ https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_th
 
 Reddit comment community has no idea how Surkovian govening works. Too busy with fiction to engage nonfiction learning. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/Snorkblot/comments/1nohf2m/may_we_never/nfrj1li/
+
+https://old.reddit.com/r/Snorkblot/comments/1nohf2m/may_we_never/nfs1his/
+
+https://old.reddit.com/r/Snorkblot/comments/1nohf2m/may_we_never/nfs1wmq/
+
+https://old.reddit.com/r/Snorkblot/comments/1nohf2m/may_we_never/nfsj8w3/
+
+https://old.reddit.com/r/Snorkblot/comments/1nohf2m/may_we_never/nfsklg6/
+
+https://old.reddit.com/r/Snorkblot/comments/1nohf2m/may_we_never/nfsus0s/
+
+[Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/Snorkblot/comments/1nohf2m/may_we_never/nfstmfz/
+
+https://old.reddit.com/r/Snorkblot/comments/1nohf2m/may_we_never/nfsedo3/
+
+https://old.reddit.com/r/pics/comments/1noo6ol/i_removed_trumps_orange_makeup_to_see_how_he/nft0tro/
+
+I have never experienced any human person getting more attention over their fashion, toilet usage, gestures, style, house, approach. Donald Trump's popularity is because Reality TV addiction society can't resist Reality Twitter / Reality Truth Social / Reddit content mocking and insulting communications / fashion / style. The very shallowness and banal superficial atttidues blows so many minds into compuslive hate and compusive mockery. Trump is the Pied Piper of leading people into harm at the hands of Putin information warfare.
+
+https://old.reddit.com/r/pics/comments/1noo6ol/i_removed_trumps_orange_makeup_to_see_how_he/nft9il2/
+
+https://old.reddit.com/r/pics/comments/1noo6ol/i_removed_trumps_orange_makeup_to_see_how_he/nft629n/
+
+People don't accept it, they admire it. He is in a skin color of hiw own making. A self-made man. And social media comment sections can never get enough of shallow superficial values. Anti-humanisn and not even skin-deep thinking.
+
+https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_with_the_passion_of_10000_sun/nfswaxc/
+
+https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_with_the_passion_of_10000_sun/nft3wq3/
+
+*Only the conservatives*, beause Stephen Colbert amusement-washing Trump as constant source of entertainment material isn't convincing the audience to keep in him power. A population of social machine comment addicts completley owned by Surkov Russian methods since year 2013. <img width="894" height="838" alt="image" src="https://github.com/user-attachments/assets/e29af962-cd4c-4f9e-a7c3-969d8a24056c" /> ... ... ... “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_with_the_passion_of_10000_sun/nft7t29/
+
+And Reddit comment sections, humor-washing amusment-washing all serious topics with joke-washing. Washington Post and New York Times and Bluesky and Reddit and Twitter and Facebook and on and on. All called out in yeara 1985 book, FOURTY YEARS GO, NONFICTION. But Reddit comment community drowns in millions of low-effort trash content comments and can't engage nonfiction learning of Reddit behaviors. ... ... ... "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. All that has happened is that the public has adjusted to incoherence and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World. ” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
+
+https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_with_the_passion_of_10000_sun/nft9y5l/
+
+https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_with_the_passion_of_10000_sun/nftfd2g/
+
+Reddit minds blown by absurd comedy and surreal communications with inverted meanings. Unable to to stop their minds condition to parrot and repeat these as *amusement*.
+
+https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_with_the_passion_of_10000_sun/nftfeqs/
+
