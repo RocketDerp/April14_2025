@@ -881,4 +881,27 @@ https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_f
 
 "Republicans refuse to believe the reality"... social media users have had since September 9, 2014 to learn about the Russian **War Against Reality** and call out that people beliving unreal things / believe fiction is true, are likely manipulated by Putin. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftpbka/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftq196/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftq625/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftl9tw/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftl875/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftl7kl/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftn1kl/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nfu5551/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftly6h/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nfuanvr/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nftwey3/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nfu53q3/
 
