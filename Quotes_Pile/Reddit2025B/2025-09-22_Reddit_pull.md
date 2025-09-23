@@ -1395,3 +1395,31 @@ https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfoughl/
 
 Convinced it is the small number of people inside the White House and not the large number of people on Reddit comments, Truth Social comments, Twitter comments.
 
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmpdzo/
+
+Why so many social media users don't support educating young people, supporting Malala's education reform. The ladder pulling of knowing mo than newborns to Earth.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmz6q6/
+
+Why Reddit users are so avoidaint of Malala's educationa and teching ideas.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfobx55/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfo3a1t/
+
+Mind blown, can not believe reality.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmx0vx/
+
+Reddit messaging: fuck you, you use a different education platform and media website.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfodq6p/
+
+So many millions and millions of low-effort message comments are evidence of fiction addiction and avoidance of nonfiction learning of media ecology.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfnikml/
+
+“We realize the importance of our voices only when we are silenced.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Age 16. October 8, 2013 publication date.
+
