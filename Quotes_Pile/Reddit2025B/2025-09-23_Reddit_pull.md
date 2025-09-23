@@ -482,3 +482,51 @@ https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_a
 
 This Reddit comment about President Al Body fron Fox Network... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsu7ac/
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsk6x9/
+
+Predictable hate. Putin and Trump flash childhood symbols and icons in front of the Reddit audience and absolutely conditioned reaction of hate. Exactly what the IRA mind-fucked the populatin into. Hate mindsets. Self-harm to USA in a constant attraction to hate leadership. Putin won, Russia won, Surkov won since March 2013.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsqdyy/
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfskq0b/
+
+Real Reality, not fantasy of fiction.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsao2b/
+
+Media content addicts craving new seasons of ***Trump entertains*** Reddit community storytelling.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsv28c/
+
+People are saving shit ideas in thier mind in anticipation of more Trump sex content. Endlessly crying out for rich white men sex action. This is a society that does not want to get rid of terrible leaders like Donald Trump, it was Putin and Trump to provide more trash entertainment.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsns4l/
+
+How to get audiences to flock to your content. Make it a fiction storytelling vs fiction storytelling conflict. Church fiction Bible vs. Mosque fiction Quran. Proven human mind exploits.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfs79lw/
+
+Surkov Student screenplays, Tony Clifton act performance models. Reddit comment community eats up the mocking and hate.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfs7fid/
+
+Reddit comment community has been joke-washing mockery-washing Donald Trump endlessly for over TEN YEARS AND THREE MONTHS. Amusement mills. ... ... ... “But it is much later in the game now, and ignorance of the score is inexcusable. To be unaware that a technology comes equipped with a program for social change, to maintain that technology is neutral, to make the assumption that technology is always a friend to culture is, at this late hour, stupidity plain and simple.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfseqtk/
+
+No citation of Kremlin information warfare, Russian media techniques. Such as November 7, 2014 - more than a decade ago NON-FICTION learning. https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsftq6/
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsdmqh/
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfs9cbn/
+
+Because the KGB / FSB / Russian military has found this is the most powerful technique of information warfare. No defense works, compulsive hate messaginga and compusive mockery in the Reddit audience.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfs8aik/
+
+Exactly as the Russian Internet Research Agency invading Reddit and other media sites since March 2013 has conditioned. Self-harm to USA mindsets.
+
