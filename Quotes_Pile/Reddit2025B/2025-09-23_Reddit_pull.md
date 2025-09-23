@@ -873,3 +873,12 @@ https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_f
 
 FINALLY someone who engages NONFICTION! Sitting on the public library bookshelf since year 2014. <img width="1400" height="1536" alt="image" src="https://github.com/user-attachments/assets/924f3b5e-a299-4bb3-9632-4a222b4496f3" />
 
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nfu6011/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nfts1ig/
+
+https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nfthhrp/
+
+"Republicans refuse to believe the reality"... social media users have had since September 9, 2014 to learn about the Russian **War Against Reality** and call out that people beliving unreal things / believe fiction is true, are likely manipulated by Putin. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+
