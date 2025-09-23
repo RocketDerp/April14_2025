@@ -572,3 +572,45 @@ https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_a
 
 Russia won using these tehcniques. USA lost an information war to Putin since year 2013.
 
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfsjcuv/
+
+Reddit audiience minds blown. Russia won a awar using these tehcniques. USA lost an information war to Putin since year 2013.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfsiub9/
+
+President Tony Clifton act draws in mockery and mocking, hate audience values.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfskf9p/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfsnn0x/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfsqcl3/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfsny0h/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfsm6y2/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfsxt0e/
+
+Anything but go to the nonfiction section of the public library and study how Kremlin information warfare works.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfswzt9/
+
+Reddit comment addicts who won't stop using fee time and spare time to joke-wash amusement-wash mockery-wash this for Trump and Putin.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfspw2f/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfsr9b2/
+
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfsk6xk/
+
+Fiction outsells nonfiction. Putin understands.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfslvbm/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nolt9c/during_his_long_rant_that_ran_the_clock_at_the_un/nfswq9h/
+
+Reddit comment community has no idea how Surkovian govening works. Too busy with fiction to engage nonfiction learning. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
