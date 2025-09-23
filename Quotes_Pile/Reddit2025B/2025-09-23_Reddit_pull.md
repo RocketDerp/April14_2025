@@ -334,3 +334,53 @@ https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_a
 
 Please explain: Russia won an informationw war on Reddit and Twitter and every other media systems since March 2013 using the Internet Research Agency. ... ... .. "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.facebook.com/konstantin.rykov/posts/10210621124674610 ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs5mi0/
+
+Conditioend by the Internet Research Agency, just as Reddit community flocks to comment section to react-comment for OVER TEN YEARS AND THREE MONTHS when Trump image / Trump content / Trump quotes / Trump behavior messages show up on Reddit.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs5rwk/
+
+Look at the trash media *cringe* that Reddit community prizes on /r/All of popualrity. Toxic popularity in year 2025 is fucking embarrassing. Fiction content addicts who can't be bothered to study nonficiton and stand up to fight Russain information warfare. https://www.japantimes.co.jp/news/2025/07/18/japan/politics/russia-influence-japan-election/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs70cz/
+
+The Reddit audience looking satisifed that they can mock and insult President Tonly Clifton performance on touch devices, millions and millions of comments engaged in a total mockery.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs63wm/
+
+Every day meme website comment sections are filled with millions and millions of comments from people who compusively flock to Trump content.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs69wg/
+
+Exactly what Reddit comment audiences crave and call-out for. President Tony Clifton cringe acting so the Reddit crowd can mock and mock and insult and mock at the performance. We are living David Foster Wallace's Infinte Jest V.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs72bg/
+
+Exaclty waht Reddit comment audiences love commenting. OVER TEN YEARS AND THREE MONTHS of non-stop mocking Donald Trump.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs8c2f/
+
+"It is like he is trying", as in intentional, but the Reddit comment user thinks it is accidental Trump is serving Putin by wrecking the USA. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs8jhr/
+
+You are what you eat. You eat junk information on Reddit comments all day and you get a President Tony Clifton entertainment leading your nation. Fictioon addicts avoidant of nonfiction learning of how Russia defeated the USA with antics.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs8o05/
+
+Amused and entertained by insulting all day evvery ay for OVER TEN YEARS AND THREE MONTHS. Entirely unwilling to engage serious nonfiction leaning of how Russian information warfare works.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs8qyw/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs8up4/
+
+"Fucking Christ" mind blown Reddit audience. Declaring Trump is an innocent child, not responsible for adult choices.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs9j93/
+
+Comediain-washing Donald Trump. Reddit comment messages entertainment-washing the serious situation.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfsc8j4/
+
+For over TEN YEARS AND THREE MONTHS, all the media machine uses flock to this, it never ends.
+
