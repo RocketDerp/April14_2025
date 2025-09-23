@@ -1473,3 +1473,8 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1nnrc9a/the_exaggerated_over_the
 
 "LOL" environment opening, amusement funny. **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfob98j/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfp2s4o/
+
+https://old.reddit.com/r/Millennials/comments/1nnzl1y/i_honestly_wish_smartphones_tablets_and_wireless/nfokcby/
