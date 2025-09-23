@@ -539,3 +539,36 @@ Kept Putin in power for over 25 years. Got Trump into office. Nobody on Reddit c
 https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsmne0/
 
 That's how it works. <img width="996" height="412" alt="image" src="https://github.com/user-attachments/assets/82759408-e439-4b05-bf7f-fb5506a2a99a" /> "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev. September 9 2014, 3:42 PM ET. “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsa43a/
+
+Because Russia won a information war against USA and NATO since March 2013. To turn things absurd and surreal. Look at the title of this **year 2014** book: "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsbclz/
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfs9wr7/
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsb1iw/
+
+Teaching remedia Bible literacy on social media is one of the best steps foward. Bible interpretation lessons on Reddit, Bluesky, etc.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsamvf/
+
+Every side saying they want the out-group to go to Hell. Levant values of science fiction storytelling.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsbze8/
+
+Low-effort Reddit comment community, millions and millions of comment messages to avoid noficiton learning of Russian information warfare.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfse33t/
+
+Reddit audiences flock to Trump media content for over TEN YEARS AND THREE MONTHS.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfs9pzm/
+
+Exactly what Tony Clifton audiences say.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsamat/
+
+Russia won using these tehcniques. USA lost an information war to Putin since year 2013.
+
