@@ -905,3 +905,50 @@ https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_f
 
 https://old.reddit.com/r/politics/comments/1noqbhr/charlie_kirk_was_a_divisive_farright_podcaster/nfu53q3/
 
+https://old.reddit.com/r/technology/comments/1noqsm3/the_world_is_ending_tomorrow_according_to/nfu036y/
+
+https://old.reddit.com/r/technology/comments/1noqsm3/the_world_is_ending_tomorrow_according_to/nftmhgs/
+
+In the context of posting about Bible being taken as nonfiction. <img width="894" height="364" alt="image" src="https://github.com/user-attachments/assets/ef63134f-73e0-4133-8d0b-03def73bb931" /> People in USA think Truth Social is nonfiction, Reddit comments are nonfiction, Fox News is nonfiction, The 2,000 year old Bible people still can't understand.
+
+https://old.reddit.com/r/technology/comments/1noqsm3/the_world_is_ending_tomorrow_according_to/nftmxnc/
+
+https://old.reddit.com/r/technology/comments/1noqsm3/the_world_is_ending_tomorrow_according_to/nftn2r0/
+
+Science fiction storytelling does not *force* you to do anything. Star Wars 1977 does not "Force" people to do annything. Compusive attraction to fiction content, addiction behaviors, we do not educate and teach. Media cults. People flock to fiction because they find it cool and exciting and thin nonficiton learning is boring. Look at Reddit /r/All front page.
+
+https://old.reddit.com/r/Funnymemes/comments/1noq49k/_/nftnou3/
+
+https://old.reddit.com/r/Funnymemes/comments/1noq49k/_/nfuj8i8/
+
+https://old.reddit.com/r/Funnymemes/comments/1noq49k/_/nfuauja/
+
+That was my experience with world travel and choosing locations. Had more come-on from strangers I met on airplanes or hotel bars. The bigger lesson is what Reddit says about rule 1 and rule 2 as a man. Be attractive and be attractive. I've worked with single men that I've witnessed women come into work every day trying to ask them out, customers ask them out. Not common, but I worked at 7 diffrent businesses between age 16 and 21 and I personally knew two guys that women would instantly ask out for dates. One was a business partner of mine who ran a computer shop. Like 1 in 50 men are like this maybe. Hard to quantify. As only a certain number of men where I was ina position to actually witness it my own self and not just be pure information / storytelling.
+
+https://old.reddit.com/r/Funnymemes/comments/1noq49k/_/nfuckus/
+
+"nfuckus" is a notable Reddit comment identifier.
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nftrui4/
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nfu5q7b/
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nfthw3j/
+
+Reddit comment commuity can not cite these techniques and situaitons by names. "It sums up the strange mood of our time, where nothing really makes any coherent sense. We live with a constant vaudeville of contradictory stories that makes it impossible for any real opposition to emerge, because they can't counter it with any coherent narrative of their own." - December 31, 2014. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nftjczf/
+
+The contradiction is the very means of creating a cult. The Bible has a "good guy" God and a bad guy Satan / Devil. Who created Satan? God did. Romans 11:32 verse spells out this paradox and is the heart of James Joyce's work.
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nftm8e0/ 
+
+This comment is wrong. People are confusing bi-poloar diagnosis of a single person with bi-poloar mob mentality of a group. The behaviors can be the same, but this bi-polar person thinks it is being misued because we do not teach mental disorders of cults / religions / groups / mobs / clubs / corporations / organizations of people. Scientology for example, wedo not educate people, welet predatory organizations manipulate people without self-awareness. Sports fans can go into media mania when their team wins or loos, "football holligan" behaviors / etc.
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nftn5rr/
+
+No citation, no link to analysis, no auther name, no book name, etc.
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1noqdky/trumps_latest_stataments_after_his_meeting_with/nftqvfg/
+
+Texan Rick Roderick of Duke University in year 1993: "But it’s certainly a good demand to place upon, ah, your society, its leaders, and so on. The trouble is, just as I have stated before, we are blocked. We are blocked **in a way by an unprecedented structure of what I have called here… sort of… cynical, sceptical reason. To me it’s historically unmatched. I have never read or heard of a period like this one. Now, I have read about many historical periods.** But not one in which you can talk to young people the way you can at the college level today, and find out that they believe… nothing. Want… nothing. Hope… nothing. Expect… nothing. Dream… nothing. Desire… nothing. Push ’em far enough and they’ll say: “Yeah, I gotta get a job. Spent a lot of money at Duke.” That’s not what I am talking about here. They hope nothing. Expect nothing. Dream nothing. Desire nothing. And it is a fair question to ask whether a society that produces this reaction in its young is worthy of existence at all. It really is. It’s worth asking that. Whether it’s worth being here at all. And my criticism of this society couldn’t get more bitter than it is in that case. It couldn’t possibly be. Remember, I am talking about the young I have encountered at Duke. These are privileged youth. At an elite southern school. Mostly white, mostly upper-middle to upper class." https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/ 
