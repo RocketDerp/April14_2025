@@ -1465,3 +1465,11 @@ Media ecology woke, year 1924 woke, Finnegans Wake fromm Irish author James Joyc
 
 https://old.reddit.com/r/MurderedByWords/comments/1nnrmvk/feminism_is_dead/nfmpoy2/
 
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nnrc9a/the_exaggerated_over_the_top_hero_whorship_of/nfo4pxh/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nnrc9a/the_exaggerated_over_the_top_hero_whorship_of/nfoil2v/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nnrc9a/the_exaggerated_over_the_top_hero_whorship_of/nfopc3v/
+
+"LOL" environment opening, amusement funny. **September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics"** https://time.com/7313999/neil-postman-trump-prediction/
+
