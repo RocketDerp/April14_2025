@@ -46,3 +46,40 @@ https://old.reddit.com/r/MurderedByWords/comments/1noegm2/hes_got_a_good_point/n
 
 https://old.reddit.com/r/MurderedByWords/comments/1noegm2/hes_got_a_good_point/nfr9be5/
 
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfr4ls7/
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfrf7yf/
+
+Clergy has rasied people to believe there is a devil and a god, and you can choose which team there is. That playing team satan and team devil is a valid choice. That there are "two sides" to every issue, and evil and badness is a perfectly good choice. War and peace, take your pick, both good choices. It is a fundmantal failure to think being greedy and wrecking the Earth in conquest of animals and nature is a good choice. Dumping toxic poison all over the world and creating so much pollution that we are altering the climate to the point of self-harm. Good and bad are not equal choices. We should be chooosing between good idea one and good idea two and good idea three, which is not tirvial or easy. People who think murder / war / killing / starving out others / making other people homeless is a valid choice have been paerented (as both children and adults) with a major misunderstanding. Hate is self-harm to humanity in total.
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfrpm45/
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfrgi07/
+
+Hae and crulety aren't valid choices. Good vs. evil is a horrible interpretation of the world, as it makes them equal.
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfre0go/
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfrfveo/
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfrfujo/
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfr76ks/
+
+Hate as entertainment.
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfrmhgh/
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfr7v5j/
+
+https://old.reddit.com/r/technology/comments/1nofdhu/nintendo_alerted_after_dhs_uses_pok%C3%A9mon_to/nfrmeku/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrlptk/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrkruu/
+
+War uniforms excite people. Play soldiers, toys for children. Explosions and fireworks excite people. Bombs going off get world breaking news attention.
+
+https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrdxhe/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrgs5f/
