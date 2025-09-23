@@ -213,3 +213,19 @@ This Reddit user is esentially saying this is the most weaponized and most mind-
 https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfr6sn0/
 
 Mind blowing governing methods using artwork from Japan. "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - December 31, 2014. More than a decade ago. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfr967o/
+
+Minds blown, mind-blowing meme-bomb on population.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfra6cp/
+
+It all started November 7, 2012 with the agreement to create the Russain Internet Research Agency and invasion of Reddit media systems with mind-fucking feverdream content. November 7, 2012. ... ... ... "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." -https://www.facebook.com/konstantin.rykov/posts/10210621124674610
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfrbdfn/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfrdp00/
+
+The same addictions to trash content are the foundation of symbolism warfare of the Kremlin and White House.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfrf38c/
