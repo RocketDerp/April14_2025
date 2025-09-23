@@ -150,3 +150,30 @@ So in school people had faith in hate, and now they grew up to form a USA goverm
 
 https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfq323v/
 
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfq3y5r/
+
+Mind blowing governing methods using artwork from Japan. "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - December 31, 2014. More than a decade ago. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfpykaz/
+
+Reddit community swims in fiction. "At this point". Published September 9, 2014 - more than eleven full years ago, describing what was already happening in 2014. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfpuedu/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqpyro/
+
+Content consumers having the minds blown. Mind blowing governing methods using artwork from Japan. "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - December 31, 2014. More than a decade ago. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqc8ut/
+
+Content creation for the Reddit comment section to react to.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqof4w/
+
+People unable or unwilling to ngage nonfiction at the public library and study Russian information warfare. Published September 9, 2014 - more than eleven full years ago, describing what was already happening in 2014. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqwsf6/
+
+Yes, works on Reddit meme addicts. Comfort memes, comfort Japan images to feed the mind. <img width="1282" height="454" alt="Screenshot from 2025-09-23 08-15-09" src="https://github.com/user-attachments/assets/cf41e537-ff24-4229-9a86-de04a3ce0556" />
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqxben/
