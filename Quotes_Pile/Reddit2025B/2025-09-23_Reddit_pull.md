@@ -83,3 +83,22 @@ War uniforms excite people. Play soldiers, toys for children. Explosions and fir
 https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrdxhe/
 
 https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrgs5f/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrh5ux/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrkwxl/
+
+Yet, events change people. A diverse set of people, over 1 million, in Palestine year 2022 have completely different reaction to news and events in year 2024. Same with Ukraine year 2012 vs. Ukraine year 2024. Germany and Japan year 1990 are not anything like Germany and Japan year 1942.
+
+https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrhywr/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nogjr0/twitch_streamer_kelton_g_assaults_elderly_man_in/nfrhzh0/
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1nog7wb/and_they_were_roommates/nfrr2lv/
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1nog7wb/and_they_were_roommates/nfrdq15/
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1nog7wb/and_they_were_roommates/nfrlnl6/
+
+The segregation of men and women in North Africa was an experience for me. Young adults and men would walk together like boyfriend and girlfriend in public. And women were not that way towards their actual boyfrind and husband.
+
