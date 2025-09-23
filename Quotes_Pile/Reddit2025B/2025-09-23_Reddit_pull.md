@@ -434,3 +434,22 @@ https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_a
 
 The trash memes and trash content soical media users vote / like / share every day has taken over the White House values. People can't get enough anti-education anti-nonfiction mockery. Put millions and millions of low-effort social media comments into your mind and attraction to mocking Trump and messages of Hate from Trump. ... ... ...  Reddit and compusive flocking to comment upon White House shit is "especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs882f/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs8dkw/
+
+Reddit comment community calling for more Trump content, saying how great it is to have it repackaged.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs8hma/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs90n7/
+
+Fans of the comemdy style of Tonly Clifton acts.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs92lj/
+
+Reddit flocks to comment for over TEN YEARS AND THREE MONTHS. Funding the advertisers and media machines.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs96wb/
+
+Exactly what audience members say to Tony Clifton acts. February 18, 1982 https://www.youtube.com/watch?v=luSYkmXW-0o
