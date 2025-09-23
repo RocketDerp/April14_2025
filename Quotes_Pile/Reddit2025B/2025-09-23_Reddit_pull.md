@@ -162,7 +162,7 @@ https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_
 
 https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqpyro/
 
-Content consumers having the minds blown. Mind blowing governing methods using artwork from Japan. "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - December 31, 2014. More than a decade ago. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+Content consumers having their minds blown. Mind blowing governing methods using artwork from Japan. "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - December 31, 2014. More than a decade ago. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
 https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqc8ut/
 
@@ -194,4 +194,22 @@ Russa won since March 2013. Internet Research Agency defeated USA.
 
 https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqgy4z/
 
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqv51v/
 
+We The People on social machines joke-washed Trump. Meme-washed Trump. Humor-washed Trump. Amusement-washed Trump. Mocked and mocked and mocked and mockery-washed Trump into a nation of Total Mockery always mocking all the time on every media machine. A nation with deepest faith in mockery and avoidance of nonfiction learning.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfqxtyv/
+
+We are a meme nation addicted to memes. We are a fucking disgrace.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfr4iwa/
+
+OPERA_A 95,600 views July 16, 2013 https://www.youtube.com/watch?v=oAkHkgAZq0o
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfr4jqc/
+
+This Reddit user is esentially saying this is the most weaponized and most mind-fucking content they have encountered.
+
+https://old.reddit.com/r/MarchAgainstNazis/comments/1no7yu9/no_joke_us_homeland_security_just_posted_this/nfr6sn0/
+
+Mind blowing governing methods using artwork from Japan. "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - December 31, 2014. More than a decade ago. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
