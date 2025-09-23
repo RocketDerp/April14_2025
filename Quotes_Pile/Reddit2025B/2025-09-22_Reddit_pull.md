@@ -1239,4 +1239,26 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_
 
 Hate messaging from the White House finds hate-seeking audiences on machine media systems.
 
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfo183e/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfo596u/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfoaazr/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nnr3sn/the_attack_on_tylenol_is_another_attack_on_women/nfmsmb5/
+
+Wildcard / Mystery / Mythology / Mythological. ... ... ... George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "The psychologist Jung has a relevant saying: “Religion is a defense against the experience of God.” The mystery has been reduced to a set of concepts and ideas, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An intense experience of mystery is what one has to regard as the ultimate religious experience." - endless debate for social machine addicts to engage, ultimate Surkov students sceenplay for White House and Kremlin media.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfnhbts/
+
+Fiction outsells nonfiction. Hate fantasy of never-proven Hell outsells love and compassion on Earth for alive and kicking human persons. Levant statement "1 John 4:20" how "I love character Jesus" is wrong, as not a living human person, only a book reading.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfoonak/
+
+Customer. Consumer.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nnvg6f/do_it_for_him/nfnvozj/
+
+I slectively cherry-pick from The Bible: "1 John 3:17" verse on how to judge the love of Donald Trump wealth-lord and Elon Musk welath-lord. "1 John 3:17" a judgement audit statement for us people.
+
 
