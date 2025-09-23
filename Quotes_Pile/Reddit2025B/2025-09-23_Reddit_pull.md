@@ -453,3 +453,32 @@ Reddit flocks to comment for over TEN YEARS AND THREE MONTHS. Funding the advert
 https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs96wb/
 
 Exactly what audience members say to Tony Clifton acts. February 18, 1982 https://www.youtube.com/watch?v=luSYkmXW-0o
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs97l4/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs9f4d/
+
+How? The Russian Internet Research Agency since March 2013 invading Reddit comment sections and other media systems.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfs9h6r/
+
+One Tpny Clifton audience member to the other Tony Clifton audience members... eating The Onions of satire.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfsa1rt/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfsa578/
+
+Putin puppets in action, Reddit comment section unable to grasp nonfiction about how Russian informationw arfare and mental manipulation works for 25 years. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfsalsk/
+
+Every day you consume Russian media content from the White House and make no effort to escue your nation from a mental takeover driven by absurd commedy, surrael messaging, and hyper reality.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfsanrg/
+
+One Tpny Clifton audience member to the other Tony Clifton audience members... eating The Onions of satire.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nojyyf/president_donald_trump_addressing_the_un_general/nfsau65/
+
+This Reddit comment about President Al Body fron Fox Network... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
