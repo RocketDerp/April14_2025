@@ -530,3 +530,12 @@ https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_a
 
 Exactly as the Russian Internet Research Agency invading Reddit and other media sites since March 2013 has conditioned. Self-harm to USA mindsets.
 
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsdvst/
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsghrl/
+
+Kept Putin in power for over 25 years. Got Trump into office. Nobody on Reddit can resist it, avoidance of nonfiction is compulsive in Reddit audience.
+
+https://old.reddit.com/r/Music/comments/1nokhb4/white_house_posts_video_of_ice_arrests_set_to/nfsmne0/
+
+That's how it works. <img width="996" height="412" alt="image" src="https://github.com/user-attachments/assets/82759408-e439-4b05-bf7f-fb5506a2a99a" /> "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev. September 9 2014, 3:42 PM ET. “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
