@@ -662,7 +662,7 @@ https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_w
 
 https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs5i3u/
 
-USA society can't get enough of President Tony Clifton mocking. Unable to enage nonfiction learning of Russian governing methods.
+USA society can't get enough of President Tony Clifton mocking. Unable to engage or seek out nonfiction learning of Russian governing methods.
 
 https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfso0s5/
 
@@ -798,3 +798,56 @@ https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presid
 https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft89hs/
 
 Note the conversationaal style on these critical and important topics. Abscence of links, author names, book titles, just geneating low-effort comment messages on Reddit by the millions to drown out any organized and sustained focus on nonfiction learning of important topics. “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftvqmx/
+
+Reddit comment is a drama-washing community of addicts to fiction and low-effort memes.
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft8fvo/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftmu8d/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft3bn2/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft7gsw/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft7raa/
+
+Note the absence of author name, book title, citation, link. Just tiny short messages on serious and important topics to normalize the situation. No concern to call for people to study the topic and take it serious in saving the world from Putin and Trump. Links such as September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ being repeated.
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft5rn0/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftdwbt/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft4tkf/
+
+Surpised, mind altered, by Surkovian techniques of messaging contradictory information. People can not engage nonfiction learning of these tehniques and call them out. ... ... ... Year 2014: "Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year." (This year, 2014) https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft7lul/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft7i72/
+
+People expect entertainment mockery from Trump. When Reddit and Bluesky audiences didn't get entertainment at the start of September on a 3-day weekend, they went into a media freanzy. September 2, 2025 https://www.axios.com/2025/09/02/trump-death-illness-white-house-rumors
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftazac/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftk2kq/
+
+Is that why Reddit comment sections on every serious and important topic provde no author names, book titles, citation links and just repeat over and over low-effort comments that people put into their minds and then start adopting low-effort commenting everywhere they go... June 2, 2014 https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftel67/
+
+And Reddit commenting community for over TEN YEARS AND THREE MONTHS flocks to amusement-wash and entertainment-wash every Trump action and image.
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftinjx/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftk9ou/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftlg8k/
+
+Faith in mocking and faith in hate messaging is Russia conditioned self-harm.
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftnv4l/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftpy6s/
+
