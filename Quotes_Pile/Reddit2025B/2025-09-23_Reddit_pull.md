@@ -770,3 +770,31 @@ The Reddit media comment section will keep commentiong on every Trump photograph
 https://old.reddit.com/r/politics/comments/1nok4av/trumps_big_un_speech_received_with_awkward/nfs4nc8/
 
 Ignorance of how Putin has been in power for 25 years. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft6obw/ 
+
+Reddit society, Twitter society, Truth Social society, Bluesky society, Facebook society, Fox News audience society... people unable to recognize or describe Russian informaiton warfare with any level of detail or comrpehension are self-harming planet Earth.
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftrkie/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftozgd/
+
+Reddit community amusement-washes and mockery-washes MAGA at evey chance with comments and postings. People so amused at mocking and insulting that they won't resist Russian information warfare because it creates so much "leopards eat faces" content to mock and insult.
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft3mrv/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftc10q/
+
+Reddit community can't enage nonfiction learning about Russian information warfare since year 2013 and cite authors, book titles, links, etc. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nftg50y/
+
+The Internet Research Agency happend starting in March 2013. And Reddit community can't provide any nonfiction citations, links, author names, book titles, etc. ... ... ... "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.facebook.com/konstantin.rykov/posts/10210621124674610 ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nfth5cp/
+
+"Glued to media devices" to avoid nonfiction learning about Russian information warfare tactics and techniques and timelines of evolution.  September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/europe/comments/1noobam/bbc_lives_analysis_of_us_presidents_un_speech/nft89hs/
+
+Note the conversationaal style on these critical and important topics. Abscence of links, author names, book titles, just geneating low-effort comment messages on Reddit by the millions to drown out any organized and sustained focus on nonfiction learning of important topics. “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
