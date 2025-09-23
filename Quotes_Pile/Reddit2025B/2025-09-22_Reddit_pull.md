@@ -1365,3 +1365,21 @@ https://old.reddit.com/r/pics/comments/1no021z/trump_talks_to_reporters_with_a_d
 
 Future. Because we can not teach media ecology nonfiction now today. We can't be bothered to learn about Russian information warfare, too busy with short-length comment messsaging with spare time and free time on Reddit apps.
 
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfnkf0l/
+
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfntvly/
+
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfnd71k/
+
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfngngx/
+
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfnhxzi/
+
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfogp0p/
+
+Reddit is full of fiction and comic memes. Inability to discuss the media addiction, instead only sees it as *opther* media platforms... as described in this 1967 video about people not being self-aware of their own media when calling out other media. https://www.youtube.com/watch?v=cFwVCHkL-JU&t=196s
+
+https://old.reddit.com/r/comedyheaven/comments/1nnvbiw/big_news/nfoa0as/ 
+
+But not Reddit an arm of the Russian Internet Research Agency since March 2013. https://abcnews.go.com/Technology/reddit-bans-944-accounts-suspected-links-russian-troll/story?id=54379601
+
