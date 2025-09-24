@@ -1075,5 +1075,56 @@ https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_
 
 https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nfus1y5/
 
-That's why people behave this way. Trump's whole Tony Clifton acting show gets people to blow their minds out constantly mocking and insutling how terrible King of Entertainment bragging Tony Clifton is.
+That's why people behave this way. Trump's whole Tony Clifton acting show gets people to blow their minds out constantly mocking and insutling how terrible King of Entertainment bragging Tony Clifton is. We are drowning in this style of communications and leadership.
+
+https://old.reddit.com/r/MapPorn/comments/1nossfq/a_map_of_the_tv_stations_that_will_not_be_airing/nfugsyy/
+
+Note the age of the Reddit account. People on Reddit hide their identtiy, while talking about powerful people on television who DO NOT hide their identity. Reddit messages to amusement-wash entertainment-wash the situation of people craving entertainment so much that nonfiction is being avoided in society. "Why alienate a huge"... what alinates USA people in September 2025 is nonfiction. People want everything to be entertaining and don't want to take serious the raging crisis of abandonment of scinece and nonfiction learning in favor of constantly being entertained. Described in the 1985 book "Amusing OUselves To Death" about media. https://www.youtube.com/watch?v=ETUGwC9jXCM
+
+https://old.reddit.com/r/MapPorn/comments/1nossfq/a_map_of_the_tv_stations_that_will_not_be_airing/nfu2irw/
+
+Fiction outsells nonfiction. Rupert Murodch has shown "entertainment" outsells serious nonfiction learning.
+
+https://old.reddit.com/r/MapPorn/comments/1nossfq/a_map_of_the_tv_stations_that_will_not_be_airing/nfu6r8b/
+
+Again, fiction outsells nonfiction. Exciting graphics and style outsell authentic comprehension and understanding.
+
+https://old.reddit.com/r/MapPorn/comments/1nossfq/a_map_of_the_tv_stations_that_will_not_be_airing/nfu8752/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/MapPorn/comments/1nossfq/a_map_of_the_tv_stations_that_will_not_be_airing/nfu2six/
+
+We need to educate every person age 12 to age 120 on media ecology. Neil Postamn and Marshall McLuhan books and materials. The Internet has opened to hostile nations and media organiziations who comment right on Reddit, and people can't even name the "Internet Research Agency" or "Cambridge Analytica" in 2025. https://www.bbc.com/news/technology-43255285
+
+https://old.reddit.com/r/MapPorn/comments/1nossfq/a_map_of_the_tv_stations_that_will_not_be_airing/nfugx6i/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/MapPorn/comments/1nossfq/a_map_of_the_tv_stations_that_will_not_be_airing/nfv5295/
+
+Reddit comment sections with no-identtiy users accounts from Russia https://www.bbc.com/news/technology-43255285 are the standard for decency to a Reddit media addict insutling competitng media consumers. Egoism abounds. 
+
+https://old.reddit.com/r/MapPorn/comments/1nossfq/a_map_of_the_tv_stations_that_will_not_be_airing/nfuuhfa/
+
+Funny-washing September 2025 USA situation under Donald Trump. Reddit messages amusement-washing the situation with high-speed reactionary media. Entirely avoiding nonfiction learning about Russian manipulation via media systems.  “If politics is like show business, then the idea is not to pursue excellence, clarity or honesty but to appear as if you are, which is another matter altogether.” ― Neil Postman, [Amusing Ourselves to Death](https://time.com/7313999/neil-postman-trump-prediction/): Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/MapPorn/comments/1nossfq/a_map_of_the_tv_stations_that_will_not_be_airing/nfuf43n/
+
+https://old.reddit.com/r/technology/comments/1not7ba/fcc_chairman_unconvincingly_claims_he_never/nfueaa7/
+
+https://old.reddit.com/r/technology/comments/1not7ba/fcc_chairman_unconvincingly_claims_he_never/nfv3iqf/
+
+https://old.reddit.com/r/technology/comments/1not7ba/fcc_chairman_unconvincingly_claims_he_never/nfuehkp/
+
+Every area of life people flock to fiction abd hate messaging now in USA. The aftermath of Internet Research Agency and cambridge Analytica since year 2013.
+
+https://old.reddit.com/r/technology/comments/1not7ba/fcc_chairman_unconvincingly_claims_he_never/nfur8gy/
+
+Note the Reddit comment lacks any author names, book titles, links / reeferences to the subject. Such as "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." https://en.wikipedia.org/wiki/This_Is_Not_Propaganda
+
+https://old.reddit.com/r/technology/comments/1not7ba/fcc_chairman_unconvincingly_claims_he_never/nfv96q3/
+
+Did everyone forget the Twitter / Elon Musk / Truth Social? This is all about technoogy love and abandonment of humanism. Machines are loved, humans hated. Police in Palestine, hate the humans, love the land messaging. USA cut health care and hate the humans, love the Truth Social and Reddit machines and Apple iPhones. ... ... ... “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from information glut, information without meaning, information without control mechanisms.”
+― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
 
