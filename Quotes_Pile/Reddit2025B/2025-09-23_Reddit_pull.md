@@ -1250,3 +1250,58 @@ https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on
 
 https://old.reddit.com/r/sports/comments/1nozoz4/guardians_david_fry_carted_off_field_after_being/nfvx53u/
 
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvhywt/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvjai8/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvoo03/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvmbk2/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvpzys/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvmzut/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvn7m3/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvkrjx/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvu0qo/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvu6kf/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvp4rj/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvonmm/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvobzv/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfw0jkn/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvyqoj/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvxf5v/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvy9jq/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvjjdv/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvqyb7/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvo0s4/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvksyo/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvnxhr/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvpjzg/
+
+Reddt social media community has had since year 2015 to make Jen Senko a household name and take on Fox News. The Little Gal who stood up, a Baby Boomer stood up to Fox News. But people can not engage nonfiction learning with sustained repeating and focus https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvjqfe/
+
+The ELIZA effect more and more around the White House media
+
+https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvncol/
+
+That is the mind-fuck in action. Surkov Russian governing techniques. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
