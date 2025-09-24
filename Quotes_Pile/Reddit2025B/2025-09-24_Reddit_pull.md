@@ -341,3 +341,52 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_wi
 NEW year 2014: "the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxvakm/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfy0ay3/
+
+No citations, no author names, no book titles, just wild claims that 100% bullshit in tiny short messages. These are the comments in USA 2025 that people choose over books on paper at the public library.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxvciq/
+
+https://old.reddit.com/r/politics/comments/1npfpie/fox_news_jesse_watters_calls_to_bomb_un_or_maybe/nfzpvb8/
+
+Reddit messages openly call for killing. Luigi icons / sybols street-gang singaling all over since December 4, 2024. Bluesky too. Masking it as Nintendo in tactical cleverness.
+
+https://old.reddit.com/r/politics/comments/1npfpie/fox_news_jesse_watters_calls_to_bomb_un_or_maybe/nfyywxj/
+
+Hate prized. Faith in hate. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/politics/comments/1npfpie/fox_news_jesse_watters_calls_to_bomb_un_or_maybe/nfz33bf/
+
+Fox News HDTV frames itself as fiction, and in a fiction television series or fiction film, terrorism is fine. In Star Wars Andor fiction show, terrorists get cheered on. Fox News is fiction.
+
+https://old.reddit.com/r/politics/comments/1npfpie/fox_news_jesse_watters_calls_to_bomb_un_or_maybe/nfz5q20/
+
+https://old.reddit.com/r/politics/comments/1npfpie/fox_news_jesse_watters_calls_to_bomb_un_or_maybe/nfz1uqc/
+
+Second-hand media consumption, like second hand smoke cancer.
+
+https://old.reddit.com/r/politics/comments/1npfpie/fox_news_jesse_watters_calls_to_bomb_un_or_maybe/nfz5cqg/
+
+https://old.reddit.com/r/politics/comments/1npfpie/fox_news_jesse_watters_calls_to_bomb_un_or_maybe/nfz9q0s/
+
+https://old.reddit.com/r/politics/comments/1npfpie/fox_news_jesse_watters_calls_to_bomb_un_or_maybe/nfyyrko/
+
+https://old.reddit.com/r/politics/comments/1npfpie/fox_news_jesse_watters_calls_to_bomb_un_or_maybe/nfz6hsm/
+
+Fox News HDTV frames itself as fiction, and in a fiction television series or fiction film, terrorism is fine. In Star Wars Andor fiction show, terrorists get cheered on. Fox News is fiction.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzc7v2/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfze9ia/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/ng0ebjt/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzo42m/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzi8qg/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/ng07xpi/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzryk1/
+
