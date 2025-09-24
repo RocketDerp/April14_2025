@@ -1472,3 +1472,7 @@ Technology bubbles too. Like Reddit decries that Facebook is much much worse, th
 https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfwlfrc/
 
 People in USA have the deepest faith: to out-mock Donald Trump. That more mockery is the answer to mockery. Out-hate MAGA, that the answer to hate is always more hate.
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfwkojj/
+
+If you are a Truth Social user you take your orders from the latest posting on Truth Social. If you are a Reddit user, you take your orders and thinking from the latest Reddit posting and comments. HDTV Fox News machine says to think this. ChatGPT says to not learn about The ELIZA effect, etc. We have a massive out of control wildfire of ignorance regardingthe ELIZA effect and high-speed media systems ecology. We have known about these issues for at least 40 years and they have overrun society. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, **year 1992**
