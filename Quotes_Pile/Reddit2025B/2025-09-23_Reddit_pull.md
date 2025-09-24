@@ -1157,3 +1157,65 @@ https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_win
 
 Talked about with medical visas, etc. "Harvard scientist worries we’re **‘reverting to a pre-Enlightenment form of thinking’**" February 23, 2017 George Q. Daley, dean of Harvard Medical School.  https://www.washingtonpost.com/news/wonk/wp/2017/02/23/harvard-scientist-worries-were-reverting-to-a-pre-enlightenment-form-of-thinking/
 
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv3yq3/
+
+People just can not wrap their head around Surkovian governing methods of media systems. Calling Tony CLifton acts a "clown" and despising it are exactly the mental exploit that is being played on Reddit comment community. There is a complete lack of self-awareness that getting an emotional reaction is all that matters in brain exploitation. This has been going on FOR OVER TEN YEARS AND THREE MONTHS.  ... ... ... Mark Turnbull said the method was to play on fears, often using front companies to disguise involvement. “You didn’t know that was a fear until you saw something that just evoked that reaction from you,” he was recorded saying. “And our job is to **drop the bucket further down the well than anybody else, to understand what are those really, deep-seated** underlying fears, concerns.”
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv4nsl/
+
+Reddit community comments constantly amusement-wash and mockery-wash everything to do with Donald Trump. People can not get enough hate messages and mockery messages. Trump is King of Pop, Pop Culture King of getting audiences engaged. Mocking Trump is not Resisting President Tony Clifton Reality TV performances.
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfvfu16/
+
+How the media platform is wired up. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv69zk/
+
+Reddit messages of dehumanize thy enemy, hate thy enemy non-person thy enemy, no compassion for the out-groups. These are all monomyth patterns. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "The Hebrews were absolutely ruthless with respect to their neighbors. But this passage is an extreme statement of something that is inherent in most sociologically oriented mythologies. That is to say, love and compassion are reserved for the in-group, and **aggression and abuse are projected outward on others**. Compassion is to be reserved for members of your own group. The out-group is to be treated in a way described there in Deuteronomy.
+Now, today there is no out-group anymore on the planet. And the problem of a modern religion is to have such compassion work for the whole of humanity. But then what happens to the aggression? (1987) **This is a problem that the world is going to have to face** — because aggression is a natural instinct just as much as, and more immediate than, compassion"
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv7awp/
+
+Putin found out the more absurd, surreal, over the top, the more audiences (like Reddit comments) get their mind blown and become addicted to the content. Detach from nonfiction and seek more and more fiction (like Fox News fiction, Truth Social fiction). That's how the human mind seems to work when not educated on these techniques. No defense has been found against these Kremlin methods. Putin has ued them for over 25 years to stay in power.
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv75g3/
+
+The Onion is entertainment, absurd surrael, very popular on Reddit comment sections. Fox News audiences eat it up. Very attracted to these patterns.
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv4e5x/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv3v5m/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv9bbo/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfvavnz/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv2s2g/
+
+There is a real-world fact-backed conpsiracy by Russian Kremlin to create fiction nonsense conspiracies. “Conspiracy theories have long been used to maintain power: the Soviet leadership saw capitalist and counter-revolutionary conspiracies everywhere; the Nazis, Jewish ones. But those conspiracies were ultimately there to buttress an ideology, whether class warfare for Communists or race for Nazis. With today’s regimes, which struggle to formulate a single ideology – indeed, which can’t if they want to maintain power by sending different messages to different people – the idea that one lives in a world full of conspiracies becomes the world view itself. Conspiracy does not support the ideology; it replaces it. In Russia this is captured in the catchphrase of the country’s most important current affairs presenter: ‘A coincidence? I don’t think so!’ says Dmitry Kiselev as he twirls between tall tales that dip into history, literature, oil prices and colour revolutions, which all return to the theme of how the world has it in for Russia. And as a world view it grants those who subscribe to it certain pleasures: if all the world is a conspiracy, then your own failures are no longer all your fault. The fact that you achieved less than you hoped for, that your life is a mess – it’s all the fault of the conspiracy. More importantly, conspiracy is a way to maintain control. In a world where even the most authoritarian regimes struggle to impose censorship, one has to **surround audiences with so much cynicism** about anybody’s motives, persuade them that behind every seemingly benign motivation is a nefarious, if impossible-to-prove, plot, that they lose faith in the possibility of an alternative, a tactic a renowned Russian media analyst called Vasily Gatov calls **‘white jamming’**. And the **end effect of this endless pile-up of conspiracies is that you, the little guy, can never change anything**. For if you are living in a world where shadowy forces control everything, then what possible chance do you have of turning it around? In this murk it becomes best to rely on a strong hand to guide you. ‘Trump is our last chance to save America,’ is the message of his media hounds. Only Putin can ‘raise Russia from its knees’. ‘The problem we are facing today is less oppression, more lack of identity, apathy, division, no trust,’ sighs Srdja. ‘There are more tools to change things than before, but there’s less will to do so.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv4pcq/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv2fdy/
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfv81mn/
+
+Entertainment. Bluesky and Reddit comment communites can't stop mocking and insulting. Avoiding nonfiction learning and sharing of serious media ecology self-wareness."Amusing Ourselves to Death" https://time.com/7313999/neil-postman-trump-prediction : Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1noxjuz/fox_news_host_jesse_watters_on_the_uns_escalator/nfveib5/
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1novwc0/on_a_post_about_charlie_kirk/nfuwa70/
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1novwc0/on_a_post_about_charlie_kirk/nfvn251/
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1novwc0/on_a_post_about_charlie_kirk/nfut9lc/
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1novwc0/on_a_post_about_charlie_kirk/nfvjo7v/
+
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1novwc0/on_a_post_about_charlie_kirk/nfvmr0i/
+
+There is a real-world fact-backed conpsiracy by Russian Kremlin to create fiction nonsense conspiracies. “Conspiracy theories have long been used to maintain power: the Soviet leadership saw capitalist and counter-revolutionary conspiracies everywhere; the Nazis, Jewish ones. But those conspiracies were ultimately there to buttress an ideology, whether class warfare for Communists or race for Nazis. With today’s regimes, which struggle to formulate a single ideology – indeed, which can’t if they want to maintain power by sending different messages to different people – the idea that one lives in a world full of conspiracies becomes the world view itself. Conspiracy does not support the ideology; it replaces it. In Russia this is captured in the catchphrase of the country’s most important current affairs presenter: ‘A coincidence? I don’t think so!’ says Dmitry Kiselev as he twirls between tall tales that dip into history, literature, oil prices and colour revolutions, which all return to the theme of how the world has it in for Russia. And as a world view it grants those who subscribe to it certain pleasures: if all the world is a conspiracy, then your own failures are no longer all your fault. The fact that you achieved less than you hoped for, that your life is a mess – it’s all the fault of the conspiracy. More importantly, conspiracy is a way to maintain control. In a world where even the most authoritarian regimes struggle to impose censorship, one has to **surround audiences with so much cynicism** about anybody’s motives, persuade them that behind every seemingly benign motivation is a nefarious, if impossible-to-prove, plot, that they lose faith in the possibility of an alternative, a tactic a renowned Russian media analyst called Vasily Gatov calls **‘white jamming’**. And the **end effect of this endless pile-up of conspiracies is that you, the little guy, can never change anything**. For if you are living in a world where shadowy forces control everything, then what possible chance do you have of turning it around? In this murk it becomes best to rely on a strong hand to guide you. ‘Trump is our last chance to save America,’ is the message of his media hounds. Only Putin can ‘raise Russia from its knees’. ‘The problem we are facing today is less oppression, more lack of identity, apathy, division, no trust,’ sighs Srdja. ‘There are more tools to change things than before, but there’s less will to do so.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1novwc0/on_a_post_about_charlie_kirk/nfvhaby/
