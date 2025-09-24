@@ -319,3 +319,10 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_wi
 https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxrund/
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfyec60/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxrf53/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxs4vz/
+
+Being angry and hate-filled distorts thinking. The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md) backed by Cambridge Analytica. People were angry about entertainment tickets / video game price increases (Nintendo Switch 2 year 2025, $80 game prices for Nitendo games). Being angry about entertainment comedy show isn't evidence of anything more than what this entire GitHub project is stating: September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
