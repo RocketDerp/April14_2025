@@ -1,6 +1,6 @@
 https://old.reddit.com/r/politics/comments/1np9hz9/turns_out_trumps_own_team_messed_up_un_escalator/nfxhayp/
 
-A technology machine for walking that White House does not grasp. A reading machine for messagibg that the White House does not grasp. Media ecology comprehension is not optional. Avery person age 12 to age 120 needs urgent remedial education. People are not even self-aware of their own mindsets. A 79 year old man lashing out at machines.  ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
+A technology machine for walking that White House does not grasp. A reading machine for messaging that the White House does not grasp. Media ecology comprehension is not optional. Avery person age 12 to age 120 needs urgent remedial education. People are not even self-aware of their own mindsets. A 79 year old man lashing out at machines.  ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
 
 https://old.reddit.com/r/politics/comments/1np9hz9/turns_out_trumps_own_team_messed_up_un_escalator/nfxj868/
 
@@ -161,5 +161,30 @@ Turning trivial topics into huge issues, mountain out of a molehill, while also 
 https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyat8v/
 
 https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy7vyo/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy6739/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy2vpk/
+
+Reddit comment section shows time and time again that low-effort "cringe" is very popular. Donald Trump is the most popular person in all USA history. Every media platform flocks to mock Trump Cringe. Doing Tony Clifton acts works.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy7mzx/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy7esk/
+
+If people would study how the Syngaggoe, Church, Mosque, Mecca fiction empire sellings have worked they could grasp that science fiction storytelling outsells nonfiction. Compare the Quran Mecca fiction tehem park with the Disney fiction theme parks. Quran is the NEWEST of the world religions that people recognize as classic, being year 635. Mohamamd's systems have many advancements beyond Roman Empire and Church venues. Tje Arabic language instead of mixed languages. Arabic oral is far more musical than Bible and Torah text.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy3qtr/
+
+Not the "lol", the Reddit comment laugh track. People find it funny and enjoyable that USA is failing. Trump provides constant source of stimulating entertainment. Trump as a Reality TV star has found his audience being at the Whtie House media venues. People at up this self-harm as long as they can LOL-wash it and amusement-wash it. ... ... ... “What Huxley teaches is that in the age of advanced technology, spiritual devastation is more likely to come from an enemy with a smiling face than from one whose countenance exudes suspicion and hate. In the Huxleyan prophecy, Big Brother does not watch us, by his choice. **We watch him, by ours**. There is no need for wardens or gates or Ministries of Truth. When a population becomes distracted by trivia, when cultural life is redefined as a **perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience and their public business a vaudeville act, then a nation finds itself at risk; a culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy3xkp/
+
+Deflection away from nonfiction Internet Research Agency since March 2013 invading Reddit. BBC: "Russian trolls' chief target was 'black US voters' in 2016" - https://www.bbc.com/news/technology-49987657
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy8jrv/
+
+Downplaying raelity and nonfiction in favor of fiction. It isn't just one group that has a fiction addiction problem.
+
 
 
