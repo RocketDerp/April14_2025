@@ -413,3 +413,54 @@ https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_
 https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/ng08lce/
 
 https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/ng077c2/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0ht5q/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0ldt2/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0mezt/
+
+The Internet Research Agency ramped up March 2013. Social media behaaviors changed drastically. 
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0egur/
+
+Ukraine has been living it since February 2014.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0irrs/
+
+At least someone reconize this isn't high school and far worse. 
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0l8qn/
+
+That is all Reddit does since June 16, 2015. Faith in shitting all over the USA when confronted with the IRA.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0obi8/
+
+The avoidance of nonfiction goes WAY beyond voiting and election days. Like measles and COVID-19 pandemic. Short Twitter-length thinkinglike this very Reddit message won't engage nonfiction leanring of media ecology. It isn't just one man, it is people I encounter all over the Internet in egomania, only concerned with their own self. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0rr58/
+
+Has dementia messages, so Trump not responsible for his choices. Consatnt Reddit messages to take away Trump rsponsibility and fixate on one single brain. Elon Musk is not demented in the White House, but fixation on only trees and not multiple nations reporting Russian manipulation.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0mjh7/
+
+Until they get around social media, then Truth Social behavior takes over.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0jvyy/
+
+Reddit users are so uneducated in media ecology they don't recognize the audience comments all around them. People are not behaving as if this is governing and goverment, they are behaving as if it is entertainment of Tony Clifton performances.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0jzes/
+
+Towrds goodness of history of the USA.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0huxu/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0h2me/
+
+Reddit's front page /r/All primary joy: hate upon MAGA, hate Americans who are rural, hate Americans who need educate sevely and keep depriving them of education lessons. Welcome and embrace the conditioned Cambridge Analytica behavior changes sice year 2013.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0huz8/
+
+People are so blind to it on Reddit they can not see what they are experiencing on Reddit comment sections. They fixate so much on range skin and poop diapers, that if other Reddit users don't ahve orange skin they can't recognize the behaviors. A crowd who is so fiaxted that they can't recognize the same media patterns of Fox News on Reddit, the same media patterns of Putin's Kremlin for 25 years now in year 2025 White House. A completely inability to see the forest for the tree of Donald J. Trump. https://github.com/user-attachments/assets/193e2397-8a4d-4425-99e4-12781b18b54c
+
