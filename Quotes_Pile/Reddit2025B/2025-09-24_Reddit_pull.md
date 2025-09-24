@@ -80,3 +80,19 @@ https://old.reddit.com/r/interestingasfuck/comments/1np9eug/fentanyl_addiction_t
 
 https://old.reddit.com/r/interestingasfuck/comments/1np9eug/fentanyl_addiction_turns_users_into_living_deads/nfxkj8h/
 
+https://old.reddit.com/r/interestingasfuck/comments/1np9eug/fentanyl_addiction_turns_users_into_living_deads/nfxk4k7/
+
+Mecca ... “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/interestingasfuck/comments/1np9eug/fentanyl_addiction_turns_users_into_living_deads/nfxhwqq/
+
+https://old.reddit.com/r/interestingasfuck/comments/1np9eug/fentanyl_addiction_turns_users_into_living_deads/nfxljxs/
+
+https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfxt10l/
+
+https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfxydzp/
+
+https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfyhb4p/
+
+https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfyii0f/
+
