@@ -282,4 +282,13 @@ Putin is playing games. Alternate Reality Screen Games for Touchscreen Social De
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfy5uen/
 
-Which goverment? Russian goverment. Which corporation? "Cambridge Analytica"
+Which government? Russian goverment. Which corporation? "Cambridge Analytica"
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxw8oi/
+
+A reddit comment user who claims they can see past bullcrap, but can't name the "Internet Research Agency" or "Cambridge Analytica" that created Donald J. Trump power. Ate the Surkovian onions. Russian nesting dolls teachings. Shell corporations win.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfyjcmb/
+
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
