@@ -1305,3 +1305,92 @@ The ELIZA effect more and more around the White House media
 https://old.reddit.com/r/CringeTikToks/comments/1noz995/here_are_2_minutes_of_lowlights_from_trumps/nfvncol/
 
 That is the mind-fuck in action. Surkov Russian governing techniques. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/Fauxmoi/comments/1np2rwr/jimmy_kimmel_on_trump_he_tried_his_best_to_cancel/nfwokd3/
+
+People describing how how minds get blown even after TEN YEARS AND THREE MONTHS of never-ending focus on Donald J. Trump messages and content.
+
+https://old.reddit.com/r/Fauxmoi/comments/1np2rwr/jimmy_kimmel_on_trump_he_tried_his_best_to_cancel/nfwd94o/
+
+Lower to his level of short-length message thinking. Avoidance of nonfiction learning. Lower to Donald Trump's constant entertainment and mockery. Reddit addicts did that long ago. There is no "high road", the high raod is facing up just exactly what the Internet Research Agency and Cambridge Analytica hasdone to induce self-harm praising mindsets.
+
+https://old.reddit.com/r/Fauxmoi/comments/1np2rwr/jimmy_kimmel_on_trump_he_tried_his_best_to_cancel/nfwa4n1/
+
+People are unable to resist behaving like Donald Trump and adopting "Celebration of Ignrance" using words like BIGLY to constantly drag the USA more and more into Trump-thinking. A second term in office has given so many more people a chancet mock in social comments.
+
+https://old.reddit.com/r/Fauxmoi/comments/1np2rwr/jimmy_kimmel_on_trump_he_tried_his_best_to_cancel/nfwpe63/
+
+This is how you win debate in millions of millions low-effort comments that drive behavior of a nation. Addiction to trash media."Amusing Ourselves To Death" with mocking and mockery.
+
+https://old.reddit.com/r/Fauxmoi/comments/1np2rwr/jimmy_kimmel_on_trump_he_tried_his_best_to_cancel/nfwoof3/
+
+Autism as entertainment content. Addicts to Trump content crying out cravings of more mockery.
+
+https://old.reddit.com/r/Fauxmoi/comments/1np2rwr/jimmy_kimmel_on_trump_he_tried_his_best_to_cancel/nfwsv6o/
+
+People can not stop their compusive hate, compsive parroting of Trump.
+
+https://old.reddit.com/r/Fauxmoi/comments/1np2rwr/jimmy_kimmel_on_trump_he_tried_his_best_to_cancel/nfwnioz/
+
+People flock to stupid, prize stupid, choose to favor anything to avoid nonfiction learning of mob mentality and Russian information warfare.
+
+https://old.reddit.com/r/Fauxmoi/comments/1np2rwr/jimmy_kimmel_on_trump_he_tried_his_best_to_cancel/nfwyhtn/
+
+https://old.reddit.com/r/Fauxmoi/comments/1np2rwr/jimmy_kimmel_on_trump_he_tried_his_best_to_cancel/nfwuvd8/
+
+And millions and millions of low-effort Reddit comments that avoid confronting that Reality TV star Doald Trump hate content is an addiction for over TEN YEARS AND THREE MONTHS onevery media system.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwasgg/
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwwmlw/
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwx1cq/
+
+Religion stories are sicence fiction popularity. People can not tell fiction from nonfiction. People trust Donald Trump as sincere and honest. Trump trusts Putin's fiction. People trust Rupert Murdoch's fiction.People trust Reddit comments. A society drowning in avoidance of nonfiction.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwp3f7/
+
+A buble of no-identity low-effort messaging. Which media platform in 2025 is not a bubble? [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfvz0y8/
+
+"The orange man", constant worship of mocking.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfw4riz/
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfw803p/
+
+Note the lack of author names, book titles, links, references. Millions and millons of comment messages that people flock to.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwjd2l/
+
+Note the lack of author names, book titles, links, references. Millions and millons of comment messages that people flock to. Neil Postman's 1985 book "Amusing Ourselves To Death" is not optional comprehension how media addiction itself is running thinking and behaviors. Trump is a leading media addict driven by the spotlight, as too is Reddit. We are drowning in high-speed media induced behaviors.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwtj88/
+
+Hate and self-harm have become popular because people have dehumanized themselves in favor of media machine lust, technology high-speed commenting lust.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwjbqj/
+
+Note the lack of author names, book titles, links, references. Millions and millons of comment messages that people flock to. Cliaming taht comprehension and undersatnding is simple,trivializing education and teaching. Anti-malala messaging. 
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwrkep/
+
+Note the lack of author names, book titles, links, references. Millions and millons of comment messages that people flock to.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfw77iz/
+
+Reddit where people self-dehumanize by hiding real identity. Which nation is this? What are you doing to rescue Africa from humans self-destructing humans? Is your nation broadcasting television showing a better life to poor people and bragging about how great things are to not bein Africa? Every nation for itself every man for himself, competititon to be self-centered and not address the education and fiction addiction problems in the world.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwkhnm/
+
+Note the lack of author names, book titles, links, references. Why can't we have a high-trust natio and focus on ALL hate in ALL places instead of acting like hate is only a Donald Trump issue or only a Reddit issue and not a planet EARTH issue. World wide, We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwa207/
+
+Reddit comment section is full of low-effort messages that show no respect for showing author names, book titles, links, references. Just millions and millions of short messages that drown out important common understandings in favor of reacting and fragmenting.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwuqmc/
+
+Note the lack of author names, book titles, links, references.
+
