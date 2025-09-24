@@ -326,3 +326,18 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_wi
 
 Being angry and hate-filled distorts thinking. The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md) backed by Cambridge Analytica. People were angry about entertainment tickets / video game price increases (Nintendo Switch 2 year 2025, $80 game prices for Nitendo games). Being angry about entertainment comedy show isn't evidence of anything more than what this entire GitHub project is stating: September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxywsd/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxuba5/
+
+The USA is on fire. Nonfiction repulses people. Nonfiction has been published and people can't resist low-effort Reddit comments, Bluesky comments, Facebook commments, Twiter coments, Truth Social comments. The comment sections have all spoken: fiction rules!
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxse4l/
+
+Super Super COVID came, and I alone Trump, Stopped it!
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxsr9t/
+
+NEW year 2014: "the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxvakm/
