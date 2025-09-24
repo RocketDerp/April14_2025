@@ -314,3 +314,8 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_wi
 
 And why can't people name a page? Why not publish a page on Reddit or GitHub and LINK it saying: These are the things that need to change in the next 3 months from this political candidate, and I have written 5 pages explaining why with citations and suggestions. Instead, millions and millions of low-effort comments are what people creave and desire. Truth Social trash media values.
 
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfyjewz/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxrund/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfyec60/
