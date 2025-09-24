@@ -1451,3 +1451,24 @@ https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing
 
 And Reddit isn't constantly prooting hate of Republicans. As if hate isn't the faith system of September 2025 USA. Name people NAME THEM, who are standing up to ALL hate. Instead of only in-group / out-group hate messaging. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfwix79/
+
+<img width="1232" height="692" alt="image" src="https://github.com/user-attachments/assets/5d1e386b-6ee4-4bdd-98eb-d9ced1120240" /> Sone of the answers: 0. Machine love of devices to message, message of hate towards human persons. 1. Faith in hate. 2. Faith in mocking. 3. Belief that hate and mocking, more satire and fiction, will improve the future of the USA. 4. America means being addicted to low-effort trash comments on every media system. 5. Anti-science, anti-understanding, anti-comprehension in favor of filter-bubbles. 6. Loss of information war to Russia since year 2013 without even comprhending the most basic facts and name of "Cambridge Analytica" and "Internet Research Agency" and only care to know MAGA this / MAGA that / Trump this / Trump that out-group USA hates USA patterns of thinkibg and messaging.
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfwl8kc/
+
+Also: cowardly hiding your real name, real city, real life on Reddit computer machines in the face of Russias media invasion.
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfx58nx/
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfxakg9/
+
+People on Reddit think no-citaiton no-reference low-effort comments by the millions are the best information on Earth. Everything anti-Wikipedia about refining stable understanding, and instead constantly drowning in page after page of low-effort comments that do not link to other comprehension or understanding ideas. There is just a non-stop jabbering of comment filter-bubbble that drowns out "being on the same page" of important topics and understandings. 
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfxc301/
+
+Technology bubbles too. Like Reddit decries that Facebook is much much worse, that Fox News audience is much much worse, that Elon Musk Twitter is much much worse. Like how the Mosque says the Torah and Bible are much much worse. [Filter-bubble](https://en.wikipedia.org/wiki/Filter_bubble) vs filter-bubble. ... ... ... “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfwlfrc/
+
+People in USA have the deepest faith: to out-mock Donald Trump. That more mockery is the answer to mockery. Out-hate MAGA, that the answer to hate is always more hate.
