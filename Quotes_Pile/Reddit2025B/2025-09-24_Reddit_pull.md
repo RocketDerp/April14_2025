@@ -276,3 +276,10 @@ https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_del
 
 People are so "LOL" laugh-track amused at the *informaiton strip tease* of wildcard / unreleased lists.
 
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxs1rq/
+
+Putin is playing games. Alternate Reality Screen Games for Touchscreen Social Devices. Putin won, Surkov won, Russia won, USA lost, NATO lost. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ The "Internet Research Agency" and "Cambridge Analytica" subconsious mind-fucking won. June 2, 2014 https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfy5uen/
+
+Which goverment? Russian goverment. Which corporation? "Cambridge Analytica"
