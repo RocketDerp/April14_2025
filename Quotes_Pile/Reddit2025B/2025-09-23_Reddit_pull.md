@@ -1125,6 +1125,35 @@ Note the Reddit comment lacks any author names, book titles, links / reeferences
 
 https://old.reddit.com/r/technology/comments/1not7ba/fcc_chairman_unconvincingly_claims_he_never/nfv96q3/
 
-Did everyone forget the Twitter / Elon Musk / Truth Social? This is all about technoogy love and abandonment of humanism. Machines are loved, humans hated. Police in Palestine, hate the humans, love the land messaging. USA cut health care and hate the humans, love the Truth Social and Reddit machines and Apple iPhones. ... ... ... “a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from information glut, information without meaning, information without control mechanisms.”
-― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+Did everyone forget [the Twitter / Elon Musk / Truth Social back in January 20, 2025](https://www.lemonde.fr/en/summer-reads/article/2025/07/20/the-day-silicon-valley-s-oligarchs-kissed-trump-s-ring_6743557_183.html)? Much of the change in USA is all about technoogy love and abandonment of humanism. Machines are loved, poor unwanted humans hated. Policies in Palestine, hate the poor unwanted humans, love the land messaging. https://time.com/7212848/trump-gaza-own/ USA cut health care and hate the humans, love the Truth Social and Reddit machines and Apple iPhones. ... ... ... “a **peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world**. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from information glut, information without meaning, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
+https://old.reddit.com/r/technology/comments/1not7ba/fcc_chairman_unconvincingly_claims_he_never/nfuv0c0/
+
+Maximum Putinization. ... ... ... "It is a mistake to believe that Putin wants to lower a new Iron Curtain, build a new Berlin Wall and pursue a policy of isolationism," Morozov wrote in Colta.ru. "On the contrary, Putin is creating a new Comintern. This is not isolationism, but rather **the maximum Putinization of the world**. The Comintern was a complex system that worked with ideologically sympathetic intellectuals and politicians. What we are seeing now is not an attempt to restore the past, but the creation of an entirely new hegemony." - December 20, 2013. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfu1oxn/
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfu8jo0/
+
+Action fiction drama for media devices and Reddit / Trtuh Social / Bluesky audiences. ... ... ... "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev. September 9 2014, 3:42 PM ET. “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfu4ood/
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfutwzv/
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfu1sbq/
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfu26yd/
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfu32mb/
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfu32ej/
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfux3bq/
+
+Stop entertainment on social media. Using free time and spare time to make millions of low-effort comments on meme sites like Bluesky and Reddit. Start using sites to assert nonfition learning. MAGA hates upon non-MAGA and now everyone hates back at MAGA. Nobody is sincerely teaching humanism, nobody is sincerely teaching fiction Bible literacy, nobody is sincrely teaching remedial morality in a crisis created by Russian Internet Research Agency invding media platforms with Cambridge Analytica payloads.
+
+https://old.reddit.com/r/interestingasfuck/comments/1noslxe/ice_shatters_car_window_snatching_dad_at/nfv11ld/
+
+Talked about with medical visas, etc. "Harvard scientist worries we’re **‘reverting to a pre-Enlightenment form of thinking’**" February 23, 2017 George Q. Daley, dean of Harvard Medical School.  https://www.washingtonpost.com/news/wonk/wp/2017/02/23/harvard-scientist-worries-were-reverting-to-a-pre-enlightenment-form-of-thinking/
 
