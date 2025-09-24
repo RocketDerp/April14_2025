@@ -1475,4 +1475,15 @@ People in USA have the deepest faith: to out-mock Donald Trump. That more mocker
 
 https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfwkojj/
 
-If you are a Truth Social user you take your orders from the latest posting on Truth Social. If you are a Reddit user, you take your orders and thinking from the latest Reddit posting and comments. HDTV Fox News machine says to think this. ChatGPT says to not learn about The ELIZA effect, etc. We have a massive out of control wildfire of ignorance regardingthe ELIZA effect and high-speed media systems ecology. We have known about these issues for at least 40 years and they have overrun society. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, **year 1992**
+If you are a Truth Social user you take your orders from the latest posting on Truth Social. If you are a Reddit user, you take your orders and thinking from the latest Reddit posting and comments. HDTV Fox News machine says to think this. ChatGPT says to not learn about The ELIZA effect, etc. We have a massive out of control wildfire of ignorance regarding the ELIZA effect and high-speed media systems ecology. We have known about these issues for at least 40 years and they have overrun society. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, **year 1992**
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfxt6s1/
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfwzclz/
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfwu85w/
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfx2uha/
+
+Yes. Too maby are in filter-bubbles ad fiction addictions to see reality of how social media block-happy on Bluesky is the same mindset of MAGA and Trump being block-happy / deportation-happy. We can't even exchange Unicode text in public without people canceling each other on Reddit and Bluesky with blocking features. Egomania nation / USA is follow egomania role models of Musk / Trump / ChatGPT. Media ecology comrpehebnsion is so poor, Bluesky users do not recobnize that in 1934 Germany they ahd to burn magazines, newsletters, books printed on paper using flame! Today a single button on a touchscreen to be in egomania serves the same Germany 1934 mindset of book-burning. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
+
