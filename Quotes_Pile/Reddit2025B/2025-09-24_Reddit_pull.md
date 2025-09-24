@@ -186,5 +186,23 @@ https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_
 
 Downplaying raelity and nonfiction in favor of fiction. It isn't just one group that has a fiction addiction problem.
 
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfybvtc/
 
+What is needed is author names, book titles, article links, calls for people to make this a serious sustained topic.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy8eq6/
+
+Hate itself needs to be confronted as a topic. Not just Ukraine being a target of hate, not just Palestine and Israel hate, not just Iran and Israel hate, not just MAGA and Donald Trump and Charlie Kirk hate. Not just Swat Valley Pakistan hate. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyfwuw/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy7j3o/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy70t3/
+
+Charlie Kirk did not want to face an Allanta, Gerogia - United States of America - equation.  We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy69dt/
+
+Voice / tone / fashion / style of speech. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We've moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with **the voice and sound** of reason. BILL MOYERS: The **voice of reason** -- is that the philosophical way suggested by these mythological symbols?" - page 38
 
