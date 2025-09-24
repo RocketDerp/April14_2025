@@ -206,3 +206,15 @@ https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_
 
 Voice / tone / fashion / style of speech. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We've moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with **the voice and sound** of reason. BILL MOYERS: The **voice of reason** -- is that the philosophical way suggested by these mythological symbols?" - page 38
 
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfynf0j/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy4kdj/
+
+Opposite blows minds of Reddit audience, wrecks all resistance. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy4po8/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy5pc3/
+
+The Reddit comment section believes millions of comments that provide no citation, no evidence. Media cult vs. media cult. Reddit fiction cult vs. Chalie Kirk ficiton cult. All ficiton, all avoiding nonfiction.
+
