@@ -1411,5 +1411,43 @@ https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_rui
 
 How much should people desire and want to hate? Promoting that hate is healthy and goodness. Constant messages on machines saying hate of human persons is a good thing. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/MurderedByWords/comments/1np7m6f/the_hypocrisy_of_maga_snowflakes/nfx40w6/
 
+"They" not caring about other people's feelings hurt? The entire Trump movement and MAGA movement that Russia created with the Internet Research Agency and Cambridge Analytica since March 2013 has been centered on using media systems to HATE message and DEHUMANIZE message the out-group. "Liberal teras", "liberal retarded", "I hate liberals" messaging in every possible flavor / fashion / seasoning / variation. And now the anti-MAGA backlash s all centered in hate feelings, hate emotions. Everyone in the United States of Amerrica is worshipng hate the out-group values and messaging. Russia won, Surkov won, USA lost. Hate itself is the only winner in this game. Even domestic Russia is a self-har hate land. It is anti-humanism and technology machine message worship. Even Grok AI and ChatGPT and other large language models are now trained on Cambridge Analytica out-group hate patterns! ... ... ... "What Cambridge Analytica observed was that when respondents were angry, their need for complete and rational explanations was also significantly reduced. In particular, **anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups**. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical trade war with China or Mexico meant the loss of American jobs and profits, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf*ck: Cambridge Analytica and the Plot to Break America, year 2019
+
+https://old.reddit.com/r/MurderedByWords/comments/1np7m6f/the_hypocrisy_of_maga_snowflakes/nfx5zgw/
+
+Without confrontation? That's like saying sports are not popular. The confrontation and hate messaging is exactly how people behave. Wake up to it. Reddit hates uopon Twitter, Fox News audience hates upon Reddit. Reddit hates upon Facebook. Church hates upon Mosque. People have zero comprehension of media ecology. Drowning in Reddit comment messages. "Murdered by Words" framing bullshit.
+
+https://old.reddit.com/r/MurderedByWords/comments/1np7m6f/the_hypocrisy_of_maga_snowflakes/nfx6tdy/
+
+Reddit messages to satire-wash every important topic into throw-away comments that people create by the millions and millions to avoid getting on the same page of common issues. Humor-washing, joke-washing everything all the time.
+
+https://old.reddit.com/r/MurderedByWords/comments/1np7m6f/the_hypocrisy_of_maga_snowflakes/nfx6dkb/
+
+Avoidng nobfiction learning. "There's no real point in pointing out their hypocrisy now." Note the lack of author names, book titles, links, references. Zero comprehension of media ecology. Promoting to let people suffer in ignroance. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/MurderedByWords/comments/1np7m6f/the_hypocrisy_of_maga_snowflakes/nfx6xja/
+
+A reddit comment community constantly needing to comment over. Endless comments that do not take important topics of media ecology seriously. Everything mockery-washed, humor-washed, amusement-washed, entertainment-washed. "Murdeed by words" framing, total bullshit-washing. “If politics is like show business, then the idea is not to pursue excellence, clarity or honesty but to appear as if you are, which is another matter altogether.” ― Neil Postman, [Amusing Ourselves to Death](https://time.com/7313999/neil-postman-trump-prediction/): Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/MurderedByWords/comments/1np7m6f/the_hypocrisy_of_maga_snowflakes/nfx9wec/
+
+Whatch what you want, unable to tell fiction from nonfiction, making low-effort comments on Reddit with zero self-awareness of media ecology. Not giving a shit about Putin wrecking the USA with Reddit comments and media invasion since year 2013. As long as you got your Disney entertainment content of fiction. That's the message. "Shut the Fuck Up" with low-effort anti-learning anti-nonfiction messaging.
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfx9m8k/
+
+Machine lust, emdia macine lovers, humans hated. Self-harm abounds in USA. ... ... ... “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published year 1955.
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfwxl8w/
+
+Messages on reddit of anti-learning anti-education anti-goodness. "The only way" is killing and murder messages. No book titles, no links, no author titles, just no-identity comments millions and millions promoting hate and dehumanization via Reddit machines and weapon systems. The death of Adolph Hitler did not kill hate. People are inspired by Adlph Hitler in September 2025, inpsired by war and murder and killing action violence.
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfx9s5l/
+
+But Reddit doesn't deny reality. Flock to fiction, flock to comments without any citations or references. It is ONLY the out-group that has a problem with reality and fiction addiction. Unable to see the forest for the trees. When exactly did humanity adopt reality? When exactly did science thinking become popular? What year, what geography? Reddit where people care more about low-effort hate messages on Reddit more than nonfiction science... out-group hate messaging. ... ... ... “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/technology/comments/1np41k8/jimmy_kimmel_says_silencing_comedians_is_anti/nfxchbj/
+
+And Reddit isn't constantly prooting hate of Republicans. As if hate isn't the faith system of September 2025 USA. Name people NAME THEM, who are standing up to ALL hate. Instead of only in-group / out-group hate messaging. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
 
