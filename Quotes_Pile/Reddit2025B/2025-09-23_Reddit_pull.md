@@ -1237,3 +1237,16 @@ Note the lack of link, autor name, book title, more info on the subject. Just sh
 https://old.reddit.com/r/MurderedByWords/comments/1nouwqd/she_is_an_immigrant/nfvmcb2/
 
 We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvpk6q/
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvpok5/
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvrzcg/
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvopsf/
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvrod7/
+
+https://old.reddit.com/r/sports/comments/1nozoz4/guardians_david_fry_carted_off_field_after_being/nfvx53u/
+
