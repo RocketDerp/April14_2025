@@ -462,5 +462,72 @@ Reddit's front page /r/All primary joy: hate upon MAGA, hate Americans who are r
 
 https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0huz8/
 
-People are so blind to it on Reddit they can not see what they are experiencing on Reddit comment sections. They fixate so much on range skin and poop diapers, that if other Reddit users don't ahve orange skin they can't recognize the behaviors. A crowd who is so fiaxted that they can't recognize the same media patterns of Fox News on Reddit, the same media patterns of Putin's Kremlin for 25 years now in year 2025 White House. A completely inability to see the forest for the tree of Donald J. Trump. https://github.com/user-attachments/assets/193e2397-8a4d-4425-99e4-12781b18b54c
+People are so blind to it on Reddit they can not see what they are experiencing on Reddit comment sections. They fixate so much on range skin and poop diapers, that if other Reddit users don't ahve orange skin they can't recognize the behaviors. A crowd who is so fiaxted that they can't recognize the same media patterns of Fox News on Reddit, the same media patterns of Putin's Kremlin for 25 years now in year 2025 White House. A completely inability to see the forest for the tree of Donald J. Trump. Even Charlie Kirk isn't a *wake up* to Reddit community that it isn't just one old man, Charlike was not old. ... ... ... “The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan
+https://github.com/user-attachments/assets/193e2397-8a4d-4425-99e4-12781b18b54c
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0ix9s/
+
+Parents and media consumers made Trump family role model for children and Reddit media behavior since June 2015.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0sn0z/
+
+Declaring that Trump is not responsibile for his choices. Message on Reddit to wash away Trump's agency. JD Vance isn't stopping it, and he isn't old. Charie Kirk did not wake up from the fiction influences and he wasn'told. 
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0hizf/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0m37y/
+
+Reddit audiences can not rsist commenting about it over and over. Millions of low-effort comments that are thrown away and left behind like onion skins or snake skins. Drowning and drowning in comments that start empty on each new posting on Reddit and drown out comprehension and understanding. This is what attracts audiences with Trump, constant quantity of comments instaed of alterantes like: Wikipedia / Wiki style refineement and networking of knoweldge into trees that form complex understandings.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0fexk/
+
+He is a Real Life ator of fiction Reality TV show called "The Apprentice", and Reddit community does not recognize he is acting out Russian Kremlin Surkov student screenplays with NYC Tony Clifton antics and improv audience interaction. People can not recognize that Surkov governing of Russia for 25 years is based on antics and exploiting fiction addictions.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0vdj1/
+
+Trump is basing himself on Russian governing of alternate-reality (Reality TV is not reality, it is fiction).
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0koyc/
+
+Tony Clifton's actor Andy Kaufman is actually smart and cunning. Reddit users just can't see their own minds being exploited by the Internet Resarch Agency right in Reddit comments since year 2013. People amusement-wash all the odd and unusual behavors and can't see reality / mirror reflection. “The medium does things to people. And they’re always completely unaware of this. **They don’t really notice the new medium that is roughing them up**.” — Marshall McLuhan
+https://github.com/user-attachments/assets/193e2397-8a4d-4425-99e4-12781b18b54c Reddit users can not see the Reddit they swim in is an audience to Putin and Trump.  “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.”
+― Marshall McLuhan, War and Peace in the Global Village. https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0hxlw/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0of9z/
+
+Putin has been signaling all the world wide web population (WWW) since March 2013, but Reddit users can't use their spare time and free time commenting ... to stop commenting and engage ***nonfiction learning*** about the Internet Research Agency and Cabridge Analytica details.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0epr3/
+
+Reddit social media laugh ttrack message, "LMAO", laugh-washing and amusement-washing the situation to detach from reality of Trump being a threat to humanity.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0k8f1/
+
+People on Reddit can't be bothered ot egage **nonfiction learning** of Russian information warfare and Quan vs. Torah information warfare of terrorism attack October 7, 2023. Malla from Swat Valley Pakistan is an excellent resource on nonfiction learning since October 8, 2013.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0ikwp/
+
+The United States of America when it comes to responsibility for climate change from a ove-consumption lifestyle... insensitive assholes to all animals and life on planet Earth. Promoting hate and not standing up for girls being abused in Pakstain, insensitive to not even name-drop and quote Malala from Swat Valley Pakistian on world peace. Insensitive that hate clubs are foundation of society and that an American, a man from Atlanta Goergia presented an equaion in 1954 that every social media user could keep repeating as a USA discovey and change of history for the world.  We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0ied8/
+
+Reddit comment section community lines up to comment on Trump's actions every time there is a posting.with Trump image / brand / quotes / video. Bluesky too, all media consumer platforms line up.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0kvmn/
+
+Mocking Trump supporters, hate upon Trump supporters, is Blueksy and Reddit content day in and day out since January 2024, time and time again dehumanizing Americans and doing everything possible with spare time and free time used on Reddit to avoid nonfiction learning of Russian information warfare conditiong of hearts and minds to self-harm USA.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0hn98/
+
+Why woon't social media users be serious and stand up? How come the front page of Reddit society isn't repeating Dr. Bandy X Lee's books and articles every 12 hours every day until every person had made her a household name? ."The 'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021 — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0gj4w/
+
+Unable to recognize that Reality TV is acting / scripted. Eating the President Tony Clifton act. Unable to see Elon Musk was on stage too. Uable to put two and two together that Putin and Trump met recently in Alaska. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0mf1n/
+
+Reddit low-efort comment community is a joke. Unable to engage nonfiction learning of Reddit behaviors (media ecology from Neil Postman) and nonfiction learning of Russian information warfare.
 
