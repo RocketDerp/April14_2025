@@ -131,3 +131,35 @@ https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_
 Information overload symptoms are not well understand despite being a massive crisis on Reddit / USA society.
 
 https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy8cht/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy6h50/
+
+Humor-washing, amusement-washing blows minds. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyc7jq/
+
+This is why we need to urgently teach Conparative Mythology to all people age 12 to age 120. Parents have raised children in USA with the inported Levant Bible stories. In the Torah / Bible / Quarn science fiction trillogy, the character of Yaweh / Allah / God is a male agressive man who pushes around people. Many business owners and employees both think that being abused and hated by a leader is goodness. We have religion interpretation of Levant stories ass-backwards, totally inverted, as explained here: https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy51c8/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy77yq/
+
+Notice no author name, no book title cited, no link to article, just tiny short comment messages making serious claims but not calling for rally and sustained focus on these very important topics. ... ... ..."The 'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021 — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyat02/
+
+Often easy fiction media content. Very popular socal media content.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy93l7/
+
+Low-effort comments that get abandoned hours later, people using social machines wtih spare time and free time, is a distraction from organizing sustained important focus on nonfiction learning of how Russia won an information war since year 2013. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy92fr/
+
+Turning trivial topics into huge issues, mountain out of a molehill, while also turning huge important topics such as Russian anti-reality techniques, into trivail and "hoax" topics. https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy92fr/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyat8v/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy7vyo/
+
+
