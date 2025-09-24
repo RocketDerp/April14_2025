@@ -110,3 +110,24 @@ https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_ov
 
 All part of a described plot. “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and **“engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to exploit evolutionary flaws in our cognition? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019
 
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy3ala/
+
+Charlike Kirk in year 2021 created "Turning Point Faith" based on Bible. He seems unable to distingusih science fiction Levant storytelling from nonfiction. This is a massive raging widespread problem across the world. People fictionblind, the blind leading the blind. ... ... ... “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy5ele/
+
+Fiction vs. nonfiction. Addictions to fictions rule Reddit comment users just as much as Fox News fiction audience addictions.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy90oe/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy9sl1/
+
+Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyh66x/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyhkth/
+
+Information overload symptoms are not well understand despite being a massive crisis on Reddit / USA society.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy8cht/
