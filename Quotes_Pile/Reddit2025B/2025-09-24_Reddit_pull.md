@@ -96,3 +96,17 @@ https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_ov
 
 https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfyii0f/
 
+https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfxz09n/
+
+Values of "Stand Up For the Big Guy", not "Stand Up For the Little Guy"
+
+https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfy2f9z/
+
+https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfya0ll/
+
+https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfy5ubr/
+
+https://old.reddit.com/r/technology/comments/1npb3p7/pok%C3%A9mon_torches_dhs_over_gotta_catch_em_all_ice/nfxtuuv/
+
+All part of a described plot. “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and **“engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to exploit evolutionary flaws in our cognition? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019
+
