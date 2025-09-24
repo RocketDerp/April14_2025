@@ -218,3 +218,17 @@ https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_
 
 The Reddit comment section believes millions of comments that provide no citation, no evidence. Media cult vs. media cult. Reddit fiction cult vs. Chalie Kirk ficiton cult. All ficiton, all avoiding nonfiction.
 
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy5xjp/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy9f0y/
+
+Reddit comment audiences flock to no-identity comments and take them as gospel. Especially ones that avoid author names, book citations, quotes from researchers and writers, etc. Fiction is more popular than nonfiction.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy9ukb/
+
+A mountpiece of fiction content, fiction influencer. "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." https://en.wikipedia.org/wiki/This_Is_Not_Propaganda
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy6ck6/
+
+People who lust for Reddit cloud computing machines and touch devices hate human persons. People are so happy to see death solve problems instead of discourse and dialog and learning. Anti-Malala stance is popular.  "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - https://malala.org/news-and-voices/malala-un-speech
+
