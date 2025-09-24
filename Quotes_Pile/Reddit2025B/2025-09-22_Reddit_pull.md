@@ -1550,3 +1550,16 @@ https://old.reddit.com/r/AdviceAnimals/comments/1no2var/too_dangerous_to_ask/nfo
 https://old.reddit.com/r/AdviceAnimals/comments/1no2var/too_dangerous_to_ask/nfpo8dl/
 
 https://old.reddit.com/r/AdviceAnimals/comments/1no2var/too_dangerous_to_ask/nfp83o7/
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvpk6q/
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvpok5/
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvrzcg/
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvopsf/
+
+https://old.reddit.com/r/baseball/comments/1nozvdl/snys_gary_cohen_wasnt_sold_on_the_way_the_cubs/nfvrod7/
+
+https://old.reddit.com/r/sports/comments/1nozoz4/guardians_david_fry_carted_off_field_after_being/nfvx53u/
+
