@@ -1,6 +1,6 @@
 https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfz8mt4/
 
-NOTE: "Unfiltered news", yha, but censored comments.
+NOTE: "No Filter News" subreddit, yha, but censored filtered unpublished comments.
 
 &nbsp;
 
