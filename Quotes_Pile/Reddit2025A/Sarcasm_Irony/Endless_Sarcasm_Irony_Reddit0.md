@@ -634,3 +634,8 @@ https://old.reddit.com/r/GetNoted/comments/1noj5xq/they_hide_behind_christianity
 
 Exactly!!! Reddit and Bluesky societies can't stop overlooking the Putin connection and study nonficton of Russian Surkov governing methods. Instead, orange-skin-humor washes away every other topic. Poop diaper attraction Bluesky and Reddit can't stop fixiating on the most unseious and low-effort comments by the millons to learn how the Russian Internet Research Agency actually works! As long as there is someone to mock and hate upon. Trump.   
 https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_with_the_passion_of_10000_sun/
+
+&nbps;
+
+Fiction vs. fiction. Mond-blowing symbolism soup on the front page of Reddit. Alas, nonfction study of Russian information warfare and Kremlin media techniques avoided.    
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/
