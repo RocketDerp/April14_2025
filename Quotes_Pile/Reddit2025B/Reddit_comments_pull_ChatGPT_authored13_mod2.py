@@ -13,6 +13,8 @@ import json
 import os
 from bs4 import NavigableString, Tag
 import traceback
+from html_to_markdown import convert_to_markdown
+
 
 # Global variables
 
@@ -73,6 +75,9 @@ def parse_markdown_entries(filepath):
 
 
 
+# alternates
+#   https://old.reddit.com/r/Python/comments/1igtrtp/htmltomarkdown_12_modern_html_to_markdown/
+#   https://github.com/Goldziher/html-to-markdown
 def convert_html_to_md(div):
     global errorCountB
 	
@@ -80,6 +85,18 @@ def convert_html_to_md(div):
         print("got empty div, missing comment?")
         errorCountB += 1
         return ""
+
+
+    try:
+        md_text = convert_to_markdown(div);
+        return md_text;
+    except Exception as e:
+        errorCountB += 1
+        print(f"ERROR converting HTML to markdown. {e}")
+        print(div)
+        return f"ERROR\nERROR on HTML to markdown. Providing raw HTML:\n{div}";
+
+
 
     def recurse(node, in_list=False, list_type=None, index=1, in_blockquote=False):
         if isinstance(node, NavigableString):
@@ -417,10 +434,8 @@ def main():
                     print("Exiting after pause after live fetch")
                     sys.exit(0)
 
-    if errorCountA > 0:
-        print(f"\nERRORS encountered (type A). Final error count: {errorCountA}")
-    if errorCountB > 0:
-        print(f"\nERRORS encountered (type B). Final error count: {errorCountB}")
+    if errorCountA + errorCountB > 0:
+        print(f"\nERRORS encountered! Final error counts, A: {errorCountA} B: {errorCountB}")
 
 
 
