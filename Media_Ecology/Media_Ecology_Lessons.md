@@ -612,7 +612,7 @@ Is Lisztomania real? https://en.wikipedia.org/wiki/Lisztomania
 
 &nbsp;
 
-# Music Owner screwing over Song creators
+### Music Owner screwing over Song creators
 
 One of my favorite examples    
 https://www.youtube.com/watch?v=BznKC3Umc8A     
@@ -629,4 +629,14 @@ Questions for media ecology students to ponder:
 Ponder: How much money the music publisher makes vs. artist... and they let the copies corrupt and nobody had a backup copy?
 
 Pay attention to the YouTube upload dates of famous acts. Songs not published for years and years after YouTube was famous. It cost next to nothing to upload the song to YouTube, a couple hours of labor. Why not until December 4, 2018? https://www.youtube.com/watch?v=nnEBSY3leQQ "℗ 1978 Geffen Records. Released on: 1993-12-19"
+
+&nbsp;
+
+### Internet Origins
+
+Study the comments of this video on Reddit about people who created the Internet. Are they household names? Everywhere in the world? 
+
+Is this video a repost, did the person on Reddit record the video or is it a repost? Can you locate on the World Wid Web any other previous postings or the name and date of when it was recorded? The location of this room, geography? 
+
+https://old.reddit.com/r/PiratedGames/comments/1npb0n8/pay_respect_everyone/
 
