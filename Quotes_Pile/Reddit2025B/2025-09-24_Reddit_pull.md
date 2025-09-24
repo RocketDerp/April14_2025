@@ -292,3 +292,4 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_wi
 
 "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
 
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfzipxf/
