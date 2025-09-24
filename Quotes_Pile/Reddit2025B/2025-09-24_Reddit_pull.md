@@ -293,3 +293,12 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_wi
 "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
 
 https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfzipxf/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfz0kkc/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfy8rh6/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfy0gw9/
+
+Reddit comment section LOVES IT that they can "leopards ate face" mock and insult Americans. People LOVE it that they can hate upon people endlessly with Trump leading the hate messaging.
+
