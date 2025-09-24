@@ -390,3 +390,26 @@ https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_
 
 https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzryk1/
 
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzzyjd/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzes20/
+
+Love how this
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfz8yvm/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzmnta/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzhu9b/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzlsg1/
+
+No citations, no author names, no book titles, just wild claims that 100% bullshit in tiny short messages. These are the comments in USA 2025 that people choose over books on paper at the public library.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfzr03x/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/nfztote/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/ng08lce/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nphkvt/officer_scumbags_on_the_case/ng077c2/
