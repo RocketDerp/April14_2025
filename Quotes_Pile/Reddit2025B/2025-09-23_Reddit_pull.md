@@ -988,3 +988,84 @@ https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_u
 Trump is a fiction storyteller. He entertains people and the audience reacts like none of this anti-science is going to blow up in their face, because people think it isn't reality itself. Media addicts view it like sports, not real world. He is viewed as a fiction content source. Addiction to fiction drives society. ... ... ...  “We’ve arranged a society on science and technology in which nobody understands anything about science and technology, and this combustible mixture of ignorance and power sooner or later is going to blow up in our faces. I mean, who is running the science and technology in a democracy if the people don’t know anything about it? Science is more than a body of knowledge, it’s a way of thinking. If we are not able to ask skeptical questions to interrogate those who tell us something is true, to be skeptical of those in authority, then we’re up for grabs for the next charlatan political or religious leader who comes ambling along. It’s a thing that Jefferson lay great stress on. It wasn’t enough, he said, to enshrine some rights in the Constitution and the Bill of Rights, the people had to be educated and they have to practice their skepticism and their education. Otherwise, we don’t run the government, the government runs us." — Carl Sagan (who died in late 1996)
 
 https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nftyvlx/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nftnp58/
+
+That's the heart of Russian Surkov media techniques. Alas, social media users can not engage nonfiction on this and all get on the same page of published 2014 writings. Described more than a decade ago in year 2014: "He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics. His aim is to undermine peoples' perceptions of the world, so they never know what is really happening. Surkov turned Russian politics into a bewildering, constantly changing piece of theater. He sponsored all kinds of groups, from neo-Nazi skinheads to liberal human rights groups. He even backed parties that were opposed to President Putin. But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfura4l/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nftn8n0/
+
+Suprising people with media messages and antics is what people flock to. Addiction to Trump content.
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfufzh6/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfujerv/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfundqi/
+
+Reddit users truly believe his acting. Eating the Russian Surkovian screenplay peformances. To think Donald  Trump is the stupidst person on all Earth is absurd (Onion Eating). There are people with far less mental capacity than Donald Trump. Trump has an amazing ability to get Reddit users to react-comment to his every move and shake for TEN YEARS AND THREE MONTHS. Compusive media addicts can not see thier own behavior regrading Trump is exploitation of their minds. People can not tell he is a Reality TV "The Apprentice" actor and that Reality TV is scripted. Media ecology learning is not optional, we have a crisis who beleive Trump is sincere and not acting to scripts / improv peformance structures. https://movies.stackexchange.com/questions/31721/how-to-find-out-whether-a-reality-show-is-scripted
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfuv9uy/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfurloq/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nftt81q/
+
+People in USA can not distingish A.I. messages from reality, ELIZA effect, Reality TV "The Apprentice" fromr reality. We have a serious deep crisis of reality itself being rejected by the population in September 2025.
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nftww82/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nftyzj8/
+
+The baby-talk name calling that people adopt from Trump.
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfu4zxp/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfua2en/
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfueav3/
+
+So manh people are entirely addicted to "this ride" of Trump being the center of all world media attention FOR OVER TEN YEARS AND THREE MONTHS. The media-addicted USA population can not get enough of the fiction storytelling constant simulating the touch devices.
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfuo5xy/
+
+"Russia thought they'd be done years ago." exactly the opposite. Crating media cults is the deepest objective. The whole point of sustaining the Ukraine war is to win hearts and minds of USA, and it won MAGA and Reddit minds and Trump mind, etc. This was documented December 31, 2014 more than a decade ago: ... ... ... "It is exactly what Surkov is alleged to have done in the Ukraine this year. In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. **The underlying aim, Surkov says, is not to win the war**, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - BBC Adam Curtis. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfuqucd/
+
+The Reddit comment section flocks to these Trump topics. Media magnet for social machine engagement.
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nfuw21u/
+
+Trump is not after making people happy. He desires people to self-harm. Trump was just thratening Americans at the Kirk memorial on Sunday. Trump has consistently done destructive choices for USA. To believe that DOnald Trump is a provide of happy is a total ass-backwards understanding of how fucked up the USA is in September 2025 and how long Trump has been the never-ending center of attention, ove TEN YEARS AND THREE MONTHS.
+
+https://old.reddit.com/r/worldnews/comments/1noqred/trump_says_he_now_believes_ukraine_can_win_back/nftwdil/
+
+Absence of any links or book titles. And why the geography of ONLY resisting war and hate if it is USA vs. Putin, why not wanting world peace. Why not mention Malala, she has been on the world stage since year 2012.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nfu1o7l/
+
+Context bewilderment abounds. This Charlie Kirk video chip shows a faith in mocking and mockery, which Reddit community holds deeply as a cherished faith: hate as faith, mocking as faith. The endless mocking of Donald Trump for OVER TEN YEARS AND THREE MONTHS demonstrates the faith that a total mockery nation, mocking back and forth with Trump in avoidance of nonfiction learning - is good for the future of the USA. It has wrecked goodness itself, people can't even recognize thier compusive addictions to Trump messages. Compusive mocking of RFK Jr, Elon Musk, the list goes on on and on. Mocking does n ot create goodness, mocking Tony Clifton acts is exactly how antics politics works. Surkov Russian governing. Published Novembe 7, 2014 - more than a decade ago https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nftqh0o/
+
+Bible reading / toxic clergy of USA can't seem to find Bible verse "1 John 3:17" and use it to judge the love of Elon Musk and Donald Trump. "1 John 3:17" is an audit statement to judge and measure if someone has love. But people are avoidant of it, and clergy in USA do not repeat and repeat it in the face of Trump and Musk values. Also apply "1 John 3:17" to Rupert Murdoch's wealth.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nftz4xg/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nftrx60/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nftunan/
+
+The Middle East is considered the USA standard for teaching love and compassion. I traeled to live there and study media ecology during the Arab Spring. The hate people have over book suprmeacy in the Middle East is long standing. Terrorism, murder, killing, attacking, hate, grey-rocking over Torah vs. Quran vs. Bible vs. nonfiction science. To think it is a role model of love and compassion is to not see the conflcits and behaviors. I was there in March 2011 at the start of the Syria war. The hate and dehumanization people have is not love and compassion teaching. Malala is one of the few to correctly articulate the problems today. ... ... ... “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013. NONFICTION book. A decade BEFORE October 7, 2023 terrorism attacks.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nfu8amy/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nftufpr/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nfty9lp/
+
+The key to media success on media platforms and stages is to humer-wash and funny-wasy and laughter-wash important and serious topics. Bluesky and Reddi constantly laugh-wash Donald J. Trump. Endless mocking and jokes about Trump. That's the very attraction, having stimualting content to insult and mock, the Tony Clifton performances patterns.
+
