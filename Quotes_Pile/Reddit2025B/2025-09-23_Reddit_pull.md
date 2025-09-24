@@ -1394,3 +1394,22 @@ https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_rui
 
 Note the lack of author names, book titles, links, references.
 
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfw9ki8/
+
+Note the lack of author names, book titles, links, references. Go to Paris and have your fiction Hollywood reality smashed. Nonfiction. "Hiroaki Ota, a Japanese psychiatrist working at the Sainte-Anne Hospital Center in France, coined the term in the 1980s and published a book of the same name in 1991. Katada Tamami of Nissei Hospital wrote of a Japanese patient with manic-depression, who experienced Paris syndrome in 1998" REPEAING. Year 1991, year 1998. Decades. https://en.wikipedia.org/wiki/Paris_syndrome
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwl6dx/
+
+Wealthy nnations exploiting the poor. Creating streaming Hollywood content shoiwng off bling bling life and promoting fiction addictions. People willine to die for fiction storytelling of Quran / Bible / Torah for thousands of years in fiction religion vs. fiction religion Cruisades and wars and terrorism. People willing to die for Donald Trump fiction storytelling and Putin fiction storytelling. All along people not using spare time and free time on social machines to actually educate and improve humanity in places. Instead, wealthy nations spreading sports and fiction and hate against poor people. Education and understanding and furthering of love and compassion is what makes the world a nicer place. HELPING each other instead of bettering life for rich popular Putin and Trump who bend media systems to their popularity of hate messaging. People care about the Epsten sex list of rich and powerful nations because that's what the rich people put in front of the audiences. What people are AVOIDING and NEGNECTING is women and girls being given thier own voice of how abuse and education actually works. “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. ... ... ...
+"we all see what is happening and it is wrong." says the Reddit message. From your tiny short message you think EVERYONE in the world SEES what is wrong? Simplsitic anti-educatio attitudes. What book, what author, what link backs your magical "WE ALL SEE THE SAME THING" when millions and millions of Reddit comments show the exact opposite? That we have a massive FILTER BUBBLE problem. https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfwd6m3/
+
+Note the lack of author names, book titles, links, references.
+
+https://old.reddit.com/r/worldnews/comments/1np0yfb/your_countries_are_being_ruined_by_migration/nfw7gv8/
+
+How much should people desire and want to hate? Promoting that hate is healthy and goodness. Constant messages on machines saying hate of human persons is a good thing. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+
+
