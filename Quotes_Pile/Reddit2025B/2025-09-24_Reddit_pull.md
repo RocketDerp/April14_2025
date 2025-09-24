@@ -264,4 +264,15 @@ https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_del
 
  George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "JOSEPH CAMPBELL: "A new order of the world." This is a new order of the world. And the saying above, "Annuit Coeptis," means "He has smiled on our accomplishments" or "our activities." BILL MOYERS: He -- JOSEPH CAMPBELL: He, the eye, what is represented by the eye. Reason. In Latin you wouldn't have to say "he," it could be "it" or "she" or "he." 
 
- 
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfxzvhn/
+
+Torah / Bible / Quran are a science fiction trilogy with many authors, editors, and media venues.
+
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfxnsje/
+
+It is so funny and amusing to Reddit comment community that people can not tell reality vs. science.
+
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfxo7mj/
+
+People are so "LOL" laugh-track amused at the *informaiton strip tease* of wildcard / unreleased lists.
+
