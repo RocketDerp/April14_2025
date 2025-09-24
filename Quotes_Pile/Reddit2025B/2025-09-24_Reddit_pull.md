@@ -302,3 +302,15 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_wi
 
 Reddit comment section LOVES IT that they can "leopards ate face" mock and insult Americans. People LOVE it that they can hate upon people endlessly with Trump leading the hate messaging.
 
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfxwzya/
+
+Hate is self-harm. Hate fuck your own brain. Hate mind-fucks your own self. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfy0iiz/
+
+Wake up to waht? "Wake", "Finnegans Wake' from April 1924 onward publication. Irish author James Joyce. All about Reddit "Media Woke" to no-identity comment messages without citations, without author names, no book titles, nothingbut feels-good comments that nobody stands beyond except to insutl and mock when challenged. Like Truth Social, like Fox News HDTV. That's what "Wake" means in "Finnegans Wake", media ecology.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npafu2/newsom_i_fear_that_we_will_not_have_an_election/nfycu3z/
+
+And why can't people name a page? Why not publish a page on Reddit or GitHub and LINK it saying: These are the things that need to change in the next 3 months from this political candidate, and I have written 5 pages explaining why with citations and suggestions. Instead, millions and millions of low-effort comments are what people creave and desire. Truth Social trash media values.
+
