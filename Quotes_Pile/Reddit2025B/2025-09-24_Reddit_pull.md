@@ -246,5 +246,22 @@ Reddit community has no self-awareness of compusive behaviors to be drawn to the
 
 https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyyni0/
 
-Satire-washing Trump / MAGA. Turning everything into anti-reality. Mythology of Kirk.
+Satire-washing Trump / MAGA for yucks and humor content. Turning everything into anti-reality. Mythology of Kirk.
 
+https://old.reddit.com/r/SipsTea/comments/1npatvh/its_cleopatra_bitch/nfxsw7d/
+
+OPERA_A is it Mars or is it Egypt Pyramids? Oh, it is Cute... alright! 506,041,762 views October 25, 2009  https://www.youtube.com/watch?v=CduA0TULnow 
+
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfy91zg/
+
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfy71ay/
+
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfxm36w/
+
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfxpoo5/
+
+https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/nfxyvh5/
+
+ George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "JOSEPH CAMPBELL: "A new order of the world." This is a new order of the world. And the saying above, "Annuit Coeptis," means "He has smiled on our accomplishments" or "our activities." BILL MOYERS: He -- JOSEPH CAMPBELL: He, the eye, what is represented by the eye. Reason. In Latin you wouldn't have to say "he," it could be "it" or "she" or "he." 
+
+ 
