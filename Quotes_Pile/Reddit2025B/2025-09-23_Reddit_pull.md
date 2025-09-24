@@ -1069,3 +1069,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_
 
 The key to media success on media platforms and stages is to humer-wash and funny-wasy and laughter-wash important and serious topics. Bluesky and Reddi constantly laugh-wash Donald J. Trump. Endless mocking and jokes about Trump. That's the very attraction, having stimualting content to insult and mock, the Tony Clifton performances patterns.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nfu5rx1/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nfu6jxy/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nordy9/charlie_kirk_and_pastor_ryan_visconti_mocking_the/nfus1y5/
+
+That's why people behave this way. Trump's whole Tony Clifton acting show gets people to blow their minds out constantly mocking and insutling how terrible King of Entertainment bragging Tony Clifton is.
+
