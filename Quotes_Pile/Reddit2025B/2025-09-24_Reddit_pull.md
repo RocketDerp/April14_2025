@@ -236,3 +236,15 @@ https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_
 
 "libs", only the liberals are crazy. MAGA isn't crazy. White House isn't crazy. Putin's Kremlin isn't crazy. ONLY the liberals are crazy. Out-group crazy messaging patterns on Reddit information systems. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfy6ck6/
+
+Note the social media *laugh track*, "LOL" in the Reddit message. People who lust for Reddit cloud computing machines and touch devices hate human persons. People are so happy to see death solve problems instead of discourse and dialog and learning. Anti-Malala stance is popular.  "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyubsa/
+
+Reddit community has no self-awareness of compusive behaviors to be drawn to the visuals of a public murder filmed by live audience of 3,000 people who almost all own moden smartphones with high-speed TCP/IP network in the middle of a university complex. The drama and blood flow of this killing draws media addicts.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npcev0/charlie_kirk_on_what_to_expect_from_trumps/nfyyni0/
+
+Satire-washing Trump / MAGA. Turning everything into anti-reality. Mythology of Kirk.
+
