@@ -1506,5 +1506,5 @@ He will be age 73. That's what audiences cheer for old white men.
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5einx/
 
-Fiction won. "You people are so fucked and you don’t even realize it." - yes. The Internet Research Agency mind-fucked eveyone with Cambridge Analytica doctorates. People so mind-fucked they can't even see it in the ocean of low-effort comments that avoid the elephant in the room of We The People self-harming the nation as directed by the IRA / CA mind-fucking.
+Fiction won. "You people are so fucked and you don’t even realize it." - yes. <img width="1274" height="1402" alt="image" src="https://github.com/user-attachments/assets/4f95dbd8-c9c8-437e-b390-cc45f8ed4f0a" /> The Internet Research Agency mind-fucked eveyone with Cambridge Analytica doctorates. People so mind-fucked they can't even see it in the ocean of low-effort comments that avoid the elephant in the room of We The People self-harming the nation as directed by the IRA / CA mind-fucking.
 
