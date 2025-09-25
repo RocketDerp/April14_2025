@@ -1347,3 +1347,40 @@ https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4j2b3/
 
 You want to say murder people? Kill people? Hate people? Worship Putin messages? What is forbidden on Reddit comment section?
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4e0sc/
+
+People consider Truth Social comments the attractive soruce of information. Fox News HDTV as a reliable source of learning. Reddit comment sections as time well spent learning. ... ... ... "It means misleading information--misplace, irrelevant, **fragmented or superficial information -- information that creates the illusion of knowing something but which in fact leads one away from knowing**. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that **when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4j2lu/
+
+The knowledge of fiction characters on Reddit venue is similar to the knowledge of fiction characters in other media venues like the Mosque.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4dqed/
+
+As I keep repeating and repeat... and repeating. Tylonly science fiction informaiton is more popular than nonfiction. People are no longer attracted to nonfiction science learnign and understanding, they desire mockery and insutling of Trump White House. Poop diapers, orange skin makeup mocking, golf couse outing mocking. That's what is popular. That is what drives the USA society in September 2025.  People do not wish to use their spare time and free time to study nonfiction learning of addiction to trash media content that Russia has won an information war with since year 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4ki41/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4i2em/
+
+Reddit comment commuity WANTS more abandoned information in the form of millions of comments that dilute and wreck medium-term and long-term "on the same page" comprehenson and understanding of important and serious topics... People WANT to be fed low-effort memes and comments by the millions each day. Quanity of low-effort.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4lx8x/
+
+War on women. War on science. Russia's War Against Reality since March 2013. Autism war, war against associative thinking. War against Wikipedia style cross-reference Wiki thinking. “Associative thinkers see relations and connections everywhere and tend not to categorize things. When I hear or read a certain word, I suddenly see a lot of “pictures” in my mind that have something to do with that word. This happens in quite an unstructured and even chaotic way. It's a complicated spiderweb of memories, pictures, and thoughts.” - Casey "Remrov" Vormer, Connecting With The Autism Spectrum: How To Talk, How To Listen, And Why You Shouldn’t Call It High-Functioning. Nonficiton book, page 19 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4if0t/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4go49/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4j3it/
+
+Forest for trees context. https://www.cnn.com/2025/03/05/politics/elon-musk-rogan-interview-empathy-doge  Anti-empathy, an Elon Musk "mind virus" spreading values. Anti-compassion anti-understanding messages on Reddit machines. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4jj3z/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4jjqq/
+
+Reddit community isn't really speaking up on the hate issues. That autism is used as a joke and insult to dehumanize people. The power of Putin dehumanizing the USA and Ukraine. Informaton warfare to dehumanize and bully persons into self-harm and giving up on progress in USA. The prizing of hate, the prizing of manipulation and deception to bully people and trick them into self-harm that is the very power of Trump and Putin Kremlin / White House.
+
