@@ -846,3 +846,33 @@ https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_cal
 
 Why oh why can social media users not get behind Malala's reformation of Levant faiths and abuses of humanism?
 
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng1yah2/
+
+https://old.reddit.com/r/science/comments/1npoqxf/highmarkup_hospitals_are_overwhelmingly_forprofit/ng0rw1i/
+
+https://old.reddit.com/r/science/comments/1npoqxf/highmarkup_hospitals_are_overwhelmingly_forprofit/ng1frk1/
+
+There are over 8 billion people on Earth. The Internet was invented by the United States of America. Wikipedia was invented in USA. Why are we not open sourcing a WikiMdical for all humanity? Driving down the cost of education? Documenting every drug and every medical hardware / hospital hardware / abmulance hardware - and trying to make it all public domain for the common good of humanity? Including preventative and emergency care? People KNOW of systems like Wikipedia, but want to spend free time and spare time creating millions and millions of low-value social media comments instead of coming together for common causes. Even hospital software apps and doctors office apps to be open source and shared all across the world for common improvement. We all have a physical body, we all have a brian for mental health, why are we not sharing and pooling together in common cause? Why isn't curing disseases and saving lives not incentive and motivation for people to work together?
+
+https://old.reddit.com/r/science/comments/1npoqxf/highmarkup_hospitals_are_overwhelmingly_forprofit/ng11onz/
+
+https://old.reddit.com/r/sandiego/comments/1nptotd/3_members_of_the_chula_vista_city_council_walked/ng1vusg/
+
+In a way, he was a civil rights leader, the removal of rights, the adoption of less equality. He was leading people to Trump. Faith in hate itself is popular. Reddit community constantly behaves as if *hate harder* is the answer to I.C.E. and MAGA and Trump. That if we hate upon MAGA people, which prizes hate from Trump, we are somehow taking a "high road" of joining in a hate for hate values. I personally can not stand living in an ocean of hate that everyone dumps more hate into, what the USA soicety has become under Internet Research Agency and Cambridge Analytica.
+
+https://old.reddit.com/r/sandiego/comments/1nptotd/3_members_of_the_chula_vista_city_council_walked/ng2c42z/
+
+https://old.reddit.com/r/sandiego/comments/1nptotd/3_members_of_the_chula_vista_city_council_walked/ng1x8l1/
+
+Russian information warfare since year 2013.
+
+https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng0kzhf/
+
+Media addiciton is impacting everyone of all ages. People aren't even connecting why January 20, 2025 all the technology copanies are liked up with Trump in the front row. Why Trump created Truth Social, why Elon Musk purchase Twitter. Why Russia has spent so much effort on Internet. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
+
+https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng174yz/
+
+Yes. When I lived in Jacksonville Beach, Florida I would take the bus typically weekly back in 2016 and 2017 and Orlando in 2018 and people were so engaged in the Trump election content / Trump taking office news. You could see right into drivers glued to their phone from the higher bus seats. Walking around these days, you can often see this too. People have lost all sense of perspective how much behavior has changed with smartphones and interpreation ofthe world through devices. Compusive enagement addiction is a crisis.
+
+https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng270js/
+
