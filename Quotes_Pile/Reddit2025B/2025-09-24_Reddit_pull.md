@@ -1777,3 +1777,44 @@ https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_p
 
 OPERA_A  I would love to tour the Southland / In a travelling minstrel show / Yes I'd love to tour the Southland  ... Napoleon saw his island. https://www.youtube.com/watch?v=UBxZFadp9Pw
 
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7jdo5/
+
+Mind-blowing acting for the Reddit audience, people on Reddit going WHAT THE FUCK! Thrilled out of their brains.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng735pi/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng75ybp/
+
+Amusing Ourselves To Death, 1985, Neil Postman.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7dzwp/
+
+Amusing Ourselves To Death, 1985, Neil Postman.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng74qgl/
+
+<img width="1478" height="476" alt="image" src="https://github.com/user-attachments/assets/89d3e1c4-768e-44dd-bbaf-f203c2776e85" /> Trump has run casinos (comedy venues), Trump is a Reality TV actor, he knows Andy Kaufman from New York City his home town. Reddit audiences are inciredibly ignorant of Russian information warfare. You are entirely blided on Reddit that this is Tony Clifton scripted comedy. You thnk Reality TV is nonscripted. 
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng730jy/
+
+Reddit comment community eats it up. Loyal audience.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng742lh/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7d6c4/
+
+BBC, the UK, you say. Nonfiction. https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng74rlv/
+
+<img width="932" height="352" alt="image" src="https://github.com/user-attachments/assets/efdac9c7-9c04-40a4-bbf7-489982248291" /> Russian information warfare. Blind to it on Reddit. Surkov Won, USA lost the informaiton war against reality, the war against nonfiction.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng76kvh/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng778r2/
+
+<img width="1452" height="408" alt="image" src="https://github.com/user-attachments/assets/a9f27075-6d81-4411-ba8c-73c57773d29d" /> Reddit users adore this shit. Entertainment above humanism. Entertainment above nation. Russia won, Putin won.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7cnvi/
+
+Comedy Vibes President. Fiction outsells nonfiction. Reddit loves it!
