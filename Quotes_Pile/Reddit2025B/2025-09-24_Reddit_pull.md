@@ -619,3 +619,27 @@ https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_
 
 Gang singlas, special phrases for gang members of the media street gangs / TikTok street gang messaging. See also Levant science fiction story street gangs of Quran / Torah / Bibble and special phrases and language used to fight competing street gangs of science fiction stories. And to attack authentic science (nonfiction). Been going on for thousands and thousands of years. See also: "Harlan Ellison, Middle East 8000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
 
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0pmr2/
+
+Compuslive media addictions behavior. Charlie Kirk was a media superstar / content creator / podcast influencer. Reddit comment section is full of compusive media addiction behaviors. Neil Postamn's 1985 book "Amusing Ourselves to Death" creates self-awareness of what is gong on with media ecology.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0dzqn/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng118fb/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0io62/
+
+OPERA_A Repeat track until Bloomsday everywhere understood, James Jocye's writings. Where did Jesus go? https://www.youtube.com/watch?v=b9yooWbwrTA
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0gsvb/
+
+Russia won the information war since March 2013 using patterns of debate and arguing that generate self-harm and hate of humanism in USA.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0mw4h/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0hcal/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0jdph/
+
+Russia won the information war since March 2013. USA lost. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
