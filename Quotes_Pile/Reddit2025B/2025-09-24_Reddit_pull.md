@@ -1384,3 +1384,23 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading
 
 Reddit community isn't really speaking up on the hate issues. That autism is used as a joke and insult to dehumanize people. The power of Putin dehumanizing the USA and Ukraine. Informaton warfare to dehumanize and bully persons into self-harm and giving up on progress in USA. The prizing of hate, the prizing of manipulation and deception to bully people and trick them into self-harm that is the very power of Trump and Putin Kremlin / White House.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4l0mo/
+
+An audience waiting for more humor and fiction to run the world. No desire to seriously address the misunderstanding of autism and deal with misunderstanding, just a desire for more fiction storytelling and abandonment of goodness. that's what drives the USA, that is why Trump is the center of all attention, the fiction excitement the audience feels in anticipation of Trump / RFK Jr / White House next game. The next South Park episode. "Ddissaster Artists", "Disaster Art", "Disaster Reality TV" entertainment for the Reddit audience.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4z6e8/
+
+Reddit audience members talking about hte next seasons of the ficiton-run society. Engaged and on the edge of the seat glued to the RFK Jr and Trump performance.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4ghw0/
+
+Clown-loving audience flocks to Tony Clifton performances shared on Reddit.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4ln8t/
+
+Reddit fiction attracted audience is commenting how this episode of Reality TV White House and Kremlin using Surkov Screenplay has some repeat story motifs as prevous seasons on medical fiction storytelling. Fiction tropes. As long as the Reddit community can avoid nonfiction learning of how Russian Surkov information warfare alters audience behaviors.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4rmuf/
+
+If you don't measure all the free time and spare time spent on Reddit commenting about it as a consequence of addiction and attractin to fiction White House. ... ... ... Texan Rick Roderick, Duke Univesity: " because part of the postmodern trajectory itself is a rather humorous joke on the human race which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of vengeful act against us absorbing our leisure time, which was to be our living time, into time now spent in the service of what can only be called this inhuman spectacle. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us. So I would be wary of simple answers to this." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
