@@ -1007,3 +1007,46 @@ https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_ju
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3u0od/
 
 There is no substitute for a self-aware intelligent population and leaders. Addiction to jokes has ruined the nation. Amusement addiction USA. If people don't care about goodness and avoid it as boring, this is the outcomes we are living in. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng2xm8l/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3uxac/
+
+Once you mater manipulating media, you can work in almost any business. Farmers can manipulate media and earn government payouts. Computer makers can master manipulating media and build a brand loyalty with messaging and popularity alone. It's not a s if Reddit consumers read articles and perform tests to validate claims. The  USA is driven by messaging popularity and trending. Elon Musk knew to purchase Twitter to wreck the people he hates, everyday people. Going down with the ship. As long as you are steering the ship. Run the ship into the rocks or drwon everyone. Joyriding a nation with media systems.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng41wpu/
+
+Manipulation works in almost any profession. Convicing others to believe falsehoods is a skill that works.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3zqjs/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng44cw8/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng46ov5/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3u7js/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng4aapd/
+
+Note the lack of author name, book title, link to story. Comment sections.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng47o64/
+
+The ELIZA effect.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3trum/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3vivr/
+
+It's like an entire naton that does low-effort memes and comment messages.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3yhgh/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng45zzm/
+
+Filter bubble, Reddit too.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3wu6f/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3y3is/
+
