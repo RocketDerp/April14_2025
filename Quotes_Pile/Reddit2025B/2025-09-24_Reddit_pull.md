@@ -876,3 +876,10 @@ Yes. When I lived in Jacksonville Beach, Florida I would take the bus typically 
 
 https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng270js/
 
+https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng1pqrh/
+
+https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng0glwy/
+
+https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng0j88v/
+
+https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng0sx06/
