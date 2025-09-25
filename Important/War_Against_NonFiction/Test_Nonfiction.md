@@ -8,6 +8,14 @@ https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_
 
 <img width="1082" height="314" alt="image" src="https://github.com/user-attachments/assets/d2df106c-9c20-4374-867f-62cd57878bfb" />  
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng49ua5/
+
+<img width="1508" height="310" alt="image" src="https://github.com/user-attachments/assets/c853d0da-71f5-49ce-a601-363c2b9c25b2" /> 
+
+&nbsp;
+
 Make a list of fiction vs. non-fiction to test.
 
 1) Did the moon landing happen in 1969 by USA?
