@@ -1747,3 +1747,33 @@ https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_p
 
 <img width="1372" height="478" alt="image" src="https://github.com/user-attachments/assets/b8652a77-fca1-4679-bb2c-f58811e59fe8" /> Reality has turned into Russia's screen game ARG that you lost. Low-effort comments that get abandoned hours later, people using social machines wtih spare time and free time, is a distraction from organizing sustained important focus on nonfiction learning of how Russia won an information war since year 2013. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng72s8u/
+
+Reddit audiences mind blown, over and over every day foR TEN YEARS AND THREE MONTHS, audiences mind-blown by Putin information warfare techniques.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng74ici/
+
+Since March 2013.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng75or9/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng76lac/
+
+You amusement-washed Trump and MAGA just as you are doing in Septembe 2025 comment section. You still don't know about the Internet Research Agency and Cambridge Analytic and how they exploit your mind into flocking to shit from Trump and Putin.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng784rl/
+
+Russia won, Surkov Won, since year 2013. USA and NATO lost. 
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7gkn9/
+
+Minds blowy but alternate reality screen game created by Russia.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng73cnc/
+
+Donald Trump playing comedy screenplay of Tony Clifton and Surkov students. Reddit society adores the mocking and hate messaging.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng75g1c/
+
+OPERA_A  I would love to tour the Southland / In a travelling minstrel show / Yes I'd love to tour the Southland  ... Napoleon saw his island. https://www.youtube.com/watch?v=UBxZFadp9Pw
+
