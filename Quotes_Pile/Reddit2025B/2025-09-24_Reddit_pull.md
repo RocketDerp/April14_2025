@@ -944,3 +944,63 @@ https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_ju
 
 People imagine rage teaching hasn't been conditioned by Cambridge Analytica. To hate, to rage, agaist American people instead of fighting Russia and defending NATO and USA from self-harm mind programming.
 
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3nqnm/
+
+Over TEN YEARS AND THREE MONTHS of Reddit adding more satire at every chance. Deepest religion fatih is satire, mocking, and adding hate for hate. A nation wrecked by the belief that being ingorant of Russian information warfare is good. Ignorance is good. Hate is good. More satire and manipulation is good. Putin and Trump agree, more satire, more lies, more hate.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3bgc7/
+
+"A strongly worred letter" is code to : be dumb on social media and let Russia manipulate the USA. Because the ignorance praising abounds.The strongly worrded letter is called cult deprogramming of Reddit addicts to mocking  "strongly worrded letter". People have their mind blown over and over, unable to comprehend they are in a culf of mocking. Peopld do not understand feedback loops of mocking.  "I do see some light. Newsome does not give a shit" -  nt giving a shit about human persons and wrecking the nation with anti-intelelctual amusement memes is the problem. Not giving a shit about dumb and dnumber. Trump beahving dumb,Newsome behaving dump. The Gulluble Reddit community actually believes Trump isn't an actor. No matter  how much evidence there is in the nonfiction section of the public library that Russian information warfare is based on acting and fiction, people on Reddit can not face up the FACT that Donald Trump is an experienced teleivision actor. Charlie Kirk is an actor. Americans, including MAGA, have a taste for terribly bad teleivsion shows. Fox News is a terribly bad television show. Reddit /r/All is bad taste in entertainment. The crisis is aviodance of nonfiction public library book learning. ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3ionh/
+
+Imagine how corrupt the comments are on Reddit that when infiltrated by Russian insincere participatns, eveyone puts on a mask and hides their real face, real name, real identity. Because ChatGPT and Russia and Iran and China find people who self-dehumanize are even easier to confuse. A website where comment creators react with millions of low-effort comments - anything to avoid public library on  how learning actually works. A dumpster fire of people dumping low-effort misunderstandings upon each other.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3fqdn/
+
+Who has the bigger audience with faith in hate. Both audiences are encouraging hate and dehumanization. But people who actually desire goodness, value sanity, want peace...fuc them because Bluesky and Reddit communities have done everything they can to train and encourage that what the USA needs is to avoid learning how  Russia mind-fuckedthe USA and NATO.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng2wc4u/
+
+An actual murder! Simulacra, video screen game of Reddit comment users who think this is a win. Living in fiction. Love and goodness has not won the day. Entertained by messages while the USA as a nation is self-harming by addiction to trash MAGA and Donald  Trump thinking.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng2ya74/
+
+Trump White House does bad things, creating a constant entertainment for Reddit comment section. The audience of Donald Trump humor addicts is constantly amused at how I.C.E. creates message reactioins. Real humans suffer while people eat up the messages.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng382y2/
+
+Blame the same people over and over. Do not blame Russia. Do not blame We The People of Reddit comment section for spending all free time and spare time making low-effort trivial comments and avoiding learning how Russia has mind-fucked Americans and NATO into mockery.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng39u4o/
+
+Reddit has forgot the  nonfiction public library and American exceptionalism arrogance isn't confrtong media addiction to entertainment itself.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3hagh/
+
+Wild West California gun shootots. Be like Palestine, weapons always. How does this in any way address the problem? More guns, more shcool shootings, more USA on world stage getting global news coverage for more guns to "fix" issues taht are hate. A comment s ection so mind-fucked that a gun is viwed as a tool of love and compassion in a USA drowning in hate values and hate praise from Russia.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3jx6l/
+
+The mental health crisis is minds that avoid nonfiction of mental states induced on Reddit by Russia.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3olj7/
+
+More low-effort comments to drown comprehension.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3szuc/
+
+Three people. Reddit users full of spare time and free time sit in the audience to 3 people. Democracy is 3 people. Audience mentality, bystander effect. MAGA is a cult, why is Reddit not teaching cult deprogramming?MAGA prizes guns, do you think gun worship cults can be solved with more guns? Charlie Kirk was a gun worshipers, did more guns and m urder solve the Chrlie Kirk media cult problem? Cult deprogramming is how you solve a cult. Teaching and learning, it can take years of extreme effot. Ask teachers how easy it is is to teach people in a cult But that's the job. Not mocking peopple, but rescuing people. We are an intelelctually homeless generation. So mind-fucked by Russia that people can not engage nonfiction learning. Addiction to memes and trash MAGAc Trump content has wrecked the minds. Russia won since year 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3vw8r/
+
+Sick burns against Canada, Greenland, trade partners all across the world. Sick burns are all USA gives a shit about. Sick burns won'put food on tables. Traded a smart nation for trash memes.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3ya4t/
+
+MAGA values are shallow and superficial. RFK Jr says he can diagnose by just looking. Poorly trained police can tell someone is an illegal immigrant just by superficial and shallow obsevations. Reddit messages to further program this shallow thinking in the  Reddit audience.
+
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng2nlej/
+
+"Murdered by words", an audience in simulacra of meme for meme warfare. 
+
