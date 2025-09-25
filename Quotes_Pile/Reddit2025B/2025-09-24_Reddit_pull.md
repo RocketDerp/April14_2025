@@ -643,3 +643,15 @@ https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_
 
 Russia won the information war since March 2013. USA lost. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0nmwf/
+
+Compusive hate of Americans. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng19ydq/
+
+Note the absence of quottations of what was said. Links to videos or reporting. Just tiny short comment messags that September 2025 society flocks to, low-effort commenting.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0zmjv/
+
+Mind blown because of monomyth symbols.
+
