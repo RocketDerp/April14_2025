@@ -1404,3 +1404,33 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading
 
 If you don't measure all the free time and spare time spent on Reddit commenting about it as a consequence of addiction and attractin to fiction White House. ... ... ... Texan Rick Roderick, Duke Univesity: " because part of the postmodern trajectory itself is a rather humorous joke on the human race which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of vengeful act against us absorbing our leisure time, which was to be our living time, into time now spent in the service of what can only be called this inhuman spectacle. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us. So I would be wary of simple answers to this." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
+https://old.reddit.com/r/MapPorn/comments/1nq81hm/netanyahus_flight_to_the_us_avoids_both_french/ng4z6af/
+
+https://old.reddit.com/r/MapPorn/comments/1nq81hm/netanyahus_flight_to_the_us_avoids_both_french/ng575e4/
+
+https://old.reddit.com/r/MapPorn/comments/1nq81hm/netanyahus_flight_to_the_us_avoids_both_french/ng4x26x/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng53guz/
+
+Why do you have to be in a club, group, party? why can't someone post a manifest of changes and we all flock to it like a new film or a new song or a new TV series? Why can't ideas be the core of focus instead of group-association? ... ... ... “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1955.
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng547h0/
+
+Why can we not get proper good ideas. Here, is a starting point I can offer: [Learning_from_Putin_Invasion.md](/Important/USA250/Learning_from_Putin_Invasion.md)
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5iv2q/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5jsms/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5cvz5/
+
+All this commenting on Reddit shows a lack of grasping the reality of Russia's War Against Reality since year 2013 and just how much social media has changed the rules of society. This is living in denial that the old way is attractive to people. We have reached a point where brainrot problem runs so deep I keep asserting VERY DEEP: fiction vs. nonfiction, every area of life. EVERY MINUTE of EVERY DAY is the Putin media invasion, not just elections. ... ... ... "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - **applicable to all manner of human purposes**. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs" https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller (immigrant to USA), 1987
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng589gg/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5mcm9/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng55apt/
+
+Russia did it since 2013 by invading media systems with mind-fuck. Russia created addiction to antics, addiction to nonsense, addiction to Trump as entertainment and thrills.
+
