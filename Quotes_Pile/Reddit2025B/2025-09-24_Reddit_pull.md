@@ -1486,6 +1486,13 @@ https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats
 
 Trump has the rizz.  <img width="1082" height="422" alt="image" src="https://github.com/user-attachments/assets/9dd52dc2-e3a0-4556-b9ad-e220d8d255f6" /> Trump speaks to a society that the Russian Internet Research mind-fucked into comments lieke this on Reddit. Low-effor Trump ideas.Shallow and superficial. Self-harm the USA by avoding nonfiction serous books and content. The same reason all news outlets / jouralists have abandoned seroius topics in favor of entertainment. This is described foury years ago in Neil Postman's 1985 book "Amsuing Ourselves To Death" about vibe politics of vibe President Ronald Reagan / Entertainment first. Fiction first. ... ... ... "it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World. ” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985 OPERA_A It is Tim Finnegan who has further to Fall, the Finnegans Wake Revival https://youtu.be/JRfuAukYTKg?t=90
 
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng58vr2/
 
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng57ra7/
 
+The limitation this comment can't articulate. Trump offers fiction storytelling, and nonfiction is not popular to Reddit audiences and Truth Social audiences. Russian information warfare, Putin won, Russia won, since March 2013.
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng58jrh/
+
+We The People drunk on low-effort Reddit comments and Fox News HDTV.  Why can't people on Reddit use spare time and free time to promot Jen Senko's film instead of creating far less important comment messages? Why hasn't Reddit tried to make Jen Senko a household name to confront cult behaviors of media addicts? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
