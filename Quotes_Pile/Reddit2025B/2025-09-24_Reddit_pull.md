@@ -1338,7 +1338,12 @@ Ignroance of the history of Church and Mosque and storytelling. Who invnted lang
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4hsnd/
 
-The Reddit comment section is wehre many pepole go to learn. What they learn is concerning.
+The Reddit comment section is where many pepole go to learn. Reddit comments are fed to train large language models (artificial intelligence) to teach other people. What is learned from Reddit comments is concerning. ... ... ... “Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens?” ― Neil Postman, The End of Education: Redefining the Value of School. September 1995. Etrnal September Year 1.
 
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4ireq/
 
+"Glad not a student anhymore" - learning from Reddit venue, learning reddit comments and postings. Learning doesn't happen in a classroom. Learning happens on Fox News HDTV. People so lacking in media ecology self-awareness they can't grasp that Donald Trump is a product of television addiction. Not classroom school addictions, but where people learn and study - on Truth Social, Twitter, Reddit, Facebook, Reality TV, Fox News, Charlie Kirl podcasts, Joe Rogan podcasts. These are the classrooms and pepole on Reddit thinkg they are no longer learning and are no longer students. Unaware of how they learned of Charlie Kirk's shooting and killing, it wasn't likely a school classroom with a teacher reading a book.
 
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4j2b3/
+
+You want to say murder people? Kill people? Hate people? Worship Putin messages? What is forbidden on Reddit comment section?
