@@ -11,6 +11,8 @@ The May 1, 2013 meeting at London School of Economics. https://imrussia.org/en/p
 
 ## ToDo Lessons
 
+We The People, age 12 to age 120, ToDo. Remedial cram session to catch up to Reality Itself and the lost War Against Reality to Russia.
+
 1. Neil Postman's 1985 book "Amusing Ourselves To Death" should be core understanding of what we overlooked / avoided. A society can not focus on everything, a topic Neil Postman described will in his later 1992 book on technology and information systems. But it is helpful to create a narative, as Postman describes in his later-yet September 1995 book on education.
 
 2. We The USA just didn't take information warfare seriously enough.
