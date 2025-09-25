@@ -883,3 +883,55 @@ https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_th
 https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng0j88v/
 
 https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng0sx06/
+
+https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng0kizx/
+
+https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng0ukgx/
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1q66z/
+
+Describing how Trump doing surreal and absurd acts makes it entertaining / amusing.
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1ziz5/
+
+People are compusively humor-washing amusement-washing Trump. Neil Postman's 1985 book "Amusing Ourselves To Death" is critical learning for every person age 12 to age 120.
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng2hoij/
+
+The Internet Research Agenc and Cambridge Analytica have conditioned people to fixate on the exciting thrilling media content instead of face reality. This is hwo the "War Against Reality" looks for many people. Being unable to take serious the situation. Avoiding of nonfiction learning. Published Septmebe 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1t487/
+
+It is as if January 6, 2021 wasn't enough for people. Addicted to the constant antics. And peole also are not acting like Trump was remvoed from office. Donald Trump was VOTED OUT, Joe Biden repalced him. But the addiction to Trump content, addiction to hate, addiction to mockery, did not go away just because Trump was voted out of office. People are avoiding nonfiction learning and do not recognize the compusive media consumption behaviors.
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1uzw7/
+
+The media. The social media. The Reddit. The Bluesky, The Twitter. The Fox News. The touch devices.
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng24ift/
+
+Putin manipulated Reddit. Addiction to fiction. Donald Trump is a media star addicted to attention and spotlight. Putin creates fiction that peole flock to in the same way people flock to Mecca and Quran / Mosque. We need to be teaching media ecology, the compusive addiciton to fiction storytelling / monomyth stories.
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng21u5u/
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng23yht/
+
+Why didn't Reddit media users use Reddit to sustain focus on imporatnt topics? Media addiciton to low-effort no-identtiy comments drowns out repeating important *we all need to get on the same page* topics. Social media sites like Bluesky communities and Reddit communities do not re-assert important topics. The "Epstein List" QAnon focus seems more motivated aobut people wanting to get Bill Clinton in trouble than actually adressing the avoidance of nonfiction. Why can't pepole use social media to have every Friday and Tuesday be days to REPEAT important topics and have soeone lead an agenda of staying focused. And stop with the never-ending sports games and other topics. At some people people need to act like this is a REAL WAR with REAL HAELATH CARE and REAL FUTURE being wrecked. Give up non-essential games and sports discusson and actually focus on serious nonfiction hard problems. Blah. We ahve drowned ourselves in so much amusement-washing and entertainment addiction. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1t4jb/
+
+Normalcy-washing the situation. Hyper-normalzing it along side the Reddit kitten images and sports scores and memes. And I consider Reddit the people with the technical talents, free time / spare time, that should be organizing. These are the defenders against Russia. But we just can't get people to enage nonfiction. 
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1tkpy/
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1zuio/
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1u181/
+
+Laugh-washing, amusement-washing.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng2ktqb/
+
+To normal-wash the sitaution. Just another day.
+
+https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng2b33t/
