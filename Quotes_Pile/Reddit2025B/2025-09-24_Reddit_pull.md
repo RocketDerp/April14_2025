@@ -1587,5 +1587,27 @@ https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_k
 https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5kw9b/
 
 
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5lpoh/
+
+The write-only comment behaviors of Reddit community creating comments without comprehdning what others are saying. You see this on Blueksy. Especially image reactons / meme animation reactions. They demonstrate no comrephension in many cases.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng61jdl/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5j4mu/
+
+Addiction to fiction, cravings for fiction leaders, even when people aren't self-aware they are freeding it...
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5m988/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5xri4/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng6kwgy/
+
+The wealthy in the world have you screaming about sports teams and films. I sued to work for them on their private staff.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5sjmv/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng6bpqj/
+
 
 
