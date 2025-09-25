@@ -807,3 +807,12 @@ https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_wa
 https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1e0mx/
 
 This is what people crave as comments, using their spare time and free time for these messages.
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1cfqi/
+
+Since March 2013 the Russian Internet Research Agency has been wrecking hearts and minds of the enemy via Reddit, Twitter, Facebook, etc. Making absurd Trump and sureal MAGA the cneter of endless mockery. Turning the USA into a Total Mockery values nation. Endlessly name-calling, trash-talking, insulting, hate-message of Ameican people. To turn the USA into a unwelcome nation on the world stage of history. Surkov spelled out that the Ukraine war would not end. This was publsihed December 31, 2014 on the BBC by Adam Curtis: "A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year. In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - https://www.youtube.com/watch?v=h9_L9GRRsQo
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1cxkh/
+
+Why isn't the entire World Wide Web coming together to do this? Why isn't Reddit posting every 12 horus that we all need to put our attention on convincing domestic Russian people to stop supporting Putin and how we will help with mailing packages, offering education, offering teaching? Why are people all over the world asking mental health professionals and therapists to teach Russian people why war is bad? Instead, spae time and free time goes into reaction comments on meme media platforms.
+
