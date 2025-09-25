@@ -559,6 +559,33 @@ Mind blown, can't believe reality. Exactly how Russia won since year 2013, defea
 
 https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng15f0b/
 
-Reddit community loves low-effort comments, millions and millions of comment messages. Free time and spare time flocking to no-identity comment messages that do not inform, just create laugh-tracks and mocking-track sot the situation for OVER TEN YEARS AND THREE MONTHS. Unable to engage nonfiction serious leanring on waht is going on and how Russia dfeated NATO and USA.  Published September 9, 2014 - more than eleven full years ago, describing what was already happening in 2014. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+Reddit community loves low-effort comments, millions and millions of comment messages. Free time and spare time flocking to no-identity comment messages that do not inform, just create laugh-tracks and mocking-track sot the situation for OVER TEN YEARS AND THREE MONTHS. Unable to engage nonfiction serious leanring on waht is going on and how Russia defeated NATO and USA.  Published September 9, 2014 - more than eleven full years ago, describing what was already happening in 2014. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0u2nw/
+
+If Reddit comment comunity could stop spening free time and spare time compsing low-effort tiny short comments and actually turn to nonficiton learning about Russian information warfare since year 2013, answers would start to become undertood. But it requires sustained focus on important topics for weeks and months and not drowning in millions and millions of disposable comments that do not educate or inform.  Published September 9, 2014 - more than eleven full years ago, describing what was already happening in 2014. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0ypp8/
+
+For TEN YEARS AND THREE MONTHS, Reddit comment community can not get enough of creating low-effort insult messsages of how terrible and bad Tony Clifton is on stage. It just goes on and on, there are never enough comment messages saying how terrible and bad tony Clifton's singing and dancing is on stage. Never enough of it, people go right back to Reddit as soon as another Trump posting or image or video comes up and make the same comments about how bad he is. An audience that will not imagine that they are in a simulacra, trapped in constantly using machines to comment how dumb and bad Tony Clifton's act and singing is on stage.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng12tpz/
+
+Mind-fucking Reddit machine messages for child-washing Trump, casting Trump as innocdent child and too young to be responsible for his adult choiices and harm to the United States of America.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng173jl/
+
+Entertainment comments on Reddit. Avoidance of nonfiction learning about Russia's IRA and Kremlin media mthods for over TEN YEARS AND THRE MONTHS, endless addiction to low-content low-effort comment messages on touch devices. 
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0md0k/
+
+Trump is playing the character of Tony Clifton for Reddit audiences to make comments describing Tony CLifton.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0ot7p/
+
+Reddit comment section uses spare time and free time to amusement-wash and mockery-wash Trump for over TEN YEARS and THREE MONTHS. And has no sense of Civic Duty to learn and fight back against Putin's attack of mulltiple NATO nations using the Internet Research Agency since March 2013. Reddit comment community entirely unwilling to take serious important matters like children kileld by measleas messages on media machines. Documented since August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192 but people are too busy using spare-time and free-time on Reddit to comment over and over about less-important topics like an autopen image being hung in the White House. 
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0s5vc/
+
+Social media laugh-track, "LMAO", how amusing it is when Trump gets in the news for antics politics. Tony Clifton acts blow minds of Reddit audience.
 
