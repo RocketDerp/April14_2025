@@ -1267,3 +1267,35 @@ https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_
 
 Everyone should have thier own personl interpretationof which side of the road to drive their car on. What a mind-fuck message payload on Reddit systems. That the most important thing is nobody agrees. Choose your own fiction, exactly what Donald Trump and Putin are promoting, fiction over nonfiction reality. Every person lets their own favorte science fiction school or Fox News HDTV teachers determine what is important. While actual serious and important difficult topics are avoided. ... ... ... “If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a **favoured concept of both Beijing and Moscow**, and essentially a cover for enforcing censorship.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019.
 
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng46l3j/
+
+A short-length comment message. Twitter-thinking. A *Race to the Bottom* of the most banal comments and teacing.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng46rp8/
+
+Reddit comment section attracts people attracted to this type of thinking and messages.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng46ubh/
+
+Notice no mention of the library at the university. That educated, researched, footnoted, citaiton full books with nonfiction information aren't mentioned in the Reddit comment? if you want to meet random people to explain things to you - go to the Reddit comment sections. Where people are against citations and fact-checking books with endnotes and footnotes. Against Wikipedia with links inline to better comprehend. Instead just lots lots of comments based on not understanding or conprehending topics. The public library and unviersity library are considred boring, nonfiction isn't thrilling entertainment like Hollywood and Truth Social produce.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng46wdl/
+
+And what does the Reddit communit vote for? Fixing addiction to ficiton or furthering it. I see addicts flocking to junk content.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng47mz4/
+
+Only two categories liberal vs. conservative. Both can be wrong, but as long as it is two and only two answers.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng47ogp/
+
+What I'm learning from the human world of Truth Social and Reddit is that people prize misunderstandings and fiction over seriously learning and comprehending nonfiction.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng482qo/
+
+The **ignorance of media ecology and literacy itself** is all over Reddit. Celebration of anti-learning culture. Conservatives were masters of teaching and university. "particularly the Catholic Church in medieval Europe, was instrumental in the creation and development of the earliest universities. These institutions emerged from the Church's cathedral and monastic schools, which preserved knowledge after the fall of the Roman Empire and later evolved into centers for advanced learning, initially to train clergy" https://catholiceducation.org/en/education/the-catholic-church-and-the-creation-of-the-university.html
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng49ua5/
+
+How do you tell a Reddit user avoids citations and nonfiction? Make a list of fiction vs. non-fiction to test. <img width="1508" height="310" alt="image" src="https://github.com/user-attachments/assets/c853d0da-71f5-49ce-a601-363c2b9c25b2" />  1) Did the moon landing happen in 1969 by USA? 2) Is 9/11 an inside job? 3) Who is Q in QAnon? (see more above in earlier commentary)
+
