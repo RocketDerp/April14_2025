@@ -1614,3 +1614,4 @@ https://old.reddit.com/r/worldnews/comments/1nocisz/pope_leo_refuses_to_authoris
 
 Bible teaching / Levant religion values without "1 John 3:17" and "1 John 4:20"    
 https://old.reddit.com/r/ExplainTheJoke/comments/1nogahg/i_dont_get_it/
+
