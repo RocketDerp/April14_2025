@@ -1177,3 +1177,36 @@ How many people self-identify as entertainment addicts, fiction addicts, who avo
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4cbin/
 
 It is not trivial. It is not simple. <img width="1614" height="292" alt="image" src="https://github.com/user-attachments/assets/ebd52b69-5efe-4d5d-9930-8c0dacd5bdc0" /> A "simple fact" without comprehension and understanding is more like parroting information. It is a problem people struggle with all over the entire world throughout history. Trivializing it as simple is a huge part of the problem. Short tiny Twitter-length thinking of Tweet-mindsets. Everything is siimple and trivial. Education can require decades of incredibly difficult work to comprehend important topics. Alas, low-effort trivial comments are how people learn. Especially if they are incorrect and claim complex things are simple. ... ... ... "And I think that… the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s the most powerful political rhetoric in a world with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple”, and then of course when you see a pie chart you go “Oh, a pie chart…”. I mean, it has more religious meaning now than a crucifix to see a pie chart. I mean, because…. why is that so popular? Because it reduces complexity. The complexity is very real but his little soundbites, his little conversations with Larry King help to reduce that complexity and they put another message in there: “Now I know it’s real complicated but we can fix it, Americans have always fixed it and we can fix it”. Well, if Baudrillard’s right we have fixed it alright. We have fixed it all the way up and down. And I mean, you know, we see other people engaging in this same, sort of, attempting to reduce complexity. I mean, the political parties, to the extent that they exist at all anymore as anything other than fund raising devices, which I don’t know. I don’t think they have any ideologies because in a postmodern situation who would have an ideology except just as a momentary thing?" https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4cdqc/
+
+The Reddit comment messages parroting the latest RFK Jr. talking points about autism and Tylanol. Spreading the White House bullshit as conditioned. Humor-washing / satire-washing the White House as entertainment source.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4cygl/
+
+People seem incapable of stiudying Russia or studying Iran. It is entirely possible to run univesities with fiction-based teaching. Quran-based fiction teaching. Study Saudi Arabia / Iran. This is not new and has gone on throughout history. Religion unviersitie profoessors exist all over the world, even USA.  Liberty University, Biola University, Colorado Christian University, Pepperdine University, and California Baptist University. Reddit comment section is a community living in denial of factual reality of the world.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4dip8/
+
+Hate prized. Hate preaching. Hate values. Faith in hate. Just like MAGA, the rich hate the poor. Reddit machine messages instructing the audience to hate people.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4fdur/
+
+"Overall, only about 10–12% of professors identify as conservative (and far fewer as MAGA-style conservatives)" sounds like a very limited view of the world. Is that true for Russia? Iran? Why do Reddit community messages all act like MAGA isn't a movement to be like Russia? Are people on Reddit convinced by Trump that the nation of Russia is a **hoax** or something? Did nobody ever study how Germany was in year 1933 and cmmpare it to how germany is in year 1993? How the same nation can change? President Donald Trump was not running the USA in year 2012. Charlie Kirk was not a cult figure in year 2012. Just because things were like that in year 2012 does not mean we are not like Russia in September 2025. There is a complete fialure of media ecology understanding in USA right now. People can not see how Japan 1942 is not the same as Japan in 1992. THINGS CHANGE! The "Dismissed" ending to the Reddit comment...
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4fx6g/
+
+It is not difficult to start teaching nonfiction. There are Church and Mosque delivering fiction lessons all over the world. There are people teaching Shakespeare fiction to audiences. Fox News fiction can be put in the classroom. Donald Trump fiction books can be taught like any other Shakespeare stories. Reddit /r/All is constantly educating people with fiction addictions.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4g0rx/
+
+Advanced educated people still are attracted to Reddit comment sectons full of fiction and low-effort content. Advanced educated people are still attracted to Star Wars 1977 film fiction and other entertainment. MAGA is a movement based on an entertainment leader. Donald Trump is a Reality TV performer. Charlie Kirk is a entertainer. People on Reddit do not grasp media ecology.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4i8i8/
+
+Cheering on that the USA is lead by dumb people. Reddit machine messaging saying that dumb is great and how entertaining the USA is under Donald Trump leadership in September 2025. 
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3ugwa/
+
+The Reddit comment sectin parrots a lot of stuff. People with no-identity attracted to very low-effort very thoughtless comments by the millions that drown out nonfiction learning.
+
