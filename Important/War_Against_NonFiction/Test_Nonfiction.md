@@ -27,7 +27,7 @@ Make a list of fiction vs. non-fiction to test.
 7) Is the Quran nonfiction?
 8) Is Elvis still alive, when was he last sighted?
 9) Is Andy Kaufman still alive, when was he last sighted?
-10) Was Charlie Kirl a fiction or nonfiction storyteller?
+10) Was Charlie Kirk a fiction or nonfiction storyteller?
 11) Is Fox News fiction or nonfiction? 12) Is Putin's Kremlin sincere and honest?
 12) Is Donald Trump a sincere, accurate, and factual source of information?
 13) Is Truth Social fiction or nonfiction?
