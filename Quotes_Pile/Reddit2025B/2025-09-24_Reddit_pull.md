@@ -1004,3 +1004,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_ju
 
 "Murdered by words", an audience in simulacra of meme for meme warfare. 
 
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3u0od/
+
+There is no substitute for a self-aware intelligent population and leaders. Addiction to jokes has ruined the nation. Amusement addiction USA. If people don't care about goodness and avoid it as boring, this is the outcomes we are living in. 
