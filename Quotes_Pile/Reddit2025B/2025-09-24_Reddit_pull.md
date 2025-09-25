@@ -1168,7 +1168,7 @@ Welcome to my GitHub. <img width="1808" height="314" alt="image" src="https://gi
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4bqjd/
 
-Make a list of fiction vs. non-fiction to test. <img width="1082" height="314" alt="image" src="https://github.com/user-attachments/assets/d2df106c-9c20-4374-867f-62cd57878bfb" />  1) Did the moon landing happen in 1969 by USA? 2) Is 9/11 an inside job? 3) Who is Q in QAnon? 4) Is the Bible nonfiction? 5) Is the Torah nonfiction? 6) Is Star Wars 19777 nonfiction? 7) Is the Quran nonfiction? 8) Is Elvis still alive, when was he last sighted? 9) Is Andy Kaufman still alive, when was he last sighted? 10) Was Charlie Kirl a fiction or nonfiction storyteller? 11) Is Fox News fiction or nonfiction? 12) Is Putin's Kremlin sincere and honest? 12) Is Donald Trump a sincere, accurate, and factual source of information? 13) Is Truth Social fiction or nonfiction? 14) How many fiction stories about going to Mars have been published? Films and books? 15) How many factual nonficton times have humans traveled to Mars? 16) Essay question. if McDonald's is down the street, why do they constantly remind you with advertising on television shows and radio that they are down the street? Do people forget about being hungry and need reminder messages on TV and radio? 17) Is Edward Bernays a nonfiction person and what did he do, Essay.
+Make a list of fiction vs. non-fiction to test. <img width="1082" height="314" alt="image" src="https://github.com/user-attachments/assets/d2df106c-9c20-4374-867f-62cd57878bfb" />  1) Did the moon landing happen in 1969 by USA? 2) Is 9/11 an inside job? 3) Who is Q in QAnon? 4) Is the Bible nonfiction? 5) Is the Torah nonfiction? 6) Is Star Wars 19777 nonfiction? 7) Is the Quran nonfiction? 8) Is Elvis still alive, when was he last sighted? 9) Is Andy Kaufman still alive, when was he last sighted? 10) Was Charlie Kirk a fiction or nonfiction storyteller? 11) Is Fox News fiction or nonfiction? 12) Is Putin's Kremlin sincere and honest? 12) Is Donald Trump a sincere, accurate, and factual source of information? 13) Is Truth Social fiction or nonfiction? 14) How many fiction stories about going to Mars have been published? Films and books? 15) How many factual nonficton times have humans traveled to Mars? 16) Essay question. if McDonald's is down the street, why do they constantly remind you with advertising on television shows and radio that they are down the street? Do people forget about being hungry and need reminder messages on TV and radio? 17) Is Edward Bernays a nonfiction person and what did he do, Essay. SEE_ALSO_A expanded here: [Test NonFiction / War Against Nonfiction](/Important/War_Against_NonFiction/Test_Nonfiction.md)
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4c634/
 
@@ -1297,5 +1297,48 @@ The **ignorance of media ecology and literacy itself** is all over Reddit. Celeb
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng49ua5/
 
-How do you tell a Reddit user avoids citations and nonfiction? Make a list of fiction vs. non-fiction to test. <img width="1508" height="310" alt="image" src="https://github.com/user-attachments/assets/c853d0da-71f5-49ce-a601-363c2b9c25b2" />  1) Did the moon landing happen in 1969 by USA? 2) Is 9/11 an inside job? 3) Who is Q in QAnon? (see more above in earlier commentary)
+How do you tell a Reddit user avoids citations and nonfiction? Make a list of fiction vs. non-fiction to test. <img width="1508" height="310" alt="image" src="https://github.com/user-attachments/assets/c853d0da-71f5-49ce-a601-363c2b9c25b2" />  1) Did the moon landing happen in 1969 by USA? 2) Is 9/11 an inside job? 3) Who is Q in QAnon? SEE_ALSO_A expanded here: [Test NonFiction / War Against Nonfiction](/Important/War_Against_NonFiction/Test_Nonfiction.md)
+
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4afb6/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4bsz5/
+
+Reddit does not grasp the technology of cloud computing and Reddit messaging tech. Show thoughtul change. Like Donald Trump rushing to create Truth Social? Like Elon Musk rushing to create new SpaceX rockets? Maybe for Amish farmers in USA they adopt slow change, but I do not see that with Fox News HDTV content of meaning of "conservative". Techology worship, gun worship, exactly what is being "conserved" in adopting the latest Apple iPhone to use on Twitter to praise Trump? Media ecology learning and lessons are not optional. “People will come to adore the technologies that undo their capacities to think” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4cnpz/
+
+Logic of both sides. There are two and only two ansewrs. Ander one can be wrong, answer two can be wrong, as long as nobody thinks beyond 1 or 2. Fox News logic on Reddit and everywhere. "Both Sides". Ignorant answer A, ignorant answer B. That's both!
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4dyit/
+
+The best, most loyal to Putin is defined to mean best by the Putin Media Invasion of Reddit since year 2013.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4e07x/
+
+Who is funding the Reddit servers? Who is reading these Reddit comments? Why would anyone want low-effort no-identity comments by the millions that are thrown away and never seem to reach for any complex understanding or realizations that last more than minutes, because a new posting with fresh comments is being created right now!
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4e1kv/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4e5ak/
+
+These are the messages people want to share. Donald Trump shares such ideas and messages and people think they are jokes and humor. The Internet Research Agency from Russia shared these kind of messages since year 2013 all over media systems and nobody seems to have noticed the change in behaviors to favor self-harm of the USA and behave in hate-filled dehumanizing ways.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4elvs/
+
+Christian is the opening context of the message. The Bible is science fiction. Fiction storytelling like Fox News outsells nonfiction learning. Even when selling and money is not involved, people are more likely to steal and crave fiction over nonfiction learning.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4esse/
+
+Cartoon creators learn fiction story elements. Like if a cartoon mouse on The Simpsons can lift a Cartoon Cat. It requires learning. Ficiton content creation is not magical or supernatural. Fiction content creation requires learning of skills, writing skills, how to be popular skills, marketing skills, selling skills, product placement skills, publishing skills. You can't just build a fiction venue like Church or Mosque or Cinema without learning air conditioning and engineering and electrical for lighitng and sound systems. Sill centered around teaching fiction. Sharing fiction. The popularity of fiction.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4fxg0/
+
+Ignroance of the history of Church and Mosque and storytelling. Who invnted languages, who invented the Arabic language? Fiction storytellers have huge influence on the world. Donald Trump as a fiction storytelling is changing the world. Putin as a fiction storyteller is changing the world. Reddit users are blind to how Reddit content fiction changes behaviors.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4hsnd/
+
+The Reddit comment section is wehre many pepole go to learn. What they learn is concerning.
+
+
 
