@@ -1434,3 +1434,23 @@ https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats
 
 Russia did it since 2013 by invading media systems with mind-fuck. Russia created addiction to antics, addiction to nonsense, addiction to Trump as entertainment and thrills.
 
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5lkfh/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng58n56/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5fymt/
+
+Reddit media addicts society, comment creators of Reddit,  <img width="1172" height="758" alt="image" src="https://github.com/user-attachments/assets/3920ee92-0f78-4351-bc0f-29d77cc3048a" /> can't come together in common cause and make Jen Senko a household name and take on the Fox News media addicts society. That can be done ANY DAY on Reddit front page, repeated EVERY DAY, no election day or party required. Just family experience that Jen Senko shares, just the expereince of living with people who watch Fox News and repeat the same talking points as Rupert Murdoch desires. Charlie Kirk is a hosehold name now, why can PEACEFUL GOODNESS make Jen Senko a household name? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng59823/
+
+Wrong. Fiction is what Republicans offer. Donald Trump is a fiction storyteller. Truth Social is fiction. Fox News HDTV is a fiction entertainment network. Wake up to media ecology, "Media Woke".
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng59f5t/
+
+The cultural grievance is that Democrats do not adopt Fox News to be on the same page of billionare worship and weapons worship. Fiction addictions. Bible media ecology. Quran media ecology. Rupert Murdoch media ecology. This is EVERY DAY 24 hour information systems not just elections. People on Reddit keep scatching their head saying "podcaster, why?" about Charlie Kirk. Joe Rogan, Reddit itself, fiction fiction fiction fiction fiction antics and moe antics and fiction. Stand up and CALL IT OUT. 1985 book "Amusing Ourselves To Death" - WITH FICTION! September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5g5ye/
+
+Binary, one and two.  <img width="1086" height="750" alt="image" src="https://github.com/user-attachments/assets/b3167b9b-ec6a-4c6f-8069-c838b2e28fa4" /> That is exactly why we need to revive the Great Seal Teaching of how to think and count to 13 and not just count 1 or 2 binary. 
+
