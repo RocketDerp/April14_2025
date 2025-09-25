@@ -1050,3 +1050,119 @@ https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cit
 
 https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3y3is/
 
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3yjtn/
+
+The strageness of it all. "The Menace of Strageness", "The Menace of Unreality". September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3ywav/
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng4118f/
+
+Half the country started cheering on the suffering / tears of liberals. Now the other half is cheering on the suffering of MAGA / tears of conservatives. Exactly how Rusia conditioned the populatio. The prizing of Amricans suffering.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng46mst/
+
+Attraction to badness itself. <img width="892" height="862" alt="image" src="https://github.com/user-attachments/assets/23720e04-26f5-4766-a740-5c914c932978" /> As conditioned by the IRA and CA.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng47dzz/
+
+A lot of people who voted for Trump are loving it. A lot of people who voted against Trump are loving it. Enjoying the hate and mocking of MAGA.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3x3ei/
+
+Predictable and conditioned.
+
+https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng433rp/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq2bry/remember_when_they_mocked_biden_for_using/ng3ybkz/
+
+Trump's behavior works on Reddit. Fiction outsells nonfiction.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3t784/
+
+There is a crisis of one-bit logic of conservative vs. liberal. Study the whole world, the Taliban in Swat Valley Pakistan. Study what Fox News is vs. authentic understanding and comprehension. Often, it comes down to fiction vs. nonfiction. Misunderstanding vs. understanding. Comprehension vs. failur to comprehend. Acceptance of diversity vs. desire for rectangle and square categories of logic. Needing an out-group to hate as faith itself. 
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng443ny/
+
+Technology keeps having more power than humans. Our bodies are not becoming more powerful, but machinees and computers are. Standing still against technology is being blind to the power transfer. In USA, the leading self-declare conservatives are not Amish rural Americans. The self-declared Conservatives are Elon Musk, Donald Trump as role mdoels. Trump and Musk are pro-technology, pro-machine, love technology. Truth Social is technology. Twitter, owned by Musk, is technology. Fox News HDTV network, Rupert Murdoch loves technology. Rupet Murdoch is a role model of conservatives. Technology lover. When technology to build hotels and golf courses and shopping malls is what is valued, then the people Gaza / Palestine are devalued in favor of the resort entertainment technology. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng46llp/
+
+Fiction is so much more attractive to people than nonfiction. Low-effort Reddit comment messages by the millions draw an audience. Nonfiction books do not draw an audience. Repeating low-effort questions and answering them over and over and over with comments as opposed to all learning and referencing the same refined Wikipedia / Wiki style system of "on the same pages" progress.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4ektm/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng47xpv/
+
+Look outside the USA at how conservatives are educated. The Quran is science fiction storytelling, poetry entertainment. Instead of Quran in USA, people learn Fox News and memorize the talking points from Fox News like poetry. “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng419ru/
+
+Calling Russians bots, calling people bots, is a thought-terminating phrase / idea. Invoking "bot" ends discussion. Dehumanizes the situation.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng42b5p/
+
+The nonfictoin they are opressing. The complex difficulity of science and diversity in favor of fiction books like The Bible ficction media or Fox News fiction media.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng454oj/
+
+Putin announced conservatives are coming together in December 2013. Self-harm to the planet. December 20, 2013 is right before February 2014 war against Ukraine / bombing of the earth / attacking the world. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4f3ub/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng482nz/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4froz/
+
+Minds are being blown because everything changed in year 2013. The Russian Internet Research Agency and Cambridge Analytica working together won a mind war since year 2013. People are describing a dreastic change, but in denial of the source and in denial of the avoidance of learning the details. Consevatives: "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3zouq/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng43qwb/
+
+Winning the *culture war* with fiction. <img width="1662" height="346" alt="image" src="https://github.com/user-attachments/assets/7c738dae-42a2-4ff9-b026-40d83177be1b" /> Fiction is more popular than nonfiction. Humanity is not winning the culture war, addiction to fiction and addiction to mythology is taking over humanity.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3y3je/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng44hxs/
+
+The smarts and cleverness is exploiting the human brain into self harm. Like a drug dealer or booze dealer finds people willing to self-harm. Like a gun seller finds that people find it thrilling and exciting to shoot and hunt other people. War is exciting and thrilling to people. People don't call for end of hate and ar, because they prize war as a solution to problems. The problem is egoism / egomania. Absence of compassion and love, prizing of competittion and winning. To win, something other people have has to be prized.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3v6nx/
+
+Fiction is more popular than nonfiction. Fox News storytelling is more popular than comprehension and understanding of a diverse world and helping each other, helping ALL people each other. People are not calling for Russia to stop the war because it is self-harm to Russia, people want to see Russia fail. I want Russia to change thinking, adjust their mindsets, to realize they are killing children and killing people just like thier own selves.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3y3ip/
+
+Learning to talk shit about people is the attraction to Trump. <img width="1762" height="366" alt="image" src="https://github.com/user-attachments/assets/69acf685-0fd5-47d6-b394-11675e463455" /> Trump is an attractive nusance. Trump is a magnet for shit-talk. It is a toilet that the entire nation jumps into willingly out of addiction to shit-talk. And Putin is the one pulling Trump down the toilet and the entire USA with him.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3zcxz/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4012e/
+
+And it shows. People are not educated about how human learning works. Noah's Ark fiction is covered in the teaching of "Comparative Mythology". You learn that people favor fiction over nonfiction. And why MAGA and Maximun Putinization has taken over the USA since year 2013. You learn and study how human brain actually works in regards to langauge and communications. That fiction outsells nonfiction at the cienema and book stores. You learn that religion is science fiction storytelling and people devote their life to religion (science fiction storytelling devotion). You learn people devote thier life to Star Wars and create temples and Star Wars rituals and conventions. You learn that the Church and Mosque are competeing in selling langauges and science fiction storytelling. You learn media ecology. And you face up that people are willing to die for fiction. The problem is the absence of self-awareness. Democracy does not work when people have their heart-strings pulled by fiction Fox News. When rural USA population watches Rupert Murdoch billionare use fiction entertainment addictions to worship the wealthy leaders like Murdoch and friends.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4b2h8/
+
+The cults of fiction storytelling. The Levant Bible is science fiction. Church is a cult center of fiction stoytelling.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3xzqm/
+
+What's wrong with podcasters? Reddit comment creators with low-effort comment. People avoid nonfiction univessity books, flock to podcasts and low-effort Reddit comments.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng41fho/
+
+If you get a PhD in creating entertainment video games, if you get a PhD in ceating entertainment govenment run by Quran storytelling of Mecca and Saudi Arabia royalty - you can have success. Putin has PhD of fiction storytelling running his nation. Fiction is more popular than nonfiction. Look at Reddit low-effort comments, the quantity of low-effort messages that avoid same-page Wikipedia and printed book comprehensions.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng44r0v/
+
+"Belief" isn't as important as attraction. Fiction is more attractive to people than nonfiction. Look at the front page of Bluesky and Reddit, quips and mockery far outsells sincere goodness and calls for world peace.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng48ajh/
+
+People who aren't discussing abandoning the thinking of left vs. right, conservative vs. liberal, are entierly not seeing the cage of framing everything as two sides, TWO AND ONLY TWO ansewrs to every problem. Andwer 1: wrong ansewr 2: wrong. Nobody is coming up with better answers becase we can't count beyond 1 and 2. What if the answer is number 13? Where does answer 9 and answer 13 fit in with "both sides" logic?
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4amn9/
+
+Welcome to my GitHub. <img width="1808" height="314" alt="image" src="https://github.com/user-attachments/assets/69f1c679-54da-4beb-a071-df014b8969d7" /> Bible verse "1 John 4:20" from Levant some 2,000 years ago is our focus. Santa does not exist, it is a fiction story, a metaphor. Bible verse "1 John 4:20" - have you SEEN Santa? Did you go inspect the North Pole? Did you find out who funded the factory that makes the toys and who is paying for them? Did you study the long-term economic sustainability of the process? Did love and compassion come into play in gift-giving? Bible verse "1 John 4:20" - have you See Jesus? Do you see where the book says "I Love Jesus" is the WRONG interprtation and thing to say? Welcome to my GitHub. My nickname is "Round Sparrow". I am a teacher of compartive mythology here on the Internet. Donald Trump is an entertainer, Donald Trump is a fiction storyteller, a very popular entertainer with a huge following and audience! People willing to pay any price to get Donald Trump's fiction storis. People giving up their health care, people giving up healthy life on Earth to polution, to hear the fiction stories of Putina and Trump entertainers. See also: [Clown for Clown, Joke For Joke, Eye for an Eye](/Grim_Blunt/USA/Clown_for_Clown_Joke_for_Joke.md)
+
