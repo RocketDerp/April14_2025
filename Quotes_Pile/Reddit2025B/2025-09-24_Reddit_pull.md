@@ -1508,3 +1508,80 @@ https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats
 
 Fiction won. "You people are so fucked and you don’t even realize it." - yes. <img width="1274" height="1402" alt="image" src="https://github.com/user-attachments/assets/4f95dbd8-c9c8-437e-b390-cc45f8ed4f0a" /> The Internet Research Agency mind-fucked eveyone with Cambridge Analytica doctorates. People so mind-fucked they can't even see it in the ocean of low-effort comments that avoid the elephant in the room of We The People self-harming the nation as directed by the IRA / CA mind-fucking.
 
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5g4il/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng60lmi/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng64cnq/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng6an7s/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng681sc/
+
+yes. In October 2013 a book was released by a little girl https://en.wikipedia.org/wiki/I_Am_Malala speaking up. And in November 2013 Donald Trump took a private jet to Moscow to parade women for entertainment. Since roughly the same time period of November 2013, everyday people with free time and spare time on social media in USA and elsewhere in the world have had every chance to promote and recommend we all assert Malala's October 8, 2013 book. Instead, I see grey-rocking and avoidance. When terrorism becomes front page on October 7, 2023 - people are not repeating Malala's leadership asserts about terrorism. People are more thrilled by the sex private jet stories and the terrorism than they are about actually addeessing the underlying causes of poor commprehension of fiction storytelling / education crisis. Women are not beight taught and educated to speak up when abused and manipulated. ... ... ... "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng64wyp/
+
+Not if you don't learn cult deprogramming and all come together. Manics with guns and terrorists all across the world are a population of over 2.5 billlion people given the 30% estimate of this comment message. What is going to happen with weapon systems evolve and gunpowder is considered old technology and murder and killing becomes far cheaper and easier with new technology? Those 2.5 billion people who have no morals aren't going to act out the self-harm to humanity? It is as if nothing was learned from September 11, 2001 how murder-suicide works on human minds. Russia attacking Ukraine in February 2014 is another lesson people can't seem to grasp. Instead of making low-effort comments on social machines day after day, why can't people organize remedial morality lessons for 8 billion people on Earth?
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng5zb1j/
+
+The aftermath of the IRA and CA. The fallout from the Russian war against Reddit users and Twitter users and Facebook users goes way beyond Donald Trump. People are not realizing how manipulated they are.
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng604di/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng636gr/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng6468e/
+
+Social media comment addicts in USA will not stop their addiction no-identity low-quality comments in mass quantity no matter how much you try to convince them that people didn't used to have smartphones and touch devices like the Apple iPad in their face at all times messaging anti-intellectual anti-comrpehension reactions and content. That we can face up to our addiction media behavior to a Reality TV "The Apprentice" star content addiction. that our life is bettter off without millions of old-man diaper jokes and terrible nicknames and calling out orange skin with high-speed media systems all the time. Tony Clifton acts are not a good way to lead a nation. Russia has been dong this for 25 years.
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng65ten/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng60sbz/
+
+We have to educate people and inspire people that Earth is worth it. That animals and plants and reality are goodness and not to abandon life in favor of Truth Social fiction, low-effort commenting, and addiction to Fox News HDTV anti-reality.
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng614tt/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng6bauq/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng62b17/
+
+Trump has said many truthful things, but people can not tell reality from anti-reality. For example, Trump wanted Putin to be his very best friend, his BEST friend, not just a friend. But Reddit users can't recall, recency bias abounds, mind get reset in the constant deluge of low-effort commenting. https://www.hollywoodreporter.com/news/politics-news/donald-trumps-tweet-best-friend-939986/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng6bj02/
+
+"there is something wrong" that a person wants to have Donald Trump removed from the center of all attention. There is something wrong with the media enviornment of Reddit where people can't see the Donald Trump issue and constantly entertainment-wash that it's great to have a President to joke-on mock and insult all the time and Late Night Comedy television making jokes about a President is the leadershp we need! Reddit users can't escape their comment fixations and enage nonfiction paper-printed books. ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng60nkm/
+
+Blue vs. Red, Red vs. Blue. Sports mentality, "winner takes all", a loss of comprehension that governing is not about defeating We The People and attacking We The People. That's Russian informationw arfare attacking USA population and people are so bamboozled by Putin's IRA they can't face that the Internet Resarch Agency is not a hoax. It invaded Reddit. The owners of Reddit don't care who manipulates people into humor-washing Putin and Trump. Jokes are welcome, even if they wash away all goodness. An audience LOL to death. https://www.bbc.com/news/technology-43255285
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng66rq7/
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng61wm2/
+
+People do not comprehend or understand their own media anti-reality. Neil Postmans' 1985 book "Amusing Ourselves To Death" is not optional learning.
+
+https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng6ap3w/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5qp0g/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5ocbr/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5luxj/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5qykw/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5l029/
+
+Media addict tribes vs. podcaster media addict tribes. People raise by parent to believe it is very important to hate out-group hate media. that if you are raised on Quran you must hate Bible science fiction readers. That if you like one rock music band, it's important to declare what you hate. In almost all situations, no comparative mythology or metaphr to metaphor translation teachings. A society that can't see the attraction people have to Donald Trump is an attraction to hate. The *hate harder* values of USA in total nation, everyone. “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5r7op/
+
+“Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1955.
+
+
+
+
