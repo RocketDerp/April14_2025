@@ -1454,3 +1454,30 @@ https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats
 
 Binary, one and two.  <img width="1086" height="750" alt="image" src="https://github.com/user-attachments/assets/b3167b9b-ec6a-4c6f-8069-c838b2e28fa4" /> That is exactly why we need to revive the Great Seal Teaching of how to think and count to 13 and not just count 1 or 2 binary. 
 
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng56utd/
+
+Give up on the high road nobody ever took. Nobody defines what the high road means. It's a wildcad of reader imagination. The crisis is staring Reddit device users in the face. Reddit itself. Fiction is what Republicans offer. Donald Trump is a fiction storyteller. Truth Social is fiction. Fox News HDTV is a fiction entertainment network. Wake up to media ecology, "Media Woke".
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5fqhx/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5kz0i/
+
+MAGA doesn't like nonfiction. Reddit doesn't like nonfiction. Putin won the War Against Nonfiction. Defined September 9, 2014 in this article: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng55ha0/
+
+Insulting and mocking and short-tiny messaging on Reddit. This is the problem, Twitter-thinking simplicity that Russia has used to wreck the mindsets of USA since year 2013.
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5n6sk/
+
+Low-effort comments on Reddit are popular. People who spend 3 hours reading thousands of low-effort disposable message comments who won't read 3 pages about how Russia is defeating the USA in an information war. Because it isn't considered attractive or entertaining enough to repeat and sustain focus on. Where Trump and RFK Jr gets constant focus and attention. Fox News antics of fiction are what sell. Nonfiction will not draw Reddit attention on the problem of attention itself being focused on fiction and low-effort disposable commenting.
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng55gk6/
+
+Bernies is too old. And the Reddit comment section can't even make REDDIT leaders good. Why can't new 35 year old and 40 year old people be found in all the Internet USA to lead? Where are the people with good ideas and honest sincere nonfiction leadership? Bernie Sanders is very very old. There is something WRONG that USA can't name 30 or 50 or 100 good people to lead.
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng577mj/
+
+People can read. Reading isn't the problem as simple as this short tiny-length message frames it. Comphrenesion, understanding. Wikipedia assocations of topic to topic as opposed to Bluesky and Reddit streams and streams of comments that do not educate and do not teach! Junk messages commenting over and over and over without any desire for refinement and editng and getting on GOOD pages of "the samee page" like Wikipedia / Wiki systems do! Addiction to tiny comments is wrecking complex understanding and comrpehension that diverse democracy and a world of over 8 billion people requires. Simple-think Twitter-logic reactionary thinking is wrecking reason thinking. Since the IRA invaded USA media systems in year 2013, politics is now EVERY DAY ALL DAY ANY DAY topic. USA society did not used to be like this. There were not media machines cranking out topics of the White House all the time any time day or night on the most dumb-down Reddit-commenting style topics. People have lost all sense of goodness itself, bamboozled into Truth Social commeting all day and night by Russia! ... ... ... “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re **no longer interested in finding out the truth**. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5613z/
