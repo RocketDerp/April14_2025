@@ -935,3 +935,8 @@ https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_t
 To normal-wash the sitaution. Just another day.
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng2b33t/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npssxm/breaking_1200_detainees_from_alligator_alcatraz/ng2a3qj/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1npssxm/breaking_1200_detainees_from_alligator_alcatraz/ng2p2dc/
+
