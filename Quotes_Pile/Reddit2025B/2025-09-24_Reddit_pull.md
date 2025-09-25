@@ -940,3 +940,7 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1npssxm/breaking_1200_detainees_
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1npssxm/breaking_1200_detainees_from_alligator_alcatraz/ng2p2dc/
 
+https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3yggn/
+
+People imagine rage teaching hasn't been conditioned by Cambridge Analytica. To hate, to rage, agaist American people instead of fighting Russia and defending NATO and USA from self-harm mind programming.
+
