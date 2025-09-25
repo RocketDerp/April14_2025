@@ -1609,5 +1609,83 @@ https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_k
 
 https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng6bpqj/
 
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7jnlj/
 
+People don't consider Stephen King books and films dilususional. Fiction stories are more popular to people than nonfiction serious learning. Donald Trump and Putin provide fiction storytelling as leaders. Fox News HDTV also provides fiction storytelling.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7gstu/
+
+Reddit comment audience flocks to fiction storytelling and enjoys describng how the acting is bad in scome scenes, and the plot isn't so good in the ending. Entertainment and use of Twitter meme venue matters more to people than sincere honest everyday people using real names on Reddit comments. Anythiung to avoid the nonfiction serious learning of how Russian Putin government operates and manipulates everyday people.. ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng735sh/
+
+People fall for the Internet Research Agency right on Reddit. Unwilling to staand up evenw when little girls are killed by measles! Or little boys abused by parents because of Russsia. Instead, what's important is creatin a lot of comment messages, not getting on the same NONFICTION page and having people wake up from their meme stupors and LOL amusement about golf outings and orange skin color and other unimportant entertainment commentary. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7f016/
+
+How hard is it to find actors for Hollywood TV shows and films? Plenty of people line up to be on TV to tell fction storieis. People line up on Reddit to tell ficiton comments. Anything to avoid nonfiction seirous learning and sustained focus on what matters and is important.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7ipo7/
+
+The scariest thing to me is if people assocaite the removal of Donald Trump with the sustained focus onthe magical Epstein List ... when the next self-harm leader comes along that doesn't have a child sex act, they still won't know how to remove a President because hate makes for bad leaders. Karoline Leavitt is only 27 years old and not on the Epstein List, but she should be removed because she manipulates / uses deception leadership / and uses out-group hate as the foundation for motivation. But peoopleon Reddit act as if the only imporatnt focus on Donald  Trump is the magical Epstein List. Not removing Trump because he is raising our children to admire liars and falsehoods, to trust liars like Putin, and hate harder as a USA motivationt technique. OPERA_A I can't stnad the hate attitudes, the faith in hate, and the worship of hate every day all day that Karoline Leavitt and Donald Trump encourage and promote. That is the problem I wam tryning to address with my GitHub commentary. Hate sucks, the USA ocean of hate fail is a terrible place to live, we need reformation. Hate can't be the Face of the American Dream! https://www.youtube.com/watch?v=Iww5eeEjxiI
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng74l01/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng72d97/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng776xv/
+
+So funny and enteratining for the Reddit crowd that arrives for every Twitter message from the White House to taste-test and comment about. A society of people who find Trump White House to be a constant source of enteratinment and amusement.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng721nd/
+
+If the bartender was bamboozed to serve Russian IRA content like Reddit owners and Facebook owners, then yes, blaming the bartender for intxociating the public with Kremlin mind=-fuck since March 2013 is a crisis.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng71wu0/
+
+Amusement-washing the situation. Entertainment-washing. The constant Reddit machines deliveering comments taht everything the Trump White House does is sports-like enteratinment. Anything to avoid sustained repeating nonfocus important assertiosn to fight back against the Russians. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng76tid/
+
+Fiction otusells on Reddit content, Twitter content, and White House has found a ready audience who wants fiction. People don't consider Star Wars Andor to be "ies" because in fiction, it's normal to fabricate reality. That's the draw for audience. Borning uninteresting nonfiction section of the public library doesn't draw Reddit and Twitter crowds. Anything to avoid sustained repeating nonfocus important assertiosn to fight back against the Russians. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng76wxd/
+
+People like fiction leadership and low-effort comments.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7abp5/
+
+Fiction audience members and sports fans in the audience say the most banal insults to women actresses about their personal life. Like how Donald Trump tells Rosie to on social media. https://www.newsweek.com/donald-trump-threatens-remove-rosie-odonnell-us-citizenship-2124281
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7euaf/
+
+Can Reddit users every focus on nonfiction learning of the problems with high-speed Reddit media and high-speed Fox News HDTV and study nonfiction about how Russia has manpulated Americans? Can Reddit comment call for people to stay on the same topic of standing up to Russian media techniques?
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7eypu/
+
+How are Americans so stupid? How about flocking to low-effort Reddit comments and Twitter messages like this one shared off Twitter to Reddit? And losing a war to Russia since year 2013 andnot learning about addiction to low-quality commenting and information? ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7eyzs/
+
+The Simpsons writers make up story and content over and over for decades. People have decided that low-effort commenting and fiction storytelling is what they enjoy and engage while avoiding nonfiction learning of how Russian informaiton warfare worksand Surkov Russian governing methods.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7hwqz/
+
+It is like being in a fiction film and someone in he audience asking questions because they can't understand the story.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7i93i/
+
+It's like The Simpsons story writers can animate anything they want. Or South Park story writers can animate any fiction they want and audiences tune in on Reddit comment sections.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7ikia/
+
+Reddit users don't just tolerate it, they choose fiction for entertainment all the time. People prize fiction, and avoid nonficiton learning about how Russian information warfare works on social device users. ... ... ... "The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7j8f9/
+
+Audiences on Reddit cheer out how this fiction Twitter storytellingis so much better than organized nonfiction learning of how Russian information warfare defeated the USA since year 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7hi7p/
+
+In fiction addiction feeding, calling ever Twitter message a murder on Reality Reddit seems to increase audience viewership.
 
