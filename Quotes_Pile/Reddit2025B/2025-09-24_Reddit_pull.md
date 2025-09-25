@@ -751,3 +751,16 @@ https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_
 
 Out-group hate messages. Left vs. right, right vs. left. <img width="924" height="392" alt="image" src="https://github.com/user-attachments/assets/085423aa-013b-4c8b-83cd-1a0560de618e" /> 
 Exactly the patterns Russian Internet Research Agency conditioned in USA population. People who prize hate, people who are attracted to hate, are attracted to leaders like Charlie Kirk to spread hate messages, attracted to Elon Musk for hate messaging, attracted to machines like Reddit and Twitter machines to dehumanize presons with hate messaging. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng183l2/
+
+Donald Trump is a really good actor and has turned the entire USA into addicts to hate messages and fiction off Truth Social. People can not stop flocking to Donald Trump for over TEN YEARS AND THREE MONTHS in their addiction to Tony Clifton mocking acts.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng1cs7l/
+
+She is a TikTok fiction content creator. She is a media star who is attracted to another fiction content creator. It is fiction media all the way down. And look at the Reddit comment section full of media addicts attracted to TikTok content to mock and insult. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage, etc, etc, etc, etc. Media ecology learning is in essential to rescue the USA! All persons age 12 to age 120 need to study Neil Postman ASAP! We are in feedback loops of fiction vs. fiction. High-speed messaging addictions.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng1cunb/
+
+You ae in a cult. You keep hearing cult cult cult on Reddit. Who is rescuing people from Charlie Kirk podcast media cults? People standing around while Russia defeats the USA and commenting about the cult is the bystander effect. https://en.wikipedia.org/wiki/Bystander_effect
+
