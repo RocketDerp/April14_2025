@@ -1689,3 +1689,61 @@ https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_
 
 In fiction addiction feeding, calling ever Twitter message a murder on Reality Reddit seems to increase audience viewership.
 
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng73jjl/
+
+What is happening to USA since year 2013? LMAO funny entertainment leadership as conditioned by the Russian IRA.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng74ljd/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng77yth/
+
+Fans call out their favorite entertainments.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7cm2i/
+
+Absolute moronson Reddit who in 2016 still couldn't recognize the Russian media invasion of USA since March 2013.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng797bf/
+
+The reddit comment section timeline. The timeline of avoiding the nonfiction section of the public library in amusement addiction. Entertainment addicts on meme sites timeline. "My dad predicted Trump in 1985 – it's not Orwell, he warned, it's Brave New World. Andrew Postman. Thursday 2 Feb 2017 13.09 EST" https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7kazn/
+
+This comment speaks for the situation of the Reddit audience behaviors.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng79psy/
+
+Audience enjoys Tony Clifton act, eating The Onion thinking that the satire Trump does is accidental. Entirely uneducated Reddit community in how Russian Surkov governing works for the past 24 years. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7bl4q/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7emg9/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7o0hc/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7f07p/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng77edl/
+
+This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng74td8/
+
+You hate to admit the truth of how your brain gets exploited and you don't recognize that someone else noticed and that is Putin and Trump. Russia techniques you flock to compuslive and do not understand. No educaiton on how information warfare works.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng76hra/
+
+Compusive framing as entertaining fiction, as conditioned by Cambridge Analytica mental manipulation of Reddit users.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7bt82/
+
+Tony Clifton is the world's greatest entertainer. Mr. Entertainment NYC screenplay. https://www.youtube.com/watch?v=5ueiKIb74KE
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng77xbt/
+
+But you guys on Reddit don't realize that it's Rusian information warfare and your are all owned by Putin through your terrible taste in Reality TV amusement and low-effort comments.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7fjlr/
+
+<img width="1372" height="478" alt="image" src="https://github.com/user-attachments/assets/b8652a77-fca1-4679-bb2c-f58811e59fe8" /> Reality has turned into Russia's screen game ARG that you lost. Low-effort comments that get abandoned hours later, people using social machines wtih spare time and free time, is a distraction from organizing sustained important focus on nonfiction learning of how Russia won an information war since year 2013. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
