@@ -1582,6 +1582,10 @@ https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_k
 
 “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1955.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5p4a6/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5kw9b/
+
 
 
 
