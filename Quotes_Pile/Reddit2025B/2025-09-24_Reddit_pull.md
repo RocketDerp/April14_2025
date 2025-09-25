@@ -1210,3 +1210,52 @@ https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_
 
 The Reddit comment sectin parrots a lot of stuff. People with no-identity attracted to very low-effort very thoughtless comments by the millions that drown out nonfiction learning.
 
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3vpr1/
+
+Paradox in inverted symbolism blows audience minds.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3yfgy/
+
+Cult of comment messages. The **ignorance of media ecology and literacy itself** is all over Reddit. Celebration of anti-learning culture. Conservatives were masters of teaching and university. "particularly the Catholic Church in medieval Europe, was instrumental in the creation and development of the earliest universities. These institutions emerged from the Church's cathedral and monastic schools, which preserved knowledge after the fall of the Roman Empire and later evolved into centers for advanced learning, initially to train clergy" https://catholiceducation.org/en/education/the-catholic-church-and-the-creation-of-the-university.html
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3yzri/
+
+A fundmental inability to grasp what conservative and Republicans stand for. Telling other people to adopt Allah / Jesus / fiction storytelling. They have gaken over USA government to promote their favorite fiction stories as leadership. Reddit community is very ignorant and blind to waht is happening in front of them.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng40ld4/
+
+Irony blows Reddit consumer audiences minds. People are not even realizing their minds are blow. The lack of USA self-awareness. ... ... ... “The other nine, decent, hard-working, ordinarily intelligent and honest men, did not know before 1933 that Nazism was evil. They did not know between 1933 and 1945 that it was evil. And they do not know it now. None of them ever knew, or now knows, Nazism as we knew and know it; and they lived under it, served it, and, indeed, made it.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933–45. Published 1955.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng411js/
+
+You should have to declare if you believe Star Wars 1977 is nonfiction. Declare if you think Quran from year 635 is nonfiction. Declare if you think The Bible is nonfiction. Declare if you think Reddit comments are nonfiction. Declare if you think Truth Social is nonfiction. Declare if you think Fox News HDTV is nonfiction. People can and do create fiction content, Hollywood films and TV shows are incredibly popular. People go to unviersity to learn fiction. People go to Reddit comment sections to learn fiction. People go to Truth Social to learn fiction. A univesity and Reddit are both teaching systems. Just like Newsmax and Fox News are teaching systems.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng41f5b/
+
+Fiction addicts are attracted to fiction storytelling. Just like Reddit audiences favor fiction.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng425b5/
+
+Reddit messages promoting gun shooting violence, promoting school shootings. Gun worship society. The 2014 film Interstellar has no space lasers and gun shootouts, so it doesn't attract most fiction lovers.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng42dyi/
+
+The **ignorance of media ecology and literacy itself** is all over Reddit. Celebration of anti-learning culture. Conservatives were masters of teaching and university. "particularly the Catholic Church in medieval Europe, was instrumental in the creation and development of the earliest universities. These institutions emerged from the Church's cathedral and monastic schools, which preserved knowledge after the fall of the Roman Empire and later evolved into centers for advanced learning, initially to train clergy" https://catholiceducation.org/en/education/the-catholic-church-and-the-creation-of-the-university.html
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng43jo4/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4l17n/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng44mv2/
+
+Who decides what is fiction or nonfiction? Is The Bible fiction? Are Reddit comments nonfiction to people who consume them over and over every day in an craving to avoid books and serious learning?
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng44r86/
+
+“Schizophrenia may be a necessary consequence of literacy.” ― Marshall McLuhan, La galaxia Gutenberg: Génesis del homo typographicus. Page 32.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4503d/
+
+Observations about the way the world *actually works*. 1) Donald Trump is popular because hate messages and team sports of A hates B and B hates A are popular. 2) Entertainment leader Donald Trump, Reality TV "The Apprentice" star Donald Trump is what people flock to every day on Reddit / Bluesky / Twitter / Fox News entertainemnt venues. Amusment mills. 3) Putin won an informaito war against Reddit using the Internet Research Agency and Cambridge Analytica since year 2013 and Reddit community can not go to nonfiction books and learning on the subject. Denial abounds. 4) Sports and fiction are very popular and sports-based governing and entertainment-based governing is far more popular than science-based nonfiction seirous thinking governing. "Sleep Joe Biden" and intelligence is boring in the real world of screen game addicts.  5) The human brain is not a logic machine.  ... ... ...
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
