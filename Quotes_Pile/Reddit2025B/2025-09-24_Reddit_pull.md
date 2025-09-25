@@ -764,3 +764,46 @@ https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_
 
 You ae in a cult. You keep hearing cult cult cult on Reddit. Who is rescuing people from Charlie Kirk podcast media cults? People standing around while Russia defeats the USA and commenting about the cult is the bystander effect. https://en.wikipedia.org/wiki/Bystander_effect
 
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1gize/
+
+Reddit comment with no nonfiction enagement. No abilty to cite a book, an author, a link. Just drowning out impotant undersanding iwth low-effort comments. The Cold War did not end. September 9, 2014 NATO spelled it out to the public, but people can not recognize the invasion of Reddit as cold war! https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1kt5l/
+
+At least ONE person provides an actaul book reference and not just comments. But it still gets drowned out by people being so addicted to using all their free time and spare time avoiding nonfiction and instead react-commenting.
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1mcs7/
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1d88m/
+
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng19nqp/
+
+A recently created Reddit account making pro-Trump pro-MAGA comments to downplay the Russian information warfare right on Reddit itself. 
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1m66s/
+
+Exactly. <img width="1008" height="844" alt="image" src="https://github.com/user-attachments/assets/cddddc1f-5723-448b-b4e9-039c6bc88bce" /> Tons of low-effort disposable short-lifespan comments, that's what people want, low-quality information and no engagement with nonfiction learning. Free-time and spare time is spent wasted on anti-understanding and anti-comrpehension media envionrment. How do we get people to rally behind serious and important topics instead of using social machines to banality-wash and drown out comprehension?
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1yjkn/
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1sqle/
+
+Trump White House has been encouraging USA to attack Greenland and Canada in 2025. https://www.usnews.com/news/u-s-news-decision-points/articles/2025-03-14/trump-still-wants-canada-greenland-and-the-panama-canal
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1bucp/
+
+Reddit messages to satire-wash and amusemnt-wash the deaths of Ukraine people standing up for democracy and freedom. To turn this into a Reddit comment section video game of entertainment. To dehumanize via satire-washing and comedy-washing the seious situations. 
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1z9k4/
+
+Reminder: I have lived in 4 islamic nations and traveled to live in North Africa after my December 16, 2009 prediction of the Arab Spring. Every Muslim / Islam supporter in the world can go to social machines or create signs saying: We should have Litened to Malala's book that was published in October 2013. Instead of continuing to act like terrorisma nd war is acceptable in this world. But peole instead gre-rock Malala on social machines, as if MLK Jr and Malala are not good enough teachers. “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013. a decade before October 7, 2013 terrorism attacks. But people never consider ending hate to be good enough messages to share on social media. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1nc1f/
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng2190s/
+
+https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1e0mx/
+
+This is what people crave as comments, using their spare time and free time for these messages.
