@@ -589,3 +589,33 @@ https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead
 
 Social media laugh-track, "LMAO", how amusing it is when Trump gets in the news for antics politics. Tony Clifton acts blow minds of Reddit audience.
 
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0fje0/
+
+Topics of funeral waks and funeral rituals, James Joyce's Finnegans Wake year 1924 onward publication about media behaivors of TikTok and Reddit.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0otyp/
+
+OPERA_A The song of Finnegans Wake funeral rituals.  https://www.youtube.com/watch?v=YdizZtOddC8
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng1ah6y/
+
+OPERA_A Repeat song track until everyone have read the book by James Joyce. Wasn't it the truth I told you?  https://www.youtube.com/watch?v=YdizZtOddC8
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0r6xu/
+
+War against nonfiction. Constantly favoring fiction.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0cooz/
+
+Autism war, war against associative thinking. War against Wikipedia style thinking. “Associative thinkers see relations and connections everywhere and tend not to categorize things. When I hear or read a certain word, I suddenly see a lot of “pictures” in my mind that have something to do with that word. This happens in quite an unstructured and even chaotic way. It's a complicated spiderweb of memories, pictures, and thoughts.” - Casey "Remrov" Vormer, Connecting With The Autism Spectrum: How To Talk, How To Listen, And Why You Shouldn’t Call It High-Functioning. page 19 
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0k2pc/
+
+People ahve spare time and free time on Reddit to comment. But use that free time to read nonfiction. Actual war on science via the Russian Internet Research Agency, nonfiction leraning Reddit comment community avoids. Documented since August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0r5tt/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0oxug/
+
+Gang singlas, special phrases for gang members of the media street gangs / TikTok street gang messaging. See also Levant science fiction story street gangs of Quran / Torah / Bibble and special phrases and language used to fight competing street gangs of science fiction stories. And to attack authentic science (nonfiction). Been going on for thousands and thousands of years. See also: "Harlan Ellison, Middle East 8000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+
