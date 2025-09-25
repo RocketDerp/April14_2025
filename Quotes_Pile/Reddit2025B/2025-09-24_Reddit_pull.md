@@ -691,3 +691,38 @@ https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_
 Reddit comments are compusively behaving as conditioned by Cambridge Analytica in a Reddit comment cult. Unable to recall or enage nonfiction learning about cult behaviors / cult deprogramming and mind manipulation used on Reddit itself. ... ... ... https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy "This is not just a story about social psychology and data analytics. It has to be understood in terms of a military contractor using military strategies on a civilian population. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, it raises the question of whether we are actually living in a democracy or not.” Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this powerful new way,” David tells me."
 
 https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0g5t0/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0kq70/
+
+Reddit fiction media cult against Church fiction media cult. Media cult vs. media cult. People giving simplistic answers declaring that they can fully comprehend complex media ecology situations with phrase matching. Crating tiny Reddit comments that demonstrate no self-awarenss of Reddit behaviors and how the Russian Internet Research Agency has manipulated people into simple-think avoidance of nonfiction learning. Why not rescue cult members? Our entire nation is being wrecked by addicts to fiction in the White House and adidicts to Charlie Kirk podcast fiction? Why not stand up and speak out that hate is wrecking the USA? Why not stand up and call for emergency teaching of nonfiction about cult deprogramming? Such as Jen Senko's film: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0h3cp/
+
+On TikTok, she uses he REAL name, her REAL face and image, and Reddit users do everything they can to hide their rea identity, their REAL state. She says she lives in Colorado, she tells you where she traveled. She isn't self-dehuamnizign herself like Reddit comment section users regulary do in fear of being a human in front of a camera and using real names. There is a complete lack of media ecology comprehension in socity and it has wrecked the USA. Russia had mind-fucked everyone using Internet media systems and people are messaging Hate Americans, over and over, Hate Americans, and not standing up to Putin / Russia attacking the world wide web! ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0i87u/
+
+Reddit community promotes hate. Fuck Americans messages. Not rescue people from Russian information warfare, but do everything you can to AVOID resucing people from Russian information warfare since year 2013 that has defeated NATO and USA defenses. ... ... ...
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0kk9a/
+
+Shallow and superficial. Just like RFK Jr. can spot autistic people with body languages. Parroting MAGA talking points on Reddit messages. https://www.c-span.org/clip/public-affairs-event/user-clip-rfk-says-he-can-eyeball-mitochondrial-challenges-in-children-passing-by-in-airports/5170716
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0kvqn/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0l7lv/
+
+People use comments for over 10 years to describe the USA media cult behaviors over and over but do not want to actually use social media to promote solutions and answers, being on the same page, of critical and important topics. Instead, free time and spare time is all spent on disposable comments instead of organized learning material. Such as Jen Senko's 2015 nonfiction film: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0lut6/
+
+Social media laugh track, "LOL" messages.
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0myzr/
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0okwk/
+
+Reddit users just don't get it. The world didn't have Internet and cameras 150 years ago. Everything has changed, we are in a hyper-real world of MAGA and Fox News now in September 2025. **Charlie Kirk was a media personality**, a media practitioner, a podcaster, murdred in front of a live audience holding high-speed internet devices and cameras. The shot was beyond fiction images to people. Many people have never seen images of a killing like this captued by so many audience members and cameras and spread like wildfire over media networks all across the planet! There is a complete lack of understanding of media ecology in the Reddit community! University of Toronto **media ecology professor**, as in Reddit high-speed media systems and TikTok high-speed media media ecology... "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - Marshall McLuhan. page 291 - A McLuhan Sourcebook
+
+https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0p419/
