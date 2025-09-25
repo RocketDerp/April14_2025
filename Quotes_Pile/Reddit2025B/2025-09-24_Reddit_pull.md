@@ -816,3 +816,33 @@ https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_wa
 
 Why isn't the entire World Wide Web coming together to do this? Why isn't Reddit posting every 12 horus that we all need to put our attention on convincing domestic Russian people to stop supporting Putin and how we will help with mailing packages, offering education, offering teaching? Why are people all over the world asking mental health professionals and therapists to teach Russian people why war is bad? Instead, spae time and free time goes into reaction comments on meme media platforms.
 
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng1vv59/
+
+Comedy-washing abounds.
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng1xz9k/
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng20a9j/
+
+Entertainment-washing, comedy-washing, just like Bluesky comments and Reddit comments constantly do with Trump and MAGA. Turning self-harm of the USA into thrilling media venue (Reddit / Bluesky) content addictions. Grinding away with memes and humor to normalize the toxic situation. Instead of using nonfiction to teach about media addiction itself being the power of Putin and Trump domination.
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng1y0mo/
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng221rx/
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng24xmv/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng1zrhr/
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng253ay/
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng21itq/
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng1yo0f/
+
+https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng23kno/
+
+Why oh why can social media users not get behind Malala's reformation of Levant faiths and abuses of humanism?
+
