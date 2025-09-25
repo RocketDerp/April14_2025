@@ -531,3 +531,34 @@ https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead
 
 Reddit low-efort comment community is a joke. Unable to engage nonfiction learning of Reddit behaviors (media ecology from Neil Postman) and nonfiction learning of Russian information warfare.
 
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0jyp2/
+
+Exacty the mind expoits that Putin and Surkov mastered 25 years ago and are exploiting the Reddit and Bluesky audiences. People who compusively flock to Reddit and LOL LOL at Donald Trump every time there is an image or quote or video of the White House antics.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0oh77/
+
+People don't understand their own inability to engage nonfiction learning on the subject. such as: "The 'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021 — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0stra/
+
+Note the compusive name-calling, adopted behavior of Donald Trump on Truth Social and Twitter. Insulting and name-calling.
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng11a3w/
+
+Audience of President Tony Clifton witness Tony CLifton performer diss and insult others, thinks Tony Clifton isn't self-aware of his fat suit and clothing color mismatches. Eating The Onion satire, this Reddit comment section can't see past the Reality TV that Trump is an actor. That Surkov Russian techniques are adapted to USA / North American audiences. Like how "the Office" ficiton show is imported from the UK to USA and altered.... ... ... Published January 2015, before Trump started run for office in June 2015: https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng14gyg/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng14nxp/
+
+Reddit messages mockery-washing and promoting the Trump Total Mockery messaging of "low I.Q." to normalize and Reddit-wash Trump / promote Trump thinking systems. https://www.politico.com/story/2019/05/30/donald-trump-iq-intelligence-1347149 
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng0sf2f/
+
+Mind blown, can't believe reality. Exactly how Russia won since year 2013, defeating USA, defeating Reddit. A community of people unable to context change thier minds to nonfiction and learn. Published September 9, 2014 - more than eleven full years ago, describing what was already happening in 2014. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng15f0b/
+
+Reddit community loves low-effort comments, millions and millions of comment messages. Free time and spare time flocking to no-identity comment messages that do not inform, just create laugh-tracks and mocking-track sot the situation for OVER TEN YEARS AND THREE MONTHS. Unable to engage nonfiction serious leanring on waht is going on and how Russia dfeated NATO and USA.  Published September 9, 2014 - more than eleven full years ago, describing what was already happening in 2014. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+
