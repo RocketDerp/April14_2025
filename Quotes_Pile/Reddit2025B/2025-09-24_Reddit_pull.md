@@ -1496,3 +1496,15 @@ https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats
 
 We The People drunk on low-effort Reddit comments and Fox News HDTV.  Why can't people on Reddit use spare time and free time to promot Jen Senko's film instead of creating far less important comment messages? Why hasn't Reddit tried to make Jen Senko a household name to confront cult behaviors of media addicts? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5b4ow/
+
+Twitter-think wins.. Truth social wins. White House driven by antics and Putin Surkov media techniques. Fox News wins. Low-effort commenting is where the spare time and free time is spent.
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5djxu/
+
+He will be age 73. That's what audiences cheer for old white men.
+
+https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5einx/
+
+Fiction won. "You people are so fucked and you don’t even realize it." - yes. The Internet Research Agency mind-fucked eveyone with Cambridge Analytica doctorates. People so mind-fucked they can't even see it in the ocean of low-effort comments that avoid the elephant in the room of We The People self-harming the nation as directed by the IRA / CA mind-fucking.
+
