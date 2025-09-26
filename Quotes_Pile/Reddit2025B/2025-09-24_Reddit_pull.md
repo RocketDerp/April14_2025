@@ -784,7 +784,7 @@ A recently created Reddit account making pro-Trump pro-MAGA comments to downplay
 
 https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1m66s/
 
-Exactly. <img width="1008" height="844" alt="image" src="https://github.com/user-attachments/assets/cddddc1f-5723-448b-b4e9-039c6bc88bce" /> Tons of low-effort disposable short-lifespan comments, that's what people want, low-quality information and no engagement with nonfiction learning. Free-time and spare time is spent wasted on anti-understanding and anti-comrpehension media envionrment. How do we get people to rally behind serious and important topics instead of using social machines to banality-wash and drown out comprehension?
+Exactly. <img width="1008" height="844" alt="image" src="https://github.com/user-attachments/assets/cddddc1f-5723-448b-b4e9-039c6bc88bce" /> Tons of low-effort disposable short-lifespan comments, that's what people want, low-quality information and no engagement with nonfiction learning. Free-time and spare time is spent wasted on anti-understanding and anti-comprehension media environment. How do we get people to rally behind serious and important topics instead of using social machines to banality-wash and drown out comprehension?
 
 https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1yjkn/
 
@@ -794,11 +794,11 @@ Trump White House has been encouraging USA to attack Greenland and Canada in 202
 
 https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1bucp/
 
-Reddit messages to satire-wash and amusemnt-wash the deaths of Ukraine people standing up for democracy and freedom. To turn this into a Reddit comment section video game of entertainment. To dehumanize via satire-washing and comedy-washing the seious situations. 
+Reddit messages to satire-wash and amusement-wash the deaths of Ukraine people standing up for democracy and freedom. To turn this into a Reddit comment section video game of entertainment. To dehumanize via satire-washing and comedy-washing the serious situations. 
 
 https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1z9k4/
 
-Reminder: I have lived in 4 islamic nations and traveled to live in North Africa after my December 16, 2009 prediction of the Arab Spring. Every Muslim / Islam supporter in the world can go to social machines or create signs saying: We should have Litened to Malala's book that was published in October 2013. Instead of continuing to act like terrorisma nd war is acceptable in this world. But peole instead gre-rock Malala on social machines, as if MLK Jr and Malala are not good enough teachers. “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013. a decade before October 7, 2013 terrorism attacks. But people never consider ending hate to be good enough messages to share on social media. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+Reminder: I have lived in 4 Islamic nations and traveled to live in North Africa after my December 16, 2009 prediction of the Arab Spring. Every Muslim / Islam supporter in the world can go to social machines or create signs saying: We should have Lightened to Malala's book that was published in October 2013. Instead of continuing to act like terrorism and war is acceptable in this world. But people instead grey-rock Malala on social machines, as if MLK Jr and Malala are not good enough teachers. “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013. a decade before October 7, 2023 terrorism attacks. But people never consider ending hate to be good enough messages to share on social media. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
 https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1nc1f/
 
@@ -810,11 +810,11 @@ This is what people crave as comments, using their spare time and free time for 
 
 https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1cfqi/
 
-Since March 2013 the Russian Internet Research Agency has been wrecking hearts and minds of the enemy via Reddit, Twitter, Facebook, etc. Making absurd Trump and sureal MAGA the cneter of endless mockery. Turning the USA into a Total Mockery values nation. Endlessly name-calling, trash-talking, insulting, hate-message of Ameican people. To turn the USA into a unwelcome nation on the world stage of history. Surkov spelled out that the Ukraine war would not end. This was publsihed December 31, 2014 on the BBC by Adam Curtis: "A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year. In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - https://www.youtube.com/watch?v=h9_L9GRRsQo
+Since March 2013 the Russian Internet Research Agency has been wrecking hearts and minds of the enemy via Reddit, Twitter, Facebook, etc. Making absurd Trump and surreal MAGA the center of endless mockery. Turning the USA into a Total Mockery values nation. Endlessly name-calling, trash-talking, insulting, hate-message of American people. To turn the USA into a unwelcome nation on the world stage of history. Surkov spelled out that the Ukraine war would not end. This was published December 31, 2014 on the BBC by Adam Curtis: "A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year. In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - https://www.youtube.com/watch?v=h9_L9GRRsQo
 
 https://old.reddit.com/r/worldnews/comments/1npqyab/russia_says_no_choice_but_war_after_trump_uturn/ng1cxkh/
 
-Why isn't the entire World Wide Web coming together to do this? Why isn't Reddit posting every 12 horus that we all need to put our attention on convincing domestic Russian people to stop supporting Putin and how we will help with mailing packages, offering education, offering teaching? Why are people all over the world asking mental health professionals and therapists to teach Russian people why war is bad? Instead, spae time and free time goes into reaction comments on meme media platforms.
+Why isn't the entire World Wide Web coming together to do this? Why isn't Reddit posting every 12 hours that we all need to put our attention on convincing domestic Russian people to stop supporting Putin and how we will help with mailing packages, offering education, offering teaching? Why are people all over the world asking mental health professionals and therapists to teach Russian people why war is bad? Instead, spae time and free time goes into reaction comments on meme media platforms.
 
 https://old.reddit.com/r/popculturechat/comments/1nptjvj/comedian_zach_woods_calls_out_comedians_who_are/ng1vv59/
 
@@ -852,13 +852,13 @@ https://old.reddit.com/r/science/comments/1npoqxf/highmarkup_hospitals_are_overw
 
 https://old.reddit.com/r/science/comments/1npoqxf/highmarkup_hospitals_are_overwhelmingly_forprofit/ng1frk1/
 
-There are over 8 billion people on Earth. The Internet was invented by the United States of America. Wikipedia was invented in USA. Why are we not open sourcing a WikiMdical for all humanity? Driving down the cost of education? Documenting every drug and every medical hardware / hospital hardware / abmulance hardware - and trying to make it all public domain for the common good of humanity? Including preventative and emergency care? People KNOW of systems like Wikipedia, but want to spend free time and spare time creating millions and millions of low-value social media comments instead of coming together for common causes. Even hospital software apps and doctors office apps to be open source and shared all across the world for common improvement. We all have a physical body, we all have a brian for mental health, why are we not sharing and pooling together in common cause? Why isn't curing disseases and saving lives not incentive and motivation for people to work together?
+There are over 8 billion people on Earth. The Internet was invented by the United States of America. Wikipedia was invented in USA. Why are we not open sourcing a Wiki Medical for all humanity? Driving down the cost of education? Documenting every drug and every medical hardware / hospital hardware / ambulance hardware - and trying to make it all public domain for the common good of humanity? Including preventative and emergency care? People KNOW of systems like Wikipedia, but want to spend free time and spare time creating millions and millions of low-value social media comments instead of coming together for common causes. Even hospital software apps and doctors office apps to be open source and shared all across the world for common improvement. We all have a physical body, we all have a brain for mental health, why are we not sharing and pooling together in common cause? Why isn't curing diseases and saving lives not incentive and motivation for people to work together?
 
 https://old.reddit.com/r/science/comments/1npoqxf/highmarkup_hospitals_are_overwhelmingly_forprofit/ng11onz/
 
 https://old.reddit.com/r/sandiego/comments/1nptotd/3_members_of_the_chula_vista_city_council_walked/ng1vusg/
 
-In a way, he was a civil rights leader, the removal of rights, the adoption of less equality. He was leading people to Trump. Faith in hate itself is popular. Reddit community constantly behaves as if *hate harder* is the answer to I.C.E. and MAGA and Trump. That if we hate upon MAGA people, which prizes hate from Trump, we are somehow taking a "high road" of joining in a hate for hate values. I personally can not stand living in an ocean of hate that everyone dumps more hate into, what the USA soicety has become under Internet Research Agency and Cambridge Analytica.
+In a way, he was a civil rights leader, the removal of rights, the adoption of less equality. He was leading people to Trump. Faith in hate itself is popular. Reddit community constantly behaves as if *hate harder* is the answer to I.C.E. and MAGA and Trump. That if we hate upon MAGA people, which prizes hate from Trump, we are somehow taking a "high road" of joining in a hate for hate values. I personally can not stand living in an ocean of hate that everyone dumps more hate into, what the USA society has become under Internet Research Agency and Cambridge Analytica.
 
 https://old.reddit.com/r/sandiego/comments/1nptotd/3_members_of_the_chula_vista_city_council_walked/ng2c42z/
 
@@ -868,11 +868,11 @@ Russian information warfare since year 2013.
 
 https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng0kzhf/
 
-Media addiciton is impacting everyone of all ages. People aren't even connecting why January 20, 2025 all the technology copanies are liked up with Trump in the front row. Why Trump created Truth Social, why Elon Musk purchase Twitter. Why Russia has spent so much effort on Internet. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
+Media addiction is impacting everyone of all ages. People aren't even connecting why January 20, 2025 all the technology companies are liked up with Trump in the front row. Why Trump created Truth Social, why Elon Musk purchase Twitter. Why Russia has spent so much effort on Internet. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
 
 https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng174yz/
 
-Yes. When I lived in Jacksonville Beach, Florida I would take the bus typically weekly back in 2016 and 2017 and Orlando in 2018 and people were so engaged in the Trump election content / Trump taking office news. You could see right into drivers glued to their phone from the higher bus seats. Walking around these days, you can often see this too. People have lost all sense of perspective how much behavior has changed with smartphones and interpreation ofthe world through devices. Compusive enagement addiction is a crisis.
+Yes. When I lived in Jacksonville Beach, Florida I would take the bus typically weekly back in 2016 and 2017 and Orlando in 2018 and people were so engaged in the Trump election content / Trump taking office news. You could see right into drivers glued to their phone from the higher bus seats. Walking around these days, you can often see this too. People have lost all sense of perspective how much behavior has changed with smartphones and interpretation of the world through devices. Compulsive engagement addiction is a crisis.
 
 https://old.reddit.com/r/confession/comments/1npn01z/i_am_so_done_29_years_in_the_classroom_and_this/ng270js/
 
@@ -894,15 +894,15 @@ Describing how Trump doing surreal and absurd acts makes it entertaining / amusi
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1ziz5/
 
-People are compusively humor-washing amusement-washing Trump. Neil Postman's 1985 book "Amusing Ourselves To Death" is critical learning for every person age 12 to age 120.
+People are compulsively humor-washing amusement-washing Trump. Neil Postman's 1985 book "Amusing Ourselves To Death" is critical learning for every person age 12 to age 120.
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng2hoij/
 
-The Internet Research Agenc and Cambridge Analytica have conditioned people to fixate on the exciting thrilling media content instead of face reality. This is hwo the "War Against Reality" looks for many people. Being unable to take serious the situation. Avoiding of nonfiction learning. Published Septmebe 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+The Internet Research Agency and Cambridge Analytica have conditioned people to fixate on the exciting thrilling media content instead of face reality. This is how the "War Against Reality" looks for many people. Being unable to take serious the situation. Avoiding of nonfiction learning. Published Septmebe 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1t487/
 
-It is as if January 6, 2021 wasn't enough for people. Addicted to the constant antics. And peole also are not acting like Trump was remvoed from office. Donald Trump was VOTED OUT, Joe Biden repalced him. But the addiction to Trump content, addiction to hate, addiction to mockery, did not go away just because Trump was voted out of office. People are avoiding nonfiction learning and do not recognize the compusive media consumption behaviors.
+It is as if January 6, 2021 wasn't enough for people. Addicted to the constant antics. And people also are not acting like Trump was removed from office. Donald Trump was VOTED OUT, Joe Biden replaced him. But the addiction to Trump content, addiction to hate, addiction to mockery, did not go away just because Trump was voted out of office. People are avoiding nonfiction learning and do not recognize the compulsive media consumption behaviors.
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1uzw7/
 
@@ -910,17 +910,17 @@ The media. The social media. The Reddit. The Bluesky, The Twitter. The Fox News.
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng24ift/
 
-Putin manipulated Reddit. Addiction to fiction. Donald Trump is a media star addicted to attention and spotlight. Putin creates fiction that peole flock to in the same way people flock to Mecca and Quran / Mosque. We need to be teaching media ecology, the compusive addiciton to fiction storytelling / monomyth stories.
+Putin manipulated Reddit. Addiction to fiction. Donald Trump is a media star addicted to attention and spotlight. Putin creates fiction that people flock to in the same way people flock to Mecca and Quran / Mosque. We need to be teaching media ecology, the compulsive addiction to fiction storytelling / monomyth stories.
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng21u5u/
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng23yht/
 
-Why didn't Reddit media users use Reddit to sustain focus on imporatnt topics? Media addiciton to low-effort no-identtiy comments drowns out repeating important *we all need to get on the same page* topics. Social media sites like Bluesky communities and Reddit communities do not re-assert important topics. The "Epstein List" QAnon focus seems more motivated aobut people wanting to get Bill Clinton in trouble than actually adressing the avoidance of nonfiction. Why can't pepole use social media to have every Friday and Tuesday be days to REPEAT important topics and have soeone lead an agenda of staying focused. And stop with the never-ending sports games and other topics. At some people people need to act like this is a REAL WAR with REAL HAELATH CARE and REAL FUTURE being wrecked. Give up non-essential games and sports discusson and actually focus on serious nonfiction hard problems. Blah. We ahve drowned ourselves in so much amusement-washing and entertainment addiction. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+Why didn't Reddit media users use Reddit to sustain focus on important topics? Media addiction to low-effort no-identity comments drowns out repeating important *we all need to get on the same page* topics. Social media sites like Bluesky communities and Reddit communities do not re-assert important topics. The "Epstein List" QAnon focus seems more motivated about people wanting to get Bill Clinton in trouble than actually addressing the avoidance of nonfiction. Why can't people use social media to have every Friday and Tuesday be days to REPEAT important topics and have someone lead an agenda of staying focused. And stop with the never-ending sports games and other topics. At some people people need to act like this is a REAL WAR with REAL HEALTH CARE and REAL FUTURE being wrecked. Give up non-essential games and sports discussion and actually focus on serious nonfiction hard problems. Blah. We have drowned ourselves in so much amusement-washing and entertainment addiction. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1t4jb/
 
-Normalcy-washing the situation. Hyper-normalzing it along side the Reddit kitten images and sports scores and memes. And I consider Reddit the people with the technical talents, free time / spare time, that should be organizing. These are the defenders against Russia. But we just can't get people to enage nonfiction. 
+Normalcy-washing the situation. Hyper-normalizing it along side the Reddit kitten images and sports scores and memes. And I consider Reddit the people with the technical talents, free time / spare time, that should be organizing. These are the defenders against Russia. But we just can't get people to engage nonfiction. 
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng1tkpy/
 
@@ -932,7 +932,7 @@ Laugh-washing, amusement-washing.  September 10, 2025 - "The 40-Year-Old Book Th
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng2ktqb/
 
-To normal-wash the sitaution. Just another day.
+To normal-wash the situation. Just another day.
 
 https://old.reddit.com/r/AskReddit/comments/1npt5s7/trump_has_directed_the_doj_to_go_after_his/ng2b33t/
 
@@ -942,7 +942,7 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1npssxm/breaking_1200_detainees_
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3yggn/
 
-People imagine rage teaching hasn't been conditioned by Cambridge Analytica. To hate, to rage, agaist American people instead of fighting Russia and defending NATO and USA from self-harm mind programming.
+People imagine rage teaching hasn't been conditioned by Cambridge Analytica. To hate, to rage, against American people instead of fighting Russia and defending NATO and USA from self-harm mind programming.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3nqnm/
 
@@ -950,15 +950,15 @@ Over TEN YEARS AND THREE MONTHS of Reddit adding more satire at every chance. De
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3bgc7/
 
-"A strongly worred letter" is code to : be dumb on social media and let Russia manipulate the USA. Because the ignorance praising abounds.The strongly worrded letter is called cult deprogramming of Reddit addicts to mocking  "strongly worrded letter". People have their mind blown over and over, unable to comprehend they are in a culf of mocking. Peopld do not understand feedback loops of mocking.  "I do see some light. Newsome does not give a shit" -  nt giving a shit about human persons and wrecking the nation with anti-intelelctual amusement memes is the problem. Not giving a shit about dumb and dnumber. Trump beahving dumb,Newsome behaving dump. The Gulluble Reddit community actually believes Trump isn't an actor. No matter  how much evidence there is in the nonfiction section of the public library that Russian information warfare is based on acting and fiction, people on Reddit can not face up the FACT that Donald Trump is an experienced teleivision actor. Charlie Kirk is an actor. Americans, including MAGA, have a taste for terribly bad teleivsion shows. Fox News is a terribly bad television show. Reddit /r/All is bad taste in entertainment. The crisis is aviodance of nonfiction public library book learning. ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+"A strongly worded letter" is code to : be dumb on social media and let Russia manipulate the USA. Because the ignorance praising abounds. The strongly worded letter is called cult deprogramming of Reddit addicts to mocking  "strongly worded letter". People have their mind blown over and over, unable to comprehend they are in a cult of mocking. People do not understand feedback loops of mocking.  "I do see some light. Newsome does not give a shit" -  not giving a shit about human persons and wrecking the nation with anti-intellectual amusement memes is the problem. Not giving a shit about dumb and dumber. Trump behaving dumb, Newsome behaving dumb. The gullible Reddit community actually believes Trump isn't an actor. No matter  how much evidence there is in the nonfiction section of the public library that Russian information warfare is based on acting and fiction, people on Reddit can not face up the FACT that Donald Trump is an experienced television actor. Charlie Kirk is an actor. Americans, including MAGA, have a taste for terribly bad television shows. Fox News is a terribly bad television show. Reddit /r/All is bad taste in entertainment. The crisis is avoidance of nonfiction public library book learning. ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3ionh/
 
-Imagine how corrupt the comments are on Reddit that when infiltrated by Russian insincere participatns, eveyone puts on a mask and hides their real face, real name, real identity. Because ChatGPT and Russia and Iran and China find people who self-dehumanize are even easier to confuse. A website where comment creators react with millions of low-effort comments - anything to avoid public library on  how learning actually works. A dumpster fire of people dumping low-effort misunderstandings upon each other.
+Imagine how corrupt the comments are on Reddit that when infiltrated by Russian insincere participants, everyone puts on a mask and hides their real face, real name, real identity. Because ChatGPT and Russia and Iran and China find people who self-dehumanize are even easier to confuse. A website where comment creators react with millions of low-effort comments - anything to avoid public library on  how learning actually works. A dumpster fire of people dumping low-effort misunderstandings upon each other.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3fqdn/
 
-Who has the bigger audience with faith in hate. Both audiences are encouraging hate and dehumanization. But people who actually desire goodness, value sanity, want peace...fuc them because Bluesky and Reddit communities have done everything they can to train and encourage that what the USA needs is to avoid learning how  Russia mind-fuckedthe USA and NATO.
+Who has the bigger audience with faith in hate. Both audiences are encouraging hate and dehumanization. But people who actually desire goodness, value sanity, want peace… fuck them because Bluesky and Reddit communities have done everything they can to train and encourage that what the USA needs is to avoid learning how  Russia mind-fucked the USA and NATO.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng2wc4u/
 
@@ -966,7 +966,7 @@ An actual murder! Simulacra, video screen game of Reddit comment users who think
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng2ya74/
 
-Trump White House does bad things, creating a constant entertainment for Reddit comment section. The audience of Donald Trump humor addicts is constantly amused at how I.C.E. creates message reactioins. Real humans suffer while people eat up the messages.
+Trump White House does bad things, creating a constant entertainment for Reddit comment section. The audience of Donald Trump humor addicts is constantly amused at how I.C.E. creates message reactions. Real humans suffer while people eat up the messages.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng382y2/
 
@@ -974,11 +974,11 @@ Blame the same people over and over. Do not blame Russia. Do not blame We The Pe
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng39u4o/
 
-Reddit has forgot the  nonfiction public library and American exceptionalism arrogance isn't confrtong media addiction to entertainment itself.
+Reddit has forgot the  nonfiction public library and American exceptionalism arrogance isn't confronting media addiction to entertainment itself.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3hagh/
 
-Wild West California gun shootots. Be like Palestine, weapons always. How does this in any way address the problem? More guns, more shcool shootings, more USA on world stage getting global news coverage for more guns to "fix" issues taht are hate. A comment s ection so mind-fucked that a gun is viwed as a tool of love and compassion in a USA drowning in hate values and hate praise from Russia.
+Wild West California gun shootouts. Be like Palestine, weapons always. How does this in any way address the problem? More guns, more school shootings, more USA on world stage getting global news coverage for more guns to "fix" issues that are hate. A comment section so mind-fucked that a gun is viewed as a tool of love and compassion in a USA drowning in hate values and hate praise from Russia.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3jx6l/
 
@@ -990,15 +990,15 @@ More low-effort comments to drown comprehension.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3szuc/
 
-Three people. Reddit users full of spare time and free time sit in the audience to 3 people. Democracy is 3 people. Audience mentality, bystander effect. MAGA is a cult, why is Reddit not teaching cult deprogramming?MAGA prizes guns, do you think gun worship cults can be solved with more guns? Charlie Kirk was a gun worshipers, did more guns and m urder solve the Chrlie Kirk media cult problem? Cult deprogramming is how you solve a cult. Teaching and learning, it can take years of extreme effot. Ask teachers how easy it is is to teach people in a cult But that's the job. Not mocking peopple, but rescuing people. We are an intelelctually homeless generation. So mind-fucked by Russia that people can not engage nonfiction learning. Addiction to memes and trash MAGAc Trump content has wrecked the minds. Russia won since year 2013.
+Three people. Reddit users full of spare time and free time sit in the audience to 3 people. Democracy is 3 people. Audience mentality, bystander effect. MAGA is a cult, why is Reddit not teaching cult deprogramming? MAGA prizes guns, do you think gun worship cults can be solved with more guns? Charlie Kirk was a gun worshipers, did more guns and murder solve the Charlie Kirk media cult problem? Cult deprogramming is how you solve a cult. Teaching and learning, it can take years of extreme effort. Ask teachers how easy it is is to teach people in a cult But that's the job. Not mocking people, but rescuing people. We are an intellectually homeless generation. So mind-fucked by Russia that people can not engage nonfiction learning. Addiction to memes and trash MAGA / Trump content has wrecked the minds. Russia won since year 2013.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3vw8r/
 
-Sick burns against Canada, Greenland, trade partners all across the world. Sick burns are all USA gives a shit about. Sick burns won'put food on tables. Traded a smart nation for trash memes.
+Sick burns against Canada, Greenland, trade partners all across the world. Sick burns are all USA gives a shit about. Sick burns won't put food on tables. Traded a smart nation for trash memes.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng3ya4t/
 
-MAGA values are shallow and superficial. RFK Jr says he can diagnose by just looking. Poorly trained police can tell someone is an illegal immigrant just by superficial and shallow obsevations. Reddit messages to further program this shallow thinking in the  Reddit audience.
+MAGA values are shallow and superficial. RFK Jr says he can diagnose by just looking. Poorly trained police can tell someone is an illegal immigrant just by superficial and shallow observations. Reddit messages to further program this shallow thinking in the  Reddit audience.
 
 https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_just_wont_stop/ng2nlej/
 
@@ -1012,7 +1012,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1npw1ar/holy_shit_this_team_ju
 
 https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3uxac/
 
-Once you mater manipulating media, you can work in almost any business. Farmers can manipulate media and earn government payouts. Computer makers can master manipulating media and build a brand loyalty with messaging and popularity alone. It's not a s if Reddit consumers read articles and perform tests to validate claims. The  USA is driven by messaging popularity and trending. Elon Musk knew to purchase Twitter to wreck the people he hates, everyday people. Going down with the ship. As long as you are steering the ship. Run the ship into the rocks or drwon everyone. Joyriding a nation with media systems.
+Once you mater manipulating media, you can work in almost any business. Farmers can manipulate media and earn government payouts. Computer makers can master manipulating media and build a brand loyalty with messaging and popularity alone. It's not a s if Reddit consumers read articles and perform tests to validate claims. The  USA is driven by messaging popularity and trending. Elon Musk knew to purchase Twitter to wreck the people he hates, everyday people. Going down with the ship. As long as you are steering the ship. Run the ship into the rocks or drown everyone. Joyriding a nation with media systems.
 
 https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng41wpu/
 
@@ -1052,13 +1052,13 @@ https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cit
 
 https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3yjtn/
 
-The strageness of it all. "The Menace of Strageness", "The Menace of Unreality". September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+The strangeness of it all. "The Menace of Strangeness", "The Menace of Unreality". September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng3ywav/
 
 https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng4118f/
 
-Half the country started cheering on the suffering / tears of liberals. Now the other half is cheering on the suffering of MAGA / tears of conservatives. Exactly how Rusia conditioned the populatio. The prizing of Amricans suffering.
+Half the country started cheering on the suffering / tears of liberals. Now the other half is cheering on the suffering of MAGA / tears of conservatives. Exactly how Russia conditioned the population. The prizing of Americans suffering.
 
 https://old.reddit.com/r/news/comments/1nq3ioi/scientist_behind_autism_study_cited_by_trump/ng46mst/
 
@@ -1080,11 +1080,11 @@ Trump's behavior works on Reddit. Fiction outsells nonfiction.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3t784/
 
-There is a crisis of one-bit logic of conservative vs. liberal. Study the whole world, the Taliban in Swat Valley Pakistan. Study what Fox News is vs. authentic understanding and comprehension. Often, it comes down to fiction vs. nonfiction. Misunderstanding vs. understanding. Comprehension vs. failur to comprehend. Acceptance of diversity vs. desire for rectangle and square categories of logic. Needing an out-group to hate as faith itself. 
+There is a crisis of one-bit logic of conservative vs. liberal. Study the whole world, the Taliban in Swat Valley Pakistan. Study what Fox News is vs. authentic understanding and comprehension. Often, it comes down to fiction vs. nonfiction. Misunderstanding vs. understanding. Comprehension vs. failure to comprehend. Acceptance of diversity vs. desire for rectangle and square categories of logic. Needing an out-group to hate as faith itself. 
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng443ny/
 
-Technology keeps having more power than humans. Our bodies are not becoming more powerful, but machinees and computers are. Standing still against technology is being blind to the power transfer. In USA, the leading self-declare conservatives are not Amish rural Americans. The self-declared Conservatives are Elon Musk, Donald Trump as role mdoels. Trump and Musk are pro-technology, pro-machine, love technology. Truth Social is technology. Twitter, owned by Musk, is technology. Fox News HDTV network, Rupert Murdoch loves technology. Rupet Murdoch is a role model of conservatives. Technology lover. When technology to build hotels and golf courses and shopping malls is what is valued, then the people Gaza / Palestine are devalued in favor of the resort entertainment technology. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
+Technology keeps having more power than humans. Our bodies are not becoming more powerful, but machines and computers are. Standing still against technology is being blind to the power transfer. In USA, the leading self-declare conservatives are not Amish rural Americans. The self-declared Conservatives are Elon Musk, Donald Trump as role models. Trump and Musk are pro-technology, pro-machine, love technology. Truth Social is technology. Twitter, owned by Musk, is technology. Fox News HDTV network, Rupert Murdoch loves technology. Rupert Murdoch is a role model of conservatives. Technology lover. When technology to build hotels and golf courses and shopping malls is what is valued, then the people Gaza / Palestine are devalued in favor of the resort entertainment technology. ... ... ... “Technopoly is a state of culture. It is also a state of mind. It consists in the deification of technology, which means that the culture seeks its authorization in technology, finds its satisfactions in technology, and takes its orders from technology.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng46llp/
 
@@ -1102,7 +1102,7 @@ Calling Russians bots, calling people bots, is a thought-terminating phrase / id
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng42b5p/
 
-The nonfictoin they are opressing. The complex difficulity of science and diversity in favor of fiction books like The Bible ficction media or Fox News fiction media.
+The nonfiction they are oppressing. The complex difficulty of science and diversity in favor of fiction books like The Bible fiction media or Fox News fiction media.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng454oj/
 
@@ -1114,7 +1114,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4froz/
 
-Minds are being blown because everything changed in year 2013. The Russian Internet Research Agency and Cambridge Analytica working together won a mind war since year 2013. People are describing a dreastic change, but in denial of the source and in denial of the avoidance of learning the details. Consevatives: "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+Minds are being blown because everything changed in year 2013. The Russian Internet Research Agency and Cambridge Analytica working together won a mind war since year 2013. People are describing a drastic change, but in denial of the source and in denial of the avoidance of learning the details. Conservatives: "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3zouq/
 
@@ -1126,21 +1126,21 @@ https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng44hxs/
 
-The smarts and cleverness is exploiting the human brain into self harm. Like a drug dealer or booze dealer finds people willing to self-harm. Like a gun seller finds that people find it thrilling and exciting to shoot and hunt other people. War is exciting and thrilling to people. People don't call for end of hate and ar, because they prize war as a solution to problems. The problem is egoism / egomania. Absence of compassion and love, prizing of competittion and winning. To win, something other people have has to be prized.
+The smarts and cleverness is exploiting the human brain into self harm. Like a drug dealer or booze dealer finds people willing to self-harm. Like a gun seller finds that people find it thrilling and exciting to shoot and hunt other people. War is exciting and thrilling to people. People don't call for end of hate and ar, because they prize war as a solution to problems. The problem is egoism / egomania. Absence of compassion and love, prizing of competition and winning. To win, something other people have has to be prized.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3v6nx/
 
-Fiction is more popular than nonfiction. Fox News storytelling is more popular than comprehension and understanding of a diverse world and helping each other, helping ALL people each other. People are not calling for Russia to stop the war because it is self-harm to Russia, people want to see Russia fail. I want Russia to change thinking, adjust their mindsets, to realize they are killing children and killing people just like thier own selves.
+Fiction is more popular than nonfiction. Fox News storytelling is more popular than comprehension and understanding of a diverse world and helping each other, helping ALL people each other. People are not calling for Russia to stop the war because it is self-harm to Russia, people want to see Russia fail. I want Russia to change thinking, adjust their mindsets, to realize they are killing children and killing people just like their own selves.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3y3ip/
 
-Learning to talk shit about people is the attraction to Trump. <img width="1762" height="366" alt="image" src="https://github.com/user-attachments/assets/69acf685-0fd5-47d6-b394-11675e463455" /> Trump is an attractive nusance. Trump is a magnet for shit-talk. It is a toilet that the entire nation jumps into willingly out of addiction to shit-talk. And Putin is the one pulling Trump down the toilet and the entire USA with him.
+Learning to talk shit about people is the attraction to Trump. <img width="1762" height="366" alt="image" src="https://github.com/user-attachments/assets/69acf685-0fd5-47d6-b394-11675e463455" /> Trump is an attractive nuisance. Trump is a magnet for shit-talk. It is a toilet that the entire nation jumps into willingly out of addiction to shit-talk. And Putin is the one pulling Trump down the toilet and the entire USA with him.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3zcxz/
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4012e/
 
-And it shows. People are not educated about how human learning works. Noah's Ark fiction is covered in the teaching of "Comparative Mythology". You learn that people favor fiction over nonfiction. And why MAGA and Maximun Putinization has taken over the USA since year 2013. You learn and study how human brain actually works in regards to langauge and communications. That fiction outsells nonfiction at the cienema and book stores. You learn that religion is science fiction storytelling and people devote their life to religion (science fiction storytelling devotion). You learn people devote thier life to Star Wars and create temples and Star Wars rituals and conventions. You learn that the Church and Mosque are competeing in selling langauges and science fiction storytelling. You learn media ecology. And you face up that people are willing to die for fiction. The problem is the absence of self-awareness. Democracy does not work when people have their heart-strings pulled by fiction Fox News. When rural USA population watches Rupert Murdoch billionare use fiction entertainment addictions to worship the wealthy leaders like Murdoch and friends.
+And it shows. People are not educated about how human learning works. Noah's Ark fiction is covered in the teaching of "Comparative Mythology". You learn that people favor fiction over nonfiction. And why MAGA and Maximum Putinization has taken over the USA since year 2013. You learn and study how human brain actually works in regards to language and communications. That fiction outsells nonfiction at the cinema and book stores. You learn that religion is science fiction storytelling and people devote their life to religion (science fiction storytelling devotion). You learn people devote their life to Star Wars and create temples and Star Wars rituals and conventions. You learn that the Church and Mosque are competing in selling languages and science fiction storytelling. You learn media ecology. And you face up that people are willing to die for fiction. The problem is the absence of self-awareness. Democracy does not work when people have their heart-strings pulled by fiction Fox News. When rural USA population watches Rupert Murdoch billionaire use fiction entertainment addictions to worship the wealthy leaders like Murdoch and friends.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4b2h8/
 
@@ -1148,11 +1148,11 @@ The cults of fiction storytelling. The Levant Bible is science fiction. Church i
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3xzqm/
 
-What's wrong with podcasters? Reddit comment creators with low-effort comment. People avoid nonfiction univessity books, flock to podcasts and low-effort Reddit comments.
+What's wrong with podcasters? Reddit comment creators with low-effort comment. People avoid nonfiction university books, flock to podcasts and low-effort Reddit comments.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng41fho/
 
-If you get a PhD in creating entertainment video games, if you get a PhD in ceating entertainment govenment run by Quran storytelling of Mecca and Saudi Arabia royalty - you can have success. Putin has PhD of fiction storytelling running his nation. Fiction is more popular than nonfiction. Look at Reddit low-effort comments, the quantity of low-effort messages that avoid same-page Wikipedia and printed book comprehensions.
+If you get a PhD in creating entertainment video games, if you get a PhD in creating entertainment government run by Quran storytelling of Mecca and Saudi Arabia royalty - you can have success. Putin has PhD of fiction storytelling running his nation. Fiction is more popular than nonfiction. Look at Reddit low-effort comments, the quantity of low-effort messages that avoid same-page Wikipedia and printed book comprehensions.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng44r0v/
 
@@ -1160,31 +1160,31 @@ https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng48ajh/
 
-People who aren't discussing abandoning the thinking of left vs. right, conservative vs. liberal, are entierly not seeing the cage of framing everything as two sides, TWO AND ONLY TWO ansewrs to every problem. Andwer 1: wrong ansewr 2: wrong. Nobody is coming up with better answers becase we can't count beyond 1 and 2. What if the answer is number 13? Where does answer 9 and answer 13 fit in with "both sides" logic?
+People who aren't discussing abandoning the thinking of left vs. right, conservative vs. liberal, are entirely not seeing the cage of framing everything as two sides, TWO AND ONLY TWO answers to every problem. Answer 1: wrong answer 2: wrong. Nobody is coming up with better answers because we can't count beyond 1 and 2. What if the answer is number 13? Where does answer 9 and answer 13 fit in with "both sides" logic?
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4amn9/
 
-Welcome to my GitHub. <img width="1808" height="314" alt="image" src="https://github.com/user-attachments/assets/69f1c679-54da-4beb-a071-df014b8969d7" /> Bible verse "1 John 4:20" from Levant some 2,000 years ago is our focus. Santa does not exist, it is a fiction story, a metaphor. Bible verse "1 John 4:20" - have you SEEN Santa? Did you go inspect the North Pole? Did you find out who funded the factory that makes the toys and who is paying for them? Did you study the long-term economic sustainability of the process? Did love and compassion come into play in gift-giving? Bible verse "1 John 4:20" - have you See Jesus? Do you see where the book says "I Love Jesus" is the WRONG interprtation and thing to say? Welcome to my GitHub. My nickname is "Round Sparrow". I am a teacher of compartive mythology here on the Internet. Donald Trump is an entertainer, Donald Trump is a fiction storyteller, a very popular entertainer with a huge following and audience! People willing to pay any price to get Donald Trump's fiction storis. People giving up their health care, people giving up healthy life on Earth to polution, to hear the fiction stories of Putina and Trump entertainers. See also: [Clown for Clown, Joke For Joke, Eye for an Eye](/Grim_Blunt/USA/Clown_for_Clown_Joke_for_Joke.md)
+Welcome to my GitHub. <img width="1808" height="314" alt="image" src="https://github.com/user-attachments/assets/69f1c679-54da-4beb-a071-df014b8969d7" /> Bible verse "1 John 4:20" from Levant some 2,000 years ago is our focus. Santa does not exist, it is a fiction story, a metaphor. Bible verse "1 John 4:20" - have you SEEN Santa? Did you go inspect the North Pole? Did you find out who funded the factory that makes the toys and who is paying for them? Did you study the long-term economic sustainability of the process? Did love and compassion come into play in gift-giving? Bible verse "1 John 4:20" - have you See Jesus? Do you see where the book says "I Love Jesus" is the WRONG interpretation and thing to say? Welcome to my GitHub. My nickname is "Round Sparrow". I am a teacher of comparative mythology here on the Internet. Donald Trump is an entertainer, Donald Trump is a fiction storyteller, a very popular entertainer with a huge following and audience! People willing to pay any price to get Donald Trump's fiction stories. People giving up their health care, people giving up healthy life on Earth to pollution, to hear the fiction stories of Putin and Trump entertainers. See also: [Clown for Clown, Joke For Joke, Eye for an Eye](/Grim_Blunt/USA/Clown_for_Clown_Joke_for_Joke.md)
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4bqjd/
 
-Make a list of fiction vs. non-fiction to test. <img width="1082" height="314" alt="image" src="https://github.com/user-attachments/assets/d2df106c-9c20-4374-867f-62cd57878bfb" />  1) Did the moon landing happen in 1969 by USA? 2) Is 9/11 an inside job? 3) Who is Q in QAnon? 4) Is the Bible nonfiction? 5) Is the Torah nonfiction? 6) Is Star Wars 19777 nonfiction? 7) Is the Quran nonfiction? 8) Is Elvis still alive, when was he last sighted? 9) Is Andy Kaufman still alive, when was he last sighted? 10) Was Charlie Kirk a fiction or nonfiction storyteller? 11) Is Fox News fiction or nonfiction? 12) Is Putin's Kremlin sincere and honest? 12) Is Donald Trump a sincere, accurate, and factual source of information? 13) Is Truth Social fiction or nonfiction? 14) How many fiction stories about going to Mars have been published? Films and books? 15) How many factual nonficton times have humans traveled to Mars? 16) Essay question. if McDonald's is down the street, why do they constantly remind you with advertising on television shows and radio that they are down the street? Do people forget about being hungry and need reminder messages on TV and radio? 17) Is Edward Bernays a nonfiction person and what did he do, Essay. SEE_ALSO_A expanded here: [Test NonFiction / War Against Nonfiction](/Important/War_Against_NonFiction/Test_Nonfiction.md)
+Make a list of fiction vs. non-fiction to test. <img width="1082" height="314" alt="image" src="https://github.com/user-attachments/assets/d2df106c-9c20-4374-867f-62cd57878bfb" />  1) Did the moon landing happen in 1969 by USA? 2) Is 9/11 an inside job? 3) Who is Q in QAnon? 4) Is the Bible nonfiction? 5) Is the Torah nonfiction? 6) Is Star Wars 19777 nonfiction? 7) Is the Quran nonfiction? 8) Is Elvis still alive, when was he last sighted? 9) Is Andy Kaufman still alive, when was he last sighted? 10) Was Charlie Kirk a fiction or nonfiction storyteller? 11) Is Fox News fiction or nonfiction? 12) Is Putin's Kremlin sincere and honest? 12) Is Donald Trump a sincere, accurate, and factual source of information? 13) Is Truth Social fiction or nonfiction? 14) How many fiction stories about going to Mars have been published? Films and books? 15) How many factual nonfiction times have humans traveled to Mars? 16) Essay question. if McDonald's is down the street, why do they constantly remind you with advertising on television shows and radio that they are down the street? Do people forget about being hungry and need reminder messages on TV and radio? 17) Is Edward Bernays a nonfiction person and what did he do, Essay. SEE_ALSO_A expanded here: [Test NonFiction / War Against Nonfiction](/Important/War_Against_NonFiction/Test_Nonfiction.md)
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4c634/
 
-How many people self-identify as entertainment addicts, fiction addicts, who avoid non-fiction learning of Reddit media ecology when quized on Reddit? Polling / surveys. no educaiton on self-awareness. MAGA people don't realize they are MAGA. ... ... ... “In America, everyone is entitled to an opinion, and it is **certainly useful to have a few when a pollster shows up**. But these are opinions of a quite different roder from eighteenth- or nineteenth-century opinions. It is probably more accurate to call them emotions rather than opinions, which would account for the fact that they change from week to week, as **the pollsters tell us**. What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information--misplace, irrelevant, fragmented or superficial information--information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985.
+How many people self-identify as entertainment addicts, fiction addicts, who avoid non-fiction learning of Reddit media ecology when quizzed on Reddit? Polling / surveys. no education on self-awareness. MAGA people don't realize they are MAGA. ... ... ... “In America, everyone is entitled to an opinion, and it is **certainly useful to have a few when a pollster shows up**. But these are opinions of a quite different order from eighteenth- or nineteenth-century opinions. It is probably more accurate to call them emotions rather than opinions, which would account for the fact that they change from week to week, as **the pollsters tell us**. What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information--misplace, irrelevant, fragmented or superficial information--information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4cbin/
 
-It is not trivial. It is not simple. <img width="1614" height="292" alt="image" src="https://github.com/user-attachments/assets/ebd52b69-5efe-4d5d-9930-8c0dacd5bdc0" /> A "simple fact" without comprehension and understanding is more like parroting information. It is a problem people struggle with all over the entire world throughout history. Trivializing it as simple is a huge part of the problem. Short tiny Twitter-length thinking of Tweet-mindsets. Everything is siimple and trivial. Education can require decades of incredibly difficult work to comprehend important topics. Alas, low-effort trivial comments are how people learn. Especially if they are incorrect and claim complex things are simple. ... ... ... "And I think that… the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s the most powerful political rhetoric in a world with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple”, and then of course when you see a pie chart you go “Oh, a pie chart…”. I mean, it has more religious meaning now than a crucifix to see a pie chart. I mean, because…. why is that so popular? Because it reduces complexity. The complexity is very real but his little soundbites, his little conversations with Larry King help to reduce that complexity and they put another message in there: “Now I know it’s real complicated but we can fix it, Americans have always fixed it and we can fix it”. Well, if Baudrillard’s right we have fixed it alright. We have fixed it all the way up and down. And I mean, you know, we see other people engaging in this same, sort of, attempting to reduce complexity. I mean, the political parties, to the extent that they exist at all anymore as anything other than fund raising devices, which I don’t know. I don’t think they have any ideologies because in a postmodern situation who would have an ideology except just as a momentary thing?" https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+It is not trivial. It is not simple. <img width="1614" height="292" alt="image" src="https://github.com/user-attachments/assets/ebd52b69-5efe-4d5d-9930-8c0dacd5bdc0" /> A "simple fact" without comprehension and understanding is more like parroting information. It is a problem people struggle with all over the entire world throughout history. Trivializing it as simple is a huge part of the problem. Short tiny Twitter-length thinking of Tweet-mindsets. Everything is simple and trivial. Education can require decades of incredibly difficult work to comprehend important topics. Alas, low-effort trivial comments are how people learn. Especially if they are incorrect and claim complex things are simple. ... ... ... "And I think that… the way people deal with this is interesting. They deal with it as a form of complexity, a word I have used probably too many times. It makes the people caught in this cusp between an old world and an old paradigm that is dying and a new one that cannot really yet be born. And we find ourselves in that space. And it draws us to people like Ross Perot who say “It’s just that simple… it’s just that simple… it’s just that simple”. That’s the most powerful political rhetoric in a world with a postmodern trajectory. God, how we would love it if someone could tell us anything was “just that simple”, and then of course when you see a pie chart you go “Oh, a pie chart…”. I mean, it has more religious meaning now than a crucifix to see a pie chart. I mean, because…. why is that so popular? Because it reduces complexity. The complexity is very real but his little soundbites, his little conversations with Larry King help to reduce that complexity and they put another message in there: “Now I know it’s real complicated but we can fix it, Americans have always fixed it and we can fix it”. Well, if Baudrillard’s right we have fixed it alright. We have fixed it all the way up and down. And I mean, you know, we see other people engaging in this same, sort of, attempting to reduce complexity. I mean, the political parties, to the extent that they exist at all anymore as anything other than fund raising devices, which I don’t know. I don’t think they have any ideologies because in a postmodern situation who would have an ideology except just as a momentary thing?" https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4cdqc/
 
-The Reddit comment messages parroting the latest RFK Jr. talking points about autism and Tylanol. Spreading the White House bullshit as conditioned. Humor-washing / satire-washing the White House as entertainment source.
+The Reddit comment messages parroting the latest RFK Jr. talking points about autism and Tylenol. Spreading the White House bullshit as conditioned. Humor-washing / satire-washing the White House as entertainment source.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4cygl/
 
-People seem incapable of stiudying Russia or studying Iran. It is entirely possible to run univesities with fiction-based teaching. Quran-based fiction teaching. Study Saudi Arabia / Iran. This is not new and has gone on throughout history. Religion unviersitie profoessors exist all over the world, even USA.  Liberty University, Biola University, Colorado Christian University, Pepperdine University, and California Baptist University. Reddit comment section is a community living in denial of factual reality of the world.
+People seem incapable of studying Russia or studying Iran. It is entirely possible to run universities with fiction-based teaching. Quran-based fiction teaching. Study Saudi Arabia / Iran. This is not new and has gone on throughout history. Religion university professors exist all over the world, even USA.  Liberty University, Biola University, Colorado Christian University, Pepperdine University, and California Baptist University. Reddit comment section is a community living in denial of factual reality of the world.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4dip8/
 
@@ -1192,7 +1192,7 @@ Hate prized. Hate preaching. Hate values. Faith in hate. Just like MAGA, the ric
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4fdur/
 
-"Overall, only about 10–12% of professors identify as conservative (and far fewer as MAGA-style conservatives)" sounds like a very limited view of the world. Is that true for Russia? Iran? Why do Reddit community messages all act like MAGA isn't a movement to be like Russia? Are people on Reddit convinced by Trump that the nation of Russia is a **hoax** or something? Did nobody ever study how Germany was in year 1933 and cmmpare it to how germany is in year 1993? How the same nation can change? President Donald Trump was not running the USA in year 2012. Charlie Kirk was not a cult figure in year 2012. Just because things were like that in year 2012 does not mean we are not like Russia in September 2025. There is a complete fialure of media ecology understanding in USA right now. People can not see how Japan 1942 is not the same as Japan in 1992. THINGS CHANGE! The "Dismissed" ending to the Reddit comment...
+"Overall, only about 10–12% of professors identify as conservative (and far fewer as MAGA-style conservatives)" sounds like a very limited view of the world. Is that true for Russia? Iran? Why do Reddit community messages all act like MAGA isn't a movement to be like Russia? Are people on Reddit convinced by Trump that the nation of Russia is a **hoax** or something? Did nobody ever study how Germany was in year 1933 and compare it to how Germany is in year 1993? How the same nation can change? President Donald Trump was not running the USA in year 2012. Charlie Kirk was not a cult figure in year 2012. Just because things were like that in year 2012 does not mean we are not like Russia in September 2025. There is a complete failure of media ecology understanding in USA right now. People can not see how Japan 1942 is not the same as Japan in 1992. THINGS CHANGE! The "Dismissed" ending to the Reddit comment...
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4fx6g/
 
@@ -1200,7 +1200,7 @@ It is not difficult to start teaching nonfiction. There are Church and Mosque de
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4g0rx/
 
-Advanced educated people still are attracted to Reddit comment sectons full of fiction and low-effort content. Advanced educated people are still attracted to Star Wars 1977 film fiction and other entertainment. MAGA is a movement based on an entertainment leader. Donald Trump is a Reality TV performer. Charlie Kirk is a entertainer. People on Reddit do not grasp media ecology.
+Advanced educated people still are attracted to Reddit comment sections full of fiction and low-effort content. Advanced educated people are still attracted to Star Wars 1977 film fiction and other entertainment. MAGA is a movement based on an entertainment leader. Donald Trump is a Reality TV performer. Charlie Kirk is a entertainer. People on Reddit do not grasp media ecology.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4i8i8/
 
@@ -1208,7 +1208,7 @@ Cheering on that the USA is lead by dumb people. Reddit machine messaging saying
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3ugwa/
 
-The Reddit comment sectin parrots a lot of stuff. People with no-identity attracted to very low-effort very thoughtless comments by the millions that drown out nonfiction learning.
+The Reddit comment section parrots a lot of stuff. People with no-identity attracted to very low-effort very thoughtless comments by the millions that drown out nonfiction learning.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3vpr1/
 
@@ -1220,7 +1220,7 @@ Cult of comment messages. The **ignorance of media ecology and literacy itself**
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng3yzri/
 
-A fundmental inability to grasp what conservative and Republicans stand for. Telling other people to adopt Allah / Jesus / fiction storytelling. They have gaken over USA government to promote their favorite fiction stories as leadership. Reddit community is very ignorant and blind to waht is happening in front of them.
+A fundamental inability to grasp what conservative and Republicans stand for. Telling other people to adopt Allah / Jesus / fiction storytelling. They have taken over USA government to promote their favorite fiction stories as leadership. Reddit community is very ignorant and blind to what is happening in front of them.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng40ld4/
 
@@ -1228,7 +1228,7 @@ Irony blows Reddit consumer audiences minds. People are not even realizing their
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng411js/
 
-You should have to declare if you believe Star Wars 1977 is nonfiction. Declare if you think Quran from year 635 is nonfiction. Declare if you think The Bible is nonfiction. Declare if you think Reddit comments are nonfiction. Declare if you think Truth Social is nonfiction. Declare if you think Fox News HDTV is nonfiction. People can and do create fiction content, Hollywood films and TV shows are incredibly popular. People go to unviersity to learn fiction. People go to Reddit comment sections to learn fiction. People go to Truth Social to learn fiction. A univesity and Reddit are both teaching systems. Just like Newsmax and Fox News are teaching systems.
+You should have to declare if you believe Star Wars 1977 is nonfiction. Declare if you think Quran from year 635 is nonfiction. Declare if you think The Bible is nonfiction. Declare if you think Reddit comments are nonfiction. Declare if you think Truth Social is nonfiction. Declare if you think Fox News HDTV is nonfiction. People can and do create fiction content, Hollywood films and TV shows are incredibly popular. People go to university to learn fiction. People go to Reddit comment sections to learn fiction. People go to Truth Social to learn fiction. A university and Reddit are both teaching systems. Just like Newsmax and Fox News are teaching systems.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng41f5b/
 
@@ -1256,16 +1256,16 @@ https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4503d/
 
-Observations about the way the world *actually works*. 1) Donald Trump is popular because hate messages and team sports of A hates B and B hates A are popular. 2) Entertainment leader Donald Trump, Reality TV "The Apprentice" star Donald Trump is what people flock to every day on Reddit / Bluesky / Twitter / Fox News entertainemnt venues. Amusment mills. 3) Putin won an informaito war against Reddit using the Internet Research Agency and Cambridge Analytica since year 2013 and Reddit community can not go to nonfiction books and learning on the subject. Denial abounds. 4) Sports and fiction are very popular and sports-based governing and entertainment-based governing is far more popular than science-based nonfiction seirous thinking governing. "Sleep Joe Biden" and intelligence is boring in the real world of screen game addicts.  5) The human brain is not a logic machine.  ... ... ...
+Observations about the way the world *actually works*. 1) Donald Trump is popular because hate messages and team sports of A hates B and B hates A are popular. 2) Entertainment leader Donald Trump, Reality TV "The Apprentice" star Donald Trump is what people flock to every day on Reddit / Bluesky / Twitter / Fox News entertainment venues. Amusement mills. 3) Putin won an information war against Reddit using the Internet Research Agency and Cambridge Analytica since year 2013 and Reddit community can not go to nonfiction books and learning on the subject. Denial abounds. 4) Sports and fiction are very popular and sports-based governing and entertainment-based governing is far more popular than science-based nonfiction serious thinking governing. "Sleep Joe Biden" and intelligence is boring in the real world of screen game addicts.  5) The human brain is not a logic machine.  ... ... ...
 https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng45tn5/
 
-Social media laugh track, note the "LMAO" in the message. Everything is entertainment and nobody on Reddit wants to actaully teach and educate nonfiction about the Russian information war defeating the USA since year 2013. Becaues it isn't funny and amusing that USA lost to Putin.
+Social media laugh track, note the "LMAO" in the message. Everything is entertainment and nobody on Reddit wants to actually teach and educate nonfiction about the Russian information war defeating the USA since year 2013. Because it isn't funny and amusing that USA lost to Putin.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4682d/
 
-Everyone should have thier own personl interpretationof which side of the road to drive their car on. What a mind-fuck message payload on Reddit systems. That the most important thing is nobody agrees. Choose your own fiction, exactly what Donald Trump and Putin are promoting, fiction over nonfiction reality. Every person lets their own favorte science fiction school or Fox News HDTV teachers determine what is important. While actual serious and important difficult topics are avoided. ... ... ... “If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a **favoured concept of both Beijing and Moscow**, and essentially a cover for enforcing censorship.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019.
+Everyone should have their own personal interpretation of which side of the road to drive their car on. What a mind-fuck message payload on Reddit systems. That the most important thing is nobody agrees. Choose your own fiction, exactly what Donald Trump and Putin are promoting, fiction over nonfiction reality. Every person lets their own favorite science fiction school or Fox News HDTV teachers determine what is important. While actual serious and important difficult topics are avoided. ... ... ... “If all information is seen as part of a war, out go any dreams of a global information space where ideas flow freely, bolstering deliberative democracy. Instead, the best future one can hope for is an ‘information peace’, in which each side respects the other’s ‘information sovereignty’: a **favoured concept of both Beijing and Moscow**, and essentially a cover for enforcing censorship.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng46l3j/
 
@@ -1277,11 +1277,11 @@ Reddit comment section attracts people attracted to this type of thinking and me
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng46ubh/
 
-Notice no mention of the library at the university. That educated, researched, footnoted, citaiton full books with nonfiction information aren't mentioned in the Reddit comment? if you want to meet random people to explain things to you - go to the Reddit comment sections. Where people are against citations and fact-checking books with endnotes and footnotes. Against Wikipedia with links inline to better comprehend. Instead just lots lots of comments based on not understanding or conprehending topics. The public library and unviersity library are considred boring, nonfiction isn't thrilling entertainment like Hollywood and Truth Social produce.
+Notice no mention of the library at the university. That educated, researched, footnoted, citation full books with nonfiction information aren't mentioned in the Reddit comment? if you want to meet random people to explain things to you - go to the Reddit comment sections. Where people are against citations and fact-checking books with end-notes and footnotes. Against Wikipedia with links inline to better comprehend. Instead just lots lots of comments based on not understanding or comprehending topics. The public library and university library are considered boring, nonfiction isn't thrilling entertainment like Hollywood and Truth Social produce.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng46wdl/
 
-And what does the Reddit communit vote for? Fixing addiction to ficiton or furthering it. I see addicts flocking to junk content.
+And what does the Reddit community vote for? Fixing addiction to fiction or furthering it. I see addicts flocking to junk content. ToDo: quote form Campbell on thinking always wrong voting.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng47mz4/
 
@@ -1304,11 +1304,11 @@ https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4bsz5/
 
-Reddit does not grasp the technology of cloud computing and Reddit messaging tech. Show thoughtul change. Like Donald Trump rushing to create Truth Social? Like Elon Musk rushing to create new SpaceX rockets? Maybe for Amish farmers in USA they adopt slow change, but I do not see that with Fox News HDTV content of meaning of "conservative". Techology worship, gun worship, exactly what is being "conserved" in adopting the latest Apple iPhone to use on Twitter to praise Trump? Media ecology learning and lessons are not optional. “People will come to adore the technologies that undo their capacities to think” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+Reddit does not grasp the technology of cloud computing and Reddit messaging tech. Show thoughtful change. Like Donald Trump rushing to create Truth Social? Like Elon Musk rushing to create new SpaceX rockets? Maybe for Amish farmers in USA they adopt slow change, but I do not see that with Fox News HDTV content of meaning of "conservative". Technology worship, gun worship, exactly what is being "conserved" in adopting the latest Apple iPhone to use on Twitter to praise Trump? Media ecology learning and lessons are not optional. “People will come to adore the technologies that undo their capacities to think” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4cnpz/
 
-Logic of both sides. There are two and only two ansewrs. Ander one can be wrong, answer two can be wrong, as long as nobody thinks beyond 1 or 2. Fox News logic on Reddit and everywhere. "Both Sides". Ignorant answer A, ignorant answer B. That's both!
+Logic of both sides. There are two and only two answers. Answer one can be wrong, answer two can be wrong, as long as nobody thinks beyond 1 or 2. Fox News logic on Reddit and everywhere. "Both Sides". Ignorant answer A, ignorant answer B. That's both!
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4dyit/
 
@@ -1330,19 +1330,19 @@ Christian is the opening context of the message. The Bible is science fiction. F
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4esse/
 
-Cartoon creators learn fiction story elements. Like if a cartoon mouse on The Simpsons can lift a Cartoon Cat. It requires learning. Ficiton content creation is not magical or supernatural. Fiction content creation requires learning of skills, writing skills, how to be popular skills, marketing skills, selling skills, product placement skills, publishing skills. You can't just build a fiction venue like Church or Mosque or Cinema without learning air conditioning and engineering and electrical for lighitng and sound systems. Sill centered around teaching fiction. Sharing fiction. The popularity of fiction.
+Cartoon creators learn fiction story elements. Like if a cartoon mouse on The Simpsons can lift a Cartoon Cat. It requires learning. Fiction content creation is not magical or supernatural. Fiction content creation requires learning of skills, writing skills, how to be popular skills, marketing skills, selling skills, product placement skills, publishing skills. You can't just build a fiction venue like Church or Mosque or Cinema without learning air conditioning and engineering and electrical for lighting and sound systems. Sill centered around teaching fiction. Sharing fiction. The popularity of fiction.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4fxg0/
 
-Ignroance of the history of Church and Mosque and storytelling. Who invnted languages, who invented the Arabic language? Fiction storytellers have huge influence on the world. Donald Trump as a fiction storytelling is changing the world. Putin as a fiction storyteller is changing the world. Reddit users are blind to how Reddit content fiction changes behaviors.
+Ignorance of the history of Church and Mosque and storytelling. Who invented languages, who invented the Arabic language? Fiction storytellers have huge influence on the world. Donald Trump as a fiction storytelling is changing the world. Putin as a fiction storyteller is changing the world. Reddit users are blind to how Reddit content fiction changes behaviors.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4hsnd/
 
-The Reddit comment section is where many pepole go to learn. Reddit comments are fed to train large language models (artificial intelligence) to teach other people. What is learned from Reddit comments is concerning. ... ... ... “Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens?” ― Neil Postman, The End of Education: Redefining the Value of School. September 1995. Etrnal September Year 1.
+The Reddit comment section is where many people go to learn. Reddit comments are fed to train large language models (artificial intelligence) to teach other people. What is learned from Reddit comments is concerning. ... ... ... “Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens?” ― Neil Postman, The End of Education: Redefining the Value of School. September 1995. Eternal September Year 1.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4ireq/
 
-"Glad not a student anhymore" - learning from Reddit venue, learning reddit comments and postings. Learning doesn't happen in a classroom. Learning happens on Fox News HDTV. People so lacking in media ecology self-awareness they can't grasp that Donald Trump is a product of television addiction. Not classroom school addictions, but where people learn and study - on Truth Social, Twitter, Reddit, Facebook, Reality TV, Fox News, Charlie Kirl podcasts, Joe Rogan podcasts. These are the classrooms and pepole on Reddit thinkg they are no longer learning and are no longer students. Unaware of how they learned of Charlie Kirk's shooting and killing, it wasn't likely a school classroom with a teacher reading a book.
+"Glad not a student anymore" - learning from Reddit venue, learning Reddit comments and postings. Learning doesn't happen in a classroom. Learning happens on Fox News HDTV. People so lacking in media ecology self-awareness they can't grasp that Donald Trump is a product of television addiction. Not classroom school addictions, but where people learn and study - on Truth Social, Twitter, Reddit, Facebook, Reality TV, Fox News, Charlie Kirk podcasts, Joe Rogan podcasts. These are the classrooms and people on Reddit thinking they are no longer learning and are no longer students. Unaware of how they learned of Charlie Kirk's shooting and killing, it wasn't likely a school classroom with a teacher reading a book.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nq3kwx/so_dei_is_okay_if_its_you/ng4j2b3/
 
@@ -1350,7 +1350,7 @@ You want to say murder people? Kill people? Hate people? Worship Putin messages?
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4e0sc/
 
-People consider Truth Social comments the attractive soruce of information. Fox News HDTV as a reliable source of learning. Reddit comment sections as time well spent learning. ... ... ... "It means misleading information--misplace, irrelevant, **fragmented or superficial information -- information that creates the illusion of knowing something but which in fact leads one away from knowing**. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that **when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+People consider Truth Social comments the attractive source of information. Fox News HDTV as a reliable source of learning. Reddit comment sections as time well spent learning. ... ... ... "It means misleading information--misplace, irrelevant, **fragmented or superficial information -- information that creates the illusion of knowing something but which in fact leads one away from knowing**. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that **when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4j2lu/
 
@@ -1358,17 +1358,17 @@ The knowledge of fiction characters on Reddit venue is similar to the knowledge 
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4dqed/
 
-As I keep repeating and repeat... and repeating. Tylonly science fiction informaiton is more popular than nonfiction. People are no longer attracted to nonfiction science learnign and understanding, they desire mockery and insutling of Trump White House. Poop diapers, orange skin makeup mocking, golf couse outing mocking. That's what is popular. That is what drives the USA society in September 2025.  People do not wish to use their spare time and free time to study nonfiction learning of addiction to trash media content that Russia has won an information war with since year 2013.
+As I keep repeating and repeat... and repeating. Tylenol science fiction information is more popular than nonfiction. People are no longer attracted to nonfiction science learning and understanding, they desire mockery and insulting of Trump White House. Poop diapers, orange skin makeup mocking, golf course outing mocking. That's what is popular. That is what drives the USA society in September 2025.  People do not wish to use their spare time and free time to study nonfiction learning of addiction to trash media content that Russia has won an information war with since year 2013.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4ki41/
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4i2em/
 
-Reddit comment commuity WANTS more abandoned information in the form of millions of comments that dilute and wreck medium-term and long-term "on the same page" comprehenson and understanding of important and serious topics... People WANT to be fed low-effort memes and comments by the millions each day. Quanity of low-effort.
+Reddit comment community WANTS more abandoned information in the form of millions of comments that dilute and wreck medium-term and long-term "on the same page" comprehension and understanding of important and serious topics... People WANT to be fed low-effort memes and comments by the millions each day. Quantity of low-effort.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4lx8x/
 
-War on women. War on science. Russia's War Against Reality since March 2013. Autism war, war against associative thinking. War against Wikipedia style cross-reference Wiki thinking. “Associative thinkers see relations and connections everywhere and tend not to categorize things. When I hear or read a certain word, I suddenly see a lot of “pictures” in my mind that have something to do with that word. This happens in quite an unstructured and even chaotic way. It's a complicated spiderweb of memories, pictures, and thoughts.” - Casey "Remrov" Vormer, Connecting With The Autism Spectrum: How To Talk, How To Listen, And Why You Shouldn’t Call It High-Functioning. Nonficiton book, page 19 
+War on women. War on science. Russia's War Against Reality since March 2013. Autism war, war against associative thinking. War against Wikipedia style cross-reference Wiki thinking. “Associative thinkers see relations and connections everywhere and tend not to categorize things. When I hear or read a certain word, I suddenly see a lot of “pictures” in my mind that have something to do with that word. This happens in quite an unstructured and even chaotic way. It's a complicated spiderweb of memories, pictures, and thoughts.” - Casey "Remrov" Vormer, Connecting With The Autism Spectrum: How To Talk, How To Listen, And Why You Shouldn’t Call It High-Functioning. Nonfiction book, page 19 
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4if0t/
 
@@ -1382,15 +1382,15 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4jjqq/
 
-Reddit community isn't really speaking up on the hate issues. That autism is used as a joke and insult to dehumanize people. The power of Putin dehumanizing the USA and Ukraine. Informaton warfare to dehumanize and bully persons into self-harm and giving up on progress in USA. The prizing of hate, the prizing of manipulation and deception to bully people and trick them into self-harm that is the very power of Trump and Putin Kremlin / White House.
+Reddit community isn't really speaking up on the hate issues. That autism is used as a joke and insult to dehumanize people. The power of Putin dehumanizing the USA and Ukraine. Information warfare to dehumanize and bully persons into self-harm and giving up on progress in USA. The prizing of hate, the prizing of manipulation and deception to bully people and trick them into self-harm that is the very power of Trump and Putin Kremlin / White House.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4l0mo/
 
-An audience waiting for more humor and fiction to run the world. No desire to seriously address the misunderstanding of autism and deal with misunderstanding, just a desire for more fiction storytelling and abandonment of goodness. that's what drives the USA, that is why Trump is the center of all attention, the fiction excitement the audience feels in anticipation of Trump / RFK Jr / White House next game. The next South Park episode. "Ddissaster Artists", "Disaster Art", "Disaster Reality TV" entertainment for the Reddit audience.
+An audience waiting for more humor and fiction to run the world. No desire to seriously address the misunderstanding of autism and deal with misunderstanding, just a desire for more fiction storytelling and abandonment of goodness. that's what drives the USA, that is why Trump is the center of all attention, the fiction excitement the audience feels in anticipation of Trump / RFK Jr / White House next game. The next South Park episode. "Diaster Artists", "Disaster Art", "Disaster Reality TV" entertainment for the Reddit audience.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4z6e8/
 
-Reddit audience members talking about hte next seasons of the ficiton-run society. Engaged and on the edge of the seat glued to the RFK Jr and Trump performance.
+Reddit audience members talking about the next seasons of the fiction-run society. Engaged and on the edge of the seat glued to the RFK Jr and Trump performance.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4ghw0/
 
@@ -1398,11 +1398,11 @@ Clown-loving audience flocks to Tony Clifton performances shared on Reddit.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4ln8t/
 
-Reddit fiction attracted audience is commenting how this episode of Reality TV White House and Kremlin using Surkov Screenplay has some repeat story motifs as prevous seasons on medical fiction storytelling. Fiction tropes. As long as the Reddit community can avoid nonfiction learning of how Russian Surkov information warfare alters audience behaviors.
+Reddit fiction attracted audience is commenting how this episode of Reality TV White House and Kremlin using Surkov Screenplay has some repeat story motifs as previous seasons on medical fiction storytelling. Fiction tropes. As long as the Reddit community can avoid nonfiction learning of how Russian Surkov information warfare alters audience behaviors.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nq663u/stupidity_spreading_like_wildfire/ng4rmuf/
 
-If you don't measure all the free time and spare time spent on Reddit commenting about it as a consequence of addiction and attractin to fiction White House. ... ... ... Texan Rick Roderick, Duke Univesity: " because part of the postmodern trajectory itself is a rather humorous joke on the human race which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of vengeful act against us absorbing our leisure time, which was to be our living time, into time now spent in the service of what can only be called this inhuman spectacle. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us. So I would be wary of simple answers to this." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+If you don't measure all the free time and spare time spent on Reddit commenting about it as a consequence of addiction and attraction to fiction White House. ... ... ... Texan Rick Roderick, Duke University: " because part of the postmodern trajectory itself is a rather humorous joke on the human race which laboured for millennia to reduce working hours in order to produce leisure so we could enjoy this very leisure that then turns in a kind of vengeful act against us absorbing our leisure time, which was to be our living time, into time now spent in the service of what can only be called this inhuman spectacle. I mean, it’s a very bizarre and twisted fate to which postmodernity has led us. So I would be wary of simple answers to this." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 https://old.reddit.com/r/MapPorn/comments/1nq81hm/netanyahus_flight_to_the_us_avoids_both_french/ng4z6af/
 
@@ -1440,7 +1440,7 @@ https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5fymt/
 
-Reddit media addicts society, comment creators of Reddit,  <img width="1172" height="758" alt="image" src="https://github.com/user-attachments/assets/3920ee92-0f78-4351-bc0f-29d77cc3048a" /> can't come together in common cause and make Jen Senko a household name and take on the Fox News media addicts society. That can be done ANY DAY on Reddit front page, repeated EVERY DAY, no election day or party required. Just family experience that Jen Senko shares, just the expereince of living with people who watch Fox News and repeat the same talking points as Rupert Murdoch desires. Charlie Kirk is a hosehold name now, why can PEACEFUL GOODNESS make Jen Senko a household name? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+Reddit media addicts society, comment creators of Reddit,  <img width="1172" height="758" alt="image" src="https://github.com/user-attachments/assets/3920ee92-0f78-4351-bc0f-29d77cc3048a" /> can't come together in common cause and make Jen Senko a household name and take on the Fox News media addicts society. That can be done ANY DAY on Reddit front page, repeated EVERY DAY, no election day or party required. Just family experience that Jen Senko shares, just the experience of living with people who watch Fox News and repeat the same talking points as Rupert Murdoch desires. Charlie Kirk is a household name now, why can PEACEFUL GOODNESS make Jen Senko a household name? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng59823/
 
@@ -1448,7 +1448,7 @@ Wrong. Fiction is what Republicans offer. Donald Trump is a fiction storyteller.
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng59f5t/
 
-The cultural grievance is that Democrats do not adopt Fox News to be on the same page of billionare worship and weapons worship. Fiction addictions. Bible media ecology. Quran media ecology. Rupert Murdoch media ecology. This is EVERY DAY 24 hour information systems not just elections. People on Reddit keep scatching their head saying "podcaster, why?" about Charlie Kirk. Joe Rogan, Reddit itself, fiction fiction fiction fiction fiction antics and moe antics and fiction. Stand up and CALL IT OUT. 1985 book "Amusing Ourselves To Death" - WITH FICTION! September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+The cultural grievance is that Democrats do not adopt Fox News to be on the same page of billionaire worship and weapons worship. Fiction addictions. Bible media ecology. Quran media ecology. Rupert Murdoch media ecology. This is EVERY DAY 24 hour information systems not just elections. People on Reddit keep scratching their head saying "podcaster, why?" about Charlie Kirk. Joe Rogan, Reddit itself, fiction fiction fiction fiction fiction antics and more antics and fiction. Stand up and CALL IT OUT. 1985 book "Amusing Ourselves To Death" - WITH FICTION! September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5g5ye/
 
@@ -1456,7 +1456,7 @@ Binary, one and two.  <img width="1086" height="750" alt="image" src="https://gi
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng56utd/
 
-Give up on the high road nobody ever took. Nobody defines what the high road means. It's a wildcad of reader imagination. The crisis is staring Reddit device users in the face. Reddit itself. Fiction is what Republicans offer. Donald Trump is a fiction storyteller. Truth Social is fiction. Fox News HDTV is a fiction entertainment network. Wake up to media ecology, "Media Woke".
+Give up on the high road nobody ever took. Nobody defines what the high road means. It's a wildcard of reader imagination. The crisis is staring Reddit device users in the face. Reddit itself. Fiction is what Republicans offer. Donald Trump is a fiction storyteller. Truth Social is fiction. Fox News HDTV is a fiction entertainment network. Wake up to media ecology, "Media Woke".
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5fqhx/
 
@@ -1474,17 +1474,17 @@ Low-effort comments on Reddit are popular. People who spend 3 hours reading thou
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng55gk6/
 
-Bernies is too old. And the Reddit comment section can't even make REDDIT leaders good. Why can't new 35 year old and 40 year old people be found in all the Internet USA to lead? Where are the people with good ideas and honest sincere nonfiction leadership? Bernie Sanders is very very old. There is something WRONG that USA can't name 30 or 50 or 100 good people to lead.
+Bernie is too old. And the Reddit comment section can't even make REDDIT leaders good. Why can't new 35 year old and 40 year old people be found in all the Internet USA to lead? Where are the people with good ideas and honest sincere nonfiction leadership? Bernie Sanders is very very old. There is something WRONG that USA can't name 30 or 50 or 100 good people to lead.
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng577mj/
 
-People can read. Reading isn't the problem as simple as this short tiny-length message frames it. Comphrenesion, understanding. Wikipedia assocations of topic to topic as opposed to Bluesky and Reddit streams and streams of comments that do not educate and do not teach! Junk messages commenting over and over and over without any desire for refinement and editng and getting on GOOD pages of "the samee page" like Wikipedia / Wiki systems do! Addiction to tiny comments is wrecking complex understanding and comrpehension that diverse democracy and a world of over 8 billion people requires. Simple-think Twitter-logic reactionary thinking is wrecking reason thinking. Since the IRA invaded USA media systems in year 2013, politics is now EVERY DAY ALL DAY ANY DAY topic. USA society did not used to be like this. There were not media machines cranking out topics of the White House all the time any time day or night on the most dumb-down Reddit-commenting style topics. People have lost all sense of goodness itself, bamboozled into Truth Social commeting all day and night by Russia! ... ... ... “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re **no longer interested in finding out the truth**. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+People can read. Reading isn't the problem as simple as this short tiny-length message frames it. Comprehension, understanding. Wikipedia associations of topic to topic as opposed to Bluesky and Reddit streams and streams of comments that do not educate and do not teach! Junk messages commenting over and over and over without any desire for refinement and editing and getting on GOOD pages of "the same page" like Wikipedia / Wiki systems do! Addiction to tiny comments is wrecking complex understanding and comprehension that diverse democracy and a world of over 8 billion people requires. Simple-think Twitter-logic reactionary thinking is wrecking reason thinking. Since the IRA invaded USA media systems in year 2013, politics is now EVERY DAY ALL DAY ANY DAY topic. USA society did not used to be like this. There were not media machines cranking out topics of the White House all the time any time day or night on the most dumb-down Reddit-commenting style topics. People have lost all sense of goodness itself, bamboozled into Truth Social commenting all day and night by Russia! ... ... ... “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re **no longer interested in finding out the truth**. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5613z/
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng56lxb/
 
-Trump has the rizz.  <img width="1082" height="422" alt="image" src="https://github.com/user-attachments/assets/9dd52dc2-e3a0-4556-b9ad-e220d8d255f6" /> Trump speaks to a society that the Russian Internet Research mind-fucked into comments lieke this on Reddit. Low-effor Trump ideas.Shallow and superficial. Self-harm the USA by avoding nonfiction serous books and content. The same reason all news outlets / jouralists have abandoned seroius topics in favor of entertainment. This is described foury years ago in Neil Postman's 1985 book "Amsuing Ourselves To Death" about vibe politics of vibe President Ronald Reagan / Entertainment first. Fiction first. ... ... ... "it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World. ” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985 OPERA_A It is Tim Finnegan who has further to Fall, the Finnegans Wake Revival https://youtu.be/JRfuAukYTKg?t=90
+Trump has the rizz.  <img width="1082" height="422" alt="image" src="https://github.com/user-attachments/assets/9dd52dc2-e3a0-4556-b9ad-e220d8d255f6" /> Trump speaks to a society that the Russian Internet Research mind-fucked into comments like this on Reddit. Low-effort Trump ideas. Shallow and superficial. Self-harm the USA by avoiding nonfiction serous books and content. The same reason all news outlets / journalists have abandoned serious topics in favor of entertainment. This is described forty years ago in Neil Postman's 1985 book "Amusing Ourselves To Death" about vibe politics of vibe President Ronald Reagan / Entertainment first. Fiction first. ... ... ... "it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World. ” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985 OPERA_A It is Tim Finnegan who has further to Fall, the Finnegans Wake Revival https://youtu.be/JRfuAukYTKg?t=90
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng58vr2/
 
@@ -1494,7 +1494,7 @@ The limitation this comment can't articulate. Trump offers fiction storytelling,
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng58jrh/
 
-We The People drunk on low-effort Reddit comments and Fox News HDTV.  Why can't people on Reddit use spare time and free time to promot Jen Senko's film instead of creating far less important comment messages? Why hasn't Reddit tried to make Jen Senko a household name to confront cult behaviors of media addicts? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+We The People drunk on low-effort Reddit comments and Fox News HDTV.  Why can't people on Reddit use spare time and free time to promote Jen Senko's film instead of creating far less important comment messages? Why hasn't Reddit tried to make Jen Senko a household name to confront cult behaviors of media addicts? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5b4ow/
 
@@ -1506,7 +1506,7 @@ He will be age 73. That's what audiences cheer for old white men.
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5einx/
 
-Fiction won. "You people are so fucked and you don’t even realize it." - yes. <img width="1274" height="1402" alt="image" src="https://github.com/user-attachments/assets/4f95dbd8-c9c8-437e-b390-cc45f8ed4f0a" /> The Internet Research Agency mind-fucked eveyone with Cambridge Analytica doctorates. People so mind-fucked they can't even see it in the ocean of low-effort comments that avoid the elephant in the room of We The People self-harming the nation as directed by the IRA / CA mind-fucking.
+Fiction won. "You people are so fucked and you don’t even realize it." - yes. <img width="1274" height="1402" alt="image" src="https://github.com/user-attachments/assets/4f95dbd8-c9c8-437e-b390-cc45f8ed4f0a" /> The Internet Research Agency mind-fucked everyone with Cambridge Analytica doctorates. People so mind-fucked they can't even see it in the ocean of low-effort comments that avoid the elephant in the room of We The People self-harming the nation as directed by the IRA / CA mind-fucking.
 
 https://old.reddit.com/r/Music/comments/1nq9j7g/bruce_springsteen_rips_democrats_were_desperately/ng5g4il/
 
@@ -1518,11 +1518,11 @@ https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng681sc/
 
-yes. In October 2013 a book was released by a little girl https://en.wikipedia.org/wiki/I_Am_Malala speaking up. And in November 2013 Donald Trump took a private jet to Moscow to parade women for entertainment. Since roughly the same time period of November 2013, everyday people with free time and spare time on social media in USA and elsewhere in the world have had every chance to promote and recommend we all assert Malala's October 8, 2013 book. Instead, I see grey-rocking and avoidance. When terrorism becomes front page on October 7, 2023 - people are not repeating Malala's leadership asserts about terrorism. People are more thrilled by the sex private jet stories and the terrorism than they are about actually addeessing the underlying causes of poor commprehension of fiction storytelling / education crisis. Women are not beight taught and educated to speak up when abused and manipulated. ... ... ... "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - https://malala.org/news-and-voices/malala-un-speech
+yes. In October 2013 a book was released by a little girl https://en.wikipedia.org/wiki/I_Am_Malala speaking up. And in November 2013 Donald Trump took a private jet to Moscow to parade women for entertainment. Since roughly the same time period of November 2013, everyday people with free time and spare time on social media in USA and elsewhere in the world have had every chance to promote and recommend we all assert Malala's October 8, 2013 book. Instead, I see Grey-rocking and avoidance. When terrorism becomes front page on October 7, 2023 - people are not repeating Malala's leadership asserts about terrorism. People are more thrilled by the sex private jet stories and the terrorism than they are about actually addressing the underlying causes of poor comprehension of fiction storytelling / education crisis. Women are not being taught and educated to speak up when abused and manipulated. ... ... ... "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - https://malala.org/news-and-voices/malala-un-speech
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng64wyp/
 
-Not if you don't learn cult deprogramming and all come together. Manics with guns and terrorists all across the world are a population of over 2.5 billlion people given the 30% estimate of this comment message. What is going to happen with weapon systems evolve and gunpowder is considered old technology and murder and killing becomes far cheaper and easier with new technology? Those 2.5 billion people who have no morals aren't going to act out the self-harm to humanity? It is as if nothing was learned from September 11, 2001 how murder-suicide works on human minds. Russia attacking Ukraine in February 2014 is another lesson people can't seem to grasp. Instead of making low-effort comments on social machines day after day, why can't people organize remedial morality lessons for 8 billion people on Earth?
+Not if you don't learn cult deprogramming and all come together. Manics with guns and terrorists all across the world are a population of over 2.5 billion people given the 30% estimate of this comment message. What is going to happen with weapon systems evolve and gunpowder is considered old technology and murder and killing becomes far cheaper and easier with new technology? Those 2.5 billion people who have no morals aren't going to act out the self-harm to humanity? It is as if nothing was learned from September 11, 2001 how murder-suicide works on human minds. Russia attacking Ukraine in February 2014 is another lesson people can't seem to grasp. Instead of making low-effort comments on social machines day after day, why can't people organize remedial morality lessons for 8 billion people on Earth?
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng5zb1j/
 
@@ -1534,7 +1534,7 @@ https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng6468e/
 
-Social media comment addicts in USA will not stop their addiction no-identity low-quality comments in mass quantity no matter how much you try to convince them that people didn't used to have smartphones and touch devices like the Apple iPad in their face at all times messaging anti-intellectual anti-comrpehension reactions and content. That we can face up to our addiction media behavior to a Reality TV "The Apprentice" star content addiction. that our life is bettter off without millions of old-man diaper jokes and terrible nicknames and calling out orange skin with high-speed media systems all the time. Tony Clifton acts are not a good way to lead a nation. Russia has been dong this for 25 years.
+Social media comment addicts in USA will not stop their addiction no-identity low-quality comments in mass quantity no matter how much you try to convince them that people didn't used to have smartphones and touch devices like the Apple iPad in their face at all times messaging anti-intellectual anti-comprehension reactions and content. That we can face up to our addiction media behavior to a Reality TV "The Apprentice" star content addiction. that our life is better off without millions of old-man diaper jokes and terrible nicknames and calling out orange skin with high-speed media systems all the time. Tony Clifton acts are not a good way to lead a nation. Russia has been dong this for 25 years.
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng65ten/
 
@@ -1552,17 +1552,17 @@ Trump has said many truthful things, but people can not tell reality from anti-r
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng6bj02/
 
-"there is something wrong" that a person wants to have Donald Trump removed from the center of all attention. There is something wrong with the media enviornment of Reddit where people can't see the Donald Trump issue and constantly entertainment-wash that it's great to have a President to joke-on mock and insult all the time and Late Night Comedy television making jokes about a President is the leadershp we need! Reddit users can't escape their comment fixations and enage nonfiction paper-printed books. ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+"there is something wrong" that a person wants to have Donald Trump removed from the center of all attention. There is something wrong with the media environment of Reddit where people can't see the Donald Trump issue and constantly entertainment-wash that it's great to have a President to joke-on mock and insult all the time and Late Night Comedy television making jokes about a President is the leadership we need! Reddit users can't escape their comment fixations and engage nonfiction paper-printed books. ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng60nkm/
 
-Blue vs. Red, Red vs. Blue. Sports mentality, "winner takes all", a loss of comprehension that governing is not about defeating We The People and attacking We The People. That's Russian informationw arfare attacking USA population and people are so bamboozled by Putin's IRA they can't face that the Internet Resarch Agency is not a hoax. It invaded Reddit. The owners of Reddit don't care who manipulates people into humor-washing Putin and Trump. Jokes are welcome, even if they wash away all goodness. An audience LOL to death. https://www.bbc.com/news/technology-43255285
+Blue vs. Red, Red vs. Blue. Sports mentality, "winner takes all", a loss of comprehension that governing is not about defeating We The People and attacking We The People. That's Russian information warfare attacking USA population and people are so bamboozled by Putin's IRA they can't face that the Internet Research Agency is not a hoax. It invaded Reddit. The owners of Reddit don't care who manipulates people into humor-washing Putin and Trump. Jokes are welcome, even if they wash away all goodness. An audience LOL to death. https://www.bbc.com/news/technology-43255285
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng66rq7/
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng61wm2/
 
-People do not comprehend or understand their own media anti-reality. Neil Postmans' 1985 book "Amusing Ourselves To Death" is not optional learning.
+People do not comprehend or understand their own media anti-reality. Neil Postman's 1985 book "Amusing Ourselves To Death" is not optional learning.
 
 https://old.reddit.com/r/videos/comments/1nqde7o/trump_claims_the_epstein_files_are_a_hoax_because/ng6ap3w/
 
@@ -1576,7 +1576,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_k
 
 https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5l029/
 
-Media addict tribes vs. podcaster media addict tribes. People raise by parent to believe it is very important to hate out-group hate media. that if you are raised on Quran you must hate Bible science fiction readers. That if you like one rock music band, it's important to declare what you hate. In almost all situations, no comparative mythology or metaphr to metaphor translation teachings. A society that can't see the attraction people have to Donald Trump is an attraction to hate. The *hate harder* values of USA in total nation, everyone. “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013
+Media addict tribes vs. podcaster media addict tribes. People raise by parent to believe it is very important to hate out-group hate media. that if you are raised on Quran you must hate Bible science fiction readers. That if you like one rock music band, it's important to declare what you hate. In almost all situations, no comparative mythology or metaphor to metaphor translation teachings. A society that can't see the attraction people have to Donald Trump is an attraction to hate. The *hate harder* values of USA in total nation, everyone. “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013
 
 https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5r7op/
 
@@ -1589,13 +1589,13 @@ https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_k
 
 https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5lpoh/
 
-The write-only comment behaviors of Reddit community creating comments without comprehdning what others are saying. You see this on Blueksy. Especially image reactons / meme animation reactions. They demonstrate no comrephension in many cases.
+The write-only comment behaviors of Reddit community creating comments without comprehending what others are saying. You see this on Bluesky. Especially image reactions / meme animation reactions. They demonstrate no comprehension in many cases.
 
 https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng61jdl/
 
 https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5j4mu/
 
-Addiction to fiction, cravings for fiction leaders, even when people aren't self-aware they are freeding it...
+Addiction to fiction, cravings for fiction leaders, even when people aren't self-aware they are feeding it...
 
 https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_keeps_being_removed_from/ng5m988/
 
@@ -1611,15 +1611,15 @@ https://old.reddit.com/r/CringeTikToks/comments/1nqb2dn/charlie_kirk_clip_that_k
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7jnlj/
 
-People don't consider Stephen King books and films dilususional. Fiction stories are more popular to people than nonfiction serious learning. Donald Trump and Putin provide fiction storytelling as leaders. Fox News HDTV also provides fiction storytelling.
+People don't consider Stephen King books and films delusional. Fiction stories are more popular to people than nonfiction serious learning. Donald Trump and Putin provide fiction storytelling as leaders. Fox News HDTV also provides fiction storytelling.
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7gstu/
 
-Reddit comment audience flocks to fiction storytelling and enjoys describng how the acting is bad in scome scenes, and the plot isn't so good in the ending. Entertainment and use of Twitter meme venue matters more to people than sincere honest everyday people using real names on Reddit comments. Anythiung to avoid the nonfiction serious learning of how Russian Putin government operates and manipulates everyday people.. ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+Reddit comment audience flocks to fiction storytelling and enjoys describing how the acting is bad in scone scenes, and the plot isn't so good in the ending. Entertainment and use of Twitter meme venue matters more to people than sincere honest everyday people using real names on Reddit comments. Anything to avoid the nonfiction serious learning of how Russian Putin government operates and manipulates everyday people.. ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng735sh/
 
-People fall for the Internet Research Agency right on Reddit. Unwilling to staand up evenw when little girls are killed by measles! Or little boys abused by parents because of Russsia. Instead, what's important is creatin a lot of comment messages, not getting on the same NONFICTION page and having people wake up from their meme stupors and LOL amusement about golf outings and orange skin color and other unimportant entertainment commentary. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
+People fall for the Internet Research Agency right on Reddit. Unwilling to stand up even when little girls are killed by measles! Or little boys abused by parents because of Russia. Instead, what's important is creating a lot of comment messages, not getting on the same NONFICTION page and having people wake up from their meme stupors and LOL amusement about golf outings and orange skin color and other unimportant entertainment commentary. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7f016/
 
@@ -1627,7 +1627,7 @@ How hard is it to find actors for Hollywood TV shows and films? Plenty of people
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7ipo7/
 
-The scariest thing to me is if people assocaite the removal of Donald Trump with the sustained focus onthe magical Epstein List ... when the next self-harm leader comes along that doesn't have a child sex act, they still won't know how to remove a President because hate makes for bad leaders. Karoline Leavitt is only 27 years old and not on the Epstein List, but she should be removed because she manipulates / uses deception leadership / and uses out-group hate as the foundation for motivation. But peoopleon Reddit act as if the only imporatnt focus on Donald  Trump is the magical Epstein List. Not removing Trump because he is raising our children to admire liars and falsehoods, to trust liars like Putin, and hate harder as a USA motivationt technique. OPERA_A I can't stnad the hate attitudes, the faith in hate, and the worship of hate every day all day that Karoline Leavitt and Donald Trump encourage and promote. That is the problem I wam tryning to address with my GitHub commentary. Hate sucks, the USA ocean of hate fail is a terrible place to live, we need reformation. Hate can't be the Face of the American Dream! https://www.youtube.com/watch?v=Iww5eeEjxiI
+The scariest thing to me is if people associate the removal of Donald Trump with the sustained focus on the magical Epstein List ... when the next self-harm leader comes along that doesn't have a child sex act, they still won't know how to remove a President because hate makes for bad leaders. Karoline Leavitt is only 27 years old and not on the Epstein List, but she should be removed because she manipulates / uses deception leadership / and uses out-group hate as the foundation for motivation. But people on Reddit act as if the only important focus on Donald  Trump is the magical Epstein List. Not removing Trump because he is raising our children to admire liars and falsehoods, to trust liars like Putin, and hate harder as a USA motivation technique. OPERA_A I can't stand the hate attitudes, the faith in hate, and the worship of hate every day all day that Karoline Leavitt and Donald Trump encourage and promote. That is the problem I am trying to address with my GitHub commentary. Hate sucks, the USA ocean of hate fail is a terrible place to live, we need reformation. Hate can't be the Face of the American Dream! https://www.youtube.com/watch?v=Iww5eeEjxiI
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng74l01/
 
@@ -1635,19 +1635,19 @@ https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng776xv/
 
-So funny and enteratining for the Reddit crowd that arrives for every Twitter message from the White House to taste-test and comment about. A society of people who find Trump White House to be a constant source of enteratinment and amusement.
+So funny and entertaining for the Reddit crowd that arrives for every Twitter message from the White House to taste-test and comment about. A society of people who find Trump White House to be a constant source of entertainment and amusement.
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng721nd/
 
-If the bartender was bamboozed to serve Russian IRA content like Reddit owners and Facebook owners, then yes, blaming the bartender for intxociating the public with Kremlin mind=-fuck since March 2013 is a crisis.
+If the bartender was bamboozled to serve Russian IRA content like Reddit owners and Facebook owners, then yes, blaming the bartender for intoxicating the public with Kremlin mind-fuck since March 2013 is a crisis.
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng71wu0/
 
-Amusement-washing the situation. Entertainment-washing. The constant Reddit machines deliveering comments taht everything the Trump White House does is sports-like enteratinment. Anything to avoid sustained repeating nonfocus important assertiosn to fight back against the Russians. https://www.bbc.com/news/world-us-canada-45294192
+Amusement-washing the situation. Entertainment-washing. The constant Reddit machines delivering comments that everything the Trump White House does is sports-like entertainment. Anything to avoid sustained repeating nonfiction focused important assertions to fight back against the Russians. https://www.bbc.com/news/world-us-canada-45294192
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng76tid/
 
-Fiction otusells on Reddit content, Twitter content, and White House has found a ready audience who wants fiction. People don't consider Star Wars Andor to be "ies" because in fiction, it's normal to fabricate reality. That's the draw for audience. Borning uninteresting nonfiction section of the public library doesn't draw Reddit and Twitter crowds. Anything to avoid sustained repeating nonfocus important assertiosn to fight back against the Russians. https://www.bbc.com/news/world-us-canada-45294192
+Fiction outsells on Reddit content, Twitter content, and White House has found a ready audience who wants fiction. People don't consider Star Wars Andor to be "lies" because in fiction it's normal to fabricate reality. That's the draw for audience. Boring uninteresting nonfiction section of the public library doesn't draw Reddit and Twitter crowds. Anything to avoid sustained repeating nonfiction focus important assertions to fight back against the Russians. https://www.bbc.com/news/world-us-canada-45294192
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng76wxd/
 
@@ -1659,15 +1659,15 @@ Fiction audience members and sports fans in the audience say the most banal insu
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7euaf/
 
-Can Reddit users every focus on nonfiction learning of the problems with high-speed Reddit media and high-speed Fox News HDTV and study nonfiction about how Russia has manpulated Americans? Can Reddit comment call for people to stay on the same topic of standing up to Russian media techniques?
+Can Reddit users every focus on nonfiction learning of the problems with high-speed Reddit media and high-speed Fox News HDTV and study nonfiction about how Russia has manipulated Americans? Can Reddit comment call for people to stay on the same topic of standing up to Russian media techniques?
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7eypu/
 
-How are Americans so stupid? How about flocking to low-effort Reddit comments and Twitter messages like this one shared off Twitter to Reddit? And losing a war to Russia since year 2013 andnot learning about addiction to low-quality commenting and information? ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+How are Americans so stupid? How about flocking to low-effort Reddit comments and Twitter messages like this one shared off Twitter to Reddit? And losing a war to Russia since year 2013 and not learning about addiction to low-quality commenting and information? ... ... ... “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7eyzs/
 
-The Simpsons writers make up story and content over and over for decades. People have decided that low-effort commenting and fiction storytelling is what they enjoy and engage while avoiding nonfiction learning of how Russian informaiton warfare worksand Surkov Russian governing methods.
+The Simpsons writers make up story and content over and over for decades. People have decided that low-effort commenting and fiction storytelling is what they enjoy and engage while avoiding nonfiction learning of how Russian information warfare works and Surkov Russian governing methods.
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7hwqz/
 
@@ -1679,11 +1679,11 @@ It's like The Simpsons story writers can animate anything they want. Or South Pa
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7ikia/
 
-Reddit users don't just tolerate it, they choose fiction for entertainment all the time. People prize fiction, and avoid nonficiton learning about how Russian information warfare works on social device users. ... ... ... "The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+Reddit users don't just tolerate it, they choose fiction for entertainment all the time. People prize fiction, and avoid nonfiction learning about how Russian information warfare works on social device users. ... ... ... "The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7j8f9/
 
-Audiences on Reddit cheer out how this fiction Twitter storytellingis so much better than organized nonfiction learning of how Russian information warfare defeated the USA since year 2013.
+Audiences on Reddit cheer out how this fiction Twitter storytelling is so much better than organized nonfiction learning of how Russian information warfare defeated the USA since year 2013.
 
 https://old.reddit.com/r/MurderedByWords/comments/1nqi5vb/its_like_a_car_driver_asking_the_passenger_to/ng7hi7p/
 
@@ -1705,7 +1705,7 @@ Absolute moronson Reddit who in 2016 still couldn't recognize the Russian media 
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng797bf/
 
-The reddit comment section timeline. The timeline of avoiding the nonfiction section of the public library in amusement addiction. Entertainment addicts on meme sites timeline. "My dad predicted Trump in 1985 – it's not Orwell, he warned, it's Brave New World. Andrew Postman. Thursday 2 Feb 2017 13.09 EST" https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
+The Reddit comment section timeline. The timeline of avoiding the nonfiction section of the public library in amusement addiction. Entertainment addicts on meme sites timeline. "My dad predicted Trump in 1985 – it's not Orwell, he warned, it's Brave New World. Andrew Postman. Thursday 2 Feb 2017 13.09 EST" https://www.theguardian.com/media/2017/feb/02/amusing-ourselves-to-death-neil-postman-trump-orwell-huxley
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7kazn/
 
@@ -1729,7 +1729,7 @@ This Reddit comment... [Surkovian Onion Eating. thinking this is observable but 
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng74td8/
 
-You hate to admit the truth of how your brain gets exploited and you don't recognize that someone else noticed and that is Putin and Trump. Russia techniques you flock to compuslive and do not understand. No educaiton on how information warfare works.
+You hate to admit the truth of how your brain gets exploited and you don't recognize that someone else noticed and that is Putin and Trump. Russia techniques you flock to compulsive and do not understand. No education on how information warfare works.
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng76hra/
 
@@ -1745,7 +1745,7 @@ But you guys on Reddit don't realize that it's Rusian information warfare and yo
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7fjlr/
 
-<img width="1372" height="478" alt="image" src="https://github.com/user-attachments/assets/b8652a77-fca1-4679-bb2c-f58811e59fe8" /> Reality has turned into Russia's screen game ARG that you lost. Low-effort comments that get abandoned hours later, people using social machines wtih spare time and free time, is a distraction from organizing sustained important focus on nonfiction learning of how Russia won an information war since year 2013. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+<img width="1372" height="478" alt="image" src="https://github.com/user-attachments/assets/b8652a77-fca1-4679-bb2c-f58811e59fe8" /> Reality has turned into Russia's screen game ARG that you lost. Low-effort comments that get abandoned hours later, people using social machines with spare time and free time, is a distraction from organizing sustained important focus on nonfiction learning of how Russia won an information war since year 2013. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng72s8u/
 
@@ -1759,7 +1759,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_p
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng76lac/
 
-You amusement-washed Trump and MAGA just as you are doing in Septembe 2025 comment section. You still don't know about the Internet Research Agency and Cambridge Analytic and how they exploit your mind into flocking to shit from Trump and Putin.
+You amusement-washed Trump and MAGA just as you are doing in September 2025 comment section. You still don't know about the Internet Research Agency and Cambridge Analytic and how they exploit your mind into flocking to shit from Trump and Putin.
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng784rl/
 
@@ -1775,7 +1775,7 @@ Donald Trump playing comedy screenplay of Tony Clifton and Surkov students. Redd
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng75g1c/
 
-OPERA_A  I would love to tour the Southland / In a travelling minstrel show / Yes I'd love to tour the Southland  ... Napoleon saw his island. https://www.youtube.com/watch?v=UBxZFadp9Pw
+OPERA_A  I would love to tour the Southland / In a traveling minstrel show / Yes I'd love to tour the Southland  ... Napoleon saw his island. https://www.youtube.com/watch?v=UBxZFadp9Pw
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7jdo5/
 
@@ -1793,7 +1793,7 @@ Amusing Ourselves To Death, 1985, Neil Postman.
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng74qgl/
 
-<img width="1478" height="476" alt="image" src="https://github.com/user-attachments/assets/89d3e1c4-768e-44dd-bbaf-f203c2776e85" /> Trump has run casinos (comedy venues), Trump is a Reality TV actor, he knows Andy Kaufman from New York City his home town. Reddit audiences are inciredibly ignorant of Russian information warfare. You are entirely blided on Reddit that this is Tony Clifton scripted comedy. You thnk Reality TV is nonscripted. 
+<img width="1478" height="476" alt="image" src="https://github.com/user-attachments/assets/89d3e1c4-768e-44dd-bbaf-f203c2776e85" /> Trump has run casinos (comedy venues), Trump is a Reality TV actor, he knows Andy Kaufman from New York City his home town. Reddit audiences are incredibly ignorant of Russian information warfare. We are entirely blinded on Reddit that this is Tony Clifton scripted comedy. We think Reality TV is conscripted. 
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng730jy/
 
@@ -1807,7 +1807,7 @@ BBC, the UK, you say. Nonfiction. https://www.realclearpolitics.com/video/2014/1
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng74rlv/
 
-<img width="932" height="352" alt="image" src="https://github.com/user-attachments/assets/efdac9c7-9c04-40a4-bbf7-489982248291" /> Russian information warfare. Blind to it on Reddit. Surkov Won, USA lost the informaiton war against reality, the war against nonfiction.
+<img width="932" height="352" alt="image" src="https://github.com/user-attachments/assets/efdac9c7-9c04-40a4-bbf7-489982248291" /> Russian information warfare. Blind to it on Reddit. Surkov Won, USA lost the information war against reality, the war against nonfiction.
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng76kvh/
 
@@ -1859,7 +1859,7 @@ WTF WTF minds blown. December 31, 2014 ... New Years Eve BBC: "But the key thing
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7ll0m/
 
-Hollywood Reality TV dominates. <img width="1456" height="420" alt="image" src="https://github.com/user-attachments/assets/f9933dcb-52c8-48cc-aa98-e879ba582808" /> As a fan of the music band, I can say Americans have sold out their hearts to Putin. OPERA_A repeat track repeating this song. Meddia addicts of Reddit, you are as cold as D.O.G.E and I.C.E in how you sacrifice compassion and love of We The People for antics mockery for TEN YEARS, and you never take nonfiction learning from Neil Postman. I've seen it before.... https://www.youtube.com/watch?v=ySb1f9zWJkQ
+Hollywood Reality TV dominates. <img width="1456" height="420" alt="image" src="https://github.com/user-attachments/assets/f9933dcb-52c8-48cc-aa98-e879ba582808" /> As a fan of the music band, I can say Americans have sold out their hearts to Putin. OPERA_A repeat track repeating this song. Media addicts of Reddit, you are as cold as D.O.G.E and I.C.E in how you sacrifice compassion and love of We The People for antics mockery for TEN YEARS, and you never take nonfiction learning from Neil Postman. I've seen it before.... https://www.youtube.com/watch?v=ySb1f9zWJkQ
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7479g/
 
@@ -1885,11 +1885,11 @@ Audience loves being mind-fucked by Putin and Trump.
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7lepd/
 
-Eating up the Surkovian Onions and declaring bitter super-high acid Moscow Onions are the new Sugar. Abandoned low-acid Wala Wala and Valdellia, bittre and hate-filled attracts flies to shit. Putin won, surkov won, since year 2013. Self-harm USA enjoying the entertainment, Infinte Jest V.
+Eating up the Surkovian Onions and declaring bitter super-high acid Moscow Onions are the new Sugar. Abandoned low-acid Wala Wala and Valdellia, bitter and hate-filled attracts flies to shit. Putin won, Surkov won, since year 2013. Self-harm USA enjoying the entertainment, Infinite Jest V.
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng75wxb/
 
-Yet the learned in middle school how to draw an audience with antics and mind-fucking and to put brain exploits of Reddit and Fox News HDTV and Elon Musk Twiter and Russia Today above all else. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage, etc, etc, etc, etc. Media ecology learning is in essential to rescue the USA! All persons age 12 to age 120 need to study Neil Postman ASAP! We are in feedback loops of fiction vs. fiction. High-speed messaging addictions.
+Yet the learned in middle school how to draw an audience with antics and mind-fucking and to put brain exploits of Reddit and Fox News HDTV and Elon Musk Twitter and Russia Today above all else. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage, etc, etc, etc, etc. Media ecology learning is in essential to rescue the USA! All persons age 12 to age 120 need to study Neil Postman ASAP! We are in feedback loops of fiction vs. fiction. High-speed messaging addictions.
 
 https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7pr8w/
 
@@ -1943,7 +1943,7 @@ Trump is so funny to Reddit audiences. Audiences find it so entertaining and amu
 
 https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7r7tb/
 
-Reddit addicts to antics wants self-harm to USA and children future destroyed by antics. Entertainent for Reddit!
+Reddit addicts to antics wants self-harm to USA and children future destroyed by antics. Entertainment for Reddit!
 
 https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7k2sf/
 
@@ -1971,7 +1971,7 @@ So funny, calling out for more Trump!
 
 https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7mte4/
 
-Audienece cheering on Trump.
+Audience cheering on Trump. Thrilled at Putin’s directions to wreck the USA with nonsense content and self-harm behaviors.
 
 https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7q4sc/
 
@@ -1999,11 +1999,11 @@ Reddit eats it up and is unable to describe what Cambridge Analytica does to min
 
 https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6ks4g/
 
-The Reddit community ansewr to serious problems is millions of low-effort comment messages. Spening free time and spare time to spread low-effort disposable informaiton, avoiding nonfiction public library books about the topics.
+The Reddit community answer to serious problems is millions of low-effort comment messages. Spending free time and spare time to spread low-effort disposable information, avoiding nonfiction public library books about the topics.
 
 https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6vl3i/
 
-Social media laugh track for audience. "LOL" messaging that this is entertaing and not to be taken as serious real-world, but taken as fiction funny shit.
+Social media laugh track for audience. "LOL" messaging that this is entertaining and not to be taken as serious real-world, but taken as fiction funny shit.
 
 https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6exzk/
 
@@ -2021,23 +2021,23 @@ https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_america
 
 https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng7ps69/
 
-Reddit messaging promoting taht deporting difficult people makes life easy. Deport-happy. Trump MAGA values: deport people you don't understand, eject them from the nation, makes life easier.
+Reddit messaging promoting that deporting difficult people makes life easy. Deport-happy. Trump MAGA values: deport people you don't understand, eject them from the nation, makes life easier.
 
 https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng7q7jw/
 
-Reddit normalied it for over a decade. Finding Trump so entertaining to hate Trump, mock Hate, endless mocking and insulting: diapers, golf games, orange skin. Everything superficial and shallow to keep avoiding using spare time and free time to learn nonfiction about Russian information warfare. Instead, spare time spent commenting over and over in millions of disposable messages.
+Reddit audience normalized it for over a decade. Finding Trump so entertaining to hate Trump, mock Hate, endless mocking and insulting: diapers, golf games, orange skin. Everything superficial and shallow to keep avoiding using spare time and free time to learn nonfiction about Russian information warfare. Instead, spare time spent commenting over and over in millions of disposable messages.
 
 https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8153b/
 
-Russia manipulated reddit. Avoidance of nonfiction in favor of low-effort no-citation Reddit comment messages. People on Reddit can't even name the "Internet Research Agency" or "Cambridge Analytica" https://www.bbc.com/news/technology-43301643
+Russia manipulated Reddit audience. Avoidance of nonfiction in favor of low-effort no-citation Reddit comment messages. People on Reddit can't even name the "Internet Research Agency" or "Cambridge Analytica" https://www.bbc.com/news/technology-43301643
 
 https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8fe1y/
 
-I don't witness apathy, I see extreme attraction and excitement over all the mocking Trump hate Trump messaging. Peole thriilled to rush to their touch devices and make social comments about Trump. An audience glued to bullshit addictions.
+I don't witness apathy, I see extreme attraction and excitement over all the mocking Trump hate Trump messaging. People thrilled to rush to their touch devices and make social comments about Trump. An audience glued to bullshit addictions.
 
 https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8hw7f/
 
-Live video of I.C.E. is exciting to people. Street gang violence is far more attractive to video junkies and meme addicts than onfiction books at the public library to study and learn about Russian information warfare methods. Reddit meme addicts love breakign news notifications to react-comment about footage of I.C.E. raids. ... ... ... "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev. September 9 2014, 3:42 PM ET. “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to **make a few arrests — and then amplify the message** through his total control of television.”
+Live video of I.C.E. is exciting to people. Street gang violence is far more attractive to video junkies and meme addicts than nonfiction books at the public library to study and learn about Russian information warfare methods. Reddit meme addicts love breaking news notifications to react-comment about footage of I.C.E. raids. ... ... ... "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev. September 9 2014, 3:42 PM ET. “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to **make a few arrests — and then amplify the message** through his total control of television.”
 
 https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8i4ij/
 
@@ -2055,7 +2055,7 @@ https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_america
 
 https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8ki1z/
 
-Comments that people should not be allowed to vote. Messages to supress voting in USA elections on Reddit.
+Comments that people should not be allowed to vote. Messages to suppress voting in USA elections on Reddit.
 
 https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8ky6m/
 
@@ -2077,7 +2077,7 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republ
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7dtwu/
 
-Reddit users can't link any nonfiction learning, name any book authors, name the "Russian Internet Agency" or "Cambridge Analytica", no book titles. Addicted to shallow information. Low-effort comments that get abandoned hours later, people using social machines wtih spare time and free time, is a distraction from organizing sustained important focus on nonfiction learning of how Russia won an information war since year 2013. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+Reddit users can't link any nonfiction learning, name any book authors, name the "Russian Internet Agency" or "Cambridge Analytica", no book titles. Addicted to shallow information. Low-effort comments that get abandoned hours later, people using social machines with spare time and free time, is a distraction from organizing sustained important focus on nonfiction learning of how Russia won an information war since year 2013. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng77tgv/
 
@@ -2085,7 +2085,7 @@ Reddit comment creators using free time and spare time to direct people away fro
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7qgx0/
 
-The Russian IRA started in Q2 2013, before the February 2014 Ukaine land war. But Reddit users have extreme recency bias and avoidance of nonfiction learning to defend the USA from Putin.
+The Russian IRA started in Q2 2013, before the February 2014 Ukraine land war. But Reddit users have extreme recency bias and avoidance of nonfiction learning to defend the USA from Putin.
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7doln/
 
@@ -2093,7 +2093,7 @@ Russian information warfare since March 2013 has blown minds of USA population.
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7nop7/
 
-People love and addore messages demonstrating that the IRA has defeated Americans, that Russia won an information war of hearts and minds to self-harm the USA by avoiding nonfiction learning about Putin's methods in detail.
+People love and adore messages demonstrating that the IRA has defeated Americans, that Russia won an information war of hearts and minds to self-harm the USA by avoiding nonfiction learning about Putin's methods in detail.
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng73aib/
 
@@ -2113,11 +2113,11 @@ Trump entertains people on Reddit and other media platforms. People in USA can n
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7fxnc/
 
-She was literally manipuated by billionares like Rupert Murdoch and billionare Trump and billionare Twitter owner Elon Musk and insincere mockery messages.
+She was literally manipulated by billionaires like Rupert Murdoch and billionaire Trump and billionaire Twitter owner Elon Musk and insincere mockery messages.
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7hcyg/
 
-Amazing that these people on Reddit comment sections believe drowning serious important nonfiction information about Russian information warfare with millions and millions of low-effort disposable comment messages isn't the problem. That people unable to get on the same page of serious topics, like refined knowledge of Wikipedia, isn't important - and more and more low-effort commenting is what the USA should be spenidng free time and spare time to educate the population with.
+Amazing that these people on Reddit comment sections believe drowning serious important nonfiction information about Russian information warfare with millions and millions of low-effort disposable comment messages isn't the problem. That people unable to get on the same page of serious topics, like refined knowledge of Wikipedia, isn't important - and more and more low-effort commenting is what the USA should be spending free time and spare time to educate the population with.
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7anml/
 
@@ -2149,7 +2149,7 @@ https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effe
 
 https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7cbpy/
 
-Sus "trans' bio on account, saying that podcasters have been assisnated without evidence.
+Sus "trans' bio on account, saying that podcasters have been assassinated without evidence.
 
 https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7mvf8/
 
@@ -2199,7 +2199,7 @@ https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes
 
 https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng97xfx/
 
-Reddit comment section values millions and millions of low-effort comments, quanity, over nonfiction book learning and serious sustained reading of complex works of understanding and comprehension.
+Reddit comment section values millions and millions of low-effort comments, quantity, over nonfiction book learning and serious sustained reading of complex works of understanding and comprehension.
 
 https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7k14e/
 
@@ -2209,19 +2209,19 @@ https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes
 
 https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7rzi1/
 
-Reddit comment sections smear humor on the wall, amusement on the wall, on all serious topics. Very few call out that we need to get on the ***same page of serious topics*** and instead prize low-effort comments to drown out meidum-term (2 months) and long-term (15 years) understanding of Russian information warfare to reset minds with humor surreal comedy absurd humor exploits. 
+Reddit comment sections smear humor on the wall, amusement on the wall, on all serious topics. Very few call out that we need to get on the ***same page of serious topics*** and instead prize low-effort comments to drown out medium-term (2 months) and long-term (15 years) understanding of Russian information warfare to reset minds with humor surreal comedy absurd humor exploits. 
 
 https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7kjbz/
 
-Whatever you do, don't share non-fiction about how Reddit is used to incite mental states of out-group mocking and insulting and not see the forest for the trees. To only think it is the others and not right here on Reddit comments and Bluesky comments and Facebook comments and not ehre in USA. 
+Whatever you do, don't share non-fiction about how Reddit is used to incite mental states of out-group mocking and insulting and not see the forest for the trees. To only think it is the others and not right here on Reddit comments and Bluesky comments and Facebook comments and not here in USA. 
 
 https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7rxfj/
 
-How can the Reddit comment section of machine cloud computing lovers attract so many people who hide their real name, favor anonymous no-identity emssages of low-meaning but high quality swill media.
+How can the Reddit comment section of machine cloud computing lovers attract so many people who hide their real name, favor anonymous no-identity messages of low-meaning but high quality swill media.
 
 https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng9887g/
 
-Bottom up from the Russian Internset Research Agency on Reddit, which has convinced people with tiny short messages to avoid nonfiction and favor and flock to commenting over and over and over every day on fresh postings disposable messages. 
+Bottom up from the Russian Internet Research Agency on Reddit, which has convinced people with tiny short messages to avoid nonfiction and favor and flock to commenting over and over and over every day on fresh postings disposable messages. 
 
 https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng8bixv/
 
@@ -2231,11 +2231,11 @@ https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes
 
 https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng8x91n/
 
-Banality-washing with tiny-short messages, millions of Reddit coments that context change the minds of the audience. Instead of asserting more deep-thinking on the subject of hate. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+Banality-washing with tiny-short messages, millions of Reddit comments that rapidly context change the minds of the audience. Instead of asserting more deep-thinking on the subject of hate. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
 https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng96xd3/
 
-If the USA were a serious nation, people on Reddit would use their free time and spare time to call for sustained repeat focus on serious learning about Russian internet warfare instead of commenting. Poeople would cry out that we all need to stop humor-washing and entertainment-washing Trump and that our minds are being exploited with surreal comedy and absurd humor memes.
+If the USA were a serious nation, people on Reddit would use their free time and spare time to call for sustained repeat focus on serious learning about Russian internet warfare instead of commenting. People would cry out that we all need to stop humor-washing and entertainment-washing Trump and that our minds are being exploited with surreal comedy and absurd humor memes.
 
 https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng56n9e/
 
@@ -2251,25 +2251,25 @@ People can't grasp glaring obvious. Trump is an entertainment, fiction content R
 
 https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5ebo5/
 
-The pasth 10 years, eh? The Internet Research Agency invaded Reddit and other media sytems since Q2 2013.
+The past 10 years, eh? The Internet Research Agency invaded Reddit and other media systems since Q2 2013.
 
 https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5i5nq/
 
-Another Reddit comment saying "cult", where is Reddit standing up and calling an emergecy that cults have taken over the USA? That cults are out of control? A call to all go to the nonfiction section of the publci library and find every book about cults and start teaching on Reddit? crickets.
+Another Reddit comment saying "cult", where is Reddit standing up and calling an emergency that cults have taken over the USA? That cults are out of control? A call to all go to the nonfiction section of the public library and find every book about cults and start teaching on Reddit? crickets.
 
 https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng778wq/
 
-Reddit is a river of washing away important topics with low-effort commeting. 
+Reddit is a river of washing away important topics with low-effort commenting. 
 
 https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5pv2b/
 
-Reddit commenting keeps people in simcucra. War against Reality from Russia has total population, everyone, in USA vs. USA, Americans insutling and mockng Americans, unable to engage nonfiction learning of Russian techniques.
+Reddit commenting keeps people in simulacra. War against Reality from Russia has total population, everyone, in USA vs. USA, Americans insulting and mocking Americans, unable to engage nonfiction learning of Russian techniques.
 
 https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5ivgn/
 
 https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5eu9k/
 
-Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
+Filter bubbles, subscribe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
 
 https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng7ft3z/
 
@@ -2361,7 +2361,7 @@ https://old.reddit.com/r/politics/comments/1nqqoxh/gop_lawmaker_calls_for_dem_co
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/nga014w/
 
-People consntalty saying *the other half* or some other slice instead of seeing the simualacra of avoiding serious nonfiction learning and teaching spans all. Since year 2013, the IRA manipulated everyone to self-harm the USA and avoid learning nonfiction about Russian information warfare overthe Internet. 
+People constantly messaging and saying *the other half* or some other slice instead of seeing the simulacra of avoiding serious nonfiction learning and teaching spans all. Since year 2013, the IRA manipulated everyone to self-harm the USA and avoid learning nonfiction about Russian information warfare over the Internet. 
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng95srq/
 
@@ -2375,7 +2375,7 @@ https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domest
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9p8m4/
 
-People imagining that a VPN within USA to reach Reddit won'tbe detectable. Magical thinking. Directly making changes to Reddit servers by order of the federal government as anti-terrorism can be done without public notice. Even an operationg system update can be ordered. Mobile networks and land lines ordered. No-identity social media can be banned. People need to face up that there has been no high road taken. Being willing to die for goodness is important to comprehend. Standing up for hate and dehumanization of out-groups has lead us here. These are mind problems of the human brain,not just USA. Domestic Russia self-harm and mindsets of attacking Ukraine are a threaet to all humanity. Malala in Swat Valley Pakistan is one of the few to get on the world stage and sing John Lennon's Imagine song to current times and in detail. Palestine had a hate and terror problem that taught Israel to hate harder. Palestine did not stand up for Malala's messages of October 8,, 2013 - a decade earlier. We are originating a world of hate, humanity is communicating the world over on the WWW that we prize hate. Putin won, Surkov won, since year 2013. The USA in 2025 is broadcasting "Hate Rules, Adopt Hate" as a role model.
+People imagining that a VPN within USA to reach Reddit won't be detectable. Magical thinking. Directly making changes to Reddit servers by order of the federal government as anti-terrorism can be done without public notice. Even an operating system update can be ordered. Mobile networks and land lines ordered. No-identity social media can be banned. People need to face up that there has been no high road taken. Being willing to die for goodness is important to comprehend. Standing up for hate and dehumanization of out-groups has lead us here. These are mind problems of the human brain,not just USA. Domestic Russia self-harm and mindsets of attacking Ukraine are a threat to all humanity. Malala in Swat Valley Pakistan is one of the few to get on the world stage and sing John Lennon's Imagine song to current times and in detail. Palestine had a hate and terror problem that taught Israel to hate harder. Palestine did not stand up for Malala's messages of October 8,, 2013 - a decade earlier. We are originating a world of hate, humanity is communicating the world over on the WWW that we prize hate. Putin won, Surkov won, since year 2013. The USA in 2025 is broadcasting "Hate Rules, Adopt Hate" as a role model.
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9uz66/
 
@@ -2387,7 +2387,7 @@ https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domest
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8qgc7/
 
-Reddit community has been programmed to silence goodness itself as non-entertaining since year 2013 by the IRA. Most Reddit users didn't even notice the change. The avoidance of non-fiction and favoring fiction trash. That was BEFOE ChatGPT, which year 2022 onward worsened the fiction and insincere content issues. People fundamentally do not grasp Carl Sagan's 1995 book about thinking and fiction films and fiction TV shows. Star Wars Andor is not solving problems through a peace movement across the galaxy, because fiction addicts want war in "Star Wars", terrorism and bright explosions. The addiction to Torah science fiction violence / Bible science fiction Hell punishment and Judgement Day horror film stories / Quran science fiction isn't being taken seriously. We put this into our minds, We The People glorify weapon systems as video game entertainment on a global scale. And we have not made the case for healthy peaceful life on Earth as an objective. We consider peace boring and mock "whirled peas" and "freeze peaches". Noting is sacred, nothing we can't turn into lust for violent entertainment andd domination sports. Malala from Swat Valley Pakistain is one of the few to see that terrorism is going to rise up in the world one place or another if the whole world doesn't face the human brain / human mind issues.
+Reddit community has been programmed to silence goodness itself as non-entertaining since year 2013 by the IRA. Most Reddit users didn't even notice the change. The avoidance of non-fiction and favoring fiction trash. That was BEFORE ChatGPT, which year 2022 onward worsened the fiction and insincere content issues. People fundamentally do not grasp Carl Sagan's 1995 book about thinking and fiction films and fiction TV shows. Star Wars Andor is not solving problems through a peace movement across the galaxy, because fiction addicts want war in "Star Wars", terrorism and bright explosions. The addiction to Torah science fiction violence / Bible science fiction Hell punishment and Judgment Day horror film stories / Quran science fiction isn't being taken seriously. We put this into our minds, We The People glorify weapon systems as video game entertainment on a global scale. And we have not made the case for healthy peaceful life on Earth as an objective. We consider peace boring and mock "whirled peas" and "freeze peaches". Noting is sacred, nothing we can't turn into lust for violent entertainment and domination sports. Malala from Swat Valley Pakistan is one of the few to see that terrorism is going to rise up in the world one place or another if the whole world doesn't face the human brain / human mind issues.
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8zm40/
 
@@ -2397,11 +2397,11 @@ https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domest
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng931h8/
 
-People can't see past money. Addiction to fiction is self-harm to humanity. Terroists mosques don'have a money motive. They have a science fiction storytelling motive. We are self-exploiting our own minds, unaware the Russian IRA has been exploiting our minds since year 2013. Self-harm and dehumanization. Machine and technoogy lust and anti-humanism.
+People can't see past money. Addiction to fiction is self-harm to humanity. Terrorists mosques don't have a money motive. They have a science fiction storytelling motive. We are self-exploiting our own minds, unaware the Russian IRA has been exploiting our minds since year 2013. Self-harm and dehumanization. Machine and technology lust and anti-humanism.
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8xn9h/
 
-Putin won an informaiton war that Americans can't even recognize. It isn't just the USA. The first things in office in early 2025 was wreck USAID, piss on Canada with hate. The world doesn't hate Canada and sees it as mania. Think timeline of this statement, before January 6, 2021. People still haven't faced up to QAnon / Q fiction running January 6. "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+Putin won an information war that Americans can't even recognize. It isn't just the USA. The first things in office in early 2025 was wreck USAID, piss on Canada with hate. The world doesn't hate Canada and sees it as mania. Think timeline of this statement, before January 6, 2021. People still haven't faced up to QAnon / Q fiction running January 6. "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9650d/
 
@@ -2425,14 +2425,13 @@ Reddit community can't even name "Internet Research Agency" and "Cambridge Analy
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9r609/
 
-And Germany did not have the information systems technology we have in USA. People are unable to face how much technology has changed the USA and why Elon Musk purchased Twitter (and Reddit society mocked and mocked the Twitter purchase). Reddit can be stealth natonalized or loudly nationalized. The avoidance of nonfiction abounds, deep denial and retreet to fiction. “The underlying ideology within social media is not to enhance choice or agency, but rather to narrow, filter, and reduce choice to benefit creators and advertisers. Social media herds the citizenry into surveilled spaces where the architects can track and classify them and use this understanding to influence their behavior. If democracy and capitalism are based on accessible information and free choice, what we are witnessing is their subversion from the inside.”
-― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America,**year 2019**
+And Germany did not have the information systems technology we have in USA. People are unable to face how much technology has changed the USA and why Elon Musk purchased Twitter (and Reddit society mocked and mocked the Twitter purchase). Reddit can be stealth nationalized or loudly nationalized. The avoidance of nonfiction abounds, deep denial and retreat to fiction. “The underlying ideology within social media is not to enhance choice or agency, but rather to narrow, filter, and reduce choice to benefit creators and advertisers. Social media herds the citizenry into surveilled spaces where the architects can track and classify them and use this understanding to influence their behavior. If democracy and capitalism are based on accessible information and free choice, what we are witnessing is their subversion from the inside.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America,**year 2019**
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng900dt/
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng999nk/
 
-Go to the streets and fight for what ideals? Reddit has no ideals except fiction and kitten images on /r/All- entertainment is the ideals. First person shooters and high-budget Star Wars Andor fiction content. Malala was on the world stage standing up to fiction addictions to The Bible and Quran and Torah, and people ignored her. Women teaching have been a peace thread that has held humanity together. Now Joe Rogan is the teacher, Charlie Kirk is the teacher, male sports starts are the teachers. The fiction of Allah being a male who dominates has wone. Jesus is now pro-Trump Texas kick-ass gun-slinger in the minds of the world. The cross symbol has been reprogrammed by the IRA, Putin won since year 2013. Fox News audience rocks back and forth changing the Fox News fiction story. What was wrong with Malala's words? Why wasn't she good enough since year 2013? Why aren't Martin Luther King Jr's words good enough since year 2013? There was no high road taken, the high road sat empty. The High Road was reviving MLK Jr's teachings in the face of the Ukraine and IRA war against Reality since year 2013. The High Road was Malala reforming Palestine. The World Did Not Use Social Media Free Time and Spare Time to TAKE the High Road to a book: ... ... ... “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+Go to the streets and fight for what ideals? Reddit has no ideals except fiction and kitten images on /r/All- entertainment is the ideals. First person shooters and high-budget Star Wars Andor fiction content. Malala was on the world stage standing up to fiction addictions to The Bible and Quran and Torah, and people ignored her. Women teaching have been a peace thread that has held humanity together. Now Joe Rogan is the teacher, Charlie Kirk is the teacher, male sports starts are the teachers. The fiction of Allah being a male who dominates has won mindsets. Jesus is now pro-Trump Texas kick-ass gun-slinger in the minds of the world. The cross symbol has been reprogrammed by the IRA, Putin won since year 2013. Fox News audience rocks back and forth changing the Fox News fiction story. What was wrong with Malala's words? Why wasn't she good enough since year 2013? Why aren't Martin Luther King Jr's words good enough since year 2013? There was no high road taken, the high road sat empty. The High Road was reviving MLK Jr's teachings in the face of the Ukraine and IRA war against Reality since year 2013. The High Road was Malala reforming Palestine. The World Did Not Use Social Media Free Time and Spare Time to TAKE the High Road to a book: ... ... ... “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. https://www.youtube.com/watch?v=gjGL6YY6oMs
 
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9d6he/
@@ -2451,19 +2450,19 @@ https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at
 
 https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ng8try8/
 
-The Russian IRA invaded Reddit and other media systems since Q2 2013, and people humor-washed hate, amusement-washed hate. Despite all the lessons of history that show...  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) ... people cheer on team-sports of out-group hate. Even October 7, 2023 Mosque hates Synsagogue wasn't enough of a reminder for Reddit socity that Malala's book wasn't making fron-page every week like is needed. What makes front page? fiction entertainment and kitten images. There is no sense of need to rescue our own minds from our own teaching of hate. Subreddit hates Subreddit. Fox News HDTV network hates public library media. Media vs. media hate is staring Reddit in the face and Americans can't even learn from Septembe 11, 2001 that hate is bad and the crisis needs to be addressed not ignored. Worse, not fed more hate with high-speed Reddit and Twitter and Bluesky machines.
+The Russian IRA invaded Reddit and other media systems since Q2 2013, and people humor-washed hate, amusement-washed hate. Despite all the lessons of history that show...  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) ... people cheer on team-sports of out-group hate. Even October 7, 2023 Mosque hates Synagogue wasn't enough of a reminder for Reddit society that Malala's book wasn't making front-page every week like is needed. What makes front page? fiction entertainment and kitten images. There is no sense of need to rescue our own minds from our own teaching of hate. Subreddit hates Subreddit. Fox News HDTV network hates public library media. Media vs. media hate is staring Reddit in the face and Americans can't even learn from September 11, 2001 that hate is bad and the crisis needs to be addressed not ignored. Worse, not fed more hate with high-speed Reddit and Twitter and Bluesky machines.
 
 https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ngairrd/
 
-I can not understand why people act like nations like USA doing a civil war and coup is so easy to describe. As if it is a baking rescipe for cookies. Here are the ingredients, this is how it works. As if there have been 7,000 such situations happening to the United States of America and Germany and you can so easily lay out that it only works this one and only one way. I don't think Germany 1933 had Apple iPhone and Apple iPad everywhere like USA does in September 2025. People on Reddit can't even NAME the "Internet Research Agency" and "Cambridge Analytica" or "Edward Bernays' and cling to some idea that the worst that humanity can ever come up with is a pattern Italy and Germany in the 1930's.
+I can not understand why people act like nations like USA doing a civil war and coup is so easy to describe. As if it is a baking recipe for cookies. Here are the ingredients, this is how it works. As if there have been 7,000 such situations happening to the United States of America and Germany and you can so easily lay out that it only works this one and only one way. I don't think Germany 1933 had Apple iPhone and Apple iPad everywhere like USA does in September 2025. People on Reddit can't even NAME the "Internet Research Agency" and "Cambridge Analytica" or "Edward Bernays' and cling to some idea that the worst that humanity can ever come up with is a pattern Italy and Germany in the 1930's.
 
 https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ng8d3b7/
 
-People who are attracted to hate and mocking message. Every group calling evey other group idiots and morons. A Trump Truth Social faith.
+People who are attracted to hate and mocking message. Every group calling every other group idiots and morons. A Trump Truth Social faith.
 
 https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ngaj54f/
 
-People enjoy clowns. Late night comedy shows. Reality TV. low-effort clowning insulting comments. Donald Trump is doing a great and masterful performance of Tony Clifton. Reddit audience can not resist compusive insutling and mocking how Tony Clifton bragging he is a great entertainer is wrong!
+People enjoy clowns. Late night comedy shows. Reality TV. low-effort clowning insulting comments. Donald Trump is doing a great and masterful performance of Tony Clifton. Reddit audience can not resist compulsive insulting and mocking how Tony Clifton bragging he is a great entertainer is wrong!
 
 https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ng9187x/
 
@@ -2499,7 +2498,7 @@ Look at what adults create on social media comment sections. Fiction addicts who
 
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/nga3eh8/
 
-"Clever comebacks" community humor-washing amusement-washing mass dehumanization in USA in September 2025. Machine lovers / technology love and anit-humanism worship.
+"Clever comebacks" community humor-washing amusement-washing mass dehumanization in USA in September 2025. Machine lovers / technology love and anti-humanism worship.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/nga7utm/
 
@@ -2507,7 +2506,7 @@ Fiction addicts can't see the Internet Research Agency media invasion of Reddit 
 
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngat3ka/
 
-Yes. He was alaso since year 2021 a "Talking Point Faith" Bible fiction seller / like the Trump science fiction Bible selling. This is Russia's War Against Reality with fiction addiction mind exploitations. It is self-harm to all humanity who had never come to terms with the fiction addiction crisis, the literacy problems of not grasping metaphors. The Tower of Babel now in subreddit vs. subreddit langauge barriers. Media addicts hate other media addicts with the slightest of differences. ... ... ... “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+Yes. Kirk was also since year 2021 a "Talking Point Faith" Bible fiction seller / like the Trump science fiction Bible selling. This is Russia's War Against Reality with fiction addiction mind exploitations. It is self-harm to all humanity who had never come to terms with the fiction addiction crisis, the literacy problems of not grasping metaphors. The Tower of Babel now in subreddit vs. subreddit language barriers. Media addicts hate other media addicts with the slightest of differences. ... ... ... “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/nga8iqo/
 
@@ -2525,7 +2524,7 @@ War Against Reality has no left or right. It is self-harm to all humanity to no 
 
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngaodh0/
 
-Russia's War Against Relaity started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+Russia's War Against Reality started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analytica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngay2c4/
 
@@ -2533,7 +2532,7 @@ Minds blown / minds exploited via images and messages.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngb48k5/
 
-Russia's War Against Relaity started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+Russia's War Against Reality started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analytica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngaz0d3/
 
@@ -2545,7 +2544,7 @@ The Russian War Against Nonfiction started Q2 2013 on Reddit and other media sys
 
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngb8myl/
 
-Spare time and free time spent humor-washing and amusment-wasing the Trump White House. Anything to avoid the nonfiction learning of Russian information warfare methods / military Russian win over USA using memes.
+Spare time and free time spent humor-washing and amusement-washing the Trump White House. Anything to avoid the nonfiction learning of Russian information warfare methods / military Russian win over USA using memes.
 
 https://old.reddit.com/r/news/comments/1nr0uf2/error_at_national_archives_exposes_democratic_rep/ngaz3oz/
 
@@ -2553,7 +2552,7 @@ https://old.reddit.com/r/news/comments/1nr0uf2/error_at_national_archives_expose
 
 https://old.reddit.com/r/news/comments/1nr0uf2/error_at_national_archives_exposes_democratic_rep/ngb0qfu/
 
-Crickets. The Russian War Against Nonfiction started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+Crickets. The Russian War Against Nonfiction started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analytica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
 https://old.reddit.com/r/technology/comments/1nqydkg/the_ai_bubble_is_the_only_thing_keeping_the_us/ngaf1yx/
 
@@ -2585,7 +2584,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nr0f47/this_seems_kind_of_
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nr0f47/this_seems_kind_of_bad/ngbd07g/
 
-People pushing over and over that group identity matters. Instead of facing we all have human brains, we all have minds. All hate in ALL palces is bad. Pro-hate mesasging is concerned about team hate winning. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+People pushing over and over that group identity matters. Instead of facing we all have human brains, we all have minds. All hate in ALL places is bad. Pro-hate messaging is concerned about team hate winning. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
 https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngaru2v/
 
@@ -2595,11 +2594,11 @@ Pro-Putin messaging. Anything to downplay and ignore the education problem of co
 
 https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/nga7mzv/
 
-The funeral service for USA should share: The educated people with spare time and free time flocked to reddit, constantly messaged there was an education problem in society, and then flodded the society with low-effort annti-comprehension anti-understanding messages. Comment messsages all the time asserting banality, unimportant and superficial content. Cheering on the decline of learning of nonfiction.
+The funeral service for USA should share: The educated people with spare time and free time flocked to Reddit, constantly messaged there was an education problem in society, and then flooded the society with low-effort anti-comprehension anti-understanding messages. Comment messages all the time asserting banality, unimportant and superficial content. Cheering on the decline of learning of nonfiction.
 
 https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngb8lpt/
 
-Donald Trump has the low-effrot comment Twitter-thinking problems that Reddit users do not want to face. Neil Postman's 1985 book "Amusing Ourselves To Death".  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+Donald Trump has the low-effort comment Twitter-thinking problems that Reddit users do not want to face. Neil Postman's 1985 book "Amusing Ourselves To Death".  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
 https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngacawt/
 
@@ -2613,7 +2612,7 @@ https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/n
 
 https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngbpbrh/
 
-Tonly Clifton actors. Reddit community adores mocking and insutling. Low-effort commenting about Tony Clifton being bad at entertaining.
+Tony Clifton actors. Reddit community adores mocking and insulting. Low-effort commenting about Tony Clifton being bad at entertaining.
 
 https://old.reddit.com/r/therewasanattempt/comments/1nr1iq5/to_preemptively_blame_democrats_for_a_planned/ngbf0ub/
 
@@ -2627,11 +2626,11 @@ Social media laugh track, "LMAO", mind-blowing others that is just jokes and hum
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngb69cb/
 
-QAnon PizzaGate has people lusting for white men sex acts. Reform to elect honest and sincere politicians is being aoided, just as nonfiction learning is being avoided.
+QAnon PizzaGate has people lusting for white men sex acts. Reform to elect honest and sincere politicians is being avoided, just as nonfiction learning is being avoided.
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngbh0o5/
 
-A society drowning in low-effort, mocking and hate messages, unable to engage nonfiction learning about how Rusian informaiton warfare works to cultivate hate of out-groups. Americans hate Americans, as conditioned by Russia since year 2013. Self-harm USA.
+A society drowning in low-effort, mocking and hate messages, unable to engage nonfiction learning about how Russian informatory warfare works to cultivate hate of out-groups. Americans hate Americans, as conditioned by Russia since year 2013. Self-harm USA.
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngap8wc/
 
@@ -2643,7 +2642,7 @@ MAGA doesn't like nonfiction. Reddit doesn't like nonfiction. Putin won the War 
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngapd5n/
 
-Real-time high-speed messaging systems doing entertainment-washing and amusement-washing of Trump. An aoudience attracted to mocking and hate messages of Trump and Kirk.
+Real-time high-speed messaging systems doing entertainment-washing and amusement-washing of Trump. An audience attracted to mocking and hate messages of Trump and Kirk.
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngaz5ud/
 
@@ -2651,15 +2650,15 @@ Blind ignorance. A population of meme consumers who can't name the "Internet Res
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngappi9/
 
-"some random shitlord" - Charlie Kirk is not ***random***. Ignroance abounds on Reddit. A population of meme consumers who can't name the "Internet Research Agency" or "Cambridge Analytica" and describe what is done to minds of media consumers.
+"some random shitlord" - Charlie Kirk is not ***random***. Ignorance abounds on Reddit. A population of meme consumers who can't name the "Internet Research Agency" or "Cambridge Analytica" and describe what is done to minds of media consumers.
 
 https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngb51zl/
 
-<img width="918" height="664" alt="image" src="https://github.com/user-attachments/assets/00669278-1bf8-4804-9262-687d794ce66b" /> Anonymous, no-identity, high-quanitty high-speed junk consumption platform. Drowning the USA in anti-comprehension and anti-understanding. ... ... ... "especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+<img width="918" height="664" alt="image" src="https://github.com/user-attachments/assets/00669278-1bf8-4804-9262-687d794ce66b" /> Anonymous, no-identity, high-quantity high-speed junk consumption platform. Drowning the USA in anti-comprehension and anti-understanding. ... ... ... "especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbbhn4/
 
-Recency bias abounds. Messaging as if this is the first year Trump has been President. Note the "LOL" laugh trach, how amusing and entertaining it is to have the USA wrecked by Russian information warfare since Q2 2013.
+Recency bias abounds. Messaging as if this is the first year Trump has been President. Note the "LOL" laugh track, how amusing and entertaining it is to have the USA wrecked by Russian information warfare since Q2 2013.
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbc9z7/
 
@@ -2675,11 +2674,11 @@ https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defen
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbh7dd/
 
-People are living in fiction. It isn't wrong because they never learned or understood reality itself, nonfiction science. Peopole who constantly consume low-effort messages and Fox News HDTV fiction messages and never understand or comprheend. Fighting with other fiction addicts in filter bubbles, subscribe bubbles, TV channel bubbles, subreddit bubbles.
+People are living in fiction. It isn't wrong because they never learned or understood reality itself, nonfiction science. People who constantly consume low-effort messages and Fox News HDTV fiction messages and never understand or comprehend. Fighting with other fiction addicts in filter bubbles, subscribe bubbles, TV channel bubbles, subreddit bubbles.
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbnau8/
 
-People have not learned anything. People can't name CA or IRA. People continue to flock to every Trump message and comment about it, reaction commenting, millions and millions of comment messages that are disposable. Avoiding nonficiton sustained learning about Russian information warfare and grasping the forest for the trees of mutliple nations and not just USA and Trump.
+People have not learned anything. People can't name CA or IRA. People continue to flock to every Trump message and comment about it, reaction commenting, millions and millions of comment messages that are disposable. Avoiding nonfiction sustained learning about Russian information warfare and grasping the forest for the trees of multiple nations and not just USA and Trump.
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngb8g8u/
 
@@ -2697,7 +2696,7 @@ https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defen
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbmgz0/
 
-Reddit comment readers ae in a bubble. Choose your own adventure from hundreds of millions of low-effort comments that lead to ignorance and anti-comprehension. Someone on Reddit at 11:30am Tuesday gets an entirely different anti-reality than another person at 4:20pm on Wednesday. Fragmented comprehension. Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
+Reddit comment readers ae in a bubble. Choose your own adventure from hundreds of millions of low-effort comments that lead to ignorance and anti-comprehension. Someone on Reddit at 11:30am Tuesday gets an entirely different anti-reality than another person at 4:20pm on Wednesday. Fragmented comprehension. Filter bubbles, subscribe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngb99km/
 
@@ -2709,16 +2708,16 @@ https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defen
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbbfwz/
 
-It is nonfiction vs. fiction addictions. Society is selling out to fiction. Just like Mecca fiction theme park for Quran science fiction. Anti-reality. Reality was abandoned, Trump storytelling, Rupert Murdoch storytellng, converged on Putin's IRA storytelling Q3 2013. ... ... ...
+It is nonfiction vs. fiction addictions. Society is selling out to fiction. Just like Mecca fiction theme park for Quran science fiction. Anti-reality. Reality was abandoned, Trump storytelling, Rupert Murdoch storytelling, converged on Putin's IRA storytelling Q3 2013. ... ... ...
 "If it is the end of the world, I want to know, so that my kids and I can enjoy the apocalypse together. If America is utopia realised then maybe I’ll just settle back and go to Epcot Centre and forget Switzerland. Just go on the Swiss ride. This may be what I’ll do. I doubt it. I don’t like it. The war zone, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, **the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal**." -- year 1993, https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ describing our year 2013 onward future. Russia won, Putin won. 
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbkcp6/
 
-Anti-nonfiction. Note the absence of any author names, book titles, references, links, citations. Just calling out-group stupid despite this oingoing since November 7, 2012 with the agreement to create the Russain Internet Research Agency and invasion of Reddit media systems with mind-fucking feverdream content. November 7, 2012. ... ... ... "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." -https://www.facebook.com/konstantin.rykov/posts/10210621124674610
+Anti-nonfiction. Note the absence of any author names, book titles, references, links, citations. Just calling out-group stupid despite this ongoing since November 7, 2012 with the agreement to create the Russian Internet Research Agency and invasion of Reddit media systems with mind-fucking feverdream content. November 7, 2012. ... ... ... "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." -https://www.facebook.com/konstantin.rykov/posts/10210621124674610
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbjybm/
 
-Divorce from reality, dovorce from nonfiction with nuclear weapons and arroagance. Canada is already under information warfare from Putin and Trump audiences.
+Divorce from reality, divorce from nonfiction with nuclear weapons and arrogance. Canada is already under information warfare from Putin and Trump audiences.
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbakj4/
 
@@ -2726,18 +2725,17 @@ Lost the war to the IRA mind-fucking with CA payloads. "Putin is clearly winning
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbbqmo/
 
-People are glued to their Redddit commenting over and over and over, ONGLING FOR TEN YEARS AND THREE MONTHS. No other leaders can provide the entertainment and antics that the President Tony Clifton performers provide. The MAGA roadies and the stages are constant media content for Reddit and Bluesky audiences to mock and hate. Truth Social hate messages, Truth Social mcokery messages, people are entirely addicted to fiction storytelling. Addicts to mocking do not want the show to go back to "Sleepy Joe" boring Biden and normal leaders who aren't great Twitter performers!
+People are glued to their Reddit commenting over and over and over, ONGOING FOR TEN YEARS AND THREE MONTHS. No other leaders can provide the entertainment and antics that the President Tony Clifton performers provide. The MAGA roadies and the stages are constant media content for Reddit and Bluesky audiences to mock and hate. Truth Social hate messages, Truth Social mockery messages, people are entirely addicted to fiction storytelling. Addicts to mocking do not want the show to go back to "Sleepy Joe" boring Biden and normal leaders who aren't great Twitter performers!
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngboklw/
 
-Russia mind-fucked them into self-harm, attraction and addiciton to fiction. Even Putin has self-owned himself, self-harming Russians with the monomyth that Surkov students unleashed. Fiction vs. nonfiction. The War Agaist NonFiction went too far, too deep into minds! People are in extreme denial how much behaviors have changed since year 2013. ... ... ...
+Russia mind-fucked them into self-harm, attraction and addiction to fiction. Even Putin has self-owned himself, self-harming Russians with the monomyth that Surkov students unleashed. Fiction vs. nonfiction. The War Against NonFiction went too far, too deep into minds! People are in extreme denial how much behaviors have changed since year 2013. ... ... ...
 https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbasr6/
 
-The systems and processes keep getting stronger and stronger. The Charie Kirk media content addicts have been captured. Anti-reality is winning, War Against Nonfiction keeps wining since Q2 2013. OPERA_A REPEAT_A You can say that they didn't warn you! Your devices are not working for you... anymore! https://www.youtube.com/watch?v=8LulQJDFtIs
+The systems and processes keep getting stronger and stronger. The Charlie Kirk media content addicts have been captured. Anti-reality is winning, War Against Nonfiction keeps wining since Q2 2013. OPERA_A REPEAT_A You can say that they didn't warn you! Your devices are not working for you... anymore! https://www.youtube.com/watch?v=8LulQJDFtIs
 
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbhr5l/
 
 Fiction is more popular than nonfiction.
-
