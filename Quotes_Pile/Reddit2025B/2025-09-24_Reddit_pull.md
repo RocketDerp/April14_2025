@@ -1989,3 +1989,45 @@ https://old.reddit.com/r/Fauxmoi/comments/1nqmkjs/80_of_the_worlds_problems_invo
 
 https://old.reddit.com/r/Fauxmoi/comments/1nqmkjs/80_of_the_worlds_problems_involve_old_men_hanging/ng8c8eq/
 
+https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6dc61/
+
+https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6o2qh/
+
+https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6fqps/
+
+Reddit eats it up and is unable to describe what Cambridge Analytica does to minds.
+
+https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6ks4g/
+
+The Reddit community ansewr to serious problems is millions of low-effort comment messages. Spening free time and spare time to spread low-effort disposable informaiton, avoiding nonfiction public library books about the topics.
+
+https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6vl3i/
+
+Social media laugh track for audience. "LOL" messaging that this is entertaing and not to be taken as serious real-world, but taken as fiction funny shit.
+
+https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6exzk/
+
+https://old.reddit.com/r/politics/comments/1nqf0o5/stephen_miller_claims_simply_calling_trump/ng6w6n6/
+
+Recency bias. People act as if this all started in January 2025. Russia won since year 2013 because Reddit can't imagine that humor is used to win power. That humor sells, and Trump wins with surreal humor.
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng7h7ns/
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng82upf/
+
+Minds blown over and over. People can't grasp Russian information warfare is mind-blowing antics and surreal comedy and absurd humor.
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng827wn/
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng7ps69/
+
+Reddit messaging promoting taht deporting difficult people makes life easy. Deport-happy. Trump MAGA values: deport people you don't understand, eject them from the nation, makes life easier.
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng7q7jw/
+
+Reddit normalied it for over a decade. Finding Trump so entertaining to hate Trump, mock Hate, endless mocking and insulting: diapers, golf games, orange skin. Everything superficial and shallow to keep avoiding using spare time and free time to learn nonfiction about Russian information warfare. Instead, spare time spent commenting over and over in millions of disposable messages.
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8153b/
+
+Russia manipulated reddit. Avoidance of nonfiction in favor of low-effort no-citation Reddit comment messages. People on Reddit can't even name the "Internet Research Agency" or "Cambridge Analytica" https://www.bbc.com/news/technology-43301643
+
