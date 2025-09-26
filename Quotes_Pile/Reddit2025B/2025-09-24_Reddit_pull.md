@@ -2934,3 +2934,35 @@ https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_y
 
 Russia won the information war. Fiction addiction abounds. Fiction vs. nonfiction is a far more serious matter than classic left-wing vs. right-wing. The War Against Nonfiction / War Against Reality. SEE_ALSO_A "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." https://en.wikipedia.org/wiki/This_Is_Not_Propaganda
 
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcnphq/
+
+Attraction to high quanities of stimualting media, Donald Trump stimulation of antics all the time at any time, dominate USA behavior. People who **hate Trump** are some of the most stimulated by Trump. Mocking Trump is not reisting Trump. Tony Cliftion performances work that way.
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngdhhac/
+
+As a society, there is an avoidance of Wikipedia / Wiki style refinement and progress of learning. Such as news reporting, WikiTribune. Instead, every person wants to play *relay game* of hearing a story on low-quality CNN or Fox News and then relaying it to others in messages. Infomation has become entertainment to people. Major breaking news events of bombing Iran from USA in 2025, Trump going golfing major breaking news events, etc. Charlie Kirk's dramatic murder in front of live audience really connected with people who have invested heavily in screens on their home walls and screens in their hands. Adddictions to antics and wild news reports / school shootings / Trump postings on Truth Social / I.C.E. coverage...
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcz0u1/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngd3n4w/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcq174/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcsis1/
+
+Entertainment addicts calling out for more entertainment and antics. Even if people "hate-hate" Alex Jones or "hate-hate" Trump, they are thrilled at the images shared on Reddit and Bluesky and all over.
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcxkem/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcq65g/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcqquq/
+
+Reddit audience member saying that soemone needs to tell Tony Clifton performer that his act is terrible and bad. Shooting fish in a barrel with Reddit audience. Eating the onions.
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcr57t/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcrlnv/
+
+That is the key to the Donald Trump era. Entertianment. Neil Postman's 1985 book "Amusing Ourselves To Death" educates on this topic.
+
