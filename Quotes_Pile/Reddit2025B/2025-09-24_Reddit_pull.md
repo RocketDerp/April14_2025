@@ -2122,3 +2122,33 @@ Amazing that these people on Reddit comment sections believe drowning serious im
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7anml/
 
 Minds blown by surreal. The very title of the 2014 book explaining the techniques and describing our 2025 situation. "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng6yuiy/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng74prg/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng76e1v/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng75710/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng77d0p/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7d7w6/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7bsdc/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng75qef/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7od4w/
+
+Social media laugh track, amusmeent track, "LOL".
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng75lki/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7c03d/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7cbpy/
+
+Sus "trans' bio on account, saying that podcasters have been assisnated without evidence.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7mvf8/
