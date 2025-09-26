@@ -1615,3 +1615,7 @@ https://old.reddit.com/r/worldnews/comments/1nocisz/pope_leo_refuses_to_authoris
 Bible teaching / Levant religion values without "1 John 3:17" and "1 John 4:20"    
 https://old.reddit.com/r/ExplainTheJoke/comments/1nogahg/i_dont_get_it/
 
+&nbsp;
+
+PizzaCake comic. President Troll, smatphone addictions runnin USA society. Avoiding Russian IRA leaning.   
+https://old.reddit.com/r/comics/comments/1nr1qai/president_troll/
