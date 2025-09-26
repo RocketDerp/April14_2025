@@ -1957,4 +1957,24 @@ https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_c
 
 https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7wpcx/
 
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng83gqp/
+
+Calling out for more funny from Trump White House.
+
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7ni5v/
+
+Reddit comments convincing people this isn't Putin information war. Messages of don't study that this has been going on FOR OVER A DECADE and to avoid realization that antics politics is Russian.
+
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7l7rp/
+
+So funny, calling out for more Trump!
+
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7mte4/
+
+Audienece cheering on Trump.
+
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7q4sc/
+
+Cheering on Trump messages on Reddit.
+
 
