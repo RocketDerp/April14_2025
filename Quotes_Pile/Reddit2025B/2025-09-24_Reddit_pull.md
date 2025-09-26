@@ -2073,3 +2073,45 @@ https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_america
 
 Reddit laugh-track for audience thrills.
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7igzc/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7dtwu/
+
+Reddit users can't link any nonfiction learning, name any book authors, name the "Russian Internet Agency" or "Cambridge Analytica", no book titles. Addicted to shallow information. Low-effort comments that get abandoned hours later, people using social machines wtih spare time and free time, is a distraction from organizing sustained important focus on nonfiction learning of how Russia won an information war since year 2013. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng77tgv/
+
+Reddit comment creators using free time and spare time to direct people away from nonfiction public library books on how the Russian Internet Research Agency defeated the USA via Reddit commenting since year 2013.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7qgx0/
+
+The Russian IRA started in Q2 2013, before the February 2014 Ukaine land war. But Reddit users have extreme recency bias and avoidance of nonfiction learning to defend the USA from Putin.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7doln/
+
+Russian information warfare since March 2013 has blown minds of USA population.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7nop7/
+
+People love and addore messages demonstrating that the IRA has defeated Americans, that Russia won an information war of hearts and minds to self-harm the USA by avoiding nonfiction learning about Putin's methods in detail.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng73aib/
+
+Why can't reddit users repeat every 6 hours, every day? We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7bo36/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng75nh2/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng757k4/
+
+So entertained by out-group mocking. Similar to how Truth Social audience adores Trumpism mocks liberal tears. Like Fox News audience is thrilled by American people suffering at the hands of billionare media messages, Russia wrecking hearts and minds since year 2013.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7b4eg/
+
+Trump entertains people on Reddit and other media platforms. People in USA can not resist the messages and attraction to entertainment content creators. Putin helped with the IRA.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7fxnc/
+
+She was literally manipuated by billionares like Rupert Murdoch and billionare Trump and billionare Twitter owner Elon Musk and insincere mockery messages.
+
