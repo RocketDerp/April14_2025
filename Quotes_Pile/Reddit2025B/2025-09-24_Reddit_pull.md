@@ -617,7 +617,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_
 
 https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0oxug/
 
-Gang singlas, special phrases for gang members of the media street gangs / TikTok street gang messaging. See also Levant science fiction story street gangs of Quran / Torah / Bibble and special phrases and language used to fight competing street gangs of science fiction stories. And to attack authentic science (nonfiction). Been going on for thousands and thousands of years. See also: "Harlan Ellison, Middle East 8000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+Gang singnals, special phrases for gang members of the media street gangs / TikTok street gang messaging. See also Levant science fiction story street gangs of Quran / Torah / Bible and special phrases and language used to fight competing street gangs of science fiction stories. And to attack authentic science (nonfiction). Been going on for thousands and thousands of years. See also: "Harlan Ellison, Middle East 8000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
 
 https://old.reddit.com/r/CringeTikToks/comments/1npmjm2/hannah_brown_who_became_internet_famous_for_doing/ng0pmr2/
 
@@ -2534,3 +2534,56 @@ Minds blown / minds exploited via images and messages.
 https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngb48k5/
 
 Russia's War Against Relaity started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngaz0d3/
+
+Social media anti-reality track, laugh-track, "LOL" messaging.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngb4j6m/
+
+The Russian War Against Nonfiction started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngb8myl/
+
+Spare time and free time spent humor-washing and amusment-wasing the Trump White House. Anything to avoid the nonfiction learning of Russian information warfare methods / military Russian win over USA using memes.
+
+https://old.reddit.com/r/news/comments/1nr0uf2/error_at_national_archives_exposes_democratic_rep/ngaz3oz/
+
+https://old.reddit.com/r/news/comments/1nr0uf2/error_at_national_archives_exposes_democratic_rep/ngazkzc/
+
+https://old.reddit.com/r/news/comments/1nr0uf2/error_at_national_archives_exposes_democratic_rep/ngb0qfu/
+
+Crickets. The Russian War Against Nonfiction started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/technology/comments/1nqydkg/the_ai_bubble_is_the_only_thing_keeping_the_us/ngaf1yx/
+
+https://old.reddit.com/r/technology/comments/1nqydkg/the_ai_bubble_is_the_only_thing_keeping_the_us/ngatoyp/
+
+https://old.reddit.com/r/technology/comments/1nqydkg/the_ai_bubble_is_the_only_thing_keeping_the_us/ngb9hde/
+
+The selling pest society, the intercourse dialog pest society.
+
+https://old.reddit.com/r/technology/comments/1nqydkg/the_ai_bubble_is_the_only_thing_keeping_the_us/ngb7ddu/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nqyy76/podcaster_on_a_coin/ngb781n/
+
+https://old.reddit.com/r/pics/comments/1nr1sqf/oc_delegates_walk_out_of_the_unga_as_israeli_pm/ngb6ir0/
+
+Amusement cravings constantly.
+
+https://old.reddit.com/r/pics/comments/1nr1sqf/oc_delegates_walk_out_of_the_unga_as_israeli_pm/ngbdh48/
+
+Out-group hate is very popular. See also Levant science fiction story street gangs of Quran / Torah / Bible and special phrases and language used to fight competing street gangs of science fiction stories. And to attack authentic science (nonfiction). Been going on for thousands and thousands of years. See also: "Harlan Ellison, Middle East 8000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+
+https://old.reddit.com/r/pics/comments/1nr1sqf/oc_delegates_walk_out_of_the_unga_as_israeli_pm/ngbetdx/
+
+God bless who? Science fiction Torah or science fiction Quran in Palestine? God that is only above one side of a map line. People can't grasp that science fiction blessings do not address hate group A vs. hate group B. Subreddit A hates Subreddit B. Bluesky hates Twitter. Media group vs. media group, fiction vs. fiction. “If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nr0f47/this_seems_kind_of_bad/ngb2tq0/
+
+“And though Russia does officially have a free market, with mega-corporations floating their record-breaking IPOs on the global stock exchanges, most of the owners are friends of the President. Or else they are oligarchs who officially pledge that everything that belongs to them is also the President’s when he needs it: “All that I have belongs to the state,” says Oleg Deripaska, one of the country’s richest men. This isn’t a country in transition but some sort of postmodern dictatorship that uses the language and institutions of democratic capitalism for authoritarian ends.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, yaer 2014
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nr0f47/this_seems_kind_of_bad/ngbd07g/
+
+People pushing over and over that group identity matters. Instead of facing we all have human brains, we all have minds. All hate in ALL palces is bad. Pro-hate mesasging is concerned about team hate winning. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
