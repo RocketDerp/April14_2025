@@ -2188,3 +2188,42 @@ https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jok
 https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng79w63/
 
 https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng8szuf/
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng78lhs/
+
+Sounds like a messaging addict using machine messaging systems to dehumanize persons. A content addict to Russian messages to self-harm USA and attack Americans. Very difficult to *prove*, but a repeat pattern since March 2013 when the Internet Research Agency started waging meme warfare. June 2, 2014 public education, nonfiction: https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7v3kw/
+
+"symptom of a very stupid, brainwashed, emotional, and illiterate country." - avoidant of non-fiction learning of Russian information warfare on Reddit since year 2013. 
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng97xfx/
+
+Reddit comment section values millions and millions of low-effort comments, quanity, over nonfiction book learning and serious sustained reading of complex works of understanding and comprehension.
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7k14e/
+
+Media content. Celebrating dehumanization of out-groups.
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7iepg/
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7rzi1/
+
+Reddit comment sections smear humor on the wall, amusement on the wall, on all serious topics. Very few call out that we need to get on the ***same page of serious topics*** and instead prize low-effort comments to drown out meidum-term (2 months) and long-term (15 years) understanding of Russian information warfare to reset minds with humor surreal comedy absurd humor exploits. 
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7kjbz/
+
+Whatever you do, don't share non-fiction about how Reddit is used to incite mental states of out-group mocking and insulting and not see the forest for the trees. To only think it is the others and not right here on Reddit comments and Bluesky comments and Facebook comments and not ehre in USA. 
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7rxfj/
+
+How can the Reddit comment section of machine cloud computing lovers attract so many people who hide their real name, favor anonymous no-identity emssages of low-meaning but high quality swill media.
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng9887g/
+
+Bottom up from the Russian Internset Research Agency on Reddit, which has convinced people with tiny short messages to avoid nonfiction and favor and flock to commenting over and over and over every day on fresh postings disposable messages. 
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng8bixv/
+
+You can't read far to observe Fox News media addiction problems described but not a soul asking for others to **get on the same page** of Jen Senko's 2015 film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
