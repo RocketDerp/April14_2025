@@ -2872,3 +2872,27 @@ https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_every
 
 Messages to give up on mental health treatement. Messages to shut down health care systems. Give up and let Russia win the hearts and minds of the nation. Out-group insane messaging patterns on Reddit information systems. No citations, no links, no authros, no book names. Just *give up on Americans* messaging. Avodiding nonfiction learning: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngdagzr/
+
+Yes. Hate messages abound on social comment sections. Dehumanization messages.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngcv3lo/
+
+Population doesn't care to sustain focus on nonfiction understandings. Fresh new fiction comment messages are on the next page waiting to read. Fiction is far more popular to addicts.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngcy2rm/
+
+Reddit comment section doesn't know the names of "Cambridge Analytica" and "Internet Research Agency" and see the forest of mutliple NATO nations reporting media invasions from Russia since Q2 2013. Calling out-groups brainless and morons is very popular all over USA. Every person calls other Americans morons and idiots.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngcz8v8/
+
+Compusive shoving faces into low-effort trash comment sections that don't cite books / authors / nonfiction. Compusive behaviors to self-harm the USA since year 2013 when IRA invaded media systems.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngd0jd8/
+
+USA had a good life and decent nation. But apprently Reddit messages are that it is very very very shitty to have a nonfiction based leadership. That's the mind-fuck of this message. Only Trump can provide the fiction entertainment, "the good shit", that Reddit comment section addicts crave. Constant mocking and insulting. Addiction to antics and fiction leadership signals.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngd0wms/
+
+Everyone is USA is stupid, but this short-length Twitter-think Reddit message is a sign of intelligence. That's the mind-fuck here, the drowning in thoughtless hate messages. This is what people seek out and are attracted to, messages like this rule the USA mindsets in September 2025.
+
