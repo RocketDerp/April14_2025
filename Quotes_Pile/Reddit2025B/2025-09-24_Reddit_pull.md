@@ -2271,4 +2271,30 @@ https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_r
 
 Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
 
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng7ft3z/
 
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng8ac9f/
+
+1924 Irish author James Joyce's story "Woke", Finnegans Woke.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng919du/
+
+Wake to what exactly? Finnegans Wake, "Woke" to Reddit comment mental patterns education from James Joyce.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng87rjm/
+
+Why can't Reddit recognize the pattern? Bible verse "1 John 4:20" vs. conservative Bible thumpers?
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng8r8bs/
+
+Inverted meaning invokes conditioned laugh track, amusement Reddit messages: LMAO.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng7rlpq/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng7u9ij/
+
+Just chill, amusement-washing chill-washing the Russian mind defeat of USA.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng9188g/
+
+Comprehension and understanding of reality and truth isn't right or left. Fiction vs. nonfiction is a better perspective. The mindsets that interprets as this comment messages is toxic and self-harm to USA. ... ... ... “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
