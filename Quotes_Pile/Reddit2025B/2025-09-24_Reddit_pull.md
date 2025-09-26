@@ -2910,3 +2910,27 @@ The IRA and CA since year 2013 conditioned people to flock to self-harm and avoi
 
 https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngdah5m/
 
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcz11p/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngd7j58/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngdiuyd/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcq396/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngd35c2/
+
+Fiction is more popular than nonfiction. 
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcycjt/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngdixk1/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcmbi7/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngdhrsy/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcm2mc/
+
+Russia won the information war. Fiction addiction abounds. Fiction vs. nonfiction is a far more serious matter than classic left-wing vs. right-wing. The War Against Nonfiction / War Against Reality. SEE_ALSO_A "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." https://en.wikipedia.org/wiki/This_Is_Not_Propaganda
+
