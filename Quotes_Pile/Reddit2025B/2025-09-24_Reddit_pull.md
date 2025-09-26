@@ -2115,3 +2115,10 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republ
 
 She was literally manipuated by billionares like Rupert Murdoch and billionare Trump and billionare Twitter owner Elon Musk and insincere mockery messages.
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7hcyg/
+
+Amazing that these people on Reddit comment sections believe drowning serious important nonfiction information about Russian information warfare with millions and millions of low-effort disposable comment messages isn't the problem. That people unable to get on the same page of serious topics, like refined knowledge of Wikipedia, isn't important - and more and more low-effort commenting is what the USA should be spenidng free time and spare time to educate the population with.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nqi7e9/she_supported_republican_efforts_to_cut_waste_and/ng7anml/
+
+Minds blown by surreal. The very title of the 2014 book explaining the techniques and describing our 2025 situation. "Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
