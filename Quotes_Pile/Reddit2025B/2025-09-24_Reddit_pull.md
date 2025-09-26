@@ -2376,3 +2376,50 @@ https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domest
 https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9p8m4/
 
 People imagining that a VPN within USA to reach Reddit won'tbe detectable. Magical thinking. Directly making changes to Reddit servers by order of the federal government as anti-terrorism can be done without public notice. Even an operationg system update can be ordered. Mobile networks and land lines ordered. No-identity social media can be banned. People need to face up that there has been no high road taken. Being willing to die for goodness is important to comprehend. Standing up for hate and dehumanization of out-groups has lead us here. These are mind problems of the human brain,not just USA. Domestic Russia self-harm and mindsets of attacking Ukraine are a threaet to all humanity. Malala in Swat Valley Pakistan is one of the few to get on the world stage and sing John Lennon's Imagine song to current times and in detail. Palestine had a hate and terror problem that taught Israel to hate harder. Palestine did not stand up for Malala's messages of October 8,, 2013 - a decade earlier. We are originating a world of hate, humanity is communicating the world over on the WWW that we prize hate. Putin won, Surkov won, since year 2013. The USA in 2025 is broadcasting "Hate Rules, Adopt Hate" as a role model.
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9uz66/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng90i1t/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8dxfg/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9z25f/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8qgc7/
+
+Reddit community has been programmed to silence goodness itself as non-entertaining since year 2013 by the IRA. Most Reddit users didn't even notice the change. The avoidance of non-fiction and favoring fiction trash. That was BEFOE ChatGPT, which year 2022 onward worsened the fiction and insincere content issues. People fundamentally do not grasp Carl Sagan's 1995 book about thinking and fiction films and fiction TV shows. Star Wars Andor is not solving problems through a peace movement across the galaxy, because fiction addicts want war in "Star Wars", terrorism and bright explosions. The addiction to Torah science fiction violence / Bible science fiction Hell punishment and Judgement Day horror film stories / Quran science fiction isn't being taken seriously. We put this into our minds, We The People glorify weapon systems as video game entertainment on a global scale. And we have not made the case for healthy peaceful life on Earth as an objective. We consider peace boring and mock "whirled peas" and "freeze peaches". Noting is sacred, nothing we can't turn into lust for violent entertainment andd domination sports. Malala from Swat Valley Pakistain is one of the few to see that terrorism is going to rise up in the world one place or another if the whole world doesn't face the human brain / human mind issues.
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8zm40/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng928kc/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8g3h0/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng931h8/
+
+People can't see past money. Addiction to fiction is self-harm to humanity. Terroists mosques don'have a money motive. They have a science fiction storytelling motive. We are self-exploiting our own minds, unaware the Russian IRA has been exploiting our minds since year 2013. Self-harm and dehumanization. Machine and technoogy lust and anti-humanism.
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8xn9h/
+
+Putin won an informaiton war that Americans can't even recognize. It isn't just the USA. The first things in office in early 2025 was wreck USAID, piss on Canada with hate. The world doesn't hate Canada and sees it as mania. Think timeline of this statement, before January 6, 2021. People still haven't faced up to QAnon / Q fiction running January 6. "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9650d/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8pwot/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8mgwp/
+
+... <img width="1502" height="1426" alt="image" src="https://github.com/user-attachments/assets/7006d8c1-a52c-473d-9923-fe69b36bc364" />
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8nmbp/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8sqz3/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng98wwj/
+
+Satire-washing, downplaying. Everything is an entertainment around Trump White House.
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8tl6h/
+
+Reddit community can't even name "Internet Research Agency" and "Cambridge Analytica". Which ramped up in 2013 before February 2014 Ukraine war. Right on Reddit, not far away on lands in Ukraine, but right on that touch device in the hands.
+
