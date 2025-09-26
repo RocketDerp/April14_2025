@@ -2298,3 +2298,13 @@ Just chill, amusement-washing chill-washing the Russian mind defeat of USA.
 https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng9188g/
 
 Comprehension and understanding of reality and truth isn't right or left. Fiction vs. nonfiction is a better perspective. The mindsets that interprets as this comment messages is toxic and self-harm to USA. ... ... ... “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng9b65x/
+
+Short-length comment message thinking and answers. Millions of such comments over and over.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng8trmn/
+
+Organic low-effort. 500 low-effort comments quantity is beter than 150 low-effort comments logic.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1nqjuac/super_edgy/ng8s3u9/
