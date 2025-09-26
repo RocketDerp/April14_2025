@@ -2820,3 +2820,37 @@ Fiction addictions abound.
 
 https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngck5jc/
 
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngckwnz/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngd9u33/
+
+USA gullibility issues. October 19, 2024 https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcnzom/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcpx05/
+
+The monomyth fiction cores in USA mass mind. Charlie Kirk understood with year 2021 cretaion of "Talking Point Faith" with Bible memes.
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcqy1i/
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngcvzr2/
+
+Trump believes Putin and has for a very long time.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngcynkh/
+
+Avoding nonfiction, that's a key behavior to observe, the repulsion to nonfiction learning on important topics.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngdjdiz/
+
+Fiction Reddit commening is very popular.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngcvuut/
+
+Fox News audience is calling everyone else idiots and stupid. That isn't the same as demonstrating self-awareness of media ecology. Fiction vs. fiction, Reddit fiction vs. Fox News fiction is like Harry Potter ficiton vs. Hunger Games fiction. All fiction.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngdjadf/
+
+Donald Trump provided fiction storytelling, fiction stories. That's what Reddit addores. That's what USA society desires now. The Internet Research Agency / Kremlin won the War Against Reality. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
