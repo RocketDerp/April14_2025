@@ -2227,3 +2227,48 @@ https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes
 
 You can't read far to observe Fox News media addiction problems described but not a soul asking for others to **get on the same page** of Jen Senko's 2015 film. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng7uygb/
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng8x91n/
+
+Banality-washing with tiny-short messages, millions of Reddit coments that context change the minds of the audience. Instead of asserting more deep-thinking on the subject of hate. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/politics/comments/1nqiuvx/trump_nominee_quietly_deletes_posts_calling_for/ng96xd3/
+
+If the USA were a serious nation, people on Reddit would use their free time and spare time to call for sustained repeat focus on serious learning about Russian internet warfare instead of commenting. Poeople would cry out that we all need to stop humor-washing and entertainment-washing Trump and that our minds are being exploited with surreal comedy and absurd humor memes.
+
+https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng56n9e/
+
+The Reddit comment section can't see the Reddit comment section of no-identity hiding body photos, hiding faces (TikTok and YouTube shows faces), hiding names, welcoming the Internet Research Agency. Unable to name the "Internet Research Agency" or describe how human minds can be exploited, on and on.
+
+https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng57jrs/
+
+Educaiton from Neil Postman indeed taken for granted!
+
+https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5apjm/
+
+People can't grasp glaring obvious. Trump is an entertainment, fiction content Reality TV creator. Reality TV is fiction, not Reality itself. When watching fiction, people think anything goes, violence is attractive, Star Wars Andor 2025 final season is fine because it is wrapped in fiction. Mind-fuck a population into not being able to articulate Bible verse '1 John 4:20" meaning about fiction vs. non-fiction (character of "God" and "I love Jesus" being wrong, fiction love).... I've said all this in other comments, but I'm still trying.
+
+https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5ebo5/
+
+The pasth 10 years, eh? The Internet Research Agency invaded Reddit and other media sytems since Q2 2013.
+
+https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5i5nq/
+
+Another Reddit comment saying "cult", where is Reddit standing up and calling an emergecy that cults have taken over the USA? That cults are out of control? A call to all go to the nonfiction section of the publci library and find every book about cults and start teaching on Reddit? crickets.
+
+https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng778wq/
+
+Reddit is a river of washing away important topics with low-effort commeting. 
+
+https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5pv2b/
+
+Reddit commenting keeps people in simcucra. War against Reality from Russia has total population, everyone, in USA vs. USA, Americans insutling and mockng Americans, unable to engage nonfiction learning of Russian techniques.
+
+https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5ivgn/
+
+https://old.reddit.com/r/politics/comments/1nq9xis/young_trump_voters_say_they_regret_voting_for/ng5eu9k/
+
+Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
+
+
