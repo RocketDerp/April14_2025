@@ -2152,3 +2152,39 @@ https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effe
 Sus "trans' bio on account, saying that podcasters have been assisnated without evidence.
 
 https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7mvf8/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng7ohct/
+
+Russia won the Internet Research Agency invaison of media systems since year 2013.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng8j4pe/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng8jm8s/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nqh8p3/trumps_presidency_is_effectively_over_new_polling/ng8pbkq/
+
+Denial abounds. <img width="834" height="426" alt="image" src="https://github.com/user-attachments/assets/0f7f6f3b-2e90-4ca4-9893-aa88a0f5062f" />
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng78922/
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng7f212/
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng7bcnk/
+
+Joke-washing and humor-washing works on Reddit comments for any serious topics.
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng77yyx/
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng7k8x9/
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng8hkfk/
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng7azg0/
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng79u9y/
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng8ha23/
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng79w63/
+
+https://old.reddit.com/r/California/comments/1nqj1um/california_maga_dentist_jokes_she_gives_worse/ng8szuf/
