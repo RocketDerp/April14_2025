@@ -2693,4 +2693,9 @@ https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defen
 
 One person gets it, even if they hedge with satire. Tony Clifton acting. Surkov Russian leadership methods.
 
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbvf6k/
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbmgz0/
+
+Reddit comment readers ae in a bubble. Choose your own adventure from hundreds of millions of low-effort comments that lead to ignorance and anti-comprehension. Someone on Reddit at 11:30am Tuesday gets an entirely different anti-reality than another person at 4:20pm on Wednesday. Fragmented comprehension. Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
 
