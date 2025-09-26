@@ -3045,4 +3045,21 @@ https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_
 
 Since March 2013.
 
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdadcb/
+
+More than 3% to 5% believing and trusting Donald Trump is an honest and sincere source of information, that Donald Trump is good with information systems and sharing knowledge, is alaming. Especially rural people who insut "city slicekers" to a famous New York City playboy who lived on top of a tall building. Where I grew up in Fort Wayne, Indiana in the 1980's you were not to trust city slickers. Nor did you trust Russia. And both were mind--fucked inversion of monomyth patterns by Cambridge Analytica and the Internet Research Agency. Denial abounds.
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngd5yz8/
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngd20wi/
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngd9wko/
+
+"hate one another", "hate thy neighbor" won't work for democracy. enslave they neighbor, attack thy neighbor is not a joyful life. Study the old word order,  the Middle East.
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdctz1/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nrd15m/in_a_plot_twist_nobody_saw_coming_trump_pivots/ngdlo9b/
+
+Fiction sells better. How we saved the USA from Martians, how we saved the USA with Space Force. How we stopped a terrorist attack from Canada. 
 
