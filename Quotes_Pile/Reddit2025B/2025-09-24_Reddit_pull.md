@@ -2716,3 +2716,20 @@ https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defen
 
 Anti-nonfiction. Note the absence of any author names, book titles, references, links, citations. Just calling out-group stupid despite this oingoing since November 7, 2012 with the agreement to create the Russain Internet Research Agency and invasion of Reddit media systems with mind-fucking feverdream content. November 7, 2012. ... ... ... "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." -https://www.facebook.com/konstantin.rykov/posts/10210621124674610
 
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbjybm/
+
+Divorce from reality, dovorce from nonfiction with nuclear weapons and arroagance. Canada is already under information warfare from Putin and Trump audiences.
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbakj4/
+
+Lost the war to the IRA mind-fucking with CA payloads. "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbbqmo/
+
+People are glued to their Redddit commenting over and over and over, ONGLING FOR TEN YEARS AND THREE MONTHS. No other leaders can provide the entertainment and antics that the President Tony Clifton performers provide. The MAGA roadies and the stages are constant media content for Reddit and Bluesky audiences to mock and hate. Truth Social hate messages, Truth Social mcokery messages, people are entirely addicted to fiction storytelling. Addicts to mocking do not want the show to go back to "Sleepy Joe" boring Biden and normal leaders who aren't great Twitter performers!
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngboklw/
+
+Russia mind-fucked them into self-harm, attraction and addiciton to fiction. Even Putin has self-owned himself, self-harming Russians with the monomyth that Surkov students unleashed. Fiction vs. nonfiction. The War Agaist NonFiction went too far, too deep into minds! People are in extreme denial how much behaviors have changed since year 2013. ... ... ...
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
