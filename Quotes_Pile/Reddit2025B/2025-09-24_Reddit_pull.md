@@ -1891,4 +1891,28 @@ https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_p
 
 Yet the learned in middle school how to draw an audience with antics and mind-fucking and to put brain exploits of Reddit and Fox News HDTV and Elon Musk Twiter and Russia Today above all else. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage, etc, etc, etc, etc. Media ecology learning is in essential to rescue the USA! All persons age 12 to age 120 need to study Neil Postman ASAP! We are in feedback loops of fiction vs. fiction. High-speed messaging addictions.
 
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7pr8w/
+
+It blows Reddit audience mind that a 79 year old man is mind-fucking them with social media systems. That a 79 year old white man knows how to use meme machines.
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7ndon/
+
+Reddit audince laugh track indicator, "LMAO" signal to Reddit meme consumers to LOL and amusement-wash this as great entertainment. The very means of power of Putin and Trump.
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7o7e0/
+
+The Reddit audience flocks to antics politics, shooting fish in a Reddit comment section barrel.
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7n1m1/
+
+Using fiction meme monomyth Star Wars 1977 message-codes to mind-fuck the Reddit comment reading audience to turn away. OPERA_A On the subject of people turning away and LOL LOL LOL LMAO as instructed on Reddit. https://www.youtube.com/watch?v=BA9Ym7MpOOc
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7njql/
+
+No, no small nation had Hollywood and SNL entertainment skills like the White House does to amuse Reddit audiences.
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7s5tc/
+
+This is Putin mind-fuck shit that Reddit users eat up.
+
 
