@@ -545,7 +545,7 @@ Note the compusive name-calling, adopted behavior of Donald Trump on Truth Socia
 
 https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng11a3w/
 
-Audience of President Tony Clifton witness Tony CLifton performer diss and insult others, thinks Tony Clifton isn't self-aware of his fat suit and clothing color mismatches. Eating The Onion satire, this Reddit comment section can't see past the Reality TV that Trump is an actor. That Surkov Russian techniques are adapted to USA / North American audiences. Like how "the Office" ficiton show is imported from the UK to USA and altered.... ... ... Published January 2015, before Trump started run for office in June 2015: https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+Audience of President Tony Clifton witness Tony CLifton performer diss and insult others, thinks Tony Clifton isn't self-aware of his fat suit and clothing color mismatches. Eating The Onion satire, this Reddit comment section can't see past the Reality TV that Trump is an actor. That Surkov Russian techniques are adapted to USA / North American audiences. Like how "the Office" ficiton show is imported from the UK to USA and altered. ... ... ... Published January 2015, before Trump started run for office in June 2015: https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
 
 https://old.reddit.com/r/news/comments/1npmqeu/trump_hangs_autopen_image_instead_of_biden/ng14gyg/
 
@@ -2656,4 +2656,41 @@ https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divis
 https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngb51zl/
 
 <img width="918" height="664" alt="image" src="https://github.com/user-attachments/assets/00669278-1bf8-4804-9262-687d794ce66b" /> Anonymous, no-identity, high-quanitty high-speed junk consumption platform. Drowning the USA in anti-comprehension and anti-understanding. ... ... ... "especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbbhn4/
+
+Recency bias abounds. Messaging as if this is the first year Trump has been President. Note the "LOL" laugh trach, how amusing and entertaining it is to have the USA wrecked by Russian information warfare since Q2 2013.
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbc9z7/
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbd7bi/
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbfiz7/
+
+Note the absence of author names, book names, quotes, citations. Just tiny short Twitter-thinking messages. Addictions to low-effort messages, avoiding books and sustained focused comprehension of nonfiction. ... ... ... “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbqfkq/
+
+“The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... No one knew what was happening to him, **least of all of the Germans**, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbh7dd/
+
+People are living in fiction. It isn't wrong because they never learned or understood reality itself, nonfiction science. Peopole who constantly consume low-effort messages and Fox News HDTV fiction messages and never understand or comprheend. Fighting with other fiction addicts in filter bubbles, subscribe bubbles, TV channel bubbles, subreddit bubbles.
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbnau8/
+
+People have not learned anything. People can't name CA or IRA. People continue to flock to every Trump message and comment about it, reaction commenting, millions and millions of comment messages that are disposable. Avoiding nonficiton sustained learning about Russian information warfare and grasping the forest for the trees of mutliple nations and not just USA and Trump.
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngb8g8u/
+
+Tony Clifton acts, audience calls Tony Clifton an idiot and dumb and never learns about NYC Andy Kaufman. NYC is Trump's home spot, his home TV leaning. SNL / Andy Kaufman. Donald Trump is the most amazing actor to bamboozle people. A Reality TV star of "The Apprentice" and USA audiences think it is real. Unable to turn to nonfiction public library and learn. ... ... ... Published January 2015, before Trump started run for office in June 2015: https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbbs6k/
+
+Yes. Trump playing antics for the Reddit and Bluesky audiences works very well.
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbiz8s/
+
+One person gets it, even if they hedge with satire. Tony Clifton acting. Surkov Russian leadership methods.
+
 
