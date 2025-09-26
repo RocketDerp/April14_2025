@@ -1865,3 +1865,30 @@ https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_p
 
 Reddit egoism, that they are smarter than Putin and that Trump isn't a gifted actor and entertainer. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng75238/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7au3t/
+
+That is why you have a high-speed touchscreen media device to get the next Q Drop / Trump fiction antics drop. A society of media addicts, a nation of media addicts, who abandon nonfiction learning. ... ... ... "especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7ddkm/
+
+Reddit comment consuemrs are high as a kite on the Trump Tony Clifton act. Charlie Kirm speeches and action neck shot has thrilled the Reddit audience.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7j89f/
+
+Surkov mind exploit being described as the mind-fuck enters the brain.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7jnlp/
+
+Audience loves being mind-fucked by Putin and Trump.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7lepd/
+
+Eating up the Surkovian Onions and declaring bitter super-high acid Moscow Onions are the new Sugar. Abandoned low-acid Wala Wala and Valdellia, bittre and hate-filled attracts flies to shit. Putin won, surkov won, since year 2013. Self-harm USA enjoying the entertainment, Infinte Jest V.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng75wxb/
+
+Yet the learned in middle school how to draw an audience with antics and mind-fucking and to put brain exploits of Reddit and Fox News HDTV and Elon Musk Twiter and Russia Today above all else. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage, etc, etc, etc, etc. Media ecology learning is in essential to rescue the USA! All persons age 12 to age 120 need to study Neil Postman ASAP! We are in feedback loops of fiction vs. fiction. High-speed messaging addictions.
+
+
