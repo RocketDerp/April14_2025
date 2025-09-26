@@ -2423,3 +2423,114 @@ https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domest
 
 Reddit community can't even name "Internet Research Agency" and "Cambridge Analytica". Which ramped up in 2013 before February 2014 Ukraine war. Right on Reddit, not far away on lands in Ukraine, but right on that touch device in the hands.
 
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9r609/
+
+And Germany did not have the information systems technology we have in USA. People are unable to face how much technology has changed the USA and why Elon Musk purchased Twitter (and Reddit society mocked and mocked the Twitter purchase). Reddit can be stealth natonalized or loudly nationalized. The avoidance of nonfiction abounds, deep denial and retreet to fiction. “The underlying ideology within social media is not to enhance choice or agency, but rather to narrow, filter, and reduce choice to benefit creators and advertisers. Social media herds the citizenry into surveilled spaces where the architects can track and classify them and use this understanding to influence their behavior. If democracy and capitalism are based on accessible information and free choice, what we are witnessing is their subversion from the inside.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America,**year 2019**
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng900dt/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng999nk/
+
+Go to the streets and fight for what ideals? Reddit has no ideals except fiction and kitten images on /r/All- entertainment is the ideals. First person shooters and high-budget Star Wars Andor fiction content. Malala was on the world stage standing up to fiction addictions to The Bible and Quran and Torah, and people ignored her. Women teaching have been a peace thread that has held humanity together. Now Joe Rogan is the teacher, Charlie Kirk is the teacher, male sports starts are the teachers. The fiction of Allah being a male who dominates has wone. Jesus is now pro-Trump Texas kick-ass gun-slinger in the minds of the world. The cross symbol has been reprogrammed by the IRA, Putin won since year 2013. Fox News audience rocks back and forth changing the Fox News fiction story. What was wrong with Malala's words? Why wasn't she good enough since year 2013? Why aren't Martin Luther King Jr's words good enough since year 2013? There was no high road taken, the high road sat empty. The High Road was reviving MLK Jr's teachings in the face of the Ukraine and IRA war against Reality since year 2013. The High Road was Malala reforming Palestine. The World Did Not Use Social Media Free Time and Spare Time to TAKE the High Road to a book: ... ... ... “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. https://www.youtube.com/watch?v=gjGL6YY6oMs
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9d6he/
+
+Low-effort Reddit comments by the millions to drown out nonfiction learning of mass dehumanization mind programming.
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9562b/
+
+For all Earth, humanity. The mind issues of human brain exploits have not been addressed. And technology to use against life keeps advancing. Weapon systems advance, travel advanced, hate message systems advanced.
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8x89x/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng96l6q/
+
+https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ng8ench/
+
+https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ng8try8/
+
+The Russian IRA invaded Reddit and other media systems since Q2 2013, and people humor-washed hate, amusement-washed hate. Despite all the lessons of history that show...  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) ... people cheer on team-sports of out-group hate. Even October 7, 2023 Mosque hates Synsagogue wasn't enough of a reminder for Reddit socity that Malala's book wasn't making fron-page every week like is needed. What makes front page? fiction entertainment and kitten images. There is no sense of need to rescue our own minds from our own teaching of hate. Subreddit hates Subreddit. Fox News HDTV network hates public library media. Media vs. media hate is staring Reddit in the face and Americans can't even learn from Septembe 11, 2001 that hate is bad and the crisis needs to be addressed not ignored. Worse, not fed more hate with high-speed Reddit and Twitter and Bluesky machines.
+
+https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ngairrd/
+
+I can not understand why people act like nations like USA doing a civil war and coup is so easy to describe. As if it is a baking rescipe for cookies. Here are the ingredients, this is how it works. As if there have been 7,000 such situations happening to the United States of America and Germany and you can so easily lay out that it only works this one and only one way. I don't think Germany 1933 had Apple iPhone and Apple iPad everywhere like USA does in September 2025. People on Reddit can't even NAME the "Internet Research Agency" and "Cambridge Analytica" or "Edward Bernays' and cling to some idea that the worst that humanity can ever come up with is a pattern Italy and Germany in the 1930's.
+
+https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ng8d3b7/
+
+People who are attracted to hate and mocking message. Every group calling evey other group idiots and morons. A Trump Truth Social faith.
+
+https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ngaj54f/
+
+People enjoy clowns. Late night comedy shows. Reality TV. low-effort clowning insulting comments. Donald Trump is doing a great and masterful performance of Tony Clifton. Reddit audience can not resist compusive insutling and mocking how Tony Clifton bragging he is a great entertainer is wrong!
+
+https://old.reddit.com/r/politics/comments/1nqoaw8/triggered_trump_melts_down_at_mention_of_dem_star/ng9187x/
+
+What low-effort commenting has done to our nation. Trump keeps winning and people can't face that low-effort avoidance of nonfiction books has wrecked the nation.
+
+https://old.reddit.com/r/pcmasterrace/comments/1nqz1jx/steam_refunds_destiny_2_players_with_over_2000/ngb3btz/
+
+https://old.reddit.com/r/pcmasterrace/comments/1nqz1jx/steam_refunds_destiny_2_players_with_over_2000/ngana3m/
+
+https://old.reddit.com/r/pcmasterrace/comments/1nqz1jx/steam_refunds_destiny_2_players_with_over_2000/ngayp5t/
+
+Ecology of media. Geography of media. 
+
+https://old.reddit.com/r/50501/comments/1nqyt9c/whiskey_pete_just_made_light_of_the_rise_of_the/ngakslx/
+
+https://old.reddit.com/r/50501/comments/1nqyt9c/whiskey_pete_just_made_light_of_the_rise_of_the/ngawko0/
+
+“In the twenty-first century the techniques of the political technologists have become centralized and systematized, coordinated out of the office of the presidential administration, where Surkov would sit behind a desk on which were phones bearing the names of all the “independent” party leaders, calling and directing them at any moment, day or night. The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements, exploiting and rendering them absurd**. One moment Surkov would fund civic forums and human rights NGOs, the next he would quietly support nationalist movements that accuse the NGOs of being tools of the West. With a flourish he sponsored lavish arts festivals for the most provocative modern artists in Moscow, then supported Orthodox fundamentalists, dressed all in black and carrying crosses, who in turn attacked the modern art exhibitions. The Kremlin’s idea is to own all forms of political discourse, to not let any independent movements develop outside of its walls. Its Moscow can feel like an oligarchy in the morning and a democracy in the afternoon, a monarchy for dinner and a totalitarian state by bedtime.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, 2014
+
+https://old.reddit.com/r/50501/comments/1nqyt9c/whiskey_pete_just_made_light_of_the_rise_of_the/ngaxlc5/
+
+https://old.reddit.com/r/50501/comments/1nqyt9c/whiskey_pete_just_made_light_of_the_rise_of_the/ngama6n/
+
+The Russian IRA has minc-fucked We The People into sports mentality of video game simulacra. Touch-screen media addiction to hyper reality. Since year 2013.
+
+https://old.reddit.com/r/50501/comments/1nqyt9c/whiskey_pete_just_made_light_of_the_rise_of_the/ngajk0q/
+
+https://old.reddit.com/r/50501/comments/1nqyt9c/whiskey_pete_just_made_light_of_the_rise_of_the/ngb4dq1/
+
+https://old.reddit.com/r/50501/comments/1nqyt9c/whiskey_pete_just_made_light_of_the_rise_of_the/ngaxwiq/
+
+Look at what adults create on social media comment sections. Fiction addicts who can not engage nonfiction learning and teach cult deprogramming. Instead, want millions of low-effort comments.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/nga3eh8/
+
+"Clever comebacks" community humor-washing amusement-washing mass dehumanization in USA in September 2025. Machine lovers / technology love and anit-humanism worship.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/nga7utm/
+
+Fiction addicts can't see the Internet Research Agency media invasion of Reddit is covered in the nonfiction section of the public library.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngat3ka/
+
+Yes. He was alaso since year 2021 a "Talking Point Faith" Bible fiction seller / like the Trump science fiction Bible selling. This is Russia's War Against Reality with fiction addiction mind exploitations. It is self-harm to all humanity who had never come to terms with the fiction addiction crisis, the literacy problems of not grasping metaphors. The Tower of Babel now in subreddit vs. subreddit langauge barriers. Media addicts hate other media addicts with the slightest of differences. ... ... ... “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/nga8iqo/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/nga3fln/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/nga5nek/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngadyl1/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/nga996u/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngaivhy/
+
+War Against Reality has no left or right. It is self-harm to all humanity to no longer concern how diseases spread and how to stop them, how pollution harms life on earth. Fiction addiction is abandonment of Earth and giving up on comprehension. Very popular on Reddit comment sections.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngaodh0/
+
+Russia's War Against Relaity started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngay2c4/
+
+Minds blown / minds exploited via images and messages.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nqx7hn/i_sense_a_strong_emotion/ngb48k5/
+
+Russia's War Against Relaity started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
