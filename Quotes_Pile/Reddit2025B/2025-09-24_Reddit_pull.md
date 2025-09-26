@@ -2043,3 +2043,19 @@ https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_america
 
 Out-group crazy messaging patterns on Reddit information systems. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8jps6/
+
+Out-group crazy messaging patterns on Reddit information commenting systems. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8jutb/
+
+People offer no assistance. Out-group crazy messaging patterns on Reddit information commenting systems. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8kfyb/
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8ki1z/
+
+Comments that people should not be allowed to vote. Messages to supress voting in USA elections on Reddit.
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8ky6m/
+
