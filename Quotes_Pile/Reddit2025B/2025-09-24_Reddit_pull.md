@@ -2318,3 +2318,61 @@ https://old.reddit.com/r/PropagandaPosters/comments/1nqtggy/race_mixing_is_commu
 https://old.reddit.com/r/PropagandaPosters/comments/1nqtggy/race_mixing_is_communism_usa_1953/ng9e7ij/
 
 https://old.reddit.com/r/PropagandaPosters/comments/1nqtggy/race_mixing_is_communism_usa_1953/ng9hcdi/
+
+https://old.reddit.com/r/LiveNews_24H/comments/1nqkz2h/new_president_trump_says_he_offered_the_head_of/ng7xkhi/
+
+https://old.reddit.com/r/LiveNews_24H/comments/1nqkz2h/new_president_trump_says_he_offered_the_head_of/ng91p5i/
+
+https://old.reddit.com/r/LiveNews_24H/comments/1nqkz2h/new_president_trump_says_he_offered_the_head_of/ng7xtld/
+
+Social media laugh track for the medium. Reddit audience viewing this as fiction entertainment. Detached from reality.
+
+https://old.reddit.com/r/LiveNews_24H/comments/1nqkz2h/new_president_trump_says_he_offered_the_head_of/ng87k0n/
+
+https://old.reddit.com/r/LiveNews_24H/comments/1nqkz2h/new_president_trump_says_he_offered_the_head_of/ng8exts/
+
+Instead of using spare time and free tine on social machines to react comment, we could come together and use social media to teach adult education. Remedial morality, Bible literacy, compassion lessons.
+
+https://old.reddit.com/r/law/comments/1nqo3co/james_comey_reacts_to_his_indictment_we_will_not/ng9kfbh/
+
+https://old.reddit.com/r/law/comments/1nqo3co/james_comey_reacts_to_his_indictment_we_will_not/ng8c5n7/
+
+https://old.reddit.com/r/politics/comments/1nqy3dn/hegseth_calls_rare_meeting_of_large_number_of/ngahe5y/
+
+https://old.reddit.com/r/politics/comments/1nqxgs8/another_pandemic_is_inevitable_trump_is_making_it/nga9w62/
+
+Recency bias abounds.
+
+https://old.reddit.com/r/politics/comments/1nqugyd/trump_signs_order_declaring_tiktok_sale_ready_and/ng9mmxs/
+
+https://old.reddit.com/r/politics/comments/1nqugyd/trump_signs_order_declaring_tiktok_sale_ready_and/ng9rh6x/
+
+https://old.reddit.com/r/politics/comments/1nqugyd/trump_signs_order_declaring_tiktok_sale_ready_and/ng9sqjx/
+
+https://old.reddit.com/r/politics/comments/1nqqoxh/gop_lawmaker_calls_for_dem_congresswoman_to_be/ngaa42d/
+
+https://old.reddit.com/r/politics/comments/1nqqoxh/gop_lawmaker_calls_for_dem_congresswoman_to_be/ng9cd7d/
+
+https://old.reddit.com/r/politics/comments/1nqqoxh/gop_lawmaker_calls_for_dem_congresswoman_to_be/ng92rc5/
+
+https://old.reddit.com/r/politics/comments/1nqqoxh/gop_lawmaker_calls_for_dem_congresswoman_to_be/nga4itx/
+
+https://old.reddit.com/r/politics/comments/1nqqoxh/gop_lawmaker_calls_for_dem_congresswoman_to_be/ng8w8v5/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/nga014w/
+
+People consntalty saying *the other half* or some other slice instead of seeing the simualacra of avoiding serious nonfiction learning and teaching spans all. Since year 2013, the IRA manipulated everyone to self-harm the USA and avoid learning nonfiction about Russian information warfare overthe Internet. 
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng95srq/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9ob34/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ngaelsw/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8ctdm/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng8f2ms/
+
+https://old.reddit.com/r/politics/comments/1nqoe78/white_house_countering_domestic_terrorism_and/ng9p8m4/
+
+People imagining that a VPN within USA to reach Reddit won'tbe detectable. Magical thinking. Directly making changes to Reddit servers by order of the federal government as anti-terrorism can be done without public notice. Even an operationg system update can be ordered. Mobile networks and land lines ordered. No-identity social media can be banned. People need to face up that there has been no high road taken. Being willing to die for goodness is important to comprehend. Standing up for hate and dehumanization of out-groups has lead us here. These are mind problems of the human brain,not just USA. Domestic Russia self-harm and mindsets of attacking Ukraine are a threaet to all humanity. Malala in Swat Valley Pakistan is one of the few to get on the world stage and sing John Lennon's Imagine song to current times and in detail. Palestine had a hate and terror problem that taught Israel to hate harder. Palestine did not stand up for Malala's messages of October 8,, 2013 - a decade earlier. We are originating a world of hate, humanity is communicating the world over on the WWW that we prize hate. Putin won, Surkov won, since year 2013. The USA in 2025 is broadcasting "Hate Rules, Adopt Hate" as a role model.
