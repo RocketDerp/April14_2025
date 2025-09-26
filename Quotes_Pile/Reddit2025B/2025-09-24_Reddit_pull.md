@@ -2894,5 +2894,19 @@ USA had a good life and decent nation. But apprently Reddit messages are that it
 
 https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngd0wms/
 
-Everyone is USA is stupid, but this short-length Twitter-think Reddit message is a sign of intelligence. That's the mind-fuck here, the drowning in thoughtless hate messages. This is what people seek out and are attracted to, messages like this rule the USA mindsets in September 2025.
+The Reddit message conveys that everyone is USA is stupid, but this short-length Twitter-think Reddit message is a sign of intelligence. That's the mind-fuck here, the drowning in thoughtless hate messages. This is what people seek out and are attracted to, messages like this rule the USA mindsets in September 2025.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngd1he4/
+
+The truth, nonfiction, isn't popular.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngd7vii/
+
+Fiction is more popular than nonfiction. 
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngda11t/
+
+The IRA and CA since year 2013 conditioned people to flock to self-harm and avoid nonfiction learning about media ecology.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngdah5m/
 
