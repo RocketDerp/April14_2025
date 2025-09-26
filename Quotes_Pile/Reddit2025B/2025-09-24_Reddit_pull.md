@@ -1977,4 +1977,15 @@ https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_c
 
 Cheering on Trump messages on Reddit.
 
+https://old.reddit.com/r/Fauxmoi/comments/1nqmkjs/80_of_the_worlds_problems_involve_old_men_hanging/ng8h904/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nqmkjs/80_of_the_worlds_problems_involve_old_men_hanging/ng8j0c4/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nqmkjs/80_of_the_worlds_problems_involve_old_men_hanging/ng83slg/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nqmkjs/80_of_the_worlds_problems_involve_old_men_hanging/ng851dd/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nqmkjs/80_of_the_worlds_problems_involve_old_men_hanging/ng8djmv/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nqmkjs/80_of_the_worlds_problems_involve_old_men_hanging/ng8c8eq/
 
