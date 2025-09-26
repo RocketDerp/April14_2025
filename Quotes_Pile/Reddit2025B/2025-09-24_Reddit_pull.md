@@ -1835,3 +1835,13 @@ https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_p
 
 [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md)
 
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng75jes/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7jm0c/
+
+Ignorant of Ukraine war information techniques of Russia. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng76u17/
+
+Reminds you of entertainers and media stars behaving in ways that mind-fuck their audience. Howard Stern show antics. Donald Trump grew up on Howard Sern and Andy Kaufman.
+
