@@ -2059,3 +2059,17 @@ Comments that people should not be allowed to vote. Messages to supress voting i
 
 https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8ky6m/
 
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8maj2/
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8mjn3/
+
+Popcorn-washing, entertainment-washing serious problems of USA as good Reddit content entertainment.
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8moxt/
+
+Fiction addicts fiction-washing the USA situation.
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8msee/
+
+Reddit laugh-track for audience thrills.
+
