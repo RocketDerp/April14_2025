@@ -317,6 +317,12 @@ def fetch_user_info_hover(username, args=None):
                 json.dump(data, f, indent=4) # indent=4 makes the JSON output more readable
                 print(f"Saved fresh fetched account JSON to {account_filename}")
 
+    if "is_suspended" in data:
+        if data["is_suspended"]:
+             print("suspended account encountered")
+             quit_request = pause_with_quit(3)
+             return None, None, None, None, False
+
     created = datetime.datetime.utcfromtimestamp(data["created_utc"]).isoformat() + "Z"
     bio = data.get("subreddit", {}).get("public_description")
     user_title = data.get("subreddit", {}).get("title")
