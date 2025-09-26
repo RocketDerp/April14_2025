@@ -2587,3 +2587,73 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nr0f47/this_seems_kind_of_
 
 People pushing over and over that group identity matters. Instead of facing we all have human brains, we all have minds. All hate in ALL palces is bad. Pro-hate mesasging is concerned about team hate winning. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngaru2v/
+
+https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/nga465p/
+
+Pro-Putin messaging. Anything to downplay and ignore the education problem of comprehension and understanding. The raging outcomes of the Russian information war since year 2013. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/nga7mzv/
+
+The funeral service for USA should share: The educated people with spare time and free time flocked to reddit, constantly messaged there was an education problem in society, and then flodded the society with low-effort annti-comprehension anti-understanding messages. Comment messsages all the time asserting banality, unimportant and superficial content. Cheering on the decline of learning of nonfiction.
+
+https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngb8lpt/
+
+Donald Trump has the low-effrot comment Twitter-thinking problems that Reddit users do not want to face. Neil Postman's 1985 book "Amusing Ourselves To Death".  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngacawt/
+
+Anything to deny the invasion of Reddit comment sections by Russia. A Reddit comment section that avoids nonfiction learning of serious topics. People who can't name the "Internet Research Agency" or "Cambridge Analytica".
+
+https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngagkjy/
+
+Cambridge Analytica and Russia fucked over UK too.
+
+https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngbmyr4/
+
+https://old.reddit.com/r/democrats/comments/1nqwyve/well_said_oliver_kornetzke/ngbpbrh/
+
+Tonly Clifton actors. Reddit community adores mocking and insutling. Low-effort commenting about Tony Clifton being bad at entertaining.
+
+https://old.reddit.com/r/therewasanattempt/comments/1nr1iq5/to_preemptively_blame_democrats_for_a_planned/ngbf0ub/
+
+Divided by failures to study and learn nonfiction. Fiction vs. nonfiction. Fiction vs. fiction.
+
+https://old.reddit.com/r/therewasanattempt/comments/1nr1iq5/to_preemptively_blame_democrats_for_a_planned/ngb9j0v/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nr0z35/mass_walk_outs_in_protest_of_benjamin_netanyahu/ngbfwna/
+
+Social media laugh track, "LMAO", mind-blowing others that is just jokes and humor. No call to address the mind-blowing all around over absurd and surreal problems of clergy-driven patterns.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngb69cb/
+
+QAnon PizzaGate has people lusting for white men sex acts. Reform to elect honest and sincere politicians is being aoided, just as nonfiction learning is being avoided.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngbh0o5/
+
+A society drowning in low-effort, mocking and hate messages, unable to engage nonfiction learning about how Rusian informaiton warfare works to cultivate hate of out-groups. Americans hate Americans, as conditioned by Russia since year 2013. Self-harm USA.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngap8wc/
+
+People in the audience of Reddit are ddicted to low-effort comments by the millions, avoiding serious nonfiction books at other media venues - such as the public library, in favor of Reddit commenting.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngap6pm/
+
+MAGA doesn't like nonfiction. Reddit doesn't like nonfiction. Putin won the War Against Nonfiction. Defined September 9, 2014 in this article: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngapd5n/
+
+Real-time high-speed messaging systems doing entertainment-washing and amusement-washing of Trump. An aoudience attracted to mocking and hate messages of Trump and Kirk.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngaz5ud/
+
+Blind ignorance. A population of meme consumers who can't name the "Internet Research Agency" or "Cambridge Analytica" or 'Edward Bernays' and describe what is done to minds of media consumers.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngappi9/
+
+"some random shitlord" - Charlie Kirk is not ***random***. Ignroance abounds on Reddit. A population of meme consumers who can't name the "Internet Research Agency" or "Cambridge Analytica" and describe what is done to minds of media consumers.
+
+https://old.reddit.com/r/CURRENTEVENTS/comments/1nqzzsw/charlie_kirk_was_a_divisive_farright_podcaster/ngb51zl/
+
+<img width="918" height="664" alt="image" src="https://github.com/user-attachments/assets/00669278-1bf8-4804-9262-687d794ce66b" /> Anonymous, no-identity, high-quanitty high-speed junk consumption platform. Drowning the USA in anti-comprehension and anti-understanding. ... ... ... "especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
