@@ -3063,3 +3063,23 @@ https://old.reddit.com/r/Fauxmoi/comments/1nrd15m/in_a_plot_twist_nobody_saw_com
 
 Fiction sells better. How we saved the USA from Martians, how we saved the USA with Space Force. How we stopped a terrorist attack from Canada. 
 
+https://old.reddit.com/r/Fauxmoi/comments/1nrd15m/in_a_plot_twist_nobody_saw_coming_trump_pivots/ngdlr74/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nrd15m/in_a_plot_twist_nobody_saw_coming_trump_pivots/ngdl9nr/
+
+https://old.reddit.com/r/news/comments/1nrafaq/elon_musk_and_prince_andrew_named_in_latest/ngcyklm/
+
+https://old.reddit.com/r/news/comments/1nrafaq/elon_musk_and_prince_andrew_named_in_latest/ngd0ezh/
+
+https://old.reddit.com/r/news/comments/1nrafaq/elon_musk_and_prince_andrew_named_in_latest/ngdahee/
+
+Ahh, working in Bellevue Washington in 1997 on the private staff.
+
+https://old.reddit.com/r/news/comments/1nrafaq/elon_musk_and_prince_andrew_named_in_latest/ngdblbb/
+
+https://old.reddit.com/r/news/comments/1nrafaq/elon_musk_and_prince_andrew_named_in_latest/ngd7lpx/
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1nraspk/white_house_just_issued_an_executive_order/ngdbkl1/
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1nraspk/white_house_just_issued_an_executive_order/ngdb869/
+
