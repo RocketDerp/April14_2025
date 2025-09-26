@@ -2966,3 +2966,41 @@ https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_y
 
 That is the key to the Donald Trump era. Entertianment. Neil Postman's 1985 book "Amusing Ourselves To Death" educates on this topic.
 
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcrpxg/
+
+Audience loves the mocking back at Tony Clifton actors.
+
+https://old.reddit.com/r/LivestreamFail/comments/1nr8uuf/alex_jones_is_back_on_youtube_with_a_hitler/ngcs8xp/
+
+Entertainment addicts calling out for more wrecking of the USA with trash media.
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wants_trump_to_deport_hasan_piker_a/ngckw70/
+
+Russia mastered this as information warfare. This was published December 31, 2014 on the BBC by Adam Curtis: "A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year. In typical fashion, as the war began, Surkov published a short story about something he called non-linear war. A war where you never know what the enemy are really up to, or even who they are. The underlying aim, Surkov says, is not to win the war, but to use the conflict to create a constant state of destabilized perception, in order to manage and control." - https://www.youtube.com/watch?v=h9_L9GRRsQo
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wants_trump_to_deport_hasan_piker_a/ngcn1tq/
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wants_trump_to_deport_hasan_piker_a/ngcoq5s/
+
+Fiction vs. nonfiction is a deeper measure of the situation throughout human history. Entertainment and fiction storytelling is more popular than comprehending nonfiction.
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wants_trump_to_deport_hasan_piker_a/ngdhwcw/
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wants_trump_to_deport_hasan_piker_a/ngdv14u/
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wants_trump_to_deport_hasan_piker_a/ngcof5w/
+
+Hollywood fiction content sells bettern and makes more profit than nonfiction. See the 2015 nonfiction film from Jen Senko, not a big money maker: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wants_trump_to_deport_hasan_piker_a/ngdgxkv/
+
+The IRA drives me crazy. SEE_ALSO_A https://www.bbc.com/news/world-us-canada-45294192 I can not stand living in a society that trusts Putin and trusts Donald Trump's every word and image. People who flock and are drawn to low-effort comments and think everything is now a funny joke. Since year 2015 when it became rally clear. The Pandemic behaviors of anti-science were a massive nightmare. Nobody can even seem to admit Bill Gates was correct in his Ted Talk saying were weren't prepared and would have a shock with a big disease outbreak. Back in April 2015. People can't admit when a billionare is actaully correct and warned everyone! https://www.youtube.com/watch?v=6Af6b_wyiwI 38,438,844 views  April 3, 2015
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wants_trump_to_deport_hasan_piker_a/ngcrhp1/
+
+Humor-washing deportation, mockery-washing I.C.E. in USA. Reddit messages turn everything into entertainment.
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wants_trump_to_deport_hasan_piker_a/ngcr7dy/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) 
+
