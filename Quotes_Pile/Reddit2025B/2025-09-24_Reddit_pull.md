@@ -1818,3 +1818,20 @@ https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_p
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7cnvi/
 
 Comedy Vibes President. Fiction outsells nonfiction. Reddit loves it!
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng775xl/
+
+This Reddit comment sees that Donald Trump is in fact not a dumb stupid idiot. And people on Reddit do not realize that the absurd surreal antics are Kremlin mind exploit techniques. No defense works for humor-exploited minds. Absurd surreal irony and inverted meanings fly right under the radar of people.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7dre6/
+
+Russia 25 years ago, Turkey followed Surkov methods.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng75se1/
+
+So excited to see mocking and insulting of Reddit audience.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7do3l/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md)
+
