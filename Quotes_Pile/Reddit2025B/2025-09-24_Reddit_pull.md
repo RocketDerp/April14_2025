@@ -1915,4 +1915,26 @@ https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_i
 
 This is Putin mind-fuck shit that Reddit users eat up.
 
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7oln3/
+
+Social media laugh track to the White House show. ha ha ha ha messages.
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7nrbt/
+
+No, no small nation had Hollywood and SNL entertainment skills like the White House does to amuse Reddit audiences.
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7zgyu/
+
+Thrilled that Trump is crushing people.
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng86w1a/
+
+Amusement and entertainment expectations of more antics politics.
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng8ddc4/
+
+https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_indicted/ng7wlls/
+
+Celebrate that Russian mind-fucked the USA!
+
 
