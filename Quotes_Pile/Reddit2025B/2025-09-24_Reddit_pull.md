@@ -1937,4 +1937,24 @@ https://old.reddit.com/r/news/comments/1nql6ua/former_fbi_director_james_comey_i
 
 Celebrate that Russian mind-fucked the USA!
 
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7kaz1/
+
+Trump is so funny to Reddit audiences. Audiences find it so entertaining and amusing every Trump antics and self-harm to USA.
+
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7r7tb/
+
+Reddit addicts to antics wants self-harm to USA and children future destroyed by antics. Entertainent for Reddit!
+
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7k2sf/
+
+Trump is a TV addict who needs to create Reddit content for amusement of population.
+
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7pfyw/
+
+Tony Clifton audience members commenting how bad Tony Clifton is at his show.
+
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7pbcz/
+
+https://old.reddit.com/r/sports/comments/1nqkoex/trump_threatens_to_move_world_cup_games_out_of/ng7wpcx/
+
 
