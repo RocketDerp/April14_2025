@@ -2739,3 +2739,10 @@ The systems and processes keep getting stronger and stronger. The Charlie Kirk m
 https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbhr5l/
 
 Fiction is more popular than nonfiction.
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcm5ip/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcjsxo/
+
+ <img width="1348" height="306" alt="image" src="https://github.com/user-attachments/assets/2bf6e11f-60ba-48b1-a910-9d1ee439cf68" /> The Reaction To White House Clubs / Subreddits of Reactions to Trump clubs. People who find that hate is what they have in common. Driven to ocmpusive reactionary mindsets by the IRA and CA since Q2 2013. Reacting on comment sections to Kremlin and White House. Conditioned reactionary patterns of thinking. Unable to engage nonfiction learning from University of Toronto's Marshall McLuhanan and apply it to Truth Social and Reddit feedbackloops.
+ 
