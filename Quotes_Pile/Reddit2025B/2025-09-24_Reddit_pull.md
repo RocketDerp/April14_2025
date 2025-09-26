@@ -2699,3 +2699,16 @@ https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defen
 
 Reddit comment readers ae in a bubble. Choose your own adventure from hundreds of millions of low-effort comments that lead to ignorance and anti-comprehension. Someone on Reddit at 11:30am Tuesday gets an entirely different anti-reality than another person at 4:20pm on Wednesday. Fragmented comprehension. Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
 
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngb99km/
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngb9z2r/
+
+Poster child how low-effort comments on Reddit fail upward. Entertainment and fiction are far more popular than nonfiction learning.
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngba8qb/
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbbfwz/
+
+It is nonfiction vs. fiction addictions. Society is selling out to fiction. Just like Mecca fiction theme park for Quran science fiction. Anti-reality. Reality was abandoned, Trump storytelling, Rupert Murdoch storytellng, converged on Putin's IRA storytelling Q3 2013. ... ... ...
+"If it is the end of the world, I want to know, so that my kids and I can enjoy the apocalypse together. If America is utopia realised then maybe I’ll just settle back and go to Epcot Centre and forget Switzerland. Just go on the Swiss ride. This may be what I’ll do. I doubt it. I don’t like it. The war zone, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, **the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal**." -- year 1993, https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ describing our year 2013 onward future. Russia won, Putin won. 
+
