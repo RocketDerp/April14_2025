@@ -1845,3 +1845,19 @@ https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_p
 
 Reminds you of entertainers and media stars behaving in ways that mind-fuck their audience. Howard Stern show antics. Donald Trump grew up on Howard Sern and Andy Kaufman.
 
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7f7rr/
+
+Yes. Trump knows SNL Andy Kaufman duet with Tony Clifton backwards and forwards, and the low-effort comments on Reddit encourage not studying the acting skills and talents involved. OPERA_A Reddit comment section consumers say they are not in love with Trump mocking, Trump hate messaging, Trump's concentration of hate and mockery. Just a PHASE of TEN YEARS AND THREE MONTHS COMMENTING ON TRUMP AND MAGA. https://www.youtube.com/watch?v=STugQ0X1NoI
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7iku0/
+
+It shows on the Reddit comment audience what people value above humanism. Why people on social devices handed their hearts and minds to Putin since year 2013. ... ... ... “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7ksqc/
+
+WTF WTF minds blown. December 31, 2014 ... New Years Eve BBC: "But the key thing was, that **Surkov then let it be known** that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable."
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7ll0m/
+
+As a fan of the music band, I can say Americans have sold out their hearts to Putin. OPERA_A repeat track repeating this song. Meddia addicts of Reddit, you are as cold as D.O.G.E and I.C.E in how you sacrifice compassion and love of We The People for antics mockery for TEN YEARS, and you never take nonfiction learning from Neil Postman. I've seen it before.... https://www.youtube.com/watch?v=ySb1f9zWJkQ
+
