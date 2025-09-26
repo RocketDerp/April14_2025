@@ -2854,3 +2854,21 @@ https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_every
 
 Donald Trump provided fiction storytelling, fiction stories. That's what Reddit addores. That's what USA society desires now. The Internet Research Agency / Kremlin won the War Against Reality. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngcxgcb/
+
+Cambridge Analtyica mindfucked everyone to avoid the elephant in the room: Cambridge Analytica. Nonfiction learning of how monomyth patterns work on the human mind. Fiction addictions. "Media Woke", Wake. Marshall McLuhan 1968 book: https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngdidi2/
+
+Nonfiction is not attractive to Reddit comment community. Addictions to fiction monomyth storytelling patterns abound.
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngdj20b/
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngcz58b/
+
+Notice and observe: No links / no authors / no book titles in these no-identity comment messages. Just out-group hate message, very popular. Fiction outsells nonfiction. Russia has manipulated the ENTIRE population, not just MAGA and Republicans, but everyone into anti-reality anti-citation anti-refererence. People attracted to low-quality high-quality high-speed comemnting. ... ... ... “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re **no longer interested in finding out the truth**. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/agedlikewine/comments/1nr9gwd/she_was_right_about_everything_trying_to_help_a/ngd6drj/
+
+Messages to give up on mental health treatement. Messages to shut down health care systems. Give up and let Russia win the hearts and minds of the nation. Out-group insane messaging patterns on Reddit information systems. No citations, no links, no authros, no book names. Just *give up on Americans* messaging. Avodiding nonfiction learning: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
