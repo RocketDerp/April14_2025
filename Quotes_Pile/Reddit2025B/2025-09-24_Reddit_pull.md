@@ -3083,3 +3083,32 @@ https://old.reddit.com/r/WitchesVsPatriarchy/comments/1nraspk/white_house_just_i
 
 https://old.reddit.com/r/WitchesVsPatriarchy/comments/1nraspk/white_house_just_issued_an_executive_order/ngdb869/
 
+https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/ngd5g0h/
+
+Russia mind-fucked people to not engage nonfiction on Russia manipulation topics.
+
+https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/ngd6wzy/
+
+https://o
+
+ld.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/ngdkqwi/
+
+And it all started in year 2013, lead up to February 2014 Ukraine war.
+
+https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/ngd9cwy/
+
+https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/ngd54yf/
+
+https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/nge59a9/
+
+https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/ngd8tn9/
+
+https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/ngdmh62/
+
+People will still not face up to August 24, 2018 about the pandemic and measles. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/ngdpd0t/
+
+What I learned in Bellevue, Washington in 1997 working on private staff for the richest in the world.
+
+https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/nge5iz4/
