@@ -1859,5 +1859,9 @@ WTF WTF minds blown. December 31, 2014 ... New Years Eve BBC: "But the key thing
 
 https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7ll0m/
 
-As a fan of the music band, I can say Americans have sold out their hearts to Putin. OPERA_A repeat track repeating this song. Meddia addicts of Reddit, you are as cold as D.O.G.E and I.C.E in how you sacrifice compassion and love of We The People for antics mockery for TEN YEARS, and you never take nonfiction learning from Neil Postman. I've seen it before.... https://www.youtube.com/watch?v=ySb1f9zWJkQ
+Hollywood Reality TV dominates. <img width="1456" height="420" alt="image" src="https://github.com/user-attachments/assets/f9933dcb-52c8-48cc-aa98-e879ba582808" /> As a fan of the music band, I can say Americans have sold out their hearts to Putin. OPERA_A repeat track repeating this song. Meddia addicts of Reddit, you are as cold as D.O.G.E and I.C.E in how you sacrifice compassion and love of We The People for antics mockery for TEN YEARS, and you never take nonfiction learning from Neil Postman. I've seen it before.... https://www.youtube.com/watch?v=ySb1f9zWJkQ
+
+https://old.reddit.com/r/PublicFreakout/comments/1nqigly/trump_rigged_election_points_to_erdogan_he_knows/ng7479g/
+
+Reddit egoism, that they are smarter than Putin and that Trump isn't a gifted actor and entertainer. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
