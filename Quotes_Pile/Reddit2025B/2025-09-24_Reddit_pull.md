@@ -2770,4 +2770,53 @@ https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be
 
 Russia promoted deaths in USA, and social media users can't even cite the August 24, 2018 date and Johns Hopkins University / George Washington University. There is a complete avoidance of nonfiction learning on how Russia defeated USA. https://www.bbc.com/news/world-us-canada-45294192
 
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcndck/
+
+Addiction to fiction storytelling, monomyth patterns, is ruling society. People get angry / hostile / egomania when given non-fiction learning about Russian informaiton warfare on Facebook / Reddit / Twitter / etc. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcircw/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngck6lx/
+
+Internet Research Agency invaded Reddit commenting in year 2013 onward.
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngck6n9/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngck4v3/
+
+Old people have accumulated the housing, land, stock market assets, social connections in real life, etc. I've been living in Flordia and Arizona retirement ares since year 2015 since I learned about the Putin Media Invaison. Studying the avoidance of nonfiction learning among the elderly, and the gullibility issues. October 19, 2024 https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngckv5k/
+
+... The Russian Internet Research Agency agreement was nade November 7, 2012. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngciqa9/
+
+Thousands and thousands of simulacra of pro-MAGA and anti-MAGA in every flavor and seasoning. Attracting with whatever candy-flavor people desire. Hate vs. Hate. Simualcra / screen games of touch-screen devices. ... ... ... “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to exploit evolutionary flaws in our cognition? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcl4fw/
+
+People in September 2025 don't even discuss who owns Bluesky and how it is funded / who pays for it. The only concern is "not Twitter".
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngck8da/
+
+Russia won the information war. Fiction addiction abounds. Fiction vs. nonfiction is a far more serious matter than classic left-wing vs. right-wing. The War Against Nonfiction / War Against Reality. SEE_ALSO_A "This Is Not Propaganda: Adventures in the War Against Reality is a 2019 book by Peter Pomerantsev about disinformation and propaganda, which covers such campaigns in multiple countries." https://en.wikipedia.org/wiki/This_Is_Not_Propaganda
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcpwk2/
+
+"The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. **It reinvents reality, creating mass hallucinations** that then translate into political action." - September 9, 2014. We have known this mob mentality / anti-reality problem public since year 2014. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcky6c/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcnnhz/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcmso1/
+
+"In Aldous Huxley's Brave New World, the Savage Reservation (also called the **Savage Lands**) is a fictional area in New Mexico where the technology and culture of the World State have not reached, preserving traditions"
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcnwvn/
+
+Fiction addictions abound.
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngck5jc/
 
