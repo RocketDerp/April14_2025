@@ -3004,3 +3004,45 @@ https://old.reddit.com/r/insanepeoplefacebook/comments/1nr8ee0/looney_loomer_wan
 
 [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) 
 
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngd23c8/
+
+Fiction engagement.
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdaog4/
+
+Humanity is shooting fish in a barrel for telling different stories and creating conflicts. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...
+BILL MOYERS: I feel stronger in my own faith knowing that others experienced the same yearnings and were seeking for similar images to try to express an experience beyond the costume of ordinary human language.
+JOSEPH CAMPBELL: This is why clowns and clown religions are helpful. Germanic and Celtic myths are full of clown figures, really grotesque deities. This makes the point, I am not the ultimate image, I am transparent to something. Look through me, through my funny form.
+BILL MOYERS: There’s a wonderful story in some African tradition of the god who’s walking down the road wearing a hat that is colored red on one side and blue on the other side. When the farmers in the field go into the village in the evening, they say, “Did you see that god with the blue hat?” And the others say, “No, no, he had a red hat on.” And they get into a fight.
+JOSEPH CAMPBELL: Yes, that’s the Nigerian trickster god, Edshu. He makes it even worse by first walking in one direction and then turning around and turning his hat around, too, so that again it will be red or blue. Then when these two chaps get into a fight and are brought before the king for judgment, this trickster god appears, and he says, “It’s my fault, I did it, and I meant to do it. Spreading strife is my greatest joy.”
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdmf8j/
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdn5ym/
+
+"One moment Surkov would fund civic forums and human rights NGOs, the next he would quietly support nationalist movements that accuse the NGOs of being tools of the West. With a flourish he sponsored lavish arts festivals for the most provocative modern artists in Moscow, then supported Orthodox fundamentalists, dressed all in black and carrying (Jesus) crosses, who in turn attacked the modern art exhibitions. The Kremlin’s idea is to own all forms of political discourse, to not let any independent movements develop outside of its walls. Its Moscow can feel like an oligarchy in the morning and a democracy in the afternoon, a monarchy for dinner and a totalitarian state by bedtime.”
+― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014.
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdn7d3/
+
+Bible verse "1 John 4:20" needs to be learned by every person age 12 to age 120 ASAP.
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdyqo0/
+
+Finction vs. nonfiction. ... ... ... “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdf0qs/
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdrzhv/
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdgivh/
+
+Since March 2013.
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdp38d/
+
+https://old.reddit.com/r/technology/comments/1nram0p/cracker_barrel_outrage_was_almost_certainly/ngdl08e/
+
+Since March 2013.
+
+
