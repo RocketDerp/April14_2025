@@ -2031,3 +2031,15 @@ https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_america
 
 Russia manipulated reddit. Avoidance of nonfiction in favor of low-effort no-citation Reddit comment messages. People on Reddit can't even name the "Internet Research Agency" or "Cambridge Analytica" https://www.bbc.com/news/technology-43301643
 
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8fe1y/
+
+I don't witness apathy, I see extreme attraction and excitement over all the mocking Trump hate Trump messaging. Peole thriilled to rush to their touch devices and make social comments about Trump. An audience glued to bullshit addictions.
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8hw7f/
+
+Live video of I.C.E. is exciting to people. Street gang violence is far more attractive to video junkies and meme addicts than onfiction books at the public library to study and learn about Russian information warfare methods. Reddit meme addicts love breakign news notifications to react-comment about footage of I.C.E. raids. ... ... ... "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev. September 9 2014, 3:42 PM ET. “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to **make a few arrests — and then amplify the message** through his total control of television.”
+
+https://old.reddit.com/r/illinois/comments/1nqikme/trump_sends_troops_to_american_cities_giving_him/ng8i4ij/
+
+Out-group crazy messaging patterns on Reddit information systems. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
