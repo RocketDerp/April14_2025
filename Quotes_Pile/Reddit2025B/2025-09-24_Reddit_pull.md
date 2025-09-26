@@ -2733,3 +2733,11 @@ https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defen
 Russia mind-fucked them into self-harm, attraction and addiciton to fiction. Even Putin has self-owned himself, self-harming Russians with the monomyth that Surkov students unleashed. Fiction vs. nonfiction. The War Agaist NonFiction went too far, too deep into minds! People are in extreme denial how much behaviors have changed since year 2013. ... ... ...
 https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
 
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbasr6/
+
+The systems and processes keep getting stronger and stronger. The Charie Kirk media content addicts have been captured. Anti-reality is winning, War Against Nonfiction keeps wining since Q2 2013. OPERA_A REPEAT_A You can say that they didn't warn you! Your devices are not working for you... anymore! https://www.youtube.com/watch?v=8LulQJDFtIs
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngbhr5l/
+
+Fiction is more popular than nonfiction.
+
