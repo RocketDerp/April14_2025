@@ -2746,3 +2746,28 @@ https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be
 
  <img width="1348" height="306" alt="image" src="https://github.com/user-attachments/assets/2bf6e11f-60ba-48b1-a910-9d1ee439cf68" /> The Reaction To White House Clubs / Subreddits of Reactions to Trump clubs. People who find that hate is what they have in common. Driven to ocmpusive reactionary mindsets by the IRA and CA since Q2 2013. Reacting on comment sections to Kremlin and White House. Conditioned reactionary patterns of thinking. Unable to engage nonfiction learning from University of Toronto's Marshall McLuhanan and apply it to Truth Social and Reddit feedbackloops.
  
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngckg5q/
+
+“I am an intellectual thug who has slowly been accumulating a private arsenal with every intention of using it. In a mindless age, every insight takes on the character of a lethal weapon.” Marshall McLuhan to Ezra Pound, letter, June 22, 1951.
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngchcd4/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcj1gi/
+
+The Putin Media Inasion started Q2 2013, as agreed by Trump and Russia on November 7, 2012. ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcl05g/
+
+Always claiming that people they don't understand are "bots". messaging again and again that "bots". This is dehumanizing actual people. It is anti-diversity. It is the same thing MAGA promotes. People who speak Spanish langauge need to be deported, people who don't comprehend or understand the same way are "bots", non-persons. People do not recognize this casual dehumanization. Instead of calling for real identity on social media. USA history of social media required a licnesed. Mine license is KBRV0896 for short-distance social media communications. Ham radio was one of the earliest, if not the earliest, public social media systems and licensing has several levels. Anonymous no-idetity content is not allowed, a license can be reproted and investigated. This "bots" dehumanization has been normalized. Russian Internet Warfare Agency has maked reality confusing and bewildering, just as Trump's behavior is bewildering and confusing. ... ... ... "His aim is to undermine peoples' perceptions of the world, so they never know what is really happening. Surkov turned Russian politics into a bewildering, constantly changing piece of theater." - December 31, 2014. BBC Adam Curtis.
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcnerm/
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcj360/
+
+Nonfiction is "too woke" for Reddit and all USA media machine consumers now. Russia won the information war, USA lost, since year 2013. People will not engage and learn to understand how Russian information warfare works. People can not name dates, techniques, players in the IRA. People don't engage serious topics such as: https://www.cnn.com/2020/03/12/world/russia-ghana-troll-farms-2020-ward - you won't find soial media users with even casual knowledge such as Russia using Africa.
+
+https://old.reddit.com/r/technology/comments/1nr811e/trump_says_tiktok_should_be_tweaked_to_become_100/ngcn3ur/
+
+Russia promoted deaths in USA, and social media users can't even cite the August 24, 2018 date and Johns Hopkins University / George Washington University. There is a complete avoidance of nonfiction learning on how Russia defeated USA. https://www.bbc.com/news/world-us-canada-45294192
+
+
