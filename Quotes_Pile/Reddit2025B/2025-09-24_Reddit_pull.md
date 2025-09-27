@@ -3800,3 +3800,54 @@ https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_por
 
 https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghnqqa/
 
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghokyu/
+
+"MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi58n5/
+
+"Trump has figured out that our rule of law is based on norms." Putin figured out with Surkov over 25 years ago that rules of society, Reddit behaviors, are based on peer norms and media messages alter behaviors. They spelled it out in in 2013 (May 1, 2013 London School of Economics Surkov presentation). ... ... ...
+Gatov, who is the former head of Russia's state newswire's media analytics laboratory, told BuzzFeed the documents were part of long-term Kremlin plans to swamp the internet with comments. "Armies of bots were ready to participate in media wars, and the question was only how to think their work through," he said. "Someone sold the thought that Western media, which specifically have to align their interests with their audience, won't be able to ignore saturated pro-Russian campaigns and will have to change the tone of their Russia coverage to placate their angry readers." - June 2, 2014 https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghmolv/
+
+Trump is the military. He is coining new directions right in front of the world media which got posted on Reddit today. Commander in Chief of all USA Pentagon / military systems. People in Reddit are in massive denial and doing everything to downplay the shift of languages. September 16, 2020 reference https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghq717/
+
+The orders are CLEAR, the danger is PRESENT and CLEAR. Wake the fuck up USA, sleeping since March 2013. Even domestic Russia is a self-harm nation. There is no winning here. Nonficiton addiction driving the whole world into a Race To The Bottom of self-harm.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghn2b4/
+
+Can't see the forest of hundreds of milltions of people and mutlipe NATO nations reporting that it isn't Trump who is waging the War Against Reality alone. REddit dementia-washing Elon Musk Twitter / Elon Musk in White House. Musk isn't old with dementia, nor is Fox News audience suffering dementia, nor is Reddit audience all dementia. It is Cambrige Analytica. This is the behaviors Cambridge Analytica and Russian Internet Research Agency induced in the population. Avoidance of nonfiction learning about information warfare. People are in extreme denial how much behaviors have changed since year 2013. ... ... ...
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghpnpx/
+
+Crazy, out of touch with reality. Russia won the War Against Reality since March 2013. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghvjq5/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghnq9g/
+
+"What world", Reality Reddit / Reality Bluesky / Reality Facebook / Reality Murdoch they are living in a social media world of high-speed messaging and dozens of choices of HDTV news networks all competitng to entertain audiences. ... ... ... "Russia and the Menace of Unreality: How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev. September 9 2014, 3:42 PM ET. “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to **make a few arrests — and then amplify the message** through his total control of television.”
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghr7dj/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngho5ty/
+
+One posting on Reddit, triggering the audience to **really hate**. Shooting meme addict fish in a cheap free Reddit comment section barrel. ... ... ... 
+"It’s divisive and damaging to the healthy functioning of our political system, but it’s also **indisputably inexpensive** and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghsl3z/
+
+Portland population Follows / Likes / Subscribes... Bluesky and Reddit interpretations instead of Fox News and Truth Social interpretaitons. People on Reddit are so mind-blind to the IRA techniques and methods since March 2013. They started in November 2012 developing **5,000 alternate reality screen patterns** for Reddit and all media systems, subreddit by subreddit. What's the difference between /r/Conservative and /r/Politics ? ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghzyz4/
+
+Portland Oregon, where I was the lead advisor for the messaging / owner media systems for the owner back in year 1997 in Bellevue Washington... where I represented the owner in technology leadership of electric message systems.... subscribes and likes more towards the NonFiction section of the library. But is easily amused and entertained by Jody Allen and Paul Allen Group sports team and app empire owners. Media platform kings.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghn2p2/
+
+A language woke Finnegan spooted on Reddit! Someone who sees the reality and desn't argue word choices and gets the very clear and direct meaning. Trump originates his own language. September 16, 2020 reference https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
