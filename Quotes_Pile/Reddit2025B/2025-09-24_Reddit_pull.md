@@ -3593,3 +3593,70 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 
 OPERA_A You are part of a Reddit crowd, they are laughing at something, a woman is photographed on Reddit in front of you with watercolors, and you reach out your hand and you find you are all alone. I know you are in there, but you are out of sight... REPEAT_TRACK_BLOOMSDAY https://www.youtube.com/watch?v=Q2g0hrrKLNw
 
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh395h/
+
+Reddit is a trailer-park amusement center.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh58h8/
+
+Reddit peaked in year 2012 before the Internet Research Agency took over and native image hosting replaced old.reddit.com with "new Reddit" image-based presentation.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0t2f/
+
+Vibe Reddit, Vibe Nation. Fox News Nation, Reddit Nation, Truth Social Nation, Bluesky Nation. Instead of different times of day like Moscow year 2011, in USA September 2025, it is multiple media stages with different vibes in every filter-bubble flavor! ... ... ... "idea is to own all forms of political discourse, to not let any independent movements develop outside of its walls. Its Moscow can feel like an oligarchy in the morning and a democracy in the afternoon, a monarchy for dinner and a totalitarian state by bedtime.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. Year 2014.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0eom/
+
+Two-word Reddit commenting.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2e2a/
+
+I was living in Austin, Texas 78704 study grounds https://en.wikipedia.org/wiki/Keep_Austin_Weird in my research when predicting the (North Africa Tunisia origns) of Arab Spring on December 16, 2009.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0mcx/
+
+Multi-generational content creators, creating content for a Reddit audience.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0qvd/
+
+Tony Clifton style.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0kqb/
+
+Why are Reddit people so avoidant of the public library nonfiction section?
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh1kf1/
+
+You don't understand, nor can you name, "Internet Research Agency' and the date of November 7, 2012.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2ec0/
+
+Reddit flocks to shit like flies swarming on the front page of /r/All - this is USA values September 2025.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2g59/
+
+The nonfiction section of the public library is even more amazing.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2imx/
+
+Reddit projecting?
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2nm9/
+
+Subreddit sucks it down.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2q8t/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2s79/
+
+Irony blows audience minds.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2uyo/
+
+<img width="902" height="362" alt="image" src="https://github.com/user-attachments/assets/ae9902df-a46e-4188-a5a5-81b88f680b5a" /> Yes, you can't resist laughing. Exacly the brain reset mechanism of Putin Surkov governing for 25 years. Reddit community consistenly flocks to the consistent content patterns of Kremlin methods since March 2013.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2zio/
+
+Reddit looks at at "the base" and dooes not see the new media of Reddit. ... ... ... “The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan
+https://github.com/user-attachments/assets/193e2397-8a4d-4425-99e4-12781b18b54c
+
