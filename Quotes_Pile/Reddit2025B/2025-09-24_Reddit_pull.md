@@ -3204,4 +3204,35 @@ Real? War Against Reality started March 2013 by Russia. Published September 9, 2
 
 https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4soz/
 
-What is Real? War Against Reality started March 2013 by Russia. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+<img width="846" height="670" alt="image" src="https://github.com/user-attachments/assets/233355d7-93ea-4d1f-bb81-bab531c26213" /> What is Real? War Against Reality started March 2013 by Russia. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4vo5/
+
+Wake to what? Media ecology, James Joyce year 1924 Finnegans Wake publication. "Wake" Woke.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh9wrv/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh058s/
+
+"The Real World"
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3ex7/
+
+Reddit comment section is as shallow and superficial as fuck. Disposable comments.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh84vu/
+
+"Fuck people", hate people, *hate harder* messages. Exactly what Russian Information Warfare expected from the Reddit audience.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2wep/
+
+Reddit social media club is over 20 years, did it "grow up" to value no-identity low-effort comments and avoidance of printed books the public library... Garbage information Reality TV into minds, garbage mindsets. People learn from Reddit and Reality TV and we get what we have learned.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh1u3u/
+
+Why are We The People not using Bluesky and Reddit to teach remedial Bible literacy? Here are lessons to start with for USA society: [Important/USA_Bible_media_literacy.md](/Important/USA_Bible_media_literacy.md)
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2ysy/
+
+We have a 2,000 year old book and we still won't face the Tower Of Babel metaphor issue of comprehension and interpretation. What chance do people have with Truth Social postings of year 2025 when we still can't get on same page of Bible from Levant?
+
