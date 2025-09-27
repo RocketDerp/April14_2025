@@ -3708,3 +3708,11 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 
 Time for another repeat play. OPERA_A You are part of a Reddit crowd, they are laughing at something, a woman is photographed on Reddit in front of you with watercolors, and you reach out your hand and you find you are all alone. I know you are in there, but you are out of sight... REPEAT_TRACK_BLOOMSDAY https://www.youtube.com/watch?v=Q2g0hrrKLNw
 
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nght5r9/
+
+<img width="1614" height="1354" alt="image" src="https://github.com/user-attachments/assets/41e70fe0-1e73-4724-a08d-ef7c73dafac8" />
+Language has been reprogrammed. Interpertations changed. Cambridge Analytica dug so deep we have runway simulacra and wildfire monomyth patterns.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghueja/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi06ds/
