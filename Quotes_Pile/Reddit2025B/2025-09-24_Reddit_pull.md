@@ -3112,3 +3112,16 @@ https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admi
 What I learned in Bellevue, Washington in 1997 working on private staff for the richest in the world.
 
 https://old.reddit.com/r/worldnews/comments/1nrbajl/former_brexit_party_mep_admits_accepting_bribes/nge5iz4/
+
+https://old.reddit.com/r/politics/comments/1nrg3t4/trump_is_lying_about_leftwing_terrorism/ngelrky/
+
+https://old.reddit.com/r/politics/comments/1nrg3t4/trump_is_lying_about_leftwing_terrorism/nge8ckc/
+
+https://old.reddit.com/r/politics/comments/1nrg3t4/trump_is_lying_about_leftwing_terrorism/nge8qzh/
+
+Absurd comedy, surreal humor, entertainment. 
+
+https://old.reddit.com/r/politics/comments/1nrg3t4/trump_is_lying_about_leftwing_terrorism/ngegid0/
+
+https://old.reddit.com/r/politics/comments/1nrg3t4/trump_is_lying_about_leftwing_terrorism/ngef1gs/
+
