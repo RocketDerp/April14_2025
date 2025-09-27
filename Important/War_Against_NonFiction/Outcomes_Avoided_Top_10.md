@@ -4,7 +4,8 @@ Outcomes of the War Against Nonfiction.
 
 ## Number One Most Avoided **Non-Fiction** learning
 
-August 24, 2018 George Washington University / Johns Hopkins University. This should be the most well known and rather frequently repeated URL and BBC article in USA and UK since January 15, 2020. https://www.bbc.com/news/world-us-canada-45294192
+August 24, 2018 George Washington University / Johns Hopkins University. This should be the most well known and rather frequently repeated URL and BBC article in USA and UK since January 15, 2020. https://www.bbc.com/news/world-us-canada-45294192    
+20,767,116 views September 24, 2021
 
 ## Number Two Most Avoided NonFiction
 
