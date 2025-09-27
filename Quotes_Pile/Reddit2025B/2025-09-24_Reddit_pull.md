@@ -3926,3 +3926,21 @@ https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_por
 
 Social media amusement-track, LOL-track for audience.
 
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi32kx/
+
+Unaware that the Ukraine war had a Reddit front opened March 2013, that the war is Putin and Trump and White House are lost to the self-harm monomyth patterns. Standing in a wasteland of lost minds who can't escape their conditioned reactions.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi9etx/
+
+China may be waging a reality war to win hearts and minds against Taiwan too. The TSMC in a dry area of Phoenix is a real mind-fuck. The Great Lakes in USA make a little more sense.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi2gas/
+
+Supernatural monomyth Jesus reborn storytelling. OPERA_A fiction monomyth patterns Devil is a fiction character, a metaphor. https://www.youtube.com/watch?v=GgnClrx8N2k
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghr9fj/
+
+Malala is reforming the Taliban, Reddit society punches the poorly educated instead of teaching morality and using media systems for goodness. Hate messaging is more popular for meme addicts.
+
+
+
