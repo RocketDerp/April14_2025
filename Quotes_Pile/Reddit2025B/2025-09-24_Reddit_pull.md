@@ -3285,3 +3285,43 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 
 Tony Clifton entertainers.
 
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghaqm2/
+
+<img width="942" height="644" alt="Screenshot from 2025-09-27 07-51-52" src="https://github.com/user-attachments/assets/9eecbb5e-dc0c-4b24-8af8-69169fa6d14a" /> To own the audience.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghjvik/
+
+Owned with sex-lives information strip tease.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghau3j/
+
+Reddit audience flocks to what is desirable and acceptable. The entertainment acceptance window. Overton window of media addicts to Fiction. Fiction content has murder, war, video game Overton window. The War Against NonFiction. https://en.wikipedia.org/wiki/Overton_window
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh1iwh/
+
+Good idea one and good idea two is ok if you have only two ideas. When it's all bad ideas... you are living in September 2025 USA Reality.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2d2l/
+
+"would make Saddam Hussein jealous" - that's the point. Militants and media addicts flock to fight for this status symbols. Status Symbol Warfare.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3exp/
+
+The abandonment of reality. the giving up on nonfiction learning.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4nov/
+
+Reddit low-effort comments are so... much a waste of spare time and free time spent in service to consuming White House photographs.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghat8q/
+
+When? March 2013 is when the Russian invaison of Reddit media and media systems....
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0y78/
+
+Run by entertainers, with cameras. Making photos and movies of thier own self! OPERA_A Making movies of their selves! New York City The Don bandleader, Jewish band leader, The Donald. Home Town of Donald Trump, NYC music. *Countdown To* Maximum Putinization Expansion. https://www.youtube.com/watch?v=E7XXEO1aADM
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2kh0/
+
+Is "the half" in the room? The Half of the Reddit comment section? Is The Half on Bluesky?
+
