@@ -3655,8 +3655,56 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 
 <img width="902" height="362" alt="image" src="https://github.com/user-attachments/assets/ae9902df-a46e-4188-a5a5-81b88f680b5a" /> Yes, you can't resist laughing. Exacly the brain reset mechanism of Putin Surkov governing for 25 years. Reddit community consistenly flocks to the consistent content patterns of Kremlin methods since March 2013.
 
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3hdr/
+
+Reddit is the information system that wants you to believe the IRA.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3n6x/
+
+Reddit people are very serious about their images.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3o0s/
+
+True. Fact-checked and documented on this GitHub.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3p46/
+
+Dementia-washing Donald J. Trump on Reddit messaging. Not responsible because brain disorder. Very frequent message. People think Tony Clifton is the actor, uneducated on Andy Kaufman / Trump's acting talents and New York City Kaufman audience (Trump learning from Kaufman).
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh44hc/
+
+Just as you are conditoned to think, flocking to trash commenting.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4ddq/
+
+Consume Reddit comments, get IRA mind-fucked.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4ga9/
+
+And Reddit club of commenting?
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4jnh/
+
+There is a nonfiction section in the public library.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4t4s/
+
+Rich people sexual fetishment, PizzaGate Q / QAnon conditioned audience.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh524v/
+
+The vainishing point is in the rear-view mirror. SEE_ALSO_A Marshall McLuhan https://monoskop.org/images/f/fa/Forward_Through_the_Rearview_Mirror_Reflections_on_and_by_Marshall_McLuhan_1996.pdf
+
 https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2zio/
 
 Reddit looks at at "the base" and dooes not see the new media of Reddit. ... ... ... “The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan
 https://github.com/user-attachments/assets/193e2397-8a4d-4425-99e4-12781b18b54c
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh534e/
+
+A Reality TV fanatic watching the Reality TV Reddit Reality.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh5hd7/
+
+Time for another repeat play. OPERA_A You are part of a Reddit crowd, they are laughing at something, a woman is photographed on Reddit in front of you with watercolors, and you reach out your hand and you find you are all alone. I know you are in there, but you are out of sight... REPEAT_TRACK_BLOOMSDAY https://www.youtube.com/watch?v=Q2g0hrrKLNw
 
