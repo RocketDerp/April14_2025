@@ -3868,3 +3868,49 @@ https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_por
 Just one more paint coat over a well coated audience by the IRA since March 2013. Minds are in all in simulacra. People think because a fiction story contains elements of reality, that it is not fiction. For example, The Terminator (fist film) shows footage of real-life in California, but the monster / robot machine is fiction. This confuses people who think because there is some reality blended. ... ... ...
 "Hyperreality of course affects us across many different, ah, spectrums. And it’s built on the real. It is not as though the hyperreal could get by without injections of reality in it. It requires – and this is not a principle from Baudrillard but one that I have realised from watching a lot of television – you have to have injections of reality in order to keep the images afloat, occasionally. In fact one of the new, ah, strategies adopted by television – and it serves two functions, one is a cost function – are these reality shows. They have realised that we have become, as it were, too intoxicated with hyperreality. With, you know, Kojak and Supercops and so on, so now we just have shows like “COPS“, where you just go to Fort Worth and just film a bunch of cops being cops. That serves a good intelligent economic interest because you don’t pay cops much just for being cops. It’s not that lucrative, and it injects… well is it reality? Well it is compared only to this scale of hyperreality and only under the sign of being whatever can be simulated." - Texan Rick Roderick https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghtp25/
+
+Ireland... Dublin stories of James Joyce. USA is in a meme trance of reaction commenting. ... ... ...
+"during all the phases of human culture and technology. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of tribal institutions can return in the electric age, but if again, then let’s make it a wake or awake or both. **Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream**. He discovered the means of living simultaneously in all cultural modes while quite conscious.” - https://www.TheMediumIsTheMassage.com/the-book/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghpfuv/
+
+Putin's opposition, Reddit audience / Bluesky audience. The manipulated mind-fucked *virtual opposition* needs more hyper reality to further the simulacra patterns.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghzvf0/
+
+Science fiction monomyth Thunderdome storytelling. SEE_ALSO_A https://www.ThunderMeme.com/ part of WakeIndra Opera.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghpqiq/
+
+Fiction addicted nation. 
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghq5ih/
+
+Putin invaded USA March 2013 onward and nobody can focus on Moscow.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghrtn6/
+
+Gun worship is a faith system. Preachers spreading the messages of faith on cloud computing systems.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi6dq9/
+
+He is playing "Make Believe" - Reddit users flock to the fiction storytelling. Reddit is no Anti-Fiction stronghold. ... ... ...
+"Well sometimes when I see clergymen, I wonder what they think they are, and how seriously they take it. Now it is no accident that we say, “Make believe.” Get it? \[audience laughter\] People are playing a game: this is a myth world that we’re playing—the game that man was made for certain purposes and that’s what we’re doing." - [Comparative Mythology lessons](../Specific/Campbell_Tennis.md)
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghsjnj/
+
+Cheering on the Putin-Turmp Hyper Reality invasion. Satire-washing realiity. Adding bullshit to Trump message bullshit / cheering on the media content that is wrecking reality.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghtx5f/
+
+Internet Research Agency creation of fiction.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghw9s4/
+
+Anything to avoid nonfiction learning of Kremlin informaiton warfare since year 2013. Q / QAnon "Pizzagate" fiction / Bowling Green Masacere fiction believers. Can't confront that the elction of liars and flocking to low-effort commenting shit piles on social machines is bad mental input.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi67vy/
+
+Mockery-washing the Trump Total Mockery. Sees Trump creating a mockery and rushes to the Reddit front line to contribute to the Putin defeat of USA.
+
