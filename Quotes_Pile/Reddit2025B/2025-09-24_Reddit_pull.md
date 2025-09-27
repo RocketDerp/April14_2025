@@ -3236,3 +3236,52 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 
 We have a 2,000 year old book and we still won't face the Tower Of Babel metaphor issue of comprehension and interpretation. What chance do people have with Truth Social postings of year 2025 when we still can't get on same page of Bible from Levant?
 
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nggzx95/
+
+Reddit comment section self-awareness of drowning in disposable commenting. Russia is the one who figured it out. USA lost to Russia and doesn't self-aware realize it. ... ... ... Published January 2015, before Trump started run for office in June 2015: https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0q4h/
+
+Reddit audiences flock to the photograph and react-comment as conditioned by the IRA. 
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2o46/
+
+Reddit comment section.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh75ba/
+
+Comment author self-awareness of tree for forest of ongong since March 2013.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0ehw/
+
+Unwilling to say *it is*, and hedging still in September 2025. And the educaiton givein in High School itself creates this. ... ... ... September 1995, Year One of Etenal September: “Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens? Or a public imbued with confidence, a sense of purpose, a respect for learning, and tolerance? The answer to this question has nothing whatever to do with computers, with testing, with teacher accountability, with class size, and with the other details of managing schools. The right answer depends on two things, and two things alone: the existence of shared narratives and the capacity of such narratives to provide an inspired reason for schooling.”
+― Neil Postman, The End of Education: Redefining the Value of School, September 1995
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh43st/
+
+Donald Trump is role model. Truth Social behaviors adopted on Reddit.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh24dp/
+
+For content addicts... Well, what's important is expensive hookers. Wealthy people. Private Jets and Epstein classy wealth.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2msz/
+
+Mind blow that Russia won a war against USA since year 2013, but unable to seek out the nonfiction public library learning. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2jlg/
+
+Classic low-effort Reddit comment to amusement-wash and meme-wash the USA crisis.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2is8/
+
+Entertaiment creation, image photograph creation, for Reddit audiences.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7gu1/
+
+Race To The Bottom. Putin won.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7n3m/
+
+Tony Clifton entertainers.
+
