@@ -3996,3 +3996,6 @@ https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_fo
 
 Everyone is sleeping at the Finnegans Wake level of "Wake Up" to 1924 media ecology.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ns3u53/thanks_for_normalizing_this_media/ngj5kqj/
+
+Because television machines exist? Because Apple iPhone iPad exist. You better figure it out now. Reddit meme-washes entertainment-washes Trump as Allah's gift to Golf Course Entettainment and diaper topics. OPERA_A From the Album "Nothing Is True And Everything is Wrong", you better figure it out NOW, Reddit community. I wish you could understand. I Throw Neil Postman's 1985 book... ponsting into the /r/All Front Page, and nonfiction bounces like a bad check to the Reddit HiveMind. https://www.youtube.com/watch?v=eKrcd9o03SE
