@@ -3158,5 +3158,50 @@ Somewhere long ago on Reddit I created postings / comment on how to build a voti
 
 https://old.reddit.com/r/worldnews/comments/1nrqfxe/poland_opens_border_with_belarus_urges_its/nggdmkm/
 
-Undefined plot. Plot without evidence, plot without serious analasys. The Plot to kill USA people with diseases using social media is documented: https://www.bbc.com/news/world-us-canada-45294192
+Undefined plot. Plot without evidence, plot without serious analasys. The Plot to kill USA people with diseases using social media is documented August 24, 2018: https://www.bbc.com/news/world-us-canada-45294192
 
+https://old.reddit.com/r/worldnews/comments/1nrqfxe/poland_opens_border_with_belarus_urges_its/nggjs1v/
+
+As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to oppose tyranny "failed to take into account man's almost infinite appetite for distractions." - 1985. https://www.goodreads.com/author/quotes/41963.Neil_Postman
+
+https://old.reddit.com/r/worldnews/comments/1nrqfxe/poland_opens_border_with_belarus_urges_its/nggn7ok/
+
+The headlines are not covered-up. Just like millions of wikipedia pages are not covered up. People are suffering from information overload. There is no common ground on what is important and serious. Epstein and Pizzagate have rich people dong sex acts. Attraction to famous people sex lives is a seller. Attraction to Malala's reformations of the entire world giving young girls **defense against the dark arts** is unattractive to media entertainment rich-people jet-set private-jet lifestyles.
+
+https://old.reddit.com/r/worldnews/comments/1nrqfxe/poland_opens_border_with_belarus_urges_its/ngh8xo1/
+
+There is a *new sheriff* in town, long USA tadition. Putin and Trump are in town since Alaska meeting. https://en.wiktionary.org/wiki/there_is_a_new_sheriff_in_town
+
+https://old.reddit.com/r/worldnews/comments/1nrqfxe/poland_opens_border_with_belarus_urges_its/ngh60x2/
+
+The meme warriors on Reddit comment section never stood up and defended the elderly from COVID-19. Look on Reddit for people sharing this August 24, 2018 link. I shared it, people would ignore it. Why wasn't that August 24, 2018 link repeated over and over on Reddit after January 15, 2020? Timeline assertion... August 24, 2018 comes before January 15, 2020. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/worldnews/comments/1nrqfxe/poland_opens_border_with_belarus_urges_its/nggbbk7/
+
+It is wis to spend time commenting low-effort short messages on Reddit and not focus on common ground probolems of comprehension and langauges. That's the lack of Reddit self-awareness, drowning in disposable information. Tree branches on the trees and never looking at the forest of how fragmented the mass mind / shared understanding has become in USA 2025.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh1a8w/
+
+Eating the Surkovian onions in many layers. Entertainment and fashion, the message, outsells the nonfiction. The medium is the message. ... ... ...  ToDo: locate 1968 book quote "War And Peace In The Global Village" about clothing as warfare and Prank Queen. ... ... ... This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0dbd/
+
+The mindsets of the USA in September 2025 are to avoid nonfiction. The aftermath of CA and the IRA.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh1kcm/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh8jje/
+
+Yes, bootlickers on Reddit, not just thousands. The boots are candy-coated images and mockery. The very picture of Joe Biden symbolism mockery that Reddit can't resist mocking.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh40in/
+
+Denial abounds. December 20, 2013 it was spelled out and printed in the news: https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0nim/
+
+Real? War Against Reality started March 2013 by Russia. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4soz/
+
+What is Real? War Against Reality started March 2013 by Russia. Published September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
