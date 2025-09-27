@@ -3752,3 +3752,43 @@ https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_por
 
 Reddit comment community flocks to stupid. OPERA_A REPEAT_TRACK_A You flock to be with it. Reddit flocks away from nonfiction. Look at the comments on Reddit, anti-Wiki pro-repetitition quantity washing. I don't know how to break the NEWS about Reddit NEWS attention focus. https://www.youtube.com/watch?v=8LulQJDFtIs
 
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghnak7/
+
+It's crazy. Why can't Reddit call it what it is? The runaway Cambridge Analytica War Against Sanity. Runaway monomyth mind-fucking. Plot to self-harm the nation that got out of control into wildfire. Several books were published in the nonficiton section of the public library in year 2019.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghnlwu/
+
+All political? What the fuck does that word politics mean to Reddit users? it is all infomation warfare, Bluesky, Reddit, Elon Musk Twitter, Truth Social, Fox News, the god-damn Intenet Research Agency since March 2013. Fucking HURRICANES, the weather, Russia mind-fucked everyone. https://apnews.com/article/russia-hurricane-disinformation-fema-9e37c73ab8ffa2a2d338797a1a827e57
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghnajm/
+
+Whenever I mention the IRA on Reddit, taht's the response. Tread on me Russia, mind-fuck me into amusement stupors. Drunk on the CA Flavor-Aid. 1924 onward book Finnegans Wake is LSD drug, nobody stuck to that topic. SEE_ALSO_A https://www.LazyWake.com
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghmobx/
+
+Amused yourself Reddit society. The joke-washing leaders of the USA on Reddit. Anything to avoid sustained focus on nonfiction learning about Kremlin methods.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghpxby/
+
+Mind blowing wild what Russia did to minds.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghnsui/
+
+Yes. War of All against All, World War Five.  https://doctorparadox.net/dictionaries/hybrid-warfare/fifth-world-war/ The shooter was not military at the Charlie Kirk killing. All Against All. Right on Reddit, everywhere. Short simple reaction Twitter-length messages aren't going to fix the crisis of short-length messaging addictions.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghue7k/
+
+Reddit fever dream avoidance of nonfiction learning about Kremlin warfare techniques, because fever excitement comes from hyper-real kitten images to wash away reality with repetitive animal photographs on Reddit.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghmqze/
+
+Woke to what, Exactly? Reality.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghord8/
+
+Woke to what?
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghsbr0/
+
+Pizzagate, QAnon, Donld Trump Junionr himself promoted Epstein magical wildcard. Informaiton strip tease. How about electing honest and sincere leaders and escaping the Reddit simulacra / Reddit ARG?
+
