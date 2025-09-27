@@ -3325,3 +3325,26 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 
 Is "the half" in the room? The Half of the Reddit comment section? Is The Half on Bluesky?
 
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh121z/
+
+They matured past it, well past it, then found the Apple iPhone and Apple iPad devices since year 2007. Then the IRA came March 2013. The Anti-"Trumpy" people are often worse, as they claim the high road and high ground when they are anywhere except the NonFiction section of the public library.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh1t2f/
+
+"Operation Matthew 4:19" was agreed on November 7, 2012. The Internet Trolling Agency was opening in Saint Pete Russia March 2013. ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh23nm/
+
+Reddit audience supports the sharing of this image of the White House photos.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2bex/
+
+The Internet Trolling Agency was opening in Saint Pete Russia March 2013. ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2kw3/
+
+Reddit comment section values. Redit itself, Reddit app updates. ... ... ... “The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan
+https://github.com/user-attachments/assets/193e2397-8a4d-4425-99e4-12781b18b54c
+
+
+
