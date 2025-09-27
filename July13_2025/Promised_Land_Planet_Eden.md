@@ -13,10 +13,11 @@ JOSEPH CAMPBELL: Of course not. The Garden of Eden is **a metaphor** for that in
 
 All metaphors not of fixing egoism and egomania, but of traveling and taking over other lands, Colonization.Relocation as progress instead of education, teaching, mind transofroamtioon.
 
-Hardwware = biloogy  
+Hardwware = biology  
 Microcode = monomhyth   
 Firmware = society  
 Software OS = corporation and family   
+Software OS = langauge (English, French, Japanese, Spanish, etc)
 Software userland, applications, apps 
 
 Goography is relocation. The Promised Land, Heaven far away ad unreachable, Eden planet
