@@ -3472,3 +3472,57 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 
 How insane. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh5vxb/
+
+Vibe commenting on Reddit, vibe Politics of the Kremlin.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh68qc/
+
+I'll tell you: Making fun of you in the Reddit audience. Tony Clifton performances.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh6jek/
+
+Operation Matthew 4:19 was agreed upon with Twiter messaging systems November 7, 2012...
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7a88/
+
+Peter P, the Reality TV Producer has a story published and his first book reading in public December 5, 2014 - more than a decade ago. https://youtu.be/5Au332OG-M4?t=113
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7av8/
+
+"LOL" social media laugh track for audiences.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7fxt/
+
+Fan fiction.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7lx3/
+
+Anything but the nonfiction section of the public libraries.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7v0k/
+
+Reddit upvotes.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7x1u/
+
+Pizagate / Epsiten private jet fantasy Q stories sell well, "Q Drops", Information Strip Tease about white men sex. Avoiding the nonfiction learning of Malala's October 8, 2013 book to give young girls voices to stand up to elders all over the world.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7ypt/
+
+The shit that flows out, Torrent Down Wealth Bling Bling inages, Reddit smells and follows. Media addict paradise, Reality TV everywhere anywhere all the time network, Truth Social!
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh83kf/
+
+Reddit media consumers have high standards for shit media on Reddit.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh8bi6/
+
+They are doing Tony Clifton performancs for Reddit audiences tastes.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh8kvg/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh8oxl/
+
+Look around at the trash comments you are swiming in on Reddit if that is all you can see. University of Tornto media professor Marshall McLuhan, message from 1968 to Reddit swimmers: “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, War and Peace in the Global Village
+
