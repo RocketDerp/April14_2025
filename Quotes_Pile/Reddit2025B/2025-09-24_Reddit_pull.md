@@ -3716,3 +3716,22 @@ Language has been reprogrammed. Interpertations changed. Cambridge Analytica dug
 https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghueja/
 
 https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi06ds/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghs2ym/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghs67c/
+
+Symptom of a Putin Media Invaison since March 2013, and a filuare to teach Neil Postman's 1985 book "Amusing Ourselves To Death". A blind spot in education systems from an educator of educators (Postman).
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghoh62/
+
+Reddit comment users can't grasp a media war of the Russian IRA that infiiltated Reddit comment sections since March 2013. A Fox News media war against Reddit war. Fiction vs. Fiction. Science fiction Bible vs. Science Fiction Quran. Nothing was learned about media war empire vs media empire of September 11, 2001.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghqaes/
+
+You mention COVID-19 and pandemic and can't grasp how people behaved in alternate relies. IRA war since **year 2014** was described August 24, 2018 before Wuahn China airports spread COVID-19. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi12wj/
+
+Guns do not fix a mindwashing war of gun worship message on Reddit.
+
