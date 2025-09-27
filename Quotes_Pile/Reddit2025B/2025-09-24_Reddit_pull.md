@@ -3851,3 +3851,20 @@ https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_por
 
 A language woke Finnegan spooted on Reddit! Someone who sees the reality and desn't argue word choices and gets the very clear and direct meaning. Trump originates his own language. September 16, 2020 reference https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
 
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi0fqr/
+
+Reddit user so detached from reality that they can't even grasp that the world around them is being rewritten. Trump has been the center of Reddit attention since early year 2015 every day, and still can't see the mythology staring them in the face.  They already have a target, Reddit itself, they aren't manufacturing an excuse, they are paving over Reddit mindsets.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngicd25/
+
+Ahh, Bellevue Washington / Paul Allen Group days. Jimi Hendrix has that sicty more Wake Woke than most, more Media Woke. I was there supporting the team of the *Pop Culture Museum* creators. Where media ecology lessons were at least being Trickled Down by the sports team owner.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi7078/
+
+Trump messaging blows another Reddit audience member. At least the ones who can still reach for the comment buttons and aren't so mind blown as to turn away. OPERA_A On the topics of language speaking and turning away, you won't understand without deep study of the mass mind. https://www.youtube.com/watch?v=6cUeImdFJOQ
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghni2w/
+
+Just one more paint coat over a well coated audience by the IRA since March 2013. Minds are in all in simulacra. People think because a fiction story contains elements of reality, that it is not fiction. For example, The Terminator (fist film) shows footage of real-life in California, but the monster / robot machine is fiction. This confuses people who think because there is some reality blended. ... ... ...
+"Hyperreality of course affects us across many different, ah, spectrums. And it’s built on the real. It is not as though the hyperreal could get by without injections of reality in it. It requires – and this is not a principle from Baudrillard but one that I have realised from watching a lot of television – you have to have injections of reality in order to keep the images afloat, occasionally. In fact one of the new, ah, strategies adopted by television – and it serves two functions, one is a cost function – are these reality shows. They have realised that we have become, as it were, too intoxicated with hyperreality. With, you know, Kojak and Supercops and so on, so now we just have shows like “COPS“, where you just go to Fort Worth and just film a bunch of cops being cops. That serves a good intelligent economic interest because you don’t pay cops much just for being cops. It’s not that lucrative, and it injects… well is it reality? Well it is compared only to this scale of hyperreality and only under the sign of being whatever can be simulated." - Texan Rick Roderick https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
