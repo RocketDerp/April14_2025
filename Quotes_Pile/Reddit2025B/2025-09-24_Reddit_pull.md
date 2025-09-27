@@ -3386,5 +3386,89 @@ This is the most nonfiction avoidant population of meme addicts.
 
 https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2bnv/
 
-You Might Be Reddit Cult Members, created an account on Reddit to comment, Too. OPERA_A Maybe You've Been Brainwashed Too is the only studio album by American alternative rock band New Radicals. Released on October 20, 1998 ... someday we will know if the IRA runaway simulacra and CA runaway monomyth patterns can be stopped ... Ahh... October 1998, Bellevue Washington running media systems for the #1 and #2 richest men in the world. Experience Music Project media studies and private social messaging. https://www.youtube.com/watch?v=bDmA8qQKhMY
+You Might Be Reddit Cult Members, created an account on Reddit to comment, Too. OPERA_A Maybe You've Been Brainwashed Too is the only studio album by American alternative rock band New Radicals. Released on October 20, 1998 ... someday we will know if the IRA runaway simulacra and CA runaway monomyth patterns can be stopped ... Ahh... October 1998, Bellevue Washington running media systems between the #1 and #3 richest men in the world. Experience Music Project media studies and private social messaging. https://www.youtube.com/watch?v=bDmA8qQKhMY
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2dvc/
+
+If you see a pron star shooting up out of the White House Rose Garden grounds... OPERA_A We Were Children Once Playing with Social Media Messaging toys... And The Thing you are Reading on GitHub is only the sound of ... Jimi Hedrix played with Traffic band! Don't Worry Too Much, the Mind Blowing SuperBomb will happen to you.. https://www.youtube.com/watch?v=vDGorIWYz-A
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2o1b/
+
+What's important is being superficial and shallow to appreciate Tony Clifton actors.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2y3x/
+
+Reddit is so seirous in avoiding the nonfiction public library sections.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh31k2/
+
+When you are a Reddit user with CA and IRA conditioned hate mindset patterns, you can make comments about the shape of a woman's pussy based on superficial and banal messaging consumption and rumor mills.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh36yo/
+
+Reddit loves children topics.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3boa/
+
+Putin won, Surkov won, Russia won, Since March 2013.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3hzc/
+
+The old windows were smashed, stack overflow, stack smashing, by IA and CA since March 2013. Reddit audience flocks to what is desirable and acceptable. The entertainment acceptance window. Overton window of media addicts to Fiction. Fiction content has murder, war, video game Overton window. The War Against NonFiction. https://en.wikipedia.org/wiki/Overton_window
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3i3l/
+
+Reddit is ground zero for IRA.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3j7b/
+
+Traffic rock band is about Traffic Transport concerns of the mind. OPERA_A REPEAT_TRACK_A https://youtu.be/vDGorIWYz-A?t=237
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3onf/
+
+So sayus the Reddit amusement mill member with account and login consuming the White House Trickle Down Images.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3pld/
+
+Always celebrating ignorance winning. 
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3rrr/
+
+With high-speed TCP/IP messaging systems and lacking self-awareness. One characteristic of fiction addicts beyond avoiding nonfiction. “One characteristic of those who live in a Technopoly is that they are largely unaware of both the origins and the effects of their technologies.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3sxm/
+
+Everyone is cheering! TAKE THE LOW ROAD, there never was any HIIGH ROAD. The Reddit population burned the maps to high roads of nonfiction learning a long time ago in year 2013. 
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3tzv/
+
+Reddit flocks to the images.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh3wvv/
+
+Reddit comments like this cheapen the value of sustained Wikipedia style common page understanding with disposable comment messagings shared at high speeds.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4y1f/
+
+<img width="816" height="272" alt="image" src="https://github.com/user-attachments/assets/b780cefd-3ac8-4d4f-967a-a094efb48acf" /> Opeation Matthew 4:19 was agreed November 7, 2012 on Twitter... when ...
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh5ju3/
+
+Reddit and Bluesky eat it up! The mind-blowing message patterns of the Surkov Shuffle.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh5pl1/
+
+Reddit commenting is so high-class and pro-nonfiction.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh5jqh/
+
+Nation.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh5m27/
+
+Becoming. Since March 2013.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh5p5m/
+
+How insane. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
