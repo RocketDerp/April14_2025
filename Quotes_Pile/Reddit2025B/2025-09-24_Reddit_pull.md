@@ -3542,3 +3542,54 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 
 Reddit gleefully upvotes and glefully declares that Tony Clifton actors are the worst perfomerns in the world!
 
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghaafk/
+
+Reddit is live-streaming daycare and loving the content created.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghae6h/
+
+Diaper fetish on Reddit. Epstein private jet diaper fetish. Scat content addicts.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghaipj/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghakwt/
+
+Audience of meme freaks.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghalnd/
+
+Amusement-washing of Reddit consumers as to the seriousness of the Russian war against USA taking place on social media / world wide web (WWW).
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghalso/
+
+A Reddit-person, a meme afficnado, loves images. ... ... ...
+Texan Roderick: "And what it was about, was about how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And **citizens who formerly** had played roles as political actors began to detach themselves from their own lives and become spectators." - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghap1o/
+
+WTF WTF minds blown so easily by colors and images.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghbuwl/
+
+Family mother-ficture associations. SEE_ALSO_A "Psychological Aspects of the Mother Archetype" published year 1938. See also: "In James Joyce's Finnegans Wake, Anna Livia Plurabelle, abbreviated as ALP, is the wife of the protagonist Humphrey Chimpden Earwicker (HCE) and a central archetype representing the female principle of nature and the constant flow of life. She is primarily personified as the River Liffey, which runs through Dublin. Her role is to balance HCE's male figure, representing stasis, while she embodies the cyclical processes of redemption, regeneration, and historical change."
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghc6ye/
+
+Yes, this is real reality of meme addictions society USA.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh1qvi/
+
+Sexual fantsy Epstein list wishlist.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh0zzm/
+
+Reddit users eat it up.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh18lm/
+
+Reddit comment messaging is so statisfying to those mind-fucked by Russia since March 2013.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh1nc1/
+
+OPERA_A You are part of a Reddit crowd, they are laughing at something, a woman is photographed on Reddit in front of you with watercolors, and you reach out your hand and you find you are all alone. I know you are in there, but you are out of sight... REPEAT_TRACK_BLOOMSDAY https://www.youtube.com/watch?v=Q2g0hrrKLNw
+
