@@ -3954,3 +3954,45 @@ https://old.reddit.com/r/politics/comments/1nrzvqi/hegseths_couldve_been_an_emai
 
 Trump flying to Moscow for [entertainment stage / Kremlin MC training in November 2013](https://en.wikipedia.org/wiki/Miss_Universe_2013) isn't enough clues for most on Reddit. But this Reddit comment message is closer to real reality of how long-term and how serious this situation really is.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghsf9s/
+
+Yes, alternate universes of mindsets. Called Reddit and Bluesky audiences. People can not see the gun pointed nto the Reddit camera.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghtcww/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghu2y2/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghvksk/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghsbwi/
+
+Entertainment addicts are well entertained by White House.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghs87g/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghuhbc/
+
+Wildcard meaning, it is intentional, and at laest one person messages it correctly. But that message will be drowned out by those in total denial of reality being rewritten by Putin and Trump since November 7, 2012 agreement.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghswcg/
+
+People who learn about nonfiction information warfare at the public library all abandoned for fiction Star Wars Andor, it was a huge loss to Disney Plus.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghsb5p/
+
+The messages running the minds in this nation are shit.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/ngi3v4v/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/ngiwbxe/
+
+So simple. Simple-washing the situation. No books cited, no author names, no book titles, no links, no URL, just disposable Reddit comment messages declaring everything so simple. Pure binary logic, 100% opposite, you can tell science reality by absolute logic of Trump always knowing science and inverting it. By simple-think simple-logic, if Donald Trump says the math of 7 divided by 0 (zero) is equal to 9, you can take the pure opposite number of 9 and solve division by zero! Everything is pure opposites, so easy!
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghte5a/
+
+As instructed by Kremlin mind-fuck conditioning since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrxi4t/deputy_chief_of_staff_for_policy_stephen_miller/nghyuw3/
+
+Everyone is sleeping at the Finnegans Wake level of "Wake Up" to 1924 media ecology.
+
