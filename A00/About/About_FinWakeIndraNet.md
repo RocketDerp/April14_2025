@@ -7,7 +7,7 @@ Why this Github since April 14, 2025
 
 Media practitioners    
 Social media conformists    
-People who *go along* with the Russian media invasion, Trumpism USA, Putin USA
+People who *go along* with the Russian media invasion, Trumpism USA, Putin USA since year 2013
 
 “Professionalism merges the individual into patterns of total environment. Amateurism seeks the development of the total awareness of the individual and the critical awareness of the groundrules of society. The amateur can afford to lose.”
 — Marshall McLuhan https://www.themediumisthemassage.com/the-book/
