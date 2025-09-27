@@ -67,3 +67,16 @@ This quote is from a video presentation: https://www.realclearpolitics.com/video
 * "The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare. It reinvents reality, creating mass hallucinations that then translate into political action."
 
 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+&nbsp;
+
+## September 27, 2025 public notice of "War Against NonFiction"
+
+https://autistics.life/@RoundSparrow/115276777460150029     
+https://bsky.app/profile/roundsparrow.bsky.social/post/3lzt7nlbbds23
+
+1. The amount of nonfiction of the cosmos has been stable for billions of years
+
+2. The amount of #Fiction shared on Bluesky and Reddit has drowned out nonfiction.
+
+The War Against Nonfiction.
