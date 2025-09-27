@@ -3346,5 +3346,45 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 Reddit comment section values. Redit itself, Reddit app updates. ... ... ... “The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan
 https://github.com/user-attachments/assets/193e2397-8a4d-4425-99e4-12781b18b54c
 
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngd8q8q/
 
+... 
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh4czi/
+
+Thought-terminating phrase, "rent-free!!" No need to study nonficion in the library when a tiny short message of Twitter-length is all the audience wants to author.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh735l/
+
+[This is the United States Of America](https://www.youtube.com/watch?v=VYOjWnS4cMY), Childish Gambino. This is your nation on Truth Social. This is yoru nation on low-effort commetning addictions. Sharon Stone was correct: November 27, 2024. Nonfiction learning and NOT a DOMESTIC USA news source reporting it. https://www.theguardian.com/film/2024/nov/27/sharon-stone-says-us-is-in-state-of-ignorant-arrogant-adolescence
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh78e6/
+
+Giant content creators. Taking photographs shared on Reddit cloud computing systems.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7ksq/
+
+Owning ALL the audience, not just liberals, not just "left", everyone. And they already did it. ... ... ... “In the twenty-first century the techniques of the political technologists have become centralized and systematized, coordinated out of the office of the presidential administration, where Surkov would sit behind a desk on which were phones bearing the names of all the “independent” party leaders, calling and directing them at any moment, day or night. The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd. One moment Surkov would fund civic forums and human rights NGOs, the next he would quietly support nationalist movements that accuse the NGOs of being tools of the West. With a flourish he sponsored lavish arts festivals for the most provocative modern artists in Moscow, then supported Orthodox fundamentalists, dressed all in black and carrying crosses, who in turn attacked the modern art exhibitions. The **Kremlin’s idea is to own all forms** of political discourse, to not let any independent movements develop outside of its walls. Its Moscow can feel like an oligarchy in the morning and a democracy in the afternoon, a monarchy for dinner and a totalitarian state by bedtime.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, 2014. Year 2014 is more than a decade ago. Nonficiton section of the public library. Printed on paper.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7m2l/
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh7xvt/
+
+What an Amusement mill the Reddit complex is.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/nghaeev/
+
+Reddit audience is thrilled with the show, consume and obey.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh02wn/
+
+Messaging Cult of Reddit mockery and mocking.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh236r/
+
+This is the most nonfiction avoidant population of meme addicts.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh2bnv/
+
+You Might Be Reddit Cult Members, created an account on Reddit to comment, Too. OPERA_A Maybe You've Been Brainwashed Too is the only studio album by American alternative rock band New Radicals. Released on October 20, 1998 ... someday we will know if the IRA runaway simulacra and CA runaway monomyth patterns can be stopped ... Ahh... October 1998, Bellevue Washington running media systems for the #1 and #2 richest men in the world. Experience Music Project media studies and private social messaging. https://www.youtube.com/watch?v=bDmA8qQKhMY
 
