@@ -14,3 +14,4 @@ August 26, 2018 Fox News. I repeat, New York Post and Fox News. I keep repeating
 
 One and Two on this list, y'all in USA keep forgetting, We The People keep forgetting. https://www.youtube.com/watch?v=9gbQVj4MR3M
 
+We The People keep forgetting that *democracy can't possibly work* when "Hate Thy Neighbor" and "Hate Thy Enemy" are the faith of everyone. Everyone in USA keeps forgetting [**"The 1954 Equation"**](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Martin_Luther_King_Jr_quotes0.md). You all made it so clear that Hate is your Deepest Faith to turn to in toruble times of Russia winning the war since March 2013.
