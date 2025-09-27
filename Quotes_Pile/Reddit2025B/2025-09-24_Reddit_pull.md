@@ -3914,3 +3914,15 @@ https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_por
 
 Mockery-washing the Trump Total Mockery. Sees Trump creating a mockery and rushes to the Reddit front line to contribute to the Putin defeat of USA.
 
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghos62/
+
+Reddit messages of reality-washing. Egomania response from a Reddit user. Witnessed comment after comment of people who have had their brains blown away by Putin and Trump information warfae since March 2013. Seen minds lost to Russia again and again, and still promoting messages of denial that this war is weak and not really happening. Unable to see thier own brain is feing fed reactionary eogmania. Donald Trump knows more about media power than this Reddit comment user can evne imagine. Entirely ignorant of media ecology learning. ... ... ... “What Huxley teaches is that in the age of advanced technology, spiritual devastation is more likely to come from an enemy with a smiling face than from one whose countenance exudes suspicion and hate. In the Huxleyan prophecy, Big Brother does not watch us, by his choice. **We watch him, by ours**. There is no need for wardens or gates or Ministries of Truth. When a population becomes distracted by trivia, when cultural life is redefined as a **perpetual round of entertainments**, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience and their public business a vaudeville act, then a nation finds itself at risk; a culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghrpaw/
+
+Witnessed Trump rewriting terms / langauge, but can't grasp it has been wrecking minds all around the USA. Completely lacking in self-awareness of the ongong War Against Reality and Putin's domination of Reddit HiveMinds.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi1jyu/
+
+Social media amusement-track, LOL-track for audience.
+
