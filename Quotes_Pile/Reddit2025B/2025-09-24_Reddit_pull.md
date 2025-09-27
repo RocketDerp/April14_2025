@@ -3999,3 +3999,22 @@ Everyone is sleeping at the Finnegans Wake level of "Wake Up" to 1924 media ecol
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ns3u53/thanks_for_normalizing_this_media/ngj5kqj/
 
 Because television machines exist? Because Apple iPhone iPad exist. You better figure it out now. Reddit meme-washes entertainment-washes Trump as Allah's gift to Golf Course Entettainment and diaper topics. OPERA_A From the Album "Nothing Is True And Everything is Wrong", you better figure it out NOW, Reddit community. I wish you could understand. I Throw Neil Postman's 1985 book... ponsting into the /r/All Front Page, and nonfiction bounces like a bad check to the Reddit HiveMind. https://www.youtube.com/watch?v=eKrcd9o03SE
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ns3u53/thanks_for_normalizing_this_media/ngjottr/
+
+ToDo: tag as "Media Woke" for media warfare, monomyth vs. monomyth warfare training. Fiction vs. fiction battleground. ... ... ...
+1993 see how long time it has been coming... "If it is the end of the world, I want to know, so that my kids and I can enjoy the apocalypse together. If America is utopia realised then maybe I’ll just settle back and go to Epcot Centre and forget Switzerland. Just go on the Swiss ride. This may be what I’ll do. I doubt it. I don’t like it. The war zone, in other words, may not be – in defending the self – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, **the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal**." -- year 1993, https://rickroderick.org/308-baudrillard-fatal-strategies-1993/ describing our year 2013 onward future. Russia won, Putin won. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ns3u53/thanks_for_normalizing_this_media/ngjua70/
+
+rcon means /r/Conservatives, subreddit vs subreddit war. Fiction vs. fiction. Each subreddit a different universe of interpretation, even Tuesday is another universe from Wednesday on Reddit high-speed meme network / amusement mill. ... ... ... 
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ns3u53/thanks_for_normalizing_this_media/ngjw7c1/
+
+Fiction media outlets like Disney Plus and fiction Fox News HDTV and fiction Reddit don't have a nonfiction equivlent of fiction.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ns3u53/thanks_for_normalizing_this_media/ngje9ew/
+
+Malala in Swat Valley Pakistan is the Woke Left from January 2009. She used a fiction name to appeal to fiction addicts. Like Reddit users hdie identity and use fiction names. "In early 2009, when she was 11, she wrote a blog under her pseudonym Gul Makai for the BBC Urdu to detail her life during the Taliban's occupation of Swat."
+
