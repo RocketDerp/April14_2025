@@ -639,3 +639,8 @@ https://old.reddit.com/r/BrandNewSentence/comments/1nonc5j/who_hated_the_nazis_w
 
 Fiction vs. fiction. Mond-blowing symbolism soup on the front page of Reddit. Alas, nonfction study of Russian information warfare and Kremlin media techniques avoided.    
 https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_delaying_rapture_until/
+
+&nbsp;
+
+Echos. Echoland (Joyce, Wake). Reddit Front Page Echoland: Where the echo always says "MOCK HARDER!!!!!", that more mocking will end a Total Mockery. Mind-fucked beyond all recognition. FUBAR Reddit.    
+https://old.reddit.com/r/politics/comments/1nrzvqi/hegseths_couldve_been_an_email_allhands_meeting/
