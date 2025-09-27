@@ -3735,3 +3735,20 @@ https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_por
 
 Guns do not fix a mindwashing war of gun worship message on Reddit.
 
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghorpo/
+
+MAGA and Trump are not going to accept any more bullshit from Reddit and Bluesky followers. Russia has baited the nation to prize hate and prize mocking and the endless mocking since June 2015 has self-dehumanized the population. People did not stand up alarmed about the IRA and CA altering behavior every day all day, focused way to much on elections, blind that Putin has elections in domestic Russia, the problem is sheep behavior. Bird flocking / subreddits of a feather behavior. Egomania USA, self-harm USA.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngi4i5a/
+
+Reddit society meme-washing the situation with comedy-washing isn't considered trason. Entertaining the nation to death in mocking instead of turning to the public library to fight Russia isn't considered treason. It's considered profitable good meme selling. Glib [mocking on Reddit is cheap content to sell and train Google artificail intelligence (AI)](https://www.theverge.com/2024/2/22/24080165/google-reddit-ai-training-data) systems on. ... ... ...
+"Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghm3cr/
+
+They aren't scared. They are agressive and on the war path to fuck-over Reddit addicts and Bluesky adddicts and nonfiction readers. Reddit is in deep denial. Scared, they have been winning, Russia has been winning since November 7, 2012 agreement with Trump to create the Internet Research Agency to invade Reddit! Ignorance of people.
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghr74j/
+
+Reddit comment community flocks to stupid. OPERA_A REPEAT_TRACK_A You flock to be with it. Reddit flocks away from nonfiction. Look at the comments on Reddit, anti-Wiki pro-repetitition quantity washing. I don't know how to break the NEWS about Reddit NEWS attention focus. https://www.youtube.com/watch?v=8LulQJDFtIs
+
