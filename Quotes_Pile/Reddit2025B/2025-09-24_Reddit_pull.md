@@ -4018,3 +4018,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ns3u53/thanks_for_normaliz
 
 Malala in Swat Valley Pakistan is the Woke Left from January 2009. She used a fiction name to appeal to fiction addicts. Like Reddit users hdie identity and use fiction names. "In early 2009, when she was 11, she wrote a blog under her pseudonym Gul Makai for the BBC Urdu to detail her life during the Taliban's occupation of Swat."
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ns3u53/thanks_for_normalizing_this_media/ngjohu5/
+
+Then support Malala at age 11, her bloks from January 2009 at age 11 are still there. Why create original writing when Malala writes so much better? Why be so Trump-like in origianl Truth Social postings when you can be a repeater for girls at age 11? We don't need more privledged people telling their comments on Reddit, the urgency of our time is to get on the same page, and to identify GOODNESS ITSELF as a destination page. If we want Heaven fiction to become a goal, we better poiint to those who can bridge the fiction-nonfiction gap like Malala! "In early 2009, when she was 11, she wrote a blog under her pseudonym Gul Makai for the BBC Urdu to detail her life during the Taliban's occupation of Swat."
+
