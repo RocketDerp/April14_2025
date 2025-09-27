@@ -3125,3 +3125,17 @@ https://old.reddit.com/r/politics/comments/1nrg3t4/trump_is_lying_about_leftwing
 
 https://old.reddit.com/r/politics/comments/1nrg3t4/trump_is_lying_about_leftwing_terrorism/ngef1gs/
 
+https://old.reddit.com/r/Political_Revolution/comments/1nrdcab/greta_thunberg_from_the_flotilla_im_not_scared_of/ngds8p4/
+
+https://old.reddit.com/r/Political_Revolution/comments/1nrdcab/greta_thunberg_from_the_flotilla_im_not_scared_of/nge4rd3/
+
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/Political_Revolution/comments/1nrdcab/greta_thunberg_from_the_flotilla_im_not_scared_of/ngef4wi/
+
+https://old.reddit.com/r/Political_Revolution/comments/1nrdcab/greta_thunberg_from_the_flotilla_im_not_scared_of/ngej94d/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrjre5/kai_trump_is_using_the_white_house_to_sell_merch/ngf1g2x/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nrjre5/kai_trump_is_using_the_white_house_to_sell_merch/ngf28mt/
+
