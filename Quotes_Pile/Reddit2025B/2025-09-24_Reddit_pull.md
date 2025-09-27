@@ -3526,3 +3526,19 @@ https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife
 
 Look around at the trash comments you are swiming in on Reddit if that is all you can see. University of Tornto media professor Marshall McLuhan, message from 1968 to Reddit swimmers: “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.” ― Marshall McLuhan, War and Peace in the Global Village
 
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh8xi1/
+
+Can't understand or name the "Internet Research Agency", since March 2013.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh9196/
+
+Yes. Power / Wealth / Social devices touching.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngh97s1/
+
+We The People lead the nation, We The People avoid Wikipedia / WikiTribune and flock to commenting disposable messages.
+
+https://old.reddit.com/r/pics/comments/1nruc7u/secretary_of_transportations_wife_pointing_at_the/ngha4fm/
+
+Reddit gleefully upvotes and glefully declares that Tony Clifton actors are the worst perfomerns in the world!
+
