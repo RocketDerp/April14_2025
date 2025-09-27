@@ -3952,5 +3952,5 @@ Loyalty to Fox News / Truth Social reality / Reality Kremlin.
 
 https://old.reddit.com/r/politics/comments/1nrzvqi/hegseths_couldve_been_an_email_allhands_meeting/ngi86hc/
 
-Trump flying to Moscow for entertainment stage traning in November 2013 isn't enough clues for most on Reddit. But this messageis closer to real reality of how long and how serious this situation really is.
+Trump flying to Moscow for [entertainment stage / Kremlin MC training in November 2013](https://en.wikipedia.org/wiki/Miss_Universe_2013) isn't enough clues for most on Reddit. But this Reddit comment message is closer to real reality of how long-term and how serious this situation really is.
 
