@@ -75,8 +75,10 @@ https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutio
 https://autistics.life/@RoundSparrow/115276777460150029     
 https://bsky.app/profile/roundsparrow.bsky.social/post/3lzt7nlbbds23
 
+...
+
 1. The amount of nonfiction of the cosmos has been stable for billions of years
 
-2. The amount of #Fiction shared on Bluesky and Reddit has drowned out nonfiction.
+2. The amount of **Fiction** shared on Bluesky and Reddit has drowned out nonfiction.
 
 The War Against Nonfiction.
