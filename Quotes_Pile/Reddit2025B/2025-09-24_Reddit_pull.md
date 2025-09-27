@@ -3942,5 +3942,15 @@ https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_por
 
 Malala is reforming the Taliban, Reddit society punches the poorly educated instead of teaching morality and using media systems for goodness. Hate messaging is more popular for meme addicts.
 
+https://old.reddit.com/r/politics/comments/1nrzvqi/hegseths_couldve_been_an_email_allhands_meeting/ngiojy6/
 
+I've been a networking and operating system expert since at least age 19, worked for a military computer company - Telos Federal Systems (HQ in Santa Monica, CA - I worked at Fort Wayne office) at age 16 as an Apprentice. This is exactly right, and the Reddit community thinks that their own comments aren't being sold to the Pentagon. No VPN is going to protect you with USA origins. The Internet was designed by the Pentagon. They lost a meme war to Russia, but the AT&T / telcom relationships goes back to before packet networks and the breakup of "Ma Bell". The gullibility of Reddit users that this hasn't been a massive win by Russia in a mind war is... Russia's new methods. You see domestic Russians able to overcome Kremlin mind-fucking, even with deaths on the Ukraine front-one? https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
+
+https://old.reddit.com/r/politics/comments/1nrzvqi/hegseths_couldve_been_an_email_allhands_meeting/ngid0qt/
+
+Loyalty to Fox News / Truth Social reality / Reality Kremlin.
+
+https://old.reddit.com/r/politics/comments/1nrzvqi/hegseths_couldve_been_an_email_allhands_meeting/ngi86hc/
+
+Trump flying to Moscow for entertainment stage traning in November 2013 isn't enough clues for most on Reddit. But this messageis closer to real reality of how long and how serious this situation really is.
 
