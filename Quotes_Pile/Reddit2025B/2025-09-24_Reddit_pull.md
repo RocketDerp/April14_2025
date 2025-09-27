@@ -3792,3 +3792,11 @@ https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_por
 
 Pizzagate, QAnon, Donld Trump Junionr himself promoted Epstein magical wildcard. Informaiton strip tease. How about electing honest and sincere leaders and escaping the Reddit simulacra / Reddit ARG?
 
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghw2rk/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/ngilf8z/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghoqiy/
+
+https://old.reddit.com/r/politics/comments/1nrx5gx/trump_orders_us_troops_to_portland_authorizes/nghnqqa/
+
