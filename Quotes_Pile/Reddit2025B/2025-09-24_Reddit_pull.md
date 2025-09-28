@@ -4030,3 +4030,21 @@ https://old.reddit.com/r/todayilearned/comments/1ns4ueq/til_that_mike_gipson_son
 
 Nonfiction learning. People in the comments are having minds blown and in shock over nonfiction. Palestine and Ukraine nonfiction of year 2024 are both. Sudan year 2024 nonfiction. Reality of Donald Trump beyond the chasing and flocking to "Epstein" keywords.
 
+https://old.reddit.com/r/theydidthemath/comments/1ns9uvj/request_is_this_true/ngkevyv/
+
+book!!
+
+https://old.reddit.com/r/theydidthemath/comments/1ns9uvj/request_is_this_true/ngket8i/
+
+https://old.reddit.com/r/NoFilterNews/comments/1ns8vqn/marjorie_taylor_greene_sends_deeply_concerning/ngkdavh/
+
+https://old.reddit.com/r/NoFilterNews/comments/1ns8vqn/marjorie_taylor_greene_sends_deeply_concerning/ngki1jx/
+
+https://old.reddit.com/r/NoFilterNews/comments/1ns8vqn/marjorie_taylor_greene_sends_deeply_concerning/ngkc7aj/
+
+Russia mind-fucked America.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ns8vqn/marjorie_taylor_greene_sends_deeply_concerning/ngkepj4/
+
+Reddit spare time / free time spent commenting about cults. No messages of calling for cult rescue teaching using social machine systems. "The Media" of social media doesn't use nonfiction cult deprogramming books.
+
