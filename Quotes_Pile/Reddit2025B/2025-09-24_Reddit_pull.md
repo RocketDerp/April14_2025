@@ -4352,3 +4352,45 @@ https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after
 
 https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmeo6c/
 
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngm8wwx/
+
+Conserving what exactly? It's so much about cramming everything into this self-declared divison. What precisley is bieng conserved? Technology like the Amish in USA? Because I see social media newest technology being used, not conserved. Named lists, to name a LIST of values and not just say "liberal" and "conservative". It's become an endless spinning-wheel topic. And many people seem confused about thier own self-declared identity. Pro-hate people who want out-groups to hate. ALL hate is bad. Tower of Babel metaphor should be taken far more seriously and addressed directly. People do not comprehend "liberal" vs. "conservative" very well. Fiction vs. nonfiction, pro-hate vs. hate bad explains much more behavior. People wh prize hate are dragging down humanity the entire world. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngmn01z/
+
+The rest of the world to USA: you rich wealthy bragging arrogant "greated in the world" full of your self Americans asked for your own self-harm. Instead of coming togethr to blam Cambridge Analytica, the size of the Apple iPhone venue (Neil Postman perspective at times), the Russian Internet Research Agency - the USA society keeps spending spare time and free time engaging in language confusion and bewilderment of divrse experiences being crammed into tiny-short Twitter-think messages. Tower of Babel via Tweet-length implied meaning and context bewilderment. Being block-happy, deport-happy, out-group hate oriented is exactly waht Russian information warfare has exploited.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngl201g/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/nglbihi/
+
+Mental disorder. Twitter mania, machine messaging mania, among others driving this nonsense since year 2013. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngmhkk1/
+
+Mental lunatic out-group.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngmnwiu/
+
+Named lists, specific lists of what is being "conserved" - but people self-label without any comprehension of how wildcard meaning has become. Being pro-Trump and pro-Putin is being pro-hate. Hate is bad. People who prize hate are self-harming humanity.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngmo1sn/
+
+Anti-goodness, anti-compassion, anti-empathy, pro-hate.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngmd4l0/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngm685d/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/nglb0sz/
+
+Predatory media messaging. Rupert Murdoch, Truth Social, Elon Musk Twitter, on and on. Reddit community doesn't see the predators of Putin Russia and others. Fiction addiction, runaway fiath in falsehoods, is a common ground human problem. It's self harm even to those who originate it. Domestic Russia isn't winning, it is self-harming and brining other nations down with it. Anti-reality runaway.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngl45gz/
+
+And the screenshot shows a social media platform...
+
+https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women/ngl8igt/
+
+The elephant in the social media room / society is year 2014 mind-manipulation by Russia on this topic of pro-disease https://www.bbc.com/news/world-us-canada-45294192
+
