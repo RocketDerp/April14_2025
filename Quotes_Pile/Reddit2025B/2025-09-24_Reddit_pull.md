@@ -4454,3 +4454,13 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_m
 
 https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn0i89/
 
+https://old.reddit.com/r/news/comments/1nsnfe5/woman_who_came_to_us_with_dream_of_helping_others/ngnmncg/
+
+Yes. Egomania parenting of men / boys. Egomania marketing and advertising to sell games / sports / politicians / military. Teaching weapon systems and teaching terrorism. Which is why I emphasize Malala's global movement to give girls / women a voice at a young age. Men adopre competitive sports and competitive warfare and competitive sabotage of humanity, a social system of dominating. Especially Levant religion faiths all over the world (whcih Mallaa lived under, despite Swat Valley, Pakstistan being very very very far away from Mecca and Quran origins). The competition of natons / map lines / domination of agression and anti-science, anti-goodness. Winning by any means, including murder/suicide. Men are not taking their agression as a problem and flocking to leaders like Putin and Trump and Rupert Murdoch and Elon Musk to abolish empathy and end compassion. ... ... ...
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/news/comments/1nsnfe5/woman_who_came_to_us_with_dream_of_helping_others/ngntb1a/
+
+We ALL need to be [teaching, asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
