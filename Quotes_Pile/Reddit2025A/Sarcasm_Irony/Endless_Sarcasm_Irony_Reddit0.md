@@ -644,3 +644,9 @@ https://old.reddit.com/r/NoFilterNews/comments/1npa4yi/christians_say_god_is_del
 
 Echos. Echoland (Joyce, Wake). Reddit Front Page Echoland: Where the echo always says "MOCK HARDER!!!!!", that more mocking will end a Total Mockery. Mind-fucked beyond all recognition. FUBAR Reddit.    
 https://old.reddit.com/r/politics/comments/1nrzvqi/hegseths_couldve_been_an_email_allhands_meeting/
+
+
+&nbsp;
+
+22 year old Reddit user spells it out that it all started in year 2013 when Trump became attention. The same time as the Russian Internet Research Agency ampped up media antics and mind-fucking techniques.    
+https://old.reddit.com/r/PublicFreakout/comments/1ns4r9g/scott_jennings_messes_up_while_debating_adam/
