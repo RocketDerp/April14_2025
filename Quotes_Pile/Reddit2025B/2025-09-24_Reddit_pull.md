@@ -4255,3 +4255,22 @@ https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hi
 Give a voice to little girls. Malala started blogging in January 2009. Her book published October 8, 2013. Instead of creating millions of low-effort comments, actually address the problems with repeating educaiton to adults over and over using social media. Focus on IMPORTANT messages. Abandon hate for the entire world. Stop praising hate of out-groups. We ALL need to be [teaching, asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
 https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngm1xrl/
+
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/ngm6ucd/
+
+Conserving what exactly? What named list of values? Gender roles? Russia's Putin? Taliban in Pakistan? Amish in USA?
+
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/ngmbka1/
+
+Palestine is conservative, pro-terrorism? Pro Quran supremacy over other stories?
+
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/ngltj1i/
+
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/ngm4dbu/
+
+Or stop conflating the Torah with being Jewish. Either you are a story supremacist or NOT. If you can't translate the Torah at a metaphor level to the Upanishads or Star Wars 1977 Force Ghosts... you are going around with egomania over which story is the best in the world. It's like going around saying English is the one and only one true spoke and written language. What is the fucking pont of these stories if you can't have love and compassion for all LIVING PEOPLE. The Levant "1 John 4:20" Bible verse crisis we have known for at least 2,000 years. Hate is bad.  We ALL need to be [teaching, asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/nglx50h/
+
+Or stop conflating the Quran with being Muslim / Islam. Either you are a story supremacist or NOT. If you can't translate the Quran at a metaphor level to the Upanishads or Navajo ideas or Star Wars 1977 Force Ghosts... you are going around with egomania over which story is the best in the world. It's like going around saying Arabic is the one and only one true spoke and written language. What is the fucking pont of these stories if you can't have love and compassion for all LIVING PEOPLE. The Levant "1 John 4:20" Bible verse crisis we have known for at least 2,000 years. Hate is bad.  We ALL need to be [teaching, asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
