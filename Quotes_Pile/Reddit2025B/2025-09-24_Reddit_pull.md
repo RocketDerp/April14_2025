@@ -4647,3 +4647,24 @@ Entertainment-washing a mass dehumanization ongoing in USA since year 2013.
 https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo1flr/
 
 Fiction addicts. Entertainment-washing a mass dehumanization ongoing in USA since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngnytpx/
+
+Satire-washing for amusement mill Reddit audience. Anything to avoid that hate is bad and world-wide threat. The role mode that USA is broadcasting to the entire World Wide Web media systems, that the wealth and technology we had in North America found that what we all truly desire above all else is entertainment of live coverage and breaking news caused by people raging at each other in hate.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngnytpx/
+
+People on Reddit are so ignorant they can't see that religion groups are gangs. There is no supernatural, there is no magic, angels are fiction story characters. This is a cinema shooting of fanatics getting their Bible media / Morman media storytelling. People are attacking a gang. Making life on earth terrible and miserable by constantly prizing hate and avoiding compassion for all people in all places.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo82tj/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo2pgm/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngoldj0/
+
+Why can't we stop using spare time and free time to comment over and over on these education and understandings one by one in millions of comments and create a Wikipedia / Wiki of all of the common education learning mistakes ... especially that ALL HATE in ALL PLACES is bad... and link and name them. People are too thrilled with playing the screen commenting enagement of not getting on the same page.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo1nz6/
+
+Note the abasence of author names, links, referenced, book titles. Just disposable Reddit commenting.
+
