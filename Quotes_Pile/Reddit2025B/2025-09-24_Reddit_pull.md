@@ -4204,3 +4204,27 @@ https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_atta
 
 The High road is Malala's October 8, 2013 book. I haven't seen Reddit users take anything close to high roads of preaching and teaching hate is bad. We are all preachers, there is no supernatural magical angels, WE are the preachers, WE teach spirtuality. We ALL share one Earth. We need to address the mind, the brain, the consumption of Reddit comments, self-awareness of media ecology and self-awareness of programming the mind to hate. "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - Marshall McLuhan. page 291 - A McLuhan Sourcebook.
 
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/ngm8eou/
+
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/ngly784/
+
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/ngmew3s/
+
+And it brings out a lot of protest against whoever poisoned animals.
+
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/ngly26c/
+
+So many older men have mastered inspiring hate and leading people with deception signals, falsehoods. Which Reddit community eats up, fiction addicts flocking to entertainment.
+
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/ngm8wlr/
+
+Instead of dead Anne Frank... We the Internet, we The World Wide Web should be giving 12 year old girls a voice and repeating and listening to what they have to say, instead of flocking to Trump and talking about poop fetish of diapers and golf couses and orange skin color is better than all other skin colors. So much free time and spare time spent in service on Reddit to old white men and magical lists instead of spending decades giving time to little girls voices. Example: Malala in Swat Valley Pakistan is the Woke Left from January 2009. She used a fiction name to appeal to fiction addicts. Like Reddit users hdie identity and use fiction names. "In early 2009, when she was 11, she wrote a blog under her pseudonym Gul Makai for the BBC Urdu to detail her life during the Taliban's occupation of Swat."
+
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/ngm4apt/
+
+The values people hold dear are fiction learning and avoiding Malala's books and words. Entertainmnt of sports wealth stars with armies of medical doctors and private jets to play rectangle sports games. Trash memes and free time and spare time spent commenting instead of organized Wikipedia expansion to all languages and all topics of human importance / sharing. Instead, it's a humor-washing competition of who can make more Trump jokes for over 10 full years.
+
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/ngm69pv/
+
+Reddit comment creators scramble to mockery-wash the death of people with mocking.
+
