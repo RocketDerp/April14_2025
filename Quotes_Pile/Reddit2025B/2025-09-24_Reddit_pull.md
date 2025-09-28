@@ -4394,3 +4394,49 @@ https://old.reddit.com/r/MurderedByWords/comments/1nscmom/women_supporting_women
 
 The elephant in the social media room / society is year 2014 mind-manipulation by Russia on this topic of pro-disease https://www.bbc.com/news/world-us-canada-45294192
 
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn3wsu/
+
+The 1954 Equation comes from seeing it as a world pattern that needed to be taken as a core focus. Not of "beieers" but of everyone. Nazi Germany and Japan became technlogy worshipes of military hardware. Aircraft carriers against USA, rocket bombs to London. The public library was in 1954 showing waht we have ooly seen repeating... hate itself is Pale Blue Dot prized.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn7bfo/
+
+Machine message lover enjoys human suffering screen game, Tower of Babel conflicts.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn39bh/
+
+MLK Jr said Jesus was an extremist for love, so was he. The progress of killing technology and population growth alone mean we can't easily run away from hate patterns. Germahy 1942 and germany 1992 mindset shifts have to be taken on directly. ToDo: McLuhan quote on Finnegnas Wake and Cave of Altamira.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn94i7/
+
+Judgement Day was supposed to be after death... Bible has two of them.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn1d1t/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn0tss/
+
+People fight ove sports teams, favorite media outlets and venues. Fox News HDTV. There is no supernatural or magic, just fiction storytelling that people prize and ritualize.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn3es5/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn1wir/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn1xms/
+
+Quran 29:20
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn1v99/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngmzabv/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn9ujo/
+
+Mormons in USA believe...
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngmyrry/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn5ljw/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngmyo2d/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn2kkn/
+
