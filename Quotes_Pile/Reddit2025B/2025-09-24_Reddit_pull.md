@@ -4440,3 +4440,17 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_m
 
 https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn2kkn/
 
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn0puk/
+
+Most conflicts can be cleaned up by emphazing Torah / BIble / Quran are a scinece fiction trillogy with retcon storytelling elements. They are told in poetry, rock music lyrics, metaphors. Book spupremacy / story supremacy is bad. Hate is bad. All hate is bad.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn5912/
+
+We don't ever talk about him? People talk about Elvis and James Earl Jones and Stephen King, doesn't mean you read them in the Temple next to the Torah. I've talkedto many jews about Jesus character and his mother character.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn3efz/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngmve1j/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nsm1cl/someone_explain_it_to_me/ngn0i89/
+
