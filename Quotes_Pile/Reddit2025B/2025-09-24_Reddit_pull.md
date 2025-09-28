@@ -4544,3 +4544,14 @@ https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbuc
 
 Donald Trump White House creates so many fan fiction desires for addicts to media. People who are burning down the USA just to please and satisfy their egomania for "next season" of Reality TV content / antics fiction content creators taking over every aspect of society. Cheering on Trump's inspired audience to self-harm the USA.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnregj/
+
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published Otober 8, 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnp6hb/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnpyfo/
+
+Standing up to billionares Elon Musk, Donald Trump, Vlad Putin. Especially Putin for programming minds in USA to self-harm since March 2013 ramp up of the Internet Research Agency in Saint Pete.
+
