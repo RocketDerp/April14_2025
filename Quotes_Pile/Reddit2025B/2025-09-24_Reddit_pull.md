@@ -4228,3 +4228,11 @@ https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_atta
 
 Reddit comment creators scramble to mockery-wash the death of people with mocking.
 
+https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngm6ft2/
+
+Putin announced **conservatives are coming together** in leading their people in December 2013. Self-harm to the planet. December 20, 2013 is right before February 2014 war against Ukraine / bombing of the earth / attacking the world. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngmd1sm/
+
+https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngmgt3e/
+
