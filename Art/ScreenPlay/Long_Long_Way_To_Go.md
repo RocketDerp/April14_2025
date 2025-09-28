@@ -3,7 +3,7 @@
 Mass mind, person to person, person to mass mind
 
 No Jacket Required     
-https://www.youtube.com/watch?v=bxeRD2_9jnA
+https://www.youtube.com/watch?v=bxeRD2_9jnA      
 Recorded:	May–December 1984
 
 Small Town Feedback    
