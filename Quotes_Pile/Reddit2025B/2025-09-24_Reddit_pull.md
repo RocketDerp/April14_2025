@@ -4234,5 +4234,18 @@ Putin announced **conservatives are coming together** in leading their people in
 
 https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngmd1sm/
 
+https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngm5pzh/
+
+A hates B, B hates C, C hates A. A world all with hate as the deepest faith in one pattern or another. Hate women, hate other religions, hate people with no religions, hate people with other science fiction story favorites. Follow the examples set by hate leaders like Putin and Trump who signal and prize hate. Why would any person prize hate? A serious misunderstanding.
+
 https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngmgt3e/
 
+https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngmd81l/
+
+Deport-happy block-happy system power lust happy messaging. Anti-education, anti-Malala, pro-deport pro-hate pro-blocking.
+
+https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngmhqxm/
+
+I'm a muslim, Sufi islam. I've lived in multiple islamic nations. And until every Muslim faces up to the long-known Sufi equations. Book spupremacy, story supremacy, had no place. You can't clain your favorite science fiction story is perfect and that every other science fiction story in the public library is bad. You can't wrote a poetry book and claim every other poetry book is not equal. Ranking the best film, best poetry book, best science fiction story like this and demanding people go to your fictions story venue (Mosque) is egomania group thinking. People stop LISTENING to living people and get fixated on a year 635 book so much they won't take serious a year 2013 book published by Malala. Or other stories being communicated. Even comments on Reddit. There is no sense of a living spirtuality langauge and translation at the metaphor to metaphor level. Book supremacy / story supremacy of a learned story is a nightmare. Paents pass down a story and educate children to attack / hate / not be equal with people who don't agree that one book and only one story is perfect. It's a runaway prizing of hate and domination. SEE_ALSO_A Torah / Bible / Quran / Mormon / etc have a big probelm with this supremacy issue. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/gujarat/comments/1nshk4u/muslims_showering_flower_on_hindus/ngm4sq8/
