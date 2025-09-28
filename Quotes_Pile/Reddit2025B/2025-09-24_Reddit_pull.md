@@ -4499,3 +4499,20 @@ https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_chur
 
 https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_church_shooting/ngo58c6/
 
+https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_church_shooting/ngo69re/
+
+https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_church_shooting/ngo982m/
+
+How does a person in the United States of America declare they are against hate, against murder, against burning down Mosques and Church and pro non-fiction learning? People do everything they can in USA to frame every single topic conservative or liberal, no matter how much compassion and love do not fit. Exactly what is being "cosnervative" here? Compassion is not being conserved / retained / passed-down. Fox News "conservative" is passing down dehumanization and hate of the poor people who don't worshp wealth lords / wealth televangelism news network.
+
+https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_church_shooting/ngnzyqz/
+
+https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_church_shooting/ngo5nxv/
+
+Machines programmed by doctors to mind-fuck humans. ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_church_shooting/ngo3f37/
+
+And Islamic terrorists have schools with God all over them, Quran classes in public schools, full of terrorism and hate. ... ... ...
+"I closed my eyes and said a prayer—afraid to open them in case the school had been reduced to rubble overnight. This was what terrorism felt like. In 2008 alone, the Taliban bombed two hundred schools. Suicide bombings and targeted killings were regular occurrences. Music shops closed, daughters and sisters were prevented from going to school, and during the month of Ramadan, we had no power or gas in Mingora because Fazlullah’s men had blasted the electricity grid and the gas line." - page 59,
+I Am Malala: How One Girl Stood Up for Education and Changed the World, Originally published August 5, 2014.
