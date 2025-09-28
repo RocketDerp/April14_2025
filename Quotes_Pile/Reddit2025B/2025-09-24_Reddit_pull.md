@@ -4709,3 +4709,105 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngpka
 
 Reddit community can't even name the Internet Research Agency and recognize it is multiple NATO nations since year 2013, not just USA.
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngpjsna/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpsvk8/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage, etc, etc, etc, etc. Media ecology learning is in essential to rescue the USA! All persons age 12 to age 120 need to study Neil Postman ASAP! We are in feedback loops of fiction vs. fiction. High-speed messaging addictions.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngptcn2/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngq3xfl/
+
+Social media did not stand up and make Jen Senko a household name. A baby boomer stood up and she was grey-rocked. Tragedy. The Little Guy, Jen Senko, shared her family crisis and would have inspired others to do the same if people had used word of mohth for The Little Guy and getting everyone on the same page of Fox News.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpzerx/
+
+No quote, no link.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpv5pc/
+
+Reddit users flock to quantity of high-speed disposable comments that can be disappeared and edited.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpv8ov/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngq5kmq/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpsvln/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpt7pb/
+
+Reddit comment sectins, Bluesky, Twitter, Facebook. 
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngq23qk/
+
+Reddit comment sections.... high-speed reactionary entertainment.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpw6do/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpyybe/
+
+That's a better win than death. That means reality itself, nonfiction, is being restored.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpze2k/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpsfa0/
+
+Reality ... disappearing.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngq2g33/
+
+September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpx46x/
+
+Far from one person. Elon Musk in the White House Oval Office....
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpvuj0/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpw8qp/
+
+Charlie Kirl livestreamed his killing in front of a live audience. Massive emotional images for people.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpsd31/
+
+Reddit calls real people "bots" all the time. ELIZA effect is widespared.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpsw2m/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpy9nc/
+
+Reddit comment sections do not either, no-identity disposable comments in hughe quanities. High speed valued over any sense of shared comprehension or understanding.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpu0ng/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpvipd/
+
+November 7, 2012 on Twitter... IRA formation agreed to. Reddit invaded March 2013 onward.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpvr4s/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpy3mz/
+
+“In America, everyone is entitled to an opinion, and it is certainly useful to have a few when a pollster shows up. But these are opinions of a quite different order from eighteenth- or nineteenth-century opinions. It is probably more accurate to call them emotions rather than opinions, which would account for the fact that they change from week to week, as the pollsters tell us. **What is happening here is that television is altering the meaning of 'being informed'** by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information--misplace, irrelevant, **fragmented or superficial information -- information that creates the illusion of knowing something but which in fact leads one away from knowing**. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that **when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngq2xiv/
+
+Any any time wild and crazy behavior. Addiction to nonstop mocking and anti-reality has taken over the n ation. Now we are wasting so much time talking about poop diapers, golf course outings, orange skin, wild behaviors. How cany anyone think with so much bullshit all the time for over 10 years?
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpx5ua/
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngq981p/
+
+Charlie Kirk's dramatic live streamed killing was a massive media event.
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngpze45/
+
+Why is Jen Senko not a household name? Why did social media not stand up and name-drop and link her film every opportunity? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngq20bq/
+
+Reddit mind-fucking of Trump is extreme. And people on Reddit can't even describe the techniques of Surkov or name Surkov.
+
