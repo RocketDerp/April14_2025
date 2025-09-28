@@ -4809,5 +4809,35 @@ Why is Jen Senko not a household name? Why did social media not stand up and nam
 
 https://old.reddit.com/r/politics/comments/1nsz8f5/trump_seems_to_back_off_portland_military_plan_am/ngq20bq/
 
-Reddit mind-fucking of Trump is extreme. And people on Reddit can't even describe the techniques of Surkov or name Surkov.
+Russian mind-fucking of Trump is extreme. And people on Reddit can't even describe the techniques of Surkov or name Surkov.
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq1jqh/
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq7i59/
+
+SEE_ALSO_A "Context Blindness: Digital Technology and the Next Stage of Human Evolution (Understanding Media Ecology, 10)" – January 25, 2022 by Eva Berger (Author). Not the media ecology aspect, Reddit / Bluesky itself. Eva Berger is a senior lecturer at the School of Media Studies of the College of Management Academic Studies (COLMAN), where she also served as Dean (2006-2012). She holds a B.A. from the Department of Film and Television at Tel-Aviv University (1985) and an M.A. (1986) and a Ph.D (1991) in Media Ecology from New York University (Neil Postman's home base). Dr. Berger has taught at NYU, Tel Aviv University, the Kibbutzim College of Education and the Sam Spiegel Film School, and has been part of the faculty at COLMAN for close to 30 years. She has served on numerous boards and public service organizations including the Israel Peace Initiative, Israel Press Council, and Institute of General Semantics.
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq2hn6/
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq3z8j/
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq3r9n/
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq01pp/
+
+Autism war, war against associative thinking. War against Wikipedia style thinking. “Associative thinkers see relations and connections everywhere and tend not to categorize things. When I hear or read a certain word, I suddenly see a lot of “pictures” in my mind that have something to do with that word. This happens in quite an unstructured and even chaotic way. It's a complicated spiderweb of memories, pictures, and thoughts.” - Casey "Remrov" Vormer, Connecting With The Autism Spectrum: How To Talk, How To Listen, And Why You Shouldn’t Call It High-Functioning. page 19 
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq90k4/
+
+Reddit comment sections.
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq6kqf/
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq6n4h/
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngq5iq1/
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngqaw93/
+
+https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngqi9mw/
 
