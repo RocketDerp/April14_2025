@@ -650,3 +650,8 @@ https://old.reddit.com/r/politics/comments/1nrzvqi/hegseths_couldve_been_an_emai
 
 22 year old Reddit user spells it out that it all started in year 2013 when Trump became attention. The same time as the Russian Internet Research Agency ampped up media antics and mind-fucking techniques.    
 https://old.reddit.com/r/PublicFreakout/comments/1ns4r9g/scott_jennings_messes_up_while_debating_adam/
+
+&nbps;
+
+A book titled "Steve Bannon Plot to Break America" in 2019 was not enough before January 6, 2021 to Reddit society to stop doing low-effort trash memes and entertainment and stay focused on nonfiction. https://old.reddit.com/r/politics/comments/1ns4mqs/we_warned_you_about_project_2025_well_its_here/
+
