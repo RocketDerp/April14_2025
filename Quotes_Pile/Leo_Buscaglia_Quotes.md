@@ -8,5 +8,7 @@ You know what occurred to me? We teach everything in the world to people, except
 
 &nbsp;
 
+Vide of Leo B speaking quote https://youtu.be/OZ2fe9rVlgg?t=792
+
 Copyright is brain damage, of YouTube video quotes to remove for a dead man, estate profits    
 https://youtu.be/ZBo-YB6ZkEk?t=794
