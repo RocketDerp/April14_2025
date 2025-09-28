@@ -4119,3 +4119,77 @@ Insecurity because society shows REAL TRUTH REALITY. The HARSH BITTER truth. Peo
 https://old.reddit.com/r/AmIOverreacting/comments/1nsey4u/aio_partner_says_this_happened_at_work_and_its/nglxbg9/
 
 No comment required. Bigger fish to fry. See previous comment / GitHub commit. OPERA_A No Jacket Required. "I can't take it any more!" https://www.youtube.com/watch?v=bxeRD2_9jnA
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglps9e/
+
+Because Putin has programmed self-harm into USA minds using Cambridge Analytica doctors since March 2013. ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglsmmc/
+
+Denial abounds. The Charie Kirk televised streaming murder triggered gun worship values.
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/ngltp6h/
+
+American's are in denial The world doesn't know how to get the police to stop abusing people. ... .... ...
+“The phenomenon we have witnessed in Germany was nothing less than outbreak of epidemic insanity... **No one knew what was happening to him, least of all of the Germans**, who allowed themselves to be driven to the slaughterhouse by their leading psychopaths like hypnotized sheep.” - Dr. Carl Jung, After the Catastrophe, 1945
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/ngm21yq/
+
+Why only political violence? Is domestic violence cheered on? Children with guns shooting schools? Hate-filled machine lovers driving cars in road rage to murder others? All hate all violence in all places. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/ngls87z/
+
+Communicate self-harm on Truth Social and Reddit audience takes it. People follow and choose to subscribe to the subreddits. ... ... ... 
+“What Huxley teaches is that in the age of advanced technology, spiritual devastation is more likely to come from an enemy with a smiling face than from one whose countenance exudes suspicion and hate. In the Huxleyan prophecy, Big Brother does not watch us, by his choice. **We watch him, by ours**. There is no need for wardens or gates or Ministries of Truth.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+ 
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/ngm91bt/
+
+Reddit users could front-page science fiction literacy lessons for Bible readers every Sunday and Wednesday, "1 John 3:17" applied to Elon Musk and Donald Trump, until every person age 12 to age 120 knows the fiction story verse. Then cover "1 John 4:20" and address the poetry and rock music lyric issues directly.
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/ngmbywy/
+
+Wild and crazy entertainment for Reddit audience to comment upon for over a decade.
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglt38k/
+
+It is a war against Reddit, information war, people are sheep following messages and signals. Fine if you are being lead to the nonficton learning. Alas, Reddit is flocking to Trump White House and Kremlin fiction adiction signals.
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglvx01/
+
+A poor person without zero houses is scary compared to the rich person with a dozen homes in multiple places. Wealth Televangelism Putina and Trump programming.
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglwnsg/
+
+Taliban Swat Valley. Not just conservatives in USA / North America.  "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/ngm3kjq/
+
+ToDo: cult deprogramming GitHub page
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/ngm5i56/
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/ngmcenn/
+
+Yes, and people should stand up for these issues. And organize for these issues. People could use social media systems to stand up for nonfiction issues. Instead, fiction and pet photographs are /R/All Front Page every hour of every day. Sports games and video games and other entertainment. Reddit street itself is dangerous,because peopleare not aware how predatory sponrs of Reddit manipulate the audience, how Russia has put self-harm message on Reddit using the IRA since year 2013. But Reddit won't stand up for bad using nonfiction learning and teaching, because people just want that PS5 controller and fiction content addictions fed.
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglycxj/
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/ngmafc9/
+
+I personally lived on the streets of Portland Oregon in my RV alone for months all over the city wihtout a defense dog before the pandemic in 2019. I've lived on streets of many USA cities to compare. With my wife and without.
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglrhc0/
+
+Satire-washing the situation, entertainment addicts with free time/spare time to use Reddit don't want to face information warfare nonfiction learning and do satire as programmed by the IRA, eating out of the hands of Russia. Anything and everything but be serious about "Amusing Ourselves To Death" (Postman, 1985, nonfiction). This has been going on since year 2013, satire-washing it as unimportant, hoax, not wrecking the nation minds into self-harm and not peacefully addressing issues with intelligence and working together... but instead to concentrate power and wealth in the hands of very few people. Always messaging to mock and insult Presidnet Tony Clifton performances of Trump because satire is deepest faith, not love and compassion. People willing to die for satire of Russian warfare instead of willing to die for compassion standing up for children in the future.
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglsuok/
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglum5f/
+
+The alternative is face reality, teach reality, teach Carl Sagan's books. Teach Neil Postman's books. Reform the society. Address conservatives all over the Earth that Quran / Torah / Bible are a science fiction storytelling and burning bush angel ghosts are like Hamlet's Ghost and Star Wars 1977 Trilogy "Force Ghosts" voices and visions. Science nonfiction, not Reddit comment low-effort anti-learning. That's the alternate to a world ruled by fction mythological mania like Saudi Arbia and Mecca and Putin. OPERA_A magical voices "trust me" in your head. Bible stories. https://www.youtube.com/watch?v=YBU0sQzJFsE
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglsw0l/
+
+https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglt4a0/
+
+
