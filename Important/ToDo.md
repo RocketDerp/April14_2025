@@ -1619,3 +1619,9 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1nogahg/i_dont_get_it/
 
 PizzaCake comic. President Troll, smatphone addictions runnin USA society. Avoiding Russian IRA leaning.   
 https://old.reddit.com/r/comics/comments/1nr1qai/president_troll/
+
+&nbsp;
+
+<img width="1036" height="1172" alt="image" src="https://github.com/user-attachments/assets/3e647bd5-44ba-4474-a64e-daed4d724bbc" />
+
+https://old.reddit.com/r/todayilearned/comments/1ns4ueq/til_that_mike_gipson_son_of_old_yeller_author/ngkda6i/
