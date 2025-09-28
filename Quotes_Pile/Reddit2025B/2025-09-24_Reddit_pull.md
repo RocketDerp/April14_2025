@@ -4514,5 +4514,33 @@ Machines programmed by doctors to mind-fuck humans. ... ... ... "Дональд 
 https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_church_shooting/ngo3f37/
 
 And Islamic terrorists have schools with God all over them, Quran classes in public schools, full of terrorism and hate. ... ... ...
-"I closed my eyes and said a prayer—afraid to open them in case the school had been reduced to rubble overnight. This was what terrorism felt like. In 2008 alone, the Taliban bombed two hundred schools. Suicide bombings and targeted killings were regular occurrences. Music shops closed, daughters and sisters were prevented from going to school, and during the month of Ramadan, we had no power or gas in Mingora because Fazlullah’s men had blasted the electricity grid and the gas line." - page 59,
-I Am Malala: How One Girl Stood Up for Education and Changed the World, Originally published August 5, 2014.
+"I closed my eyes and said a prayer—afraid to open them in case the school had been reduced to rubble overnight. This was what terrorism felt like. In 2008 alone, the Taliban bombed two hundred schools. Suicide bombings and targeted killings were regular occurrences. Music shops closed, daughters and sisters were prevented from going to school, and during the month of Ramadan, we had no power or gas in Mingora because Fazlullah’s men had blasted the electricity grid and the gas line." - page 59, I Am Malala: How One Girl Stood Up for Education and Changed the World, Originally published August 5, 2014.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnn8de/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngno5e7/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngntco7/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnu18w/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnp0yy/
+
+Corporate worship. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnzs8d/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngo6uk8/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnzt95/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnqqbf/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngoa938/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngoe0jh/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnpr4b/
+
+Donald Trump White House creates so many fan fiction desires for addicts to media. People who are burning down the USA just to please and satisfy their egomania for "next season" of Reality TV content / antics fiction content creators taking over every aspect of society. Cheering on Trump's inspired audience to self-harm the USA.
+
