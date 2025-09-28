@@ -655,3 +655,8 @@ https://old.reddit.com/r/PublicFreakout/comments/1ns4r9g/scott_jennings_messes_u
 
 A book titled "Steve Bannon Plot to Break America" in 2019 was not enough before January 6, 2021 to Reddit society to stop doing low-effort trash memes and entertainment and stay focused on nonfiction. https://old.reddit.com/r/politics/comments/1ns4mqs/we_warned_you_about_project_2025_well_its_here/    
 https://old.reddit.com/r/videos/comments/1ns4euz/we_warned_you_about_project_2025_it_is_here/
+
+&nbsp;
+
+The constant chanting for private jet white men information strip tease. PizzaGate QAnon audience.   
+https://old.reddit.com/r/bonehurtingjuice/comments/1ns3qnt/ouch_oof_my_pedofiles/
