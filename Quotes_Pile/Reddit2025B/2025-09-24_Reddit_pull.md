@@ -4274,3 +4274,21 @@ https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_
 
 Or stop conflating the Quran with being Muslim / Islam. Either you are a story supremacist or NOT. If you can't translate the Quran at a metaphor level to the Upanishads or Navajo ideas or Star Wars 1977 Force Ghosts... you are going around with egomania over which story is the best in the world. It's like going around saying Arabic is the one and only one true spoke and written language. What is the fucking pont of these stories if you can't have love and compassion for all LIVING PEOPLE. The Levant "1 John 4:20" Bible verse crisis we have known for at least 2,000 years. Hate is bad.  We ALL need to be [teaching, asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/ngm2m8c/
+
+No matter where you are in the world, no matter geography, you are pro-hate or you are against hate. All this crap of making it about geography of holy Mecca lands and magical spots is a hate-based domination. Hate is bad.  We ALL need to be [teaching, asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/nglupj0/
+
+Just like Reddit comments constantly humor-wash and joke-wash and amusement-wash hate and badness itself. "Amusing Ourselves To Death", 1985 Postman. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/ngls9qx/
+
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/ngllftw/
+
+Hyper banal. Satire-washing, entertainment-washing serious problems. ... ... ...
+Texan Rick Roderick: "No, no, it’s a sitcom. They have got two friends that are stupid and ugly. They dress funny. Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." "just more banal rubble for MTV; he is Ozzy Osbourne, and I am sorry but Ozzy Osbourne doesn’t make it as Satan. I cannot see one of those lead singers fighting the infinite being and creator of the world in dubious battle upon the plains of heaven. No, they have banalised that, you know, in other words there is no area of human experience that you couldn’t find where they haven’t reduced to some form of banality. So that’s a third thing, and I think the banalisation is important, especially if you think of a couple of the cases I have used… the banalisation is important. Let me give you another one where I think it’s very important." https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/nglu3z1/
+
+As long as there are out-groups to hate, faith in hate. Hate is bad.  We ALL need to be [teaching, asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
