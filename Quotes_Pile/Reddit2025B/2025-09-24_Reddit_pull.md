@@ -4464,3 +4464,34 @@ https://old.reddit.com/r/news/comments/1nsnfe5/woman_who_came_to_us_with_dream_o
 
 We ALL need to be [teaching, asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/news/comments/1nsnfe5/woman_who_came_to_us_with_dream_of_helping_others/ngnq1nm/
+
+People insult girls for just writing and speaking. Malala got a bullet in her head.
+
+https://old.reddit.com/r/news/comments/1nsnfe5/woman_who_came_to_us_with_dream_of_helping_others/ngn9b5z/
+
+QAnon is a cult. And cults often come in popularity waves. When the Spanish came on ships to the Americans in year 1492 onward, the cult of science fition Bible was spread to Mexico along with the Spanish spoken language. Anti-science anti-reality cults. L Ron Hubbad and Scientology 1940's onward.
+
+https://old.reddit.com/r/news/comments/1nsnfe5/woman_who_came_to_us_with_dream_of_helping_others/ngnnucl/
+
+https://old.reddit.com/r/news/comments/1nsnfe5/woman_who_came_to_us_with_dream_of_helping_others/ngnlske/
+
+Self-harm to humanity has been a basis of deep information warfare. Organized mental manipulation. Cambridge Analytica self-harm messaging. ... ... ...
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
+https://old.reddit.com/r/Futurology/comments/1nsq2jw/the_president_uses_ai_to_post_a_fake_fox_news/ngnnxul/
+
+And many are targed to spread disease by Russia and people with media skills on Reddit avoid learning nonfiction to defend. August 24, 2018. People on Reddit can't even name the "Internet Reseach Agency" that spread death and self-harm https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/Futurology/comments/1nsq2jw/the_president_uses_ai_to_post_a_fake_fox_news/ngnrh52/
+
+https://old.reddit.com/r/Futurology/comments/1nsq2jw/the_president_uses_ai_to_post_a_fake_fox_news/ngo0rw8/
+
+https://old.reddit.com/r/Futurology/comments/1nsq2jw/the_president_uses_ai_to_post_a_fake_fox_news/ngnt4lx/
+
+Media ecology crisis. Every person age 12 to age 120 needs to be urgently educated and comprehend Neil Postman's 1985 book "Amusing Ourselves To Death" and we need to come to terms how Russia's IRA fucked-over USA and won a war.
+
+https://old.reddit.com/r/Futurology/comments/1nsq2jw/the_president_uses_ai_to_post_a_fake_fox_news/ngnxxo4/
+
+QAnon was a payload for Russia. People are so avoidnat of nonfiction learning that they can't recall this. https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+
