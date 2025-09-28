@@ -4192,4 +4192,15 @@ https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of
 
 https://old.reddit.com/r/nottheonion/comments/1nsg1ge/trump_orders_deployment_of_troops_to_portland_and/nglt4a0/
 
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/nglso71/
+
+Generating more and more hate. Hate motivates, Putin's craving.
+
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/ngmbnms/
+
+At least one message to stand up against the pro-murder self-harm of Russia and the world.
+
+https://old.reddit.com/r/worldnews/comments/1nsg9xm/russia_launches_massive_attack_on_kyiv_as_poland/ngm1ona/
+
+The High road is Malala's October 8, 2013 book. I haven't seen Reddit users take anything close to high roads of preaching and teaching hate is bad. We are all preachers, there is no supernatural magical angels, WE are the preachers, WE teach spirtuality. We ALL share one Earth. We need to address the mind, the brain, the consumption of Reddit comments, self-awareness of media ecology and self-awareness of programming the mind to hate. "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - Marshall McLuhan. page 291 - A McLuhan Sourcebook.
 
