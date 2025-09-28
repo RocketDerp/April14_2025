@@ -653,5 +653,5 @@ https://old.reddit.com/r/PublicFreakout/comments/1ns4r9g/scott_jennings_messes_u
 
 &nbps;
 
-A book titled "Steve Bannon Plot to Break America" in 2019 was not enough before January 6, 2021 to Reddit society to stop doing low-effort trash memes and entertainment and stay focused on nonfiction. https://old.reddit.com/r/politics/comments/1ns4mqs/we_warned_you_about_project_2025_well_its_here/
-
+A book titled "Steve Bannon Plot to Break America" in 2019 was not enough before January 6, 2021 to Reddit society to stop doing low-effort trash memes and entertainment and stay focused on nonfiction. https://old.reddit.com/r/politics/comments/1ns4mqs/we_warned_you_about_project_2025_well_its_here/    
+https://old.reddit.com/r/videos/comments/1ns4euz/we_warned_you_about_project_2025_it_is_here/
