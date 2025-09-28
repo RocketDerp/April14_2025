@@ -4495,3 +4495,7 @@ https://old.reddit.com/r/Futurology/comments/1nsq2jw/the_president_uses_ai_to_po
 
 QAnon was a payload for Russia. People are so avoidnat of nonfiction learning that they can't recall this. https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
 
+https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_church_shooting/ngo262x/
+
+https://old.reddit.com/r/news/comments/1nsrii3/multiple_victims_in_michigan_church_shooting/ngo58c6/
+
