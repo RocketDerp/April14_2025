@@ -4292,3 +4292,63 @@ Texan Rick Roderick: "No, no, it’s a sitcom. They have got two friends that ar
 https://old.reddit.com/r/comedy/comments/1nsex6s/standing_on_principle_shoutout_to_the_comics_who/nglu3z1/
 
 As long as there are out-groups to hate, faith in hate. Hate is bad.  We ALL need to be [teaching, asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmht6i/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmn8ai/
+
+Unable to find the nonfiction public library, cite a book, cite an author. Lives on low-effort comments for learning?
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmcxui/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmhl9c/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmjjx7/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmhvin/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmdbgl/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmdrj5/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmcb1f/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmbblg/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmcoj6/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngme72o/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmexbj/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmn8w6/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmhpce/
+
+Notice the lack of link to evidence. Quote, author name, book title, concern to teach non-fiction.
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmbe83/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmfdo0/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmfu55/
+
+Can not get Reddit to stop hate-watching Donald Trump and sucking in all Putin and Trump ideas in the name of mocking and insulting Tony Clifton performances as "entertainment". 
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmb300/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmg98z/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmltah/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmmarb/
+
+It made front-page of Reddit, and the Reddit commenting. ... ... ... “The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan
+https://github.com/user-attachments/assets/193e2397-8a4d-4425-99e4-12781b18b54c
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmcjf5/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmjqkb/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsj3oh/adin_ross_shocked_after_seeing_a_poll_in_his_chat/ngmeo6c/
+
