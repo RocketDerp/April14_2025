@@ -4841,3 +4841,37 @@ https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_hum
 
 https://old.reddit.com/r/science/comments/1nszxav/autism_may_be_the_price_of_human_intelligence/ngqi9mw/
 
+https://old.reddit.com/r/TikTokCringe/comments/1nsykbm/pickpockets_in_london_are_now_getting_sprayed/ngq5k4v/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nsykbm/pickpockets_in_london_are_now_getting_sprayed/ngpt13r/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nsykbm/pickpockets_in_london_are_now_getting_sprayed/ngqiqey/
+
+How to "win" debate.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nsykbm/pickpockets_in_london_are_now_getting_sprayed/ngq9wwh/
+
+Citation? Quote, link, author, book title?
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nszb2s/trump_vance_sign_at_home_and_two_american_flags/ngpyzrq/
+
+Preaatory hate.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nszb2s/trump_vance_sign_at_home_and_two_american_flags/ngpyi4l/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nszb2s/trump_vance_sign_at_home_and_two_american_flags/ngpyy0c/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nszb2s/trump_vance_sign_at_home_and_two_american_flags/ngq0l10/
+
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nszb2s/trump_vance_sign_at_home_and_two_american_flags/ngq75ly/
+
+And people don't even see it. Science fiction story gangs, blasphomy executions, etc.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nszb2s/trump_vance_sign_at_home_and_two_american_flags/ngqe9da/
+
+Entertainment addicts flock to Trump hate, Trump mock content.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nszb2s/trump_vance_sign_at_home_and_two_american_flags/ngq90c2/
+
