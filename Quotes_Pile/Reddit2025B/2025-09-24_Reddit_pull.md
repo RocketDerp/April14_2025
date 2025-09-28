@@ -4555,3 +4555,53 @@ https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbuc
 
 Standing up to billionares Elon Musk, Donald Trump, Vlad Putin. Especially Putin for programming minds in USA to self-harm since March 2013 ramp up of the Internet Research Agency in Saint Pete.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnrkz3/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngns7jg/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnqny6/
+
+Social media "LOL" laugh track for Reddit audience members.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnq3jj/
+
+This is what meme societies, Reddit audiences, really desire. Constant antics and content streaming.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nspv5e/conservatives_at_starbucks/ngnqz3w/
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngoc2tz/
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngnvnar/
+
+Russia IRA mind-fucked everyone into patterns of reactions. Out-group crazy ("off rockers") messaging patterns on Reddit information systems. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngnzy7q/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage, etc, etc, etc, etc. Media ecology learning is in essential to rescue the USA! All persons age 12 to age 120 need to study Neil Postman ASAP! We are in feedback loops of fiction vs. fiction. High-speed messaging addictions.
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo0cd9/
+
+Predatory media to mind-fuck the poor guy. Rural less-educated people. And the more-educated media addicts hang out on social media and mock and insult instead or organize nonfiction against Putin's Internet Research Agency, the Russian media invasion since year 2013.
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo147d/
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo3fxw/
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngoa4cy/
+
+Religion is science fiction storytelling. Star Wars Andor terrorism can be inspiring to people as is Quran science fiction.
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo85dr/
+
+Avoding bullshit? When they are tol that The Bible is the only perfect book in the whole public library and that it is nonfiction. ... ... ...
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published Otober 8, 2013.
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo1lxi/
+
+Reddit community can't even name "Cambridge Analytica" and the "Internet Research Agency", let alone describe mechanics and techniques, time periods, etc.
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo50r7/
+
+Can my Python code grab this markdown? Testing 1,2,3...
+
