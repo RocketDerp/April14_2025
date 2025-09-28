@@ -4605,3 +4605,14 @@ https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_
 
 Can my Python code grab this markdown? Testing 1,2,3...
 
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo2nw5/
+
+Take in extremely high quantities of low-effort social media comments and that's what your brain act upon. Teaching yourself what the walthy teach you... to worship wealth lords. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) of what people consume and why they encounter other people with common values, it's common fiction storytelling consumption. Russia with Cambridge Analytica created **FIVE THOUSANDS PATTERNS** of "common ground" media consumption, like FIVE THOUSAND TV CHANNELS.  ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo16rh/
+
+Headlines, shallow, superficial, reactionary, high-speed consumption of information.
+
+https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo0t09/
+
+Culture of hughe quantaties of disposable Reddit comments from no-identity creators right into the minds of audience. Russua won, Surkov won, Putin won, USA lost since year 2013 to IRA.
