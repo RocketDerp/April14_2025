@@ -4616,3 +4616,34 @@ Headlines, shallow, superficial, reactionary, high-speed consumption of informat
 https://old.reddit.com/r/law/comments/1nsqspy/it_is_criminal_gop_lawmaker_wants_gavin_newsom_to/ngo0t09/
 
 Culture of hughe quantaties of disposable Reddit comments from no-identity creators right into the minds of audience. Russua won, Surkov won, Putin won, USA lost since year 2013 to IRA.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo5f0b/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo8ar5/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo9zsx/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo904b/
+
+We do not teach and educate all people with minds / brains about mob mentality and group disorders. How military training works, the mechanics of cults and military boot camp. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngoi311/
+
+Alternate realities. The game Putin has mastered in warfare / meme warfare. ... ... ...
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo65hh/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo8agg/
+
+Putin is worth huge amounts and has had control of military and legal system for 25 years. Domestic vs. Domestic USA and even USA vs. Canada and USA vs. Greenland. People on social media will do anything possible commenting free time and spare time away... to avoid nonfiction learning of the methods and techniques of the  Internet Research Agency in Russia.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngorvc2/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo2wlh/
+
+Entertainment-washing a mass dehumanization ongoing in USA since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo1flr/
+
+Fiction addicts. Entertainment-washing a mass dehumanization ongoing in USA since year 2013.
