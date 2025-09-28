@@ -4666,5 +4666,15 @@ Why can't we stop using spare time and free time to comment over and over on the
 
 https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo1nz6/
 
-Note the abasence of author names, links, referenced, book titles. Just disposable Reddit commenting.
+Note the abasence of author names, links, references, book titles, quotes. Just disposable Reddit commenting. Many people who find popularity in originating comments, but not listing to researched information. A content to create as many comments as fast as possible in a race before the new breaking news / popular topic is posted. Quantity of information, avoidance of coming together and all striving for mutual understanding of a shared planet Earth.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngo34ul/
+
+It changed people, it made them excitied and thrilled to see live coverage murders. That's media content, hyper reality, high-speed media systems churning!
+
+https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_mormon_church_in_grand_blanc/ngocysd/
+
+Hate content and hate competition is very popular.
+
+
 
