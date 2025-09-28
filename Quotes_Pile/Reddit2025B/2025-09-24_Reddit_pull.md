@@ -4064,3 +4064,39 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ns9ey7/south_florida_feels_
 
 Wishing pain on people. the pain-wishing inspires hate-wishing back and forth. Hate patterns. Instead of preaching and teaching, it's hate messaging.
 
+https://old.reddit.com/r/comedy/comments/1nsdgew/theo_von_just_bombed/ngls0ag/
+
+Not just online... humor-washing hate and killing over science fiction storytelling / terrorism of people who love books more than humans.....
+
+https://old.reddit.com/r/comedy/comments/1nsdgew/theo_von_just_bombed/nglk7es/
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngivc2g/
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngkgcme/
+
+Reddit society can't stop using free time and spare time and start teaching science fiction literacy lessons of Bible verse "1 John 3:17" to the whole nation... viral messaging... instead we get low-purpose memes and "Epstein" chanting for rich men sex private jet admiration.
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngk1inz/
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngj6r6s/
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngjbhu6/
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngipu9o/
+
+Reactionary comment section message about how entertaining ractionary mindsets are. The reaction vs. reaction feedback loops that empower Putin/Trump.
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngikrc3/
+
+Hate feedback loops of fuck-you vs. fuck-you, hate you vs. hate you.
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngit1i9/
+
+Especially if they are founded in an real divisions, it is poor vs. rich... and fiction addictions of fiction storytelling A vs. B vs. C, all with avoidance of nonfiction science learning.  Defeating and making other people suffer as a motivation is self-harm of the world.
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngizu6k/
+
+https://old.reddit.com/r/politics/comments/1ns1blr/asked_about_violence_trump_warns_left_not_to/ngjjo5t/
+
+Debial abounds. Reddit messages to act like Putin isn't at war with USA, that the Internet Research Agency didn't make pro-disease warfare https://www.bbc.com/news/world-us-canada-45294192 and make life a costant game of drowning in fiction and avoidance of nonfiction progress in USA society. Drowning in Donald Trump messages has consumed so much time, broken so many families, shifted so much attention. The Entertainment, Infinite Jest V, that has consumed goodness in favor of time wasting self-harm Trump icon. Trump is waking a war against nonfiction in USA out of compusive addiction to Putin fiction storytelling.
+
