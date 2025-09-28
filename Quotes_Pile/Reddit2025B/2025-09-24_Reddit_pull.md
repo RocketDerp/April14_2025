@@ -4022,3 +4022,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ns3u53/thanks_for_normaliz
 
 Then support Malala at age 11, her bloks from January 2009 at age 11 are still there. Why create original writing when Malala writes so much better? Why be so Trump-like in origianl Truth Social postings when you can be a repeater for girls at age 11? We don't need more privledged people telling their comments on Reddit, the urgency of our time is to get on the same page, and to identify GOODNESS ITSELF as a destination page. If we want Heaven fiction to become a goal, we better poiint to those who can bridge the fiction-nonfiction gap like Malala! "In early 2009, when she was 11, she wrote a blog under her pseudonym Gul Makai for the BBC Urdu to detail her life during the Taliban's occupation of Swat."
 
+https://old.reddit.com/r/todayilearned/comments/1ns4ueq/til_that_mike_gipson_son_of_old_yeller_author/ngk48om/
+
+https://old.reddit.com/r/todayilearned/comments/1ns4ueq/til_that_mike_gipson_son_of_old_yeller_author/ngkcixe/
+
+https://old.reddit.com/r/todayilearned/comments/1ns4ueq/til_that_mike_gipson_son_of_old_yeller_author/ngjpff1/
+
+Nonfiction learning. People in the comments are having minds blown and in shock over nonfiction. Palestine and Ukraine nonfiction of year 2024 are both. Sudan year 2024 nonfiction. Reality of Donald Trump beyond the chasing and flocking to "Epstein" keywords.
+
