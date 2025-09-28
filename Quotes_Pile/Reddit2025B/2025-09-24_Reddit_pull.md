@@ -4676,5 +4676,36 @@ https://old.reddit.com/r/CringeTikToks/comments/1nsrdn0/active_shooter_at_a_morm
 
 Hate content and hate competition is very popular.
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngpmxd3/
 
+Russia's *War Against Reality*, *War Against Nonfiction*, that's what has changed about people since year 2013. Fiction favored when given choices of conflicting (Surkov Shuffle) answers.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngpp163/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngq552j/
+
+Justification ... Just the outcomes of fiction addiction. 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngq7f8h/
+
+I've never seen it either. That's why I called the Pentagon when Reddit mass mind behaviors started to change. I was fully alarmed that it was a huge deal (and I contacted Samantha at the Pentagon; Monday, August 17, 2015 afternoon).
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngppabv/
+
+Enemy is going to find our weak spot, one way or another. Our society overdoses on news networks incluldng Reddit /r/News /r/WorldNews and 24 hour HDTV channels. Neil Postman's 1985 book "Amusig Ourselves To Death" we didn't prepare for. Mythology / religion we ddin't face up to September 11, 2001 and imagine Russia creating monomyth storytelling fictions.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngpqrto/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngprsqm/
+
+Putin's Operation Matthew 4:19 IRA...
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngpqbk1/
+
+The flocking to liars as leaders of corporations and politics alike is not a wise choice. ... ... ....
+“We've arranged a global civilization in which most crucial elements profoundly depend on science and technology. We have also arranged things so that almost no one understands science and technology. This is a prescription for disaster. We might get away with it for a while, but sooner or later this combustible mixture of ignorance and power is going to blow up in our faces.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nsy3bk/blame_yourself/ngpkas9/
+
+Reddit community can't even name the Internet Research Agency and recognize it is multiple NATO nations since year 2013, not just USA.
 
