@@ -4048,3 +4048,19 @@ https://old.reddit.com/r/NoFilterNews/comments/1ns8vqn/marjorie_taylor_greene_se
 
 Reddit spare time / free time spent commenting about cults. No messages of calling for cult rescue teaching using social machine systems. "The Media" of social media doesn't use nonfiction cult deprogramming books.
 
+https://old.reddit.com/r/news/comments/1nseyo6/3_dead_8_injured_after_shooter_in_boat_opens_fire/nglm0g2/
+
+"You know what occurred to me? We teach everything in the world to people, except the most essential thing. And that is life. Nobody teaches you about life. You're supposed to know about it. Nobody teaches you how to be a human being and what it means to be a human being, and the dignity that it means when you say, "I am a human being." Everyone assumes this is something you have, or you should have gotten by osmosis. We'll it's not working by osmosis!"  - [From the chapter "The Art of Being Fully Human" page 127 of "Living, Loving & Learning" by Leo Buscaglia, Ph. D.](../Leo_Buscaglia_Quotes.md) https://youtu.be/OZ2fe9rVlgg?t=792
+
+https://old.reddit.com/r/news/comments/1nseyo6/3_dead_8_injured_after_shooter_in_boat_opens_fire/nglpbc2/
+
+Emotionally.. the faith in hate and agression. Emotionally... Pandemic in North America https://en.wikipedia.org/wiki/Canada_convoy_protest showed people would gleefully spread disease they often said was a "lab leak" bioweapon from China, with guns racing round USA towns protesting it was a right to spread https://abcnews.go.com/US/cashier-dead-wounded-argument-georgia-stores-mask-policy/story?id=78275587 to serve the China military. Gun rights and disease spreading rights. People aren't willing to die to share their last bit of food, people want to share their last bit of egomania. Emotionally I've not witnssed people admit that Bill Gates was correct in his Ted Talk saying were weren't prepared and would have a shock with a big disease outbreak. Back in April 2015. People can't admit when a billionare is actaully correct and warned everyone! https://www.youtube.com/watch?v=6Af6b_wyiwI 38,438,844 views  April 3, 2015 - emotionally... nor have I seen pepole say: *why didn't we have fire drills for disease outbreakss at shools and workplaces like we do for war and and fire?* we seem blind to outberaks of mob mentality and shared diseases.
+
+https://old.reddit.com/r/news/comments/1nseyo6/3_dead_8_injured_after_shooter_in_boat_opens_fire/nglofkw/
+
+We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ns9ey7/south_florida_feels_the_chill_of_canadian_tourism/ngkbnas/
+
+Wishing pain on people. the pain-wishing inspires hate-wishing back and forth. Hate patterns. Instead of preaching and teaching, it's hate messaging.
+
