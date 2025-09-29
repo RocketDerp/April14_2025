@@ -15,9 +15,9 @@ https://www.youtube.com/watch?v=aQK5B7crCI4
 
 ## World War 5
 
-World War Five was agreed on Twitter. November 7, 2012   
+The story goes... **World War Five** was [agreed on Twitter. November 7, 2012](https://www.facebook.com/konstantin.rykov/posts/10210621124674610)   
 
-World War Five was ramping up March 2013. The Internet Research Agency in Saint Pete Russia.
+Deployment wise... World War Five was ramping up March 2013. The Internet Research Agency in Saint Pete Russia.
 
 
 Described December 5, 2014 in a book reading / start of a book tour:   
