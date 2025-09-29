@@ -4952,5 +4952,30 @@ https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_mi
 
 https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqnnfe/
 
-Time is warped, reality distortion fields, recency bias / looking for the breaking news events / hight-speed media networking is driving society.
+Time is warped, reality distortion fields, recency bias / looking for the breaking news events / hight-speed media networking is driving society. OPERA_A new reactionary high-speed mindset patterns never experienced before. https://www.youtube.com/watch?v=OVwqdArFDc0
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqf9l8/
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqmfcu/
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqx0z6/
+
+Denial abounds.
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqbe0c/
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqf1z0/
+
+I have used this metaphor many times when teaching computers one on one when Windows 3.0 was new and people had never used a mouse before. That nothing is preventing you from doing all kinds of odd things out of order and twisting up signals except conventions and understandings. 
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqgsq0/
+
+Russia's war agains Reality won, people don't even know the name of "Internet Research Agency"
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqjgi7/
+
+Egomania.
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqecel/
+
 
