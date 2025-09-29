@@ -33,3 +33,9 @@ https://old.reddit.com/r/pics/comments/1ntbnjf/maga_terrorist_responsible_for_mo
 
 MAGA nerds vs. video game nerds vs. Reddit commenting section nerds.
 
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngu4g8s/
+
+https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defense_getting_good/ngu5yic/
+
+Mocky reply, then block using Reddit server blocking to prevent further public reply messages. Replying 3 days after the Reddit posting. Target fixated.
+
