@@ -273,3 +273,18 @@ https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_sh
 
 A Reddit comment with citation links!
 
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguhw1i/
+
+Tiny short-length message creator can't imagine using information systems in an organized campaign against Reddit community.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguglaf/
+
+Denial abounds. The vainishing point is in the rear-view mirror. SEE_ALSO_A Marshall McLuhan https://monoskop.org/images/f/fa/Forward_Through_the_Rearview_Mirror_Reflections_on_and_by_Marshall_McLuhan_1996.pdf
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguh9p0/
+
+People cheer on when an actor can playe a ficton role convincingly. Fiction storytelling and acting on television is very popular.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguhhxe/
+
+Fuck tha? That's what people do day in day out for money. This year in 2025, Star Wars Andor character Dedra Meero was played by age 45 Denise Gough, an Irish actress, saying 2 plus 2 is 5. She is world famous for her playing fiction screenplays. Reddit community can not grasp that fiction is *far more popular* than nonfiction! OPERA_A Obligtory Irish Acting ficiton Media Ecology teaching content. https://www.youtube.com/watch?v=x6hLyTXhvuI 893 views January 14, 2022
