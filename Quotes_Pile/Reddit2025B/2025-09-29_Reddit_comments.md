@@ -428,3 +428,10 @@ https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_pub
 
 Donald Trump has made name-calling the means to world dominaton power. Wake the fuck up that entertainment Trump wins all. Neil Postman 1985 book!
 
+https://old.reddit.com/r/MurderedByWords/comments/1ntu8a0/the_rain_is_gone_for_shannon/ngwmwpb/
+
+The media ecology self-awareness of everything being satire-washed and mockery-washed around the Rpeublican party / GOP symbolism. Amusing Ourselves to Death.
+
+https://old.reddit.com/r/MurderedByWords/comments/1ntu8a0/the_rain_is_gone_for_shannon/ngwigds/
+
+[Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
