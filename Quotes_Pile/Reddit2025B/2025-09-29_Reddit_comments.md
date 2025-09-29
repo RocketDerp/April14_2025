@@ -142,5 +142,6 @@ https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_sh
 
 Why divorce a loyal servant? The ultimate men of power who run fiction media empire of Mecca have systems of multiple wives. You shuffle them like employees to remote tasks if they aren't obeying or performing. OPERA_A Women in cages... I hear you are singing a song of the past, "great again", for many years. https://www.youtube.com/watch?v=Y3Krg8Nc69Y
 
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngucl8e/
 
-
+Reddit hate track for audience. Promoting *hate harder*, which is a MAGA value of *hate harder against Americans*. That the most superficial difference in language, shallow differences of immigrants, facial differences of immigrants, should be hated. Reddit mind-fucking message. Reducing women to just sex parts, a cunt, pussy that is *worn out* to men in the Reddit audience. "In his 1951 book [*The Mechanical Bride: Folklore of Industrial Man, Marshall McLuhan*](https://en.wikipedia.org/wiki/The_Mechanical_Bride) argued that industrial-age mass media created a new form of mythology by merging sex and technology. The advertising industry, in particular, used images of female "sex parts" and disconnected body parts to sell products, a process that both objectified women and reduced sex to a mechanical act."
