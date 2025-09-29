@@ -283,8 +283,17 @@ Denial abounds. The vainishing point is in the rear-view mirror. SEE_ALSO_A Mars
 
 https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguh9p0/
 
-People cheer on when an actor can playe a ficton role convincingly. Fiction storytelling and acting on television is very popular.
+People cheer on when an actor can play a ficton role convincingly. Fiction storytelling and acting on television is very popular.
 
 https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguhhxe/
 
-Fuck tha? That's what people do day in day out for money. This year in 2025, Star Wars Andor character Dedra Meero was played by age 45 Denise Gough, an Irish actress, saying 2 plus 2 is 5. She is world famous for her playing fiction screenplays. Reddit community can not grasp that fiction is *far more popular* than nonfiction! OPERA_A Obligtory Irish Acting ficiton Media Ecology teaching content. https://www.youtube.com/watch?v=x6hLyTXhvuI 893 views January 14, 2022
+Fuck that? New York city actress made it big! That's what people do day in day out for money. This year in 2025, Star Wars Andor character Dedra Meero was played by age 45 Denise Gough, an Irish actress, saying 2 plus 2 is 5.  Denise Gough is world famous for her playing fiction screenplays. Reddit community can not grasp that fiction is *far more popular* than nonfiction! Fox News audiences love it! OPERA_A Obligtory Irish Acting ficiton Media Ecology teaching content. https://www.youtube.com/watch?v=x6hLyTXhvuI 893 views January 14, 2022
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngvangb/
+
+Low effort Reddit commening is not fun to read. It has trashed the nation with disposable trash commenting that avoids nonfiction serious leanring of Russian informaiton warfare.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguyldh/
+
+This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
