@@ -659,3 +659,12 @@ https://old.reddit.com/r/MadeMeSmile/comments/1nt70ns/boy_discovers_how_to_give_
 — Marshall McLuhan, see also “Address at Vision 65” , p. 7
 
 https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/
+
+&nbsp;
+
+#### Media ecology of recorded images
+
+Humanity did not have recorded images. Look at how people behave toward children and young people, the shock and turning away from people outside their current comfort zone.
+
+https://old.reddit.com/r/pranks/comments/1ntjkmi/throwback_picture_prank/
+
