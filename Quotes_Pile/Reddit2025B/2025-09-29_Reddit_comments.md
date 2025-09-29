@@ -236,3 +236,19 @@ https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_
 Media Woke. Repetitive video games. Spelled out in a 2019 nonfiction book. ... ... ... 
 “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to exploit evolutionary flaws in our cognition? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019
 
+https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_to_be_acquired/ngukgjt/
+
+Your reddit comment seciton is a video game, an "alternate reality game" of 5,000 patterns by the IRA and CA since March 2013. Repetitive video games. Spelled out in a 2019 nonfiction book. ... ... ... 
+“We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to exploit evolutionary flaws in our cognition? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, 2019
+
+https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_to_be_acquired/nguo8lr/
+
+https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_to_be_acquired/nguh930/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) SEE_ALSO_A December 20, 2013 Global announcement of hearts and minds warfare. https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_to_be_acquired/ngtlfy9/
+
+Fiction addictions of Reddit low-effort comments. Unable to cite the reality of real world non-ficiton learning. Septmber 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+
