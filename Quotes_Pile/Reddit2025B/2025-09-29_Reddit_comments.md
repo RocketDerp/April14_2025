@@ -255,4 +255,8 @@ https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_
 
 This is what Reddit commenting could be! Citations, links, nonfiction learning!
 
+https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_to_be_acquired/ngucx20/
 
+https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_to_be_acquired/ngue09z/
+
+Forgot, recency bias abounds. The IRA and CA mind-fucked everyone since year 2013.
