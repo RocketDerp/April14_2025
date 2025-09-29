@@ -18,9 +18,9 @@ Sequence of timing:
 
 &nbsp;
 
-&nbps;
+&nbsp;
 
-&nbps;
+&nbsp;
 
 
 > Then stop replying
