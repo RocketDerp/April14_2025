@@ -377,7 +377,14 @@ That praises Putin's Russia. And a socal media addicted nation, ENTIER POPULATIO
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1ntp0xx/treasury_secretary_reading_a_text_from_the/ngvbi8q/
 
-Mockery-washing the Russian defeat of USA hearts and minds since year 2013 as entertainment.
+Mockery-washing the Russian defeat of USA hearts and minds since year 2013 as entertainment. The supply chain of hate faith and messages points to yeaer 2013.
 
 
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngw4wdo/
+
+"I love" conflicts of hate. Reddit addicts love hates situations and misunderstandings. 
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngwc5vi/
+
+A "I love" response.
 
