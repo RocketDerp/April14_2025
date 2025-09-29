@@ -198,3 +198,12 @@ Reddit comment section is a low-effort high-quantity message cult.
 https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngupim0/
 
 Note the absence of URL links, quotes, author names, book titles, etc.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngur23a/
+
+The Bible is full of paradox memes. Paradox statements and absurd surreal content. The Bible is poetry. Wildcard interpretations. Multiple meanings. The Bible is science fiction, angels from outer space messaging down to Earth.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngukr2d/
+
+Bible fiction bedia platform vs. Reddit media platform. Media venue Church vs. media venue subreddit.
+
