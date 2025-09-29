@@ -668,3 +668,10 @@ Humanity did not have recorded images. Look at how people behave toward children
 
 https://old.reddit.com/r/pranks/comments/1ntjkmi/throwback_picture_prank/
 
+&nbsp;
+
+#### Popularity Trafficing, People Trafficing
+
+This lesson: what do actresses and actors do as children to become famous? Are there patterns in USA over many decades showing children fleeing to New York City to make it in theater? Children who run away to California to try and get on television shows or films?
+
+https://old.reddit.com/r/okbuddycinephile/comments/1ntosr4/welcome_back_harvey_weinstein/
