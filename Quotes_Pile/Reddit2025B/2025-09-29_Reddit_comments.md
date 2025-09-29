@@ -306,3 +306,8 @@ https://old.reddit.com/r/popculturechat/comments/1ntin10/jk_rowling_comments_on_
 https://old.reddit.com/r/popculturechat/comments/1ntin10/jk_rowling_comments_on_emma_watson_in_lengthy_x/ngu1gdt/
 
 "WILD AS FUCK" mind-blowing monomyth pattern arrangement. Exactly what Harry Potter language creator has mastered with social media audiences. Monomyth mindfuck OpCodes from John 1:1 and even earlier than John 1:1
+
+https://old.reddit.com/r/popculturechat/comments/1ntin10/jk_rowling_comments_on_emma_watson_in_lengthy_x/ngub63e/
+
+We ALL need to be support Malala's movement to give young girls their own ability to decide who exploits them and now. **Gender Apartheid** that Malala has been begging the entire World Wide Web to support and ReTweet! "the state of women's rights in Taliban-led Afghanistan as “gender apartheid.”"  https://www.nbcnews.com/news/world/taliban-not-see-women-human-beings-malala-yousafzai-says-rcna187355
+
