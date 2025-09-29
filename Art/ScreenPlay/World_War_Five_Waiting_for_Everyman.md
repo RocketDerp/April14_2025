@@ -1,5 +1,8 @@
 # EMERGENCY LASTWARNING USA DearUSA  
 
+https://autistics.life/@RoundSparrow/115287437856241972      
+https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3lzxx3cj32s2z
+
 RescueFriendsOpera "Rescue Friends Opera"
 
 Standing alone, each has his own ticket in his hand.
