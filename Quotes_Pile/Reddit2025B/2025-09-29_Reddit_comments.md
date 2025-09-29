@@ -386,5 +386,25 @@ https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_pub
 
 https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngwc5vi/
 
-A "I love" response.
+A "I love" response. SEE_ALSO_A See also Levant science fiction story street gangs of Quran / Torah / Bible and special phrases and language used to fight competing street gangs of science fiction stories. And to attack authentic science (nonfiction). Been going on for thousands and thousands of years. See also: "Harlan Ellison, Middle East 8000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngvw6su/
+
+The answer everyone is avoiding: using social media, a world of 8 billion people, teaching morality lessons and making friedships long distance. Get every person in Russia and Israela and Palestine and document them in a global Wiki system and gift them, friend them, educate them, and stand up to hate itself. We almost all can now reach out and communicate peer to peer, even if just video and photos with language barriers, and we can adopt peer humans. People care more on reddit /r/All about kittens being rescued that having each other's back. The USA population NEEDS help, not more Reddit comments avoiding the hate problems. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md). Stop acting like hate is ejoyable, hate is not fun. Face the truth of hate. Have Pale Blue Dot pride, human species learning from errors pride.
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngwhmgc/
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngw9cqm/
+
+The WHOLE WWW can stand up and preach morality, we all are preachers. Been going on for thousands and thousands of years. See also: "Harlan Ellison, Middle East 8000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngw965a/
+
+Malala's book published October 8, 2013 to address terrorism and hate. The ENITRE WORLD got her book tour and speeches. The ENTIRE WORLD of WWW could repeat and repeat her teaching and education. Instead, sports stars and banality for TEN YEARS, a DECADE to October 7, 2013. And TRUMP TOO would have been swept up, Epstein too, swept up in Malala promoting.
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngwg027/
+
+Huge quanitities of low-effort commenting is what people desire.
+
+
 
