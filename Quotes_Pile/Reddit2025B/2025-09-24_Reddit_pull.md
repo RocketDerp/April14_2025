@@ -4901,3 +4901,17 @@ https://old.reddit.com/r/law/comments/1nsyea0/trumps_former_wh_attorney_ty_cobb_
 
 <img width="1098" height="506" alt="image" src="https://github.com/user-attachments/assets/888b403b-c131-44c3-9434-495d7af64baf" />
 
+https://old.reddit.com/r/law/comments/1nsyea0/trumps_former_wh_attorney_ty_cobb_trump_wants_to/ngpwldw/
+
+Killing people doesn't deal with the conditions leading to it. The prizing of hate.
+
+https://old.reddit.com/r/law/comments/1nsyea0/trumps_former_wh_attorney_ty_cobb_trump_wants_to/ngpqpez/
+
+Fiction storytelling is more popular than nonfiction.
+
+https://old.reddit.com/r/law/comments/1nsyea0/trumps_former_wh_attorney_ty_cobb_trump_wants_to/ngppvng/
+
+Listening to nonfiction, studying nonfiction, is considered boring.  There is a culture of millions and millions of disposable messages that avoid nonfiction books and comprehensive understandings. Everything is a race towards tiny 10-second sound bites. ... ... ... “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/law/comments/1nsyea0/trumps_former_wh_attorney_ty_cobb_trump_wants_to/ngppn4p/
+
