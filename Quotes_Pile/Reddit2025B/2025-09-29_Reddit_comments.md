@@ -311,3 +311,11 @@ https://old.reddit.com/r/popculturechat/comments/1ntin10/jk_rowling_comments_on_
 
 We ALL need to be support Malala's movement to give young girls their own ability to decide who exploits them and now. **Gender Apartheid** that Malala has been begging the entire World Wide Web to support and ReTweet! "the state of women's rights in Taliban-led Afghanistan as “gender apartheid.”"  https://www.nbcnews.com/news/world/taliban-not-see-women-human-beings-malala-yousafzai-says-rcna187355
 
+https://old.reddit.com/r/memes/comments/1ntqhsu/same_as_the_owners/ngvjgeh/
+
+Posting dehumanizing him as a "pug dog", and them calling him a machine. Reddit hate messaging to dehumanize as sport. Creating fiction content for fiction addicts. Encouraging MAGA values of superficial and shallow interpretation of the Cosmos. Dehumanizing the diversity of people's faces and bodies, communications. All to avoid nonfiction learning of socience, to mockery-wash the White House as entertainment and thrills for Reddit audience.
+
+https://old.reddit.com/r/memes/comments/1ntqhsu/same_as_the_owners/ngvlpr7/
+
+What an interesting concept. The reason Ameericans flock to trump is to have Tony Clifton acts to make fun of. Eating the Surkov Onion.
+
