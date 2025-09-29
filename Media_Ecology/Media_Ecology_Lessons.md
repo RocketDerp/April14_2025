@@ -648,3 +648,14 @@ Your parents choose your housing location, your school feed, your Mosque or Chur
 
 https://old.reddit.com/r/CuratedTumblr/comments/1ntfmud/differences_in_algorithms/
 
+&nbsp;
+
+### Language Gestures and Postures 
+
+Child learnign hand-eye gestures    
+https://old.reddit.com/r/MadeMeSmile/comments/1nt70ns/boy_discovers_how_to_give_a_thumbs_up/
+
+“Joyce is, in the Wake, making his own Altamira cave drawings of the entire history of the human mind, in terms of its **basic gestures and postures during all the phases of human culture and technology**. As his title indicates, he saw that the wake of human progress can disappear again into the night of sacral or auditory man. The Finn cycle of tribal institutions can return in the electric age, but if again, then let’s make it a wake or awake or both. Joyce could see no advantage in our remaining locked up in each cultural cycle as in a trance or dream. He discovered the means of living simultaneously in all cultural modes while quite conscious.”
+— Marshall McLuhan, see also “Address at Vision 65” , p. 7
+
+https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altamira-cave-drawings-of-the-entire-history-of-the-human-mind-in-terms-of-its-basic-gestures-and-postures-during-all-the-phases-of-human-culture-an/
