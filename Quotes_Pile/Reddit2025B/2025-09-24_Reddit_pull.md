@@ -4930,3 +4930,27 @@ https://old.reddit.com/r/whatisit/comments/1nt074a/decals_on_mans_truck_who_driv
 https://old.reddit.com/r/whatisit/comments/1nt074a/decals_on_mans_truck_who_drive_into_lds_church/ngqlk38/
 
 Since March 2013. ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/law/comments/1nsy39o/oregon_ag_rayfield_if_you_really_wanted_public/ngqnwlj/
+
+Fiction addictions to television shows like "The Waking Dead" sure show people have a lot of desires to shoot and wage war with people all around them. And history of Middle East / Levant religion terrorism shows this happens. Russia has been waging war against Ukraine since February 2014, a constant state of terrorism with sky bombings / rockets. Sudan situation. ... ... ...
+"I closed my eyes and said a prayer—afraid to open them in case the school had been reduced to rubble overnight. This was what terrorism felt like. In 2008 alone, the Taliban bombed two hundred schools. Suicide bombings and targeted killings were regular occurrences. Music shops closed, daughters and sisters were prevented from going to school, and during the month of Ramadan, we had no power or gas in Mingora because Fazlullah’s men had blasted the electricity grid and the gas line." - page 59, I Am Malala: How One Girl Stood Up for Education and Changed the World, Originally published August 5, 2014.
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqih25/
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqayaj/
+
+The Black Friday Thanksgiving and Christmas holidays and gift-giving / food / travel is going to be a shock for poor people, and the expensive lavish high-budget content will still be created from the wealthy. Sports stars still worshiped and next year is a huge sports year unline any in USA history... on 250th 1776 year. My number one concern is not that people will just get angry and turn, it is the lack of goodness in people's desires. People want REVENGE on MAGA and Trump, which is anti-goodness desires. IRA and CA programmed self-harm for everyone.
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqgss8/
+
+Charlie Kirk was the very name he had "Turning Point USA". The media ecology, the visuals, of a live-streaming broad-daylight live-audience rifle distance shooting was like a lighting bolt from the sky. People went into media frenzy bigger than January 6, 2021.
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqwm00/
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqedu9/
+
+https://old.reddit.com/r/news/comments/1nt1hli/clarence_thomas_says_precedent_might_not/ngqnnfe/
+
+Time is warped, reality distortion fields, recency bias / looking for the breaking news events / hight-speed media networking is driving society.
+
