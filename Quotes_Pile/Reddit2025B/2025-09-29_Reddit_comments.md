@@ -207,3 +207,27 @@ https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_sh
 
 Bible fiction bedia platform vs. Reddit media platform. Media venue Church vs. media venue subreddit.
 
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngulo6b/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Reddit, etc.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngujy96/
+
+Fiction addicts are strongly attracted to the Charlie Kirk fiction content podcast / other media. Charlike Kirk in year 2021 started a fiction media project "Turning Point Faith" built around Levant monomyth fiction storytelling.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguifzg/
+
+Reddit commenting section has very low standards of nonfiction citation, books, etc. Low-effort high-quantitty disposable addictionst to low ideals.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguksqp/
+
+Fictiona ddicts run wile create a mess when the real-world real Earth and authentic nonfiction learning gets avoided.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguhtdj/
+
+And bombs, the Taliban right-wing uses bombs on schools. And just Sunday, yesterday, a truck was used to smash a education center for fiction storytelling (Moran science fiction of Egypt).
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngufmvn/
+
+Just look at the avoidance of non-fiction on the Reddit comment section. Poople far prefer fiction.
+
