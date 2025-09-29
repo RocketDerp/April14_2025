@@ -83,3 +83,23 @@ https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_w
 
 Eterntainment vs. nonfiction is the better measure. Left vs. right people constantly confuse. Neil Postman learning is essential for all people age 12 to age 120 to address these misunderstandings. Technology of media, "the mediumn is the massage".
 
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngu0igl/
+
+The world described by Ready Player One, a virtual world of Columbus Ohio year 2040, could be a winning where climate change denial wins.
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngtzxde/
+
+For decades and decades, fake enemies have been created in video games. Elon Musk brain inplants, Electronc Arts, other companies can make fake enemies to constanty entertain the White House entertainment content creation systems.
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/nguaq54/
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngudfz4/
+
+"the last decade", controlled by an enemy nation, Russia, the Internet Research Agency since March 2013.  The self-harm agreement Trump made November 7, 2012.
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngu03pm/
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngu7cny/
+
+Putin's start... Frontline: Putin's Revenge nonfiction. https://www.youtube.com/watch?v=o2L8qINZD3Q&t=2234s
+
