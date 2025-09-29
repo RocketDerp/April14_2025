@@ -4,7 +4,7 @@ https://old.reddit.com/r/law/comments/1nr27ly/trump_freaks_out_over_comeys_defen
 
 Sequence of timing:
 
-1. Reddit servers instaly published the reply, the top part of message
+1. Reddit servers instanly published the reply, the top part of message. Uncensored at first.
 
 2. I edited my reply several minutes later to ADD more content at the bottom.
 
