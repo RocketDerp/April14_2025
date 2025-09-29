@@ -660,3 +660,8 @@ https://old.reddit.com/r/videos/comments/1ns4euz/we_warned_you_about_project_202
 
 The constant chanting for private jet white men information strip tease. PizzaGate QAnon audience.   
 https://old.reddit.com/r/bonehurtingjuice/comments/1ns3qnt/ouch_oof_my_pedofiles/
+
+&nbsp;
+
+That has been no sustained call for intelelctual arms on social media. People drown out nonfiction critical learning with nonfiction addictions and mockery. People saw MAGA form around clusters of fiction like Fox News, but no sustained focus on making Jen Senko a household name and organizing repeating the same nonfiction teachings. The high road was teaching Neil Postman and Peter P, not mocking on  meme sites for 10 years. Standing up for mocking isn't ANY high road, it is a low raod We The People took at Russia's direction.
+https://old.reddit.com/r/CringeTikToks/comments/1ntsxi6/i_fear_they_dont_know_what_fascism_is/
