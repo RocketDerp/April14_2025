@@ -5008,3 +5008,25 @@ https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creat
 
 Yes, but a Reddit comment with no link, no author name, no book title.
 
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngnwb3k/
+
+Denial abounds.
+
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngook6n/
+
+People on Reddit can't even describe Surkov / Putin techniques of domestic Russia for past 25 years. Nor can they name the "Internet Research Agency" or methods of mind mechanics.
+
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngqr0ta/
+
+People gave up on nonficiton learning on Reddit about the IRA / CA. They just ignore the topic and move on to the next /r/All kitten images and sports stars / video game topics. Context changing away the important issues of hate being normalized by the IRA since year 2013.
+
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngnu7f9/
+
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngnr3m4/
+
+"not object"... no. Wrong. People are thrilled by the exciting media coverage and symbolism of names and action. It's content creation, self-harm entertainment. People find nonfiction boring and Trump provides action thrills. People are ATRRACTED to Reddit and Bluesky to hate upon Trump White House, to mock Trump, to say poop diapers and orange skin and call him stupid / dumb / idiot. People are not attracted to learn about the IRA and CA and blame Russia. Putin won. Surkov won.
+
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngor1om/
+
+People have been thrilled with all the dumb as fuck memes on Reddit and Bluesky.
+
