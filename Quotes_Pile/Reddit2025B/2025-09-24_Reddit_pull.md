@@ -4921,3 +4921,12 @@ https://old.reddit.com/r/LivestreamFail/comments/1nsy4lb/the_owner_of_walter_whi
 
 Comment message after comment message all avoiding links / off-site content.
 
+https://old.reddit.com/r/whatisit/comments/1nt074a/decals_on_mans_truck_who_drive_into_lds_church/ngqvf4b/
+
+https://old.reddit.com/r/whatisit/comments/1nt074a/decals_on_mans_truck_who_drive_into_lds_church/ngqgucf/
+
+<img width="844" height="320" alt="image" src="https://github.com/user-attachments/assets/369768bc-9ef6-4f02-9904-e9d0b5b9ee80" /> "The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/whatisit/comments/1nt074a/decals_on_mans_truck_who_drive_into_lds_church/ngqlk38/
+
+Since March 2013. ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
