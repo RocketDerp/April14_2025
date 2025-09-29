@@ -134,3 +134,13 @@ https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_w
 
 This is how things work that go beyond labeling everything in a tiny box of "facism" from Europe. This is how Reddit community avoidance of nonfction works.
 
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngub1c4/
+
+Reddit hate track for audience. Promoting *hate harder*, which is a MAGA value of *hate harder against Americans*. That the most superficial difference in language, shallow differences of immigrants, facial differences of immigrants, should be hated. Reddit mind-fucking message.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngucbpg/
+
+Why divorce a loyal servant? The ultimate men of power who run fiction media empire of Mecca have systems of multiple wives. You shuffle them like employees to remote tasks if they aren't obeying or performing. OPERA_A Women in cages... I hear you are singing a song of the past, "great again", for many years. https://www.youtube.com/watch?v=Y3Krg8Nc69Y
+
+
+
