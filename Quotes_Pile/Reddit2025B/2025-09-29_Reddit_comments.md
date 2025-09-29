@@ -435,3 +435,16 @@ The media ecology self-awareness of everything being satire-washed and mockery-w
 https://old.reddit.com/r/MurderedByWords/comments/1ntu8a0/the_rain_is_gone_for_shannon/ngwigds/
 
 [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngvfc06/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngwmufb/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngvxfk4/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngvl35q/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngwdxa9/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngwtptg/
+
