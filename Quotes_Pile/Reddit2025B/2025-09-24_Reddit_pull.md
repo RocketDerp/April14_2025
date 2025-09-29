@@ -2572,7 +2572,7 @@ Amusement cravings constantly.
 
 https://old.reddit.com/r/pics/comments/1nr1sqf/oc_delegates_walk_out_of_the_unga_as_israeli_pm/ngbdh48/
 
-Out-group hate is very popular. See also Levant science fiction story street gangs of Quran / Torah / Bible and special phrases and language used to fight competing street gangs of science fiction stories. And to attack authentic science (nonfiction). Been going on for thousands and thousands of years. See also: "Harlan Ellison, Middle East 8000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+Out-group hate is very popular. SEE_ALSO_A See also Levant science fiction story street gangs of Quran / Torah / Bible and special phrases and language used to fight competing street gangs of science fiction stories. And to attack authentic science (nonfiction). Been going on for thousands and thousands of years. See also: "Harlan Ellison, Middle East 8000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
 
 https://old.reddit.com/r/pics/comments/1nr1sqf/oc_delegates_walk_out_of_the_unga_as_israeli_pm/ngbetdx/
 
