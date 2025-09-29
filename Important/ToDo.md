@@ -1630,3 +1630,8 @@ https://old.reddit.com/r/todayilearned/comments/1ns4ueq/til_that_mike_gipson_son
 
 Finnegans Wake ABC minded. Gator Days, "Always Be Chewing". Does Wake have Cow references?    
 https://old.reddit.com/r/comics/comments/1ntnq1a/school_paper_part_4_gator_days/
+
+&nbsp;
+
+Bus driver. Communications addiction, social media addiction, mobile media addiction.    
+https://old.reddit.com/r/IdiotsInCars/comments/1ntnjrr/my_bus_driver_on_his_personal_phone_while/
