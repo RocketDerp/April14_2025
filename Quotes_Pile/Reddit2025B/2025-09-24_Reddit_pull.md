@@ -4915,3 +4915,9 @@ Listening to nonfiction, studying nonfiction, is considered boring.  There is a 
 
 https://old.reddit.com/r/law/comments/1nsyea0/trumps_former_wh_attorney_ty_cobb_trump_wants_to/ngppn4p/
 
+https://old.reddit.com/r/LivestreamFail/comments/1nsy4lb/the_owner_of_walter_whites_house_from_breaking/ngqm4yn/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nsy4lb/the_owner_of_walter_whites_house_from_breaking/ngppv16/
+
+Comment message after comment message all avoiding links / off-site content.
+
