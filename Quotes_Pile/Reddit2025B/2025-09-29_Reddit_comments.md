@@ -159,3 +159,15 @@ https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_sh
 
 Pro-violence amusement track. Part of Russia's war against reality. To turn real human persons into screen game (video game) entertainment fodder. Moality-washing active measures on Reddit.
 
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngul5zl/
+
+Reddit audience attracted to NYC television star.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngumg7f/
+
+She is a fiction actor doing an entertainment fiction show. People don't consider actors doing fiction eterntainment to be liars, they are acting. Like Donald Trump is palying character Tony Clifton for Putin and Surkov student screenplays.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngujait/
+
+The bar of behavior is set by Truth Social, and Reddit community is competitive in winning... in hate vs. hate, hate for hate, dehumanization competition.
+
