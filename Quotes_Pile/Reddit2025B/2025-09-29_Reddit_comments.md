@@ -145,3 +145,17 @@ Why divorce a loyal servant? The ultimate men of power who run fiction media emp
 https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngucl8e/
 
 Reddit hate track for audience. Promoting *hate harder*, which is a MAGA value of *hate harder against Americans*. That the most superficial difference in language, shallow differences of immigrants, facial differences of immigrants, should be hated. Reddit mind-fucking message. Reducing women to just sex parts, a cunt, pussy that is *worn out* to men in the Reddit audience. "In his 1951 book [*The Mechanical Bride: Folklore of Industrial Man, Marshall McLuhan*](https://en.wikipedia.org/wiki/The_Mechanical_Bride) argued that industrial-age mass media created a new form of mythology by merging sex and technology. The advertising industry, in particular, used images of female "sex parts" and disconnected body parts to sell products, a process that both objectified women and reduced sex to a mechanical act."
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/nguefu3/
+
+Supeficial shallow concerns, as conditioned to spend free time and spare time. Anything to avoid nonfition learning.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngughrr/
+
+Sad thing is that Reddit comment community low-effort commenting brainrot works on people who hate upon Americans and suck down Russian IRA. Reddit can not face they are inside one of the 5,000 ARG deployed by the IRA, in a simulacra of out-group hate. ... ... ...
+“One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngujg45/
+
+Pro-violence amusement track. Part of Russia's war against reality. To turn real human persons into screen game (video game) entertainment fodder. Moality-washing active measures on Reddit.
+
