@@ -25,3 +25,11 @@ https://old.reddit.com/r/pics/comments/1ntbnjf/maga_terrorist_responsible_for_mo
 
 Humans blaming humans. Males blaming males, women afraid of males flocking to other males for protection. "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto, Marshall McLuhan
 
+https://old.reddit.com/r/pics/comments/1ntbnjf/maga_terrorist_responsible_for_mormon_church/ngsypnl/
+
+Reddit s an amusement mill, so the choice is always amusmenent washing when it comes to humanism. Not rescue, but mockery and calling it "all bots" and 3 living people, when Reddit has far reach to the technical / technology minded. Google Search landings, to technicla farmers growing food or technical video game players.
+
+https://old.reddit.com/r/pics/comments/1ntbnjf/maga_terrorist_responsible_for_mormon_church/ngsj60q/
+
+MAGA nerds vs. video game nerds vs. Reddit commenting section nerds.
+
