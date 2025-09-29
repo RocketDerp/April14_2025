@@ -335,4 +335,13 @@ https://old.reddit.com/r/memes/comments/1ntqhsu/same_as_the_owners/ngw8vuj/
 
 Providing entertainment and mass dehumanization via fiction storytelling.
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ntp0xx/treasury_secretary_reading_a_text_from_the/ngv88tq/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ntp0xx/treasury_secretary_reading_a_text_from_the/ngvacet/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ntp0xx/treasury_secretary_reading_a_text_from_the/ngvi9nq/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ntp0xx/treasury_secretary_reading_a_text_from_the/ngvm5kl/
+
+Teaching history of USA in a different way might yield some people's realization. 1) birds so abundend they became a staple of food https://en.wikipedia.org/wiki/Passenger_pigeon and then gone. 2) buffalo so abundent they bcame clothing / housing and then gone. 3) forests so abundent they provided housing and poducts, the mostly gone. 4) One-time discover of oil, a technology of drilling out that isn't going to happen again. 5) One-time discovery of Gold in 1948 in California - that isn't going to keep happening. 6) Gold in Alaska... after purchasing Alaska... that isn't going to keep happening. 7) Relevant to this post about WW2 - then the development of computer industry driven by peace. Including video games partner with Japan... huge money and wealth in using fiction storytelling on video games. a whole new one-time gain industry that didn't require a world war of violence to grow on and on for decades. 8) Recording industry of music / songs / films / TV shows. 9) Social media making some of the richest people in the world, Facebook owner. 10) Airports and transportation advances.  So many things that can't just be "easily great again", because they are now much more used up. You see changes like this with "same store sales" vs. "new store" of franchise organizations.  Many unsustinable processes not recognized or educated as such.
 
