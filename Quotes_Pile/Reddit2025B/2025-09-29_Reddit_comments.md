@@ -175,3 +175,26 @@ https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_sh
 
 Bored because the media networks are "silent" and waiting for more Q / QAnon drops.
 
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguc0ut/
+
+Cut off health care to poor and rural Americans orgnization. People can't imagine systems leveaged to serve Putin. Low qualty high-quantity comments consumption outcomes, avoidance of nonfiction learning.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguc8nn/
+
+Faith in hate. Religion where core value is hate out-groups. Toxic Clergy finds hate draws an audience. Reddit community finds hate draws an audience. Out-group hate patterns as conditioned by CA and IRA since year 2013. Russia won, Surkov won, Putin won. USA lost the war to the Saint Pete IRA.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguh3fy/
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngury99/
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguspuw/
+
+A year 1830 retcon of The Bible, in the tradition of Mohammad's year 635 retcon of The Bible.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngumsb8/
+
+Reddit comment section is a low-effort high-quantity message cult.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngupim0/
+
+Note the absence of URL links, quotes, author names, book titles, etc.
