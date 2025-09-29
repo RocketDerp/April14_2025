@@ -249,6 +249,10 @@ https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_
 
 https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_to_be_acquired/ngtlfy9/
 
-Fiction addictions of Reddit low-effort comments. Unable to cite the reality of real world non-ficiton learning. Septmber 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+<img width="1002" height="892" alt="image" src="https://github.com/user-attachments/assets/7c1a44bc-3b15-4497-892c-c04d456ce25a" /> Fiction addictions of Reddit low-effort comments. Unable to cite the reality of real world non-ficiton learning. Septmber 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_to_be_acquired/ngu1b6h/
+
+This is what Reddit commenting could be! Citations, links, nonfiction learning!
 
 
