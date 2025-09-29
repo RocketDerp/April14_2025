@@ -116,3 +116,21 @@ https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_w
 
 All self-harm to USA, domestic windmills, added oil pollution to harm children, etc.
 
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngtzmma/
+
+War against nonfiction, war against people who want to better reality and not live in fiction Fox News Nation and Truth Social fiction. Comprhension wars.
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngu39if/
+
+People keep saying that "The Dems" need Joe Rogan. That more fiction. Two polical parties of fiction in denial of nonficiton learning about Russian information warfare against reality.
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngu0li8/
+
+Superior at hate, superior at fiction, superior at killing, superior at warfare, superior at domination.
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngu1gyu/
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngu1n5q/
+
+This is how things work that go beyond labeling everything in a tiny box of "facism" from Europe. This is how Reddit community avoidance of nonfction works.
+
