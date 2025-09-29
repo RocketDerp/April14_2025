@@ -103,3 +103,16 @@ https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_w
 
 Putin's start... Frontline: Putin's Revenge nonfiction. https://www.youtube.com/watch?v=o2L8qINZD3Q&t=2234s
 
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngtysfy/
+
+Yes, and Bluesky and Reddit are centers of organize MAGA hate, organized MAGA mocking, a race to the nonfiction mocking. A race of *hate harder, mock harder*.
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngu0e54/
+
+What is worth standing up to die for more than children? Climate change denial like Greta standing up. Education denial like Malala standing up, rishing their young lives. Malala got a bullet for blogging on social media. Giving up? ... ... ...
+"Deep down in our nonviolent creed is the conviction that there are some things so dear, some things so precious, some things so eternally true that they're worth dying for. And if a man happens to be 36 years old, as I happen to be, and some great truth stands before the door of his life, some great opportunity to stand up for that which is right, he's afraid his home will get burned, or he's afraid that he will lose his job, or he's afraid that he will get shot or beat down by state troopers. He may go on and live until he's 80, but he's just as dead at 36 as he would be at 80. And the cessation of breathing in his life is merely the belated **announcement of an earlier death of the spirit. He died...** A man dies when he refuses to stand up for that which is right. A man dies when he refuses to stand up for justice. A man dies when he refuses to take a stand for that which is true." - March 8, 1965
+
+https://old.reddit.com/r/WorkReform/comments/1ntj3wh/the_right_wing_won_can_we_win_our_country_back/ngu93fh/
+
+All self-harm to USA, domestic windmills, added oil pollution to harm children, etc.
+
