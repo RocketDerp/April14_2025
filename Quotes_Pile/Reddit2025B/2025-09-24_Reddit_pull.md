@@ -4988,6 +4988,23 @@ Reddit comment section played a huge role in hyper-banality no-identity trash di
 
 https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngo48zh/
 
-People abandoned nonfiction, found it boring. Not amusing or entertaining.  <img width="930" height="760" alt="image" src="https://github.com/user-attachments/assets/07fdf194-5971-4ba7-a20c-4de76ff85a28" />
+People abandoned nonfiction, found it boring. Not amusing or entertaining.
+"Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, page 56, February 28, 1966 <img width="930" height="760" alt="image" src="https://github.com/user-attachments/assets/07fdf194-5971-4ba7-a20c-4de76ff85a28" />
 Trump speaks to a society that the Russian Internet Research mind-fucked into comments like this on Reddit. Low-effort Trump ideas. Shallow and superficial. Self-harm the USA by avoiding nonfiction serous books and content. The same reason all news outlets / journalists have abandoned serious topics in favor of entertainment. This is described forty years ago in Neil Postman's 1985 book "Amusing Ourselves To Death" about vibe politics of vibe President Ronald Reagan / Entertainment first. Fiction first. ... ... ... "it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World. ” Big Brother turns out to be Howdy Doody." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985 OPERA_A It is Tim Finnegan who has further to Fall, the Finnegans Wake Revival https://youtu.be/JRfuAukYTKg?t=90
+
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngojrz0/
+
+What's new is Internet Research Agency and ability to create 5,000 channels with Cambridge Anlytica doctors. Since March 2013.
+
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngpbc31/
+
+Reddit comment audience seems afraid of nonfiction learning about Russian information warfare since year 2013.
+
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngojru2/
+
+A nonfiction learning, not entertainment.
+
+https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngpoisa/
+
+Yes, but a Reddit comment with no link, no author name, no book title.
 
