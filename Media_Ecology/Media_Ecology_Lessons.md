@@ -675,3 +675,12 @@ https://old.reddit.com/r/pranks/comments/1ntjkmi/throwback_picture_prank/
 This lesson: what do actresses and actors do as children to become famous? Are there patterns in USA over many decades showing children fleeing to New York City to make it in theater? Children who run away to California to try and get on television shows or films?
 
 https://old.reddit.com/r/okbuddycinephile/comments/1ntosr4/welcome_back_harvey_weinstein/
+
+&nbsp;
+
+### Morality preaching, remedial morality
+
+Standing up to your audience.
+
+https://old.reddit.com/r/comedy/comments/1ntu0p9/david_cross_shares_his_feelings_on_the_comedians/
+
