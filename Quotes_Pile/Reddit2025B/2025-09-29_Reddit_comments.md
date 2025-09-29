@@ -165,9 +165,13 @@ Reddit audience attracted to NYC television star.
 
 https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngumg7f/
 
-She is a fiction actor doing an entertainment fiction show. People don't consider actors doing fiction eterntainment to be liars, they are acting. Like Donald Trump is palying character Tony Clifton for Putin and Surkov student screenplays.
+She is a fiction actor doing an [entertainment fiction show](https://www.npr.org/2020/09/29/917747123/you-literally-cant-believe-the-facts-tucker-carlson-tells-you-so-say-fox-s-lawye). People don't consider actors doing fiction eterntainment to be liars, they are acting. Like Donald Trump is palying character Tony Clifton for Putin and Surkov student screenplays.
 
 https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngujait/
 
 The bar of behavior is set by Truth Social, and Reddit community is competitive in winning... in hate vs. hate, hate for hate, dehumanization competition.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntkqy1/karoline_leavitt_says_shooter_just_hated/ngub751/
+
+Bored because the media networks are "silent" and waiting for more Q / QAnon drops.
 
