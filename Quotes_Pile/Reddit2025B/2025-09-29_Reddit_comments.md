@@ -406,5 +406,25 @@ https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_pub
 
 Huge quanitities of low-effort commenting is what people desire.
 
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngwrs4h/
 
+The golf course banality of evil. “Evil comes from a failure to think. It defies thought for as soon as thought tries to engage itself with evil and examine the premises and principles from which it originates, it is frustrated because it finds nothing there. That is the banality of evil.” ― Hannah Arendt, Eichmann in Jerusalem: A Report on the Banality of Evil. In Israel.
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngvulhx/
+
+yes. Reality itself going away. Russia burned Reality since year 2013, and since year 2022 ChatGPT the media addicts flock to the billoinares who joined in with the War Against NonFiction.
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngvs1bp/
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngvydx0/
+
+Wealthy can buy building-leveling bombs. And plan golf courses and resorts. Reddit audience flocks to bling bling wealth sports teams / racing teams. Amusing Ourselves to Death instead of listening to the hippies and Woodstock 1969 uprising of getting on the same page that world peace isn't OPTIONAL. Technology of weapon systems keep advancing, our love for one another is REDUCING. Hate is now popular on Reddit and people can't even name the Internet Research Agency.
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngwe7mm/
+
+Reminder: October 7 is Putin's Birthday. Reddit does not resist hate messages, faith in hate itself and mocking itself. The IRA and CA mind-fucked everyone, second-hand smoke spreading too. Malala has been gray-rocked by social media societies.
+
+https://old.reddit.com/r/MapPorn/comments/1ntrca4/trumps_gaza_withdrawal_map_published_by_the_white/ngwcne0/
+
+Donald Trump has made name-calling the means to world dominaton power. Wake the fuck up that entertainment Trump wins all. Neil Postman 1985 book!
 
