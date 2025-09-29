@@ -640,3 +640,11 @@ Is this video a repost, did the person on Reddit record the video or is it a rep
 
 https://old.reddit.com/r/PiratedGames/comments/1npb0n8/pay_respect_everyone/
 
+&nbsp;
+
+### Parents feed handed down
+
+Your parents choose your housing location, your school feed, your Mosque or Church feed. The collected assembly of stories known as the Torah / Quran / Bible / Upanishads / etc. People favor fiction poetry passed down from elders / grandparents / parents to child.  
+
+https://old.reddit.com/r/CuratedTumblr/comments/1ntfmud/differences_in_algorithms/
+
