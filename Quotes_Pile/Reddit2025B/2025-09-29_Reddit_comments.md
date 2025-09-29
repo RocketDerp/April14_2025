@@ -260,3 +260,16 @@ https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_
 https://old.reddit.com/r/news/comments/1nth043/video_game_maker_electronic_arts_to_be_acquired/ngue09z/
 
 Forgot, recency bias abounds. The IRA and CA mind-fucked everyone since year 2013.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngufz7n/
+
+Out-group hate patterns. CA and IRA.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/nguoifv/
+
+Fiction addiction subreddit vs. fiction addiction subreddit. Reddit vs. Reddit media ecology.
+
+https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_shooter_just_hated/ngumvij/
+
+A Reddit comment with citation links!
+
