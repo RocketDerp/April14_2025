@@ -297,3 +297,12 @@ https://old.reddit.com/r/politics/comments/1ntky7t/karoline_leavitt_says_maga_sh
 
 This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/popculturechat/comments/1ntin10/jk_rowling_comments_on_emma_watson_in_lengthy_x/ngu04py/
+
+We ALL need to be support Malala's movement to give young girls their own ability to decide who exploits them and now. Be it young actresses being exploited for film profit off fiction monomyth storytelling of Harry Pottern, Taliban elders exploitng for wives using Quran monomyth fiction storytelling, etc.
+
+https://old.reddit.com/r/popculturechat/comments/1ntin10/jk_rowling_comments_on_emma_watson_in_lengthy_x/ngtyy1w/
+
+https://old.reddit.com/r/popculturechat/comments/1ntin10/jk_rowling_comments_on_emma_watson_in_lengthy_x/ngu1gdt/
+
+"WILD AS FUCK" mind-blowing monomyth pattern arrangement. Exactly what Harry Potter language creator has mastered with social media audiences. Monomyth mindfuck OpCodes from John 1:1 and even earlier than John 1:1
