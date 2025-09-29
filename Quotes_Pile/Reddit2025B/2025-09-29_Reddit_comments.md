@@ -19,5 +19,9 @@ So entertained at the situations.
 
 https://old.reddit.com/r/pics/comments/1ntbnjf/maga_terrorist_responsible_for_mormon_church/ngsprh9/
 
-Reddit / Twitter / Bluesky / World News. "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - Univesity of Toronto, Marshall McLuhan
+Reddit / Twitter / Bluesky / World News. "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto, Marshall McLuhan
+
+https://old.reddit.com/r/pics/comments/1ntbnjf/maga_terrorist_responsible_for_mormon_church/ngsrdro/
+
+Humans blaming humans. Males blaming males, women afraid of males flocking to other males for protection. "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - University of Toronto, Marshall McLuhan
 
