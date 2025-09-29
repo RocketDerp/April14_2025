@@ -448,3 +448,9 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_whil
 
 https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngwtptg/
 
+Cambridge Analytica, Russia, Trump, Musk, and RFK Jr are exploitng all this. Rule by stress. Stress lords. People fragmenting to stress of I.C.E. and nonsense chaos.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngvqb56/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngvxac1/
+
