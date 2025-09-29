@@ -317,5 +317,22 @@ Posting dehumanizing him as a "pug dog", and them calling him a machine. Reddit 
 
 https://old.reddit.com/r/memes/comments/1ntqhsu/same_as_the_owners/ngvlpr7/
 
-What an interesting concept. The reason Ameericans flock to trump is to have Tony Clifton acts to make fun of. Eating the Surkov Onion.
+<img width="880" height="392" alt="image" src="https://github.com/user-attachments/assets/740ec00a-6269-4e01-bfa3-2375f31f0441" /> In a democcracy, "We The People" are "The Boss". We can protest and beg our elected representatives every 4 hours sutained and call for impeachment (but we do not, instead LOL amusement mills want fresh images). What an interesting concept. The reason USA voters and non-voters alike flock to Trump is to have Tony Clifton acts to make fun of. Eating the Surkov Onion.
+
+https://old.reddit.com/r/memes/comments/1ntqhsu/same_as_the_owners/ngw83yx/
+
+Cravings for mocking are what the IRA and CA dug deep into, exploiting the mind. The ELIZA effect of computer systems audiences who blow their minds out at amusing images and crave entertainment above sincere and honest leadership signals.
+
+https://old.reddit.com/r/memes/comments/1ntqhsu/same_as_the_owners/ngw3d3i/
+
+Reddit audience members crying out for more content, more images, addicted to the mockery.
+
+https://old.reddit.com/r/memes/comments/1ntqhsu/same_as_the_owners/ngw79xe/
+
+Addicts to fiction crying out in public desires for even more fiction leadershp and content. When fed fiction from Truth Social and White House, the conditioned reaction is always more fiction.
+
+https://old.reddit.com/r/memes/comments/1ntqhsu/same_as_the_owners/ngw8vuj/
+
+Providing entertainment and mass dehumanization via fiction storytelling.
+
 
