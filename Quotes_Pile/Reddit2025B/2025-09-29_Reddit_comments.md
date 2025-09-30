@@ -1084,3 +1084,38 @@ https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_t
 
 The X Files... "I WANT TO.... Believe!". The Church science fiction... "1 John 4:20" veerse in Bible.... *I want to See God*.  Hamlet's Ghost, I want to believe!  McDonald's We Want you to Lovee an It and not learn Bible verse "1 John 4:20" meaning of "Love".
 
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1wx7n/
+
+Putin has high voter turnout. Everybody votes.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1peqx/
+
+And everybody flocks to Reddit to mock "Daddy" and "Daddy Issues", not grasping or leaerning coparative mythology details of science fiction storytelling. Kremlin Surkov monomyth ficton taken over Reddit.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1r5iu/
+
+People can't keep eye on the enemy ball. People still can't connect that self-harm to USA for Putin is the only consistent pattern of behavior back to Moscow Masterof Ceremony training in November 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1kw2g/
+
+People can't see the anti-morality, the stress, the lording of stress, the chaos stress, the hate stress that has been cooking the USA. Demoralized USA, attacking Canada and Greenland, letting it go on since June 2015 on the world stage. https://en.wikipedia.org/wiki/Yuri_Bezmenov
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1ug43/
+
+Internet Research Agency and Cambridge Analytica outcomes. August 24, 2018 story that everyone on Reddit ignores: https://www.bbc.com/news/world-us-canada-45294192 Putin won, Russia won, Surkov won. USA lost and still is self-harming.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1ryr6/
+
+Messages on Reddit that the physical brain is at fault. Morality-washing responsibility for harmng people. Genetically dispostioned to join the Taliban and blow up schools like Malala described in her book. Geneticsc cause Putin to attack Ukraine. Not education systems, parenting with fiction storytelling, anti-science, anti-goodness media like Russia Today or Fox News, blaming anything but Reddit content consumption for believing fiction.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1kzv6/
+
+August 24, 2018 story that everyone on Reddit ignores: https://www.bbc.com/news/world-us-canada-45294192 
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1iloq/
+
+Normalizing the situation, denial abounds.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1kld6/
+
+<img width="1058" height="550" alt="image" src="https://github.com/user-attachments/assets/9b8825a7-42d4-46be-84a9-3273c0b8803f" /> One person calling out the amusement-washing LOL-washing Reddit messaging has been doing for over a decade around Trump.
