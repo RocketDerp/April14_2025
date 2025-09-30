@@ -470,3 +470,15 @@ https://old.reddit.com/r/illinois/comments/1ntt4pk/pritzker_in_any_other_country
 
 "They" is Putin and Trump and others using Surkov govening. They want you captivated on Reddit going LOL LOL LOL they so dumb as conditioned since year 2013.
 
+https://old.reddit.com/r/popculturechat/comments/1ntrhi4/ariana_grandes_very_true_ig_story_post_that/ngw0442/
+
+https://old.reddit.com/r/popculturechat/comments/1ntrhi4/ariana_grandes_very_true_ig_story_post_that/ngwaskg/
+
+https://old.reddit.com/r/popculturechat/comments/1ntrhi4/ariana_grandes_very_true_ig_story_post_that/ngwef88/
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1ntwnnu/fearless_bartender_meets_uninterested_crowd/ngwvdal/
+
+Seems like an ideal way to injur both an employee and a customer. But I also point out that what people do with automobiles at bars/taverns I've seen in USA is far worse. The casual drunk driving.
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1ntwnnu/fearless_bartender_meets_uninterested_crowd/ngwwyzv/
+
