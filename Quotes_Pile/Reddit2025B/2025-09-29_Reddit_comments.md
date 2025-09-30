@@ -1265,3 +1265,17 @@ https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_natio
 
 Bourbon isn't selling well to Canada, that's an emergency! And you thought I had no sense of humor. I do reacall a January 1, 2025 terrorist attack in New Orleans prior to the Super Bowl. And we just had a Flint, Michigan truck terror attack. BBC world news of New Orleans: https://www.bbc.com/news/topics/c5y40z916y9t
 
+https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2i4gr/
+
+OPERA_A I was there at Jazz Festival the year of this recording in the Paul Simon audience, so... https://www.youtube.com/watch?v=tzA_2ohzn8s  153 views March 31, 2022 
+
+https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2jak1/
+
+https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2gyoc/
+
+Insane... mass mind insantiy. Mob mentality insanity.
+
+https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2wus5/ 
+
+Crazy... mass mind crazy. Mob mentality crazy.
+
