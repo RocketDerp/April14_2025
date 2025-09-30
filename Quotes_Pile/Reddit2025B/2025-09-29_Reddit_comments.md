@@ -852,5 +852,16 @@ https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_reddit
 
 Deniaal of reality. Gets positive attention, flocking to the Mosque and Church and Toxic Clergy for thousands of years. Out-group hate patterns. This Reddit message shows a fialure of learning comparative mythology and media ecology. Hate sells, hate motivates. Putin and Trump concentrate wealth and power via hate message via digital media networks, HDTV inclusive.
 
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngztx3r/
 
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzi6qs/
 
+The consequence is you are world famous and admired by many for killing and murdering in wild society group-think. Many people find sports teams mentality attractive and teach their children. So far, I can't find much teaching that "mob mentality" is bad and we need fire drills to respond to emergency outbreaks of "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzjjci/
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngznlxz/
+
+"Ends (Goals) Justify the means", but the absence of cittion / quote / author name / book title, something outside Reddit...
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzgsa4/
