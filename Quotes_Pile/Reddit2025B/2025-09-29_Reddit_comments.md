@@ -1243,3 +1243,25 @@ https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_
 
 High quantitty bias / addiction. Recency bias / addiction to staying away fromm the same important life-saving topics of nonfiction.
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1nunsn0/whats_the_joke_here_peter/nh2ntje/
+
+Stone tablets. Metaphor to metaphor, languages come in many ways on the Tower of Babel climb. OPERA_A It's all rocks to me, all metaphors lyrics to me. All Finnegans Wake to me... https://www.youtube.com/watch?v=5eAQa4MOGkE
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1nunsn0/whats_the_joke_here_peter/nh2v44m/
+
+Sex between people is rather crazy. People think using another language is "crazy". Dialog intercourse  of interchanging symbols crazy vs sexual intercourse crazy.
+
+https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2gxxz/
+
+https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2jcro/
+
+Reddit feels more and more imporatant when they honor Truth Social content conventions of name-calling people.
+
+https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2j7v7/
+
+... insert commentary here
+
+https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2fyyu/
+
+Bourbon isn't selling well to Canada, that's an emergency! And you thought I had no sense of humor. I do reacall a January 1, 2025 terrorist attack in New Orleans prior to the Super Bowl. And we just had a Flint, Michigan truck terror attack. BBC world news of New Orleans: https://www.bbc.com/news/topics/c5y40z916y9t
+
