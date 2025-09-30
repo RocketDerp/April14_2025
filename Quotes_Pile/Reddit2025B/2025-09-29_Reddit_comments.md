@@ -1198,5 +1198,48 @@ Reddit low-effort trash disposable content has driven the USA into accepting the
 
 https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2yhkx/
 
-When people prize high quanities of memes. From the **nonfiction public library section***  ... ... ...
+When people prize high quanities of memes. From the **nonfiction public library section**  ... ... ...
 "What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. **I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985, page 174
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh27vxy/
+
+No links, no author names, no book titles, no quotes. Just extremely low-effort commenting that the society is addicted to.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2b2p5/
+
+Bingo! no sources no articles, attraction to disposable commenting.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2cic0/
+
+Trash low-effort litters the world, people churning out Bluesky and Reddit comments to do ANYTHING to avoid the nonfiction section of the public library and focused sustained learning of important topics. That's what CA and IRA conditioend since Q2 2013. Addiction to self-harm mindsets.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2mdo7/
+
+You shouldn't ignore "nobody on the Internet", you should learn what goodness means. Morality lessons of good from band and stop flocking to bad. Flocking to Donald Trump on Reddit constantly. Mocking Trump is not resisting Putin. Mocking Trump is not resisting Tony Clifton style performances and mind exploits.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2cp7v/
+
+The article made the front page of Reddit. A candian, Marshall McLuhan home land, who can't describe media ecology of a "feedback loop". That's what Cambridge Analytica did to minds, endlessly looping and flocking to hate messages form Putin / Trump.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2hdz8/
+
+Profit... yha, Putin is wrecking the USA into attacking Greenland and Canada with mind-fuck, and you can't see that the IRA or name the IRA ... OPERA_A the man in the busienss suit just purcahsed a new Tesla car with the dreams he mind-fucked you into. https://www.youtube.com/watch?v=vDGorIWYz-A
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2rf9z/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) 
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh26m6t/
+
+Where are the non rubbish comments? I can't find many in the constant ocean of avoidance of the nonfiction public library section.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2rm24/
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh29ecn/
+
+"pretty dumb thing" to avoid the nonfiction section of the public library and read year 2014 books about Russina information warfare. And even if you read them in year 2014, you didn't keep your eye on the ball.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2lwh7/
+
+High quantitty bias / addiction. Recency bias / addiction to staying away fromm the same important life-saving topics of nonfiction.
+
