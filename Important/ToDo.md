@@ -1638,4 +1638,10 @@ https://old.reddit.com/r/IdiotsInCars/comments/1ntnjrr/my_bus_driver_on_his_pers
 
 &nbsp;
 
+Normalizing hate in the family.   
 https://old.reddit.com/r/CuratedTumblr/comments/1ntu04k/sibling_experience/
+
+&nbsp;
+
+Concerns of Finnegans Wake, languages, Tree Tower of Babel   
+https://old.reddit.com/r/todayilearned/comments/1nuad0d/til_an_african_parrot_named_apollo_has_been/
