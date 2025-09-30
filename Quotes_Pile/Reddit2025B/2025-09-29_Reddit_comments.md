@@ -621,3 +621,15 @@ https://old.reddit.com/r/technology/comments/1ntrdg0/reddit_mods_sued_by_youtube
 
 https://old.reddit.com/r/technology/comments/1ntrdg0/reddit_mods_sued_by_youtuber_ethan_klein_fight/ngwpft6/
 
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyfgsb/
+
+Reddit posting title "Fact Check" has no meaning, sports mentality of "MURDERED by Words!" is trash. The Reddit comment section allows multiple links and lengthy quotes, but the "education" people get is no-identity comment attraction. Super Bowl is a brain-damage sports (I worked on private staff for team owner who even runs a brain institution that avoids the topic). The anti-Wikipedia attitudes  of Trump-like conversational bullshitting messages instead of refinement and prizing of *we all have the freedom to educate and teach and get on the same page of important non-entertainment topics* instead of the freedom to  charm and manipulate other people into admiring Trump and Putin with amusement-washing and entertainment-washing that what the world neeeds now is every mind full of conflicting "education".
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngz6a7n/
+
+Putin Media Invasion, which Russia claims Trump himself agreed via Twitter November 7, 2012 - has wreckend minds to avoid education / nonfiction leaning of important topics.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngywwhy/
+
+ChatGPT does better, anti-human. Finnegans Wake language should be shoved up every English writing person's  ass until their Ears bleed, HCE. Queue / cue / Q Anon mind-fuck bullshit English Executive Function rapid-guessing Read / Reed / Reeling in the Years Tower of Babel implosion. OPERA_A Reeling in the metaphors, Finnegans Wake, brain sex rumor Epstein List of Earwicker's libedo Dublin sins. My Civic Ditty, English Language, Weekend at the University of Dublin. The things people pass for *Knowledge*.... about the Babel Towers of NFL Bilionare Hunger Games ... https://www.youtube.com/watch?v=91XTZ92zs2w
+
