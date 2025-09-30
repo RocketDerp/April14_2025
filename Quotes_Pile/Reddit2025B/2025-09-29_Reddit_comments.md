@@ -948,3 +948,21 @@ https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_stat
 
 The Fox News cult cheeers, the Reddit message cheers and mocks at how terrible Tony Clifton is, without learnign about Andy Kaufman the writer. People go on and on about how terrible Trump is asn actor on stage, without leanring anything nonficiton about Surkov's students / Surkovian writers.
 
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0lvg7/
+
+"The People In Power", is *We, The People*, but Reddit doesn't want to stop wasting free time and spare time commenting with low-effort and organize fighting back against Russia.
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0lz6a/
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0puqp/
+
+Yes, I remember when the Reddit commenting media / social media humor-washed and amusement-washed and entertainment-washed serious situations and kept on discussing sports games, video game releases, fiction films / fiction TV shows.
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh13y0n/
+
+I remember when stories about the IRA get posted on Reddit, and people just keep on gong back to their fiction entertainment.
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0klzl/
+
+Minds blown as they are constantly by Trump messaging. Tony Clifton award goes to Donald J. Trump for the best ever super star in all world history. OPERA_A If they only had mass TCP/IP communications in Israel back then. https://www.youtube.com/watch?v=SKicGSYSwKY
+
