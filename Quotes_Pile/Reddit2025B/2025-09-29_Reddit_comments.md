@@ -579,3 +579,21 @@ https://old.reddit.com/r/Fauxmoi/comments/1ntxtbg/author_and_journalist_tanehisi
 
 https://old.reddit.com/r/Fauxmoi/comments/1ntxtbg/author_and_journalist_tanehisi_coates_speaks/ngxgpax/
 
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngwifn8/
+
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngx4j9h/
+
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngx6z9j/
+
+...
+
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngwmj9t/
+
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngwt1r7/
+
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngx051p/
+
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngwli31/
+
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngx8c8r/
+
