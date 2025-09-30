@@ -570,3 +570,12 @@ https://old.reddit.com/r/news/comments/1ntwctt/youtube_to_pay_245_million_to_set
 https://old.reddit.com/r/news/comments/1ntwctt/youtube_to_pay_245_million_to_settle_2021_lawsuit/ngx4ves/
 
 https://old.reddit.com/r/news/comments/1ntwctt/youtube_to_pay_245_million_to_settle_2021_lawsuit/ngxj4y5/
+
+https://old.reddit.com/r/news/comments/1ntwctt/youtube_to_pay_245_million_to_settle_2021_lawsuit/ngxo1wt/
+
+https://old.reddit.com/r/news/comments/1ntwctt/youtube_to_pay_245_million_to_settle_2021_lawsuit/ngx7zdc/
+
+https://old.reddit.com/r/Fauxmoi/comments/1ntxtbg/author_and_journalist_tanehisi_coates_speaks/ngxcy9m/
+
+https://old.reddit.com/r/Fauxmoi/comments/1ntxtbg/author_and_journalist_tanehisi_coates_speaks/ngxgpax/
+
