@@ -1650,3 +1650,8 @@ https://old.reddit.com/r/todayilearned/comments/1nuad0d/til_an_african_parrot_na
 
 The popular toxic clergy teachings that you MUST hate the non-believers, you must hate people who change from one religion to another. You MUST HATE, MANDATORY HATE, of ex-lovers.  Shocking to pepole to see that some people find hate to be toxic.   
 https://old.reddit.com/r/MadeMeSmile/comments/1nued45/they_both_got_divorced_but_they_cant_stop_vibing/
+
+&nbsp;
+
+ARG content? Steely dan Home At Last? Tied to the Smartphone on Github?   
+https://old.reddit.com/r/CuratedTumblr/comments/1nub0yn/just_give_me_a_quest/
