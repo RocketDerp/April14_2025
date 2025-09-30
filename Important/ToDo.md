@@ -1655,3 +1655,8 @@ https://old.reddit.com/r/MadeMeSmile/comments/1nued45/they_both_got_divorced_but
 
 ARG content? Steely dan Home At Last? Tied to the Smartphone on Github?   
 https://old.reddit.com/r/CuratedTumblr/comments/1nub0yn/just_give_me_a_quest/
+
+&nbsp;
+
+American Pie lyrics in comments     
+https://old.reddit.com/r/interesting/comments/1nuhpce/farmer_drives_trucks_loaded_with_dirt_into_levee/
