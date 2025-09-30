@@ -817,3 +817,40 @@ https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_reddit
 
 Reddit is heavily avoidant of the nonfiction section of the public library. Nonfiction vs. fiction is often a better measure than left vs. right.
 
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzj371/
+
+The topics of Finnegans Wake by James Joyce. Media ecology self-awareness to brain flaws in people regarding tone / voice / style / singsong.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzk443/
+
+The often parroted Reddit commenting: Denial of the Russian IRA invading Reddit since Q2 of year 2013. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzew99/
+
+Cramming every problem into left vs. right is bewildering. Nonfiction vs. fiction. Addiction to fiction includes Church / Mosque fictin venues. Fox News fiction venue.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzg9pv/
+
+Dogpiled with Reality A vs. Rality B. Alternate universes. All avoiding nofiction learning of media ecology from Neil Postman and learning nonfiction about Surkov governing methods of Russia for past 25 years. ... ... ...
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzkmf0/
+
+Messages and communictions of "I hate black people skin color" is popular with people who prize hate.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzm1x0/
+
+The White Houe Truth Social is not "the real world", denial of reality of media ecology. Fiction rules the real world, Putin Trump use Surkov fiction monomyth patterns.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzmtgy/
+
+Yes. Hear hear!
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzpxyo/
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzh2vs/
+
+Deniaal of reality. Gets positive attention, flocking to the Mosque and Church and Toxic Clergy for thousands of years. Out-group hate patterns. This Reddit message shows a fialure of learning comparative mythology and media ecology. Hate sells, hate motivates. Putin and Trump concentrate wealth and power via hate message via digital media networks, HDTV inclusive.
+
+
+
