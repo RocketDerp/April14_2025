@@ -633,3 +633,47 @@ https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngywwhy/
 
 ChatGPT does better, anti-human. Finnegans Wake language should be shoved up every English writing person's  ass until their Ears bleed, HCE. Queue / cue / Q Anon mind-fuck bullshit English Executive Function rapid-guessing Read / Reed / Reeling in the Years Tower of Babel implosion. OPERA_A Reeling in the metaphors, Finnegans Wake, brain sex rumor Epstein List of Earwicker's libedo Dublin sins. My Civic Ditty, English Language, Weekend at the University of Dublin. The things people pass for *Knowledge*.... about the Babel Towers of NFL Bilionare Hunger Games ... https://www.youtube.com/watch?v=91XTZ92zs2w
 
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyoijk/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyr10c/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngzajtp/
+
+Note the abscence of link, quote, book title, author name. Millions and millions of comments on different pages, no rally points of getting on the same page of important understandings of what is sinking the ship, the forest for the trees. The addiction to commenting... can I illustrate the futile nature of it with my own no-audience commenting on comments?
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyt66y/
+
+A characteristic of fanatic media consumers is ...origin of the art .... as Finnegans Wake illustrates this. Nobody is going to get that 1992 Neil Postman reference. One chactersitic of recorded song consumers is... “One characteristic of those who live in a Technopoly is that they are largely unaware of both the origins and the effects of their technologies.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyzuav/
+
+She invaded our minds with earworms, Here Comes Everybody.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngz9hdq/
+
+Hey, I'mi all for Reddit talk around the water cooler, personal stories, but when do we ever become serious about the Putin Media Invasion? When do we stand up to poor Bible Literacy that can't find "1 John 3:17" and mention it every time Musk and Trump name come up on every media system and in-person oral conversation?
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyflsv/
+
+Guns to the face, cheering on Twitter trash content and Reddit comments. OPER_A Marshall McLuhan has a quote about the artists and the enema, cache meetaphor clearing. https://www.youtube.com/watch?v=FvqhJskzj2U
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyizsl/
+
+This is almost reaching comedic relief instead of mocking and hate. Alas, no call for rally to rescue MAGA. do people think those that avoid facts / nonfiction section of the libirary about Russian informaton warfare are "winning"? Is ignorance winning? Cue Neil Postman 1985 quote on Ignorance taken for Knowledge.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyl7zb/
+
+Reddit "they" care more about millions of comments than getting on the same page when it's clear thenation is drowning in conflicting mindsets. Give UP on personal thinking and address the Mass Mind. Putin invaded the Mass Mind, no defense was found. We need to deal with the static on Reddit that ChatGPT and other machines have been trained on now. Feedback loops and amplifiers built too strong for the human mind. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyjnju/
+
+The nonfiction learning about the IRA is "too woke" for Reddit
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngz1vb7/
+
+Hence why I, Stephen Alfred Gutknecht, GitHub my brain damage and know without an audience, what's the point of editing? Finnegans Wake is already there on the bookshelf, May the 4th be with you, 1939. What's the point of any communications when the Kremin owns everyone to hate? WHen people choose the adventure of Bible poetry for 2,000 years and can't cite Romans 11:32 to the face of clergy? When "1 John 3:17" can't be repeated and repeated and repeating in the face of Musk and Trump and Putin? OPERA_A “If one man can destroy everything, why can't one girl change it?”― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban https://www.youtube.com/watch?v=9HOPw9yM9pc
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyqj2a/
+
+If everything is ass-backwards, when do you stand up for humanism, when do you education teach priority blah blah blah blah?
+
