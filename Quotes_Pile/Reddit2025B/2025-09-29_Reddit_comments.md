@@ -974,3 +974,45 @@ https://old.reddit.com/r/politics/comments/1nud28h/pete_hegseth_tells_top_genera
 
 The Bible is science fiction, Trump provides fiction storytelling.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh03avq/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh0azgs/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh02hmo/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh03p85/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh0rkm0/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh0257o/
+
+For Reddit audiences, who eat it up, as they have Putin's mockery since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh03tm5/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh04cf6/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh0nffa/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh0ypt8/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh05lbk/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh0h6s8/
+
+Did my Arab Spring tour in Africa and Middle East wher I observed social media fiction additcs abuse nonfiction. Same years Malala was blogging in Pakistan about nonfiction being attacked.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh08o1z/
+
+Outcomes of Cambridge Analytica and IRA since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh0bpns/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh02nxa/
+
+Weak as standing up for 4Chan comment shit and avoiding degending against the IRA and CA.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nucnvr/defense_secretary_pete_hegseth_delivering_remarks/nh03zk2/
+
+Peace is a joke to Reddit, "whirled peas" amusement-washing away warfare and Ukraine invasion since 2014.
+
