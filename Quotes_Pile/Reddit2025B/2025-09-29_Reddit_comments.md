@@ -499,3 +499,37 @@ Stress lords dehumanizing via messaging, emotion, peer pressure. OPERA_A https:/
 
 https://old.reddit.com/r/Wellthatsucks/comments/1ntwear/staycation_they_call_it/ngwtq13/
 
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwj0j5/
+
+Social media users could have had "serious days" and "serious hours" when the Fox News issue was a clear and present danger. A year 2015 film project wad made by a "The Little Guy", a Baby Boomer stood up. Aired family dirty laundry about fiction hate taking over. Jen Senko stood up with a REAL NAME, not no-identity social media, and the last no-identity social media users could have done was keep repeating it every 3 days on "SERIOUS HOUR". https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwr3ed/
+
+Cult of WHAT? Cult of media. Jesus is dead, The Bible cult of a story still goes on. Cults of messages are Quran terorrism, we learned nothing from 9/11 about fiction addiction to science fiction Mohammad storytelling. Why aren't social media users having SERIOUS HOUR when the cult was obvious, turning to NONFICTION BOOKS in the public library and teaching them on social platforms? Origining around cult deprogramming? QAnon "Q" ha no leater, a pure myth synbol!
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwhbge/
+
+Wealth Worship Network by an immigrant billionare. Not just USA, across the world Murdoch mass dehumanization messaging.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwv56x/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwi498/
+
+Society flocks to crazy. RFK Jr mockery, Trump mockery, Putin won, Surkov won. People are in extreme denial how much behaviors have changed since year 2013. ... ... ...
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwnn7f/
+
+COVID-19 self-harm.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwyblg/
+
+No ability to cite books, author names, quotes. The Internet Research Agency. Avoidance of nonfiction has wrecked the USA. ... ... ... 
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, page 85. **year 2019**
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwhtnf/
+
+This book is esential to start eaching cult deprogramming of media cults. ... ... ...
+" What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information--misplace, irrelevant, fragmented or superficial information--information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
