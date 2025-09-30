@@ -719,3 +719,23 @@ https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_reddit
 
 That's Romans 11:32, (SEE_ALSO_A James Joyce 1132)... that God is an all=powerful authority who makes rules, then forces his creation (us people on Earth) to break the rules. That's what Romans 11:32 paradox is describing, this Reddit commenting in modern non-poetic language. 
 
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzvs27/
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzcs7o/
+
+Drinking the same fiction storytelling, media addiciton Flavor-Aid.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzuagx/
+
+Why don't Bluesky and Reddit social media users stand up and make "1 John 3:17" Bible verse a constant repeating repeating repeat topic every 6 hours until every person age 12 to age 120 can apply it to Donald Trump? 2,000 year ago citation, long long long before Germany "Karl Marx" conditioend responses?
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzr15o/
+
+Bible is science fiction (outer space angels). What you describe... Yes, that's the famous scene in Star Wars 1977!! Use your Gut. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ... JOSEPH CAMPBELL: The thing to do is learn to live in your period of history as a human being. That’s something else, and it can be done. BILL MOYERS By doing what? CAMPBELL: By holding to your own ideals for yourself and, like Luke Skywalker, rejecting the system’s impersonal claims upon you. BILL MOYERS: When I took our two sons to see Star Wars, they did the same thing the audience did at that moment when the voice of Ben Kenobi says to Skywalker in the climactic moment of the last fight, “Turn off your computer, turn off your machine and do it yourself, **follow your feelings, trust your feelings.”** And when he did, he achieved success, and the audience broke out into applause. CAMPBELL: Well, you see, that movie communicates. It is in a language that talks to young people, and that’s what counts. It asks, Are you going to be a person of heart and humanity—because that’s where the life is, from the heart—or are you going to do whatever seems to be required of you by what might be called “intentional power”? When Ben Kenobi says, “May the Force be with you,” he’s speaking of the power and energy of life, **not of programmed political** intentions.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzeda5/
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzfw5a/
+
+We have a massive gap, all inclusive everyone, in our literacy. Bible is science fiction, and the metaphors translate to Star Wars 1977 film, but people don't know metaphor translations. Hamlet's Ghost is Force Ghost, Angels, etc. ... ... ...
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
