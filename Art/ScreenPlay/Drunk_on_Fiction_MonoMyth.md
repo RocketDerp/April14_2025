@@ -17,7 +17,7 @@ Our world has grown to where we can't remake it...
 
 ## Do you ever feel?
 
-We The People have to come together over Neil Postman's 1985 book. Own the Subconsions Night of Finnegans Wake, James Joyce 1924 onward...
+We The People have to come together over Neil Postman's 1985 book. Own the Subconsions Night of Finnegans Wake, James Joyce year 1924 streaming onward...
 
 https://www.youtube.com/watch?v=QGJuMBdaqIw
 
@@ -25,6 +25,8 @@ https://www.youtube.com/watch?v=QGJuMBdaqIw
 
 ## "Wake Woke", Joyce Wake / Woke!
 
-Tim Finengans found Him / He on the Concrete.... 
+Tim Finengans found Him / He on the Concrete.... Born Again.  
+
+The Story is not over now, the story iterates! Finnegans Wake Iterates.
 
 https://www.youtube.com/watch?v=k0BWlvnBmIE
