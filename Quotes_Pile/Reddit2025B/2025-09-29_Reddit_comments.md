@@ -782,5 +782,19 @@ Quotations instead of off-the-cuff commenting. But it's levels deep where people
 
 https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngziz72/
 
-One sentence had a mistake, so throw the baby and bathwater all out.
+One sentence had a mistake, so throw the baby and bathwater all out. If people stood up for common ground, Wikipedia / Wiki systems, you would edit the mistake and address it with contributions of improving the progress of humanity, even unborn children. But the competition to wreck the future has taken hold since Cambridge Analytica programming was deployed on Reddit since Q2 2013.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzm6ms/
+
+Casual dehumaniation or The ELIZA effect? 
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzon23/
+
+This Reddit comment is saying: on the long-format message of non-identity... context switching of mindsets does not happen? People do not grasp media ecology. Twitter doesn't allow long-form commenting to unpaid users. Bluesky does not allow long-form commenting. Reddit does.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzonas/
+
+Hate gets you an audience on Reddit, Trump image and Trump quotes are being shared on Reddit all the time. Hate is popular. Nobody seems to notice or call out that popularity itself has become toxic since the IRA invaded Reddit Q2 2013 onward.
+
+
 
