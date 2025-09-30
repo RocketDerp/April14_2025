@@ -930,3 +930,12 @@ https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_stat
 
 People can't speak out that hate is bad.  We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md). Stop acting like hate is ejoyable, hate is not fun. Face the truth of hate. Have Pale Blue Dot pride, human species learning from errors pride.
 
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0me5b/
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0jarz/
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0mqti/
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0mu8t/
+
+"not taken seriously enough" - just like the ocean of low-effort commenting isn't recognized as a problem. Amusemnet-washing Trump for MORE THAN TEN YEARS AND THREE MONTHS on Reddit. Satire-washing, humor-washing. Eating the Tony Clifton performance and mcoking back at how terrible Tony Clifton dresses and how he is a fat slob who sings off-key. ... ... ... “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
