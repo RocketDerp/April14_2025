@@ -898,3 +898,35 @@ https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_stat
 
 "they do not care", they care and put labor into weapon delivery. Such denial on Reddit. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0rl2j/
+
+This Reddit comment is describing Tony Clifton performances. The Reddit audience eats it up saying how Tony Clifton is doing this and that. Entirely ignorant of Andy Kaufman and Vlad Surkov.
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0l3j9/
+
+"it is insane". Cries for help. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0lthg/
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0kzuf/
+
+I've been sick of, mentally sick, of the Reddit comment section avoiding nonfiction learning of Russian information warfare since year 2015 when it became obvious that people had embraced the fiction takeove of USA that was ongong. September 9, 2014 story being ignored and people not aserting and repeating what was important to defend NATO and USA from: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0k5fy/
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0kxss/
+
+People love ignroance and declare they love it. Satire-washing and attracted to fiction and misunderstandings.
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0jjav/
+
+Note the absence of quote, date, title of article or book, links, etc. OPERA_A https://www.youtube.com/watch?v=zCsBAxBSaXI 18,705 views February 20, 2025
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0joh1/
+
+It's what you do in a Tony Clifton performance. Tony Clifton walks out on stage late, declares he is the must beautiful man ever to walk the Earth. And the audience goes into mental shock and eats it up. Then Tony Clifton declares he is smarter than all other people and that 2 plus 2 is actually 9. People cheer and hand over money and come back for more and more Tony Clifton performances.  That's the Reddit community audience.
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0kzjl/
+
+People can't speak out that hate is bad.  We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md). Stop acting like hate is ejoyable, hate is not fun. Face the truth of hate. Have Pale Blue Dot pride, human species learning from errors pride.
+
