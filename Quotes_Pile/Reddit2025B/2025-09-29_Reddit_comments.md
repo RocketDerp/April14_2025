@@ -1151,5 +1151,16 @@ https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_d
 
 Denial that it's been LOUDLY screamed for over a decade. Recency bias. Unable to recall yesterday or the Charlie Kirk September speeches.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1k62g/
+
+You can come to understand if you look outside the USA. Study the Middle East / Levant cults of monomyth male Allah and male Jesus ruling the world and judging people. Study Putin and Russia with an eye on Surkov techniques. Learn how cults work, media cults. Study Neil Postman.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh2434i/
+
+You can show them all you want, they won't comprehend it. You have to sustain focus and not just give low-effort disposable Reddit comments for 10 years. Start with Bible literacy of verse "1 John 3:17" and get every person in USA age 12 to age 120 on the same page (page "1 John 3:17") how it dfines *love* and how *love* is not what Elon Musk and Trump are showing.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1ltdj/
+
+He is a good leader for self-harm of the nation, compusively being addicted to chase memes into self-harm fires. This is what Americans are willing to die for, LOL amusement of Tony Clifton acting.
 
 
