@@ -1279,3 +1279,7 @@ https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_natio
 
 Crazy... mass mind crazy. Mob mentality crazy.
 
+https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2gt1q/
+
+I met muy wife Tristan at a live NOLA crawfish resturant (in North Dallas, Nate's), she was my waitress on a Saturday morning.
+
