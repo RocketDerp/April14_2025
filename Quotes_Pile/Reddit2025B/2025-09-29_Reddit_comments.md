@@ -490,3 +490,12 @@ https://old.reddit.com/r/Music/comments/1ntuh9a/nicole_kidman_and_keith_urban_ha
 
 The superficial and shallow values. People who can't stand up to call for end of all hate and end of all war, because... so engaged measuring which performer fits "their type". Generative artificial intelligence is what all the billionares are investing in. To put "filters" on content and rewrite people. No need to deal with ugly imperfect humans when you can have an A.I. do your egoism just as you like it. ... ... ... 
 Texan Rick Roderick, Duke Univesity, 1993: "whether you are talking about, ah, the sexual act which could be simulated either through, you know, repetitive pornographic films or in a very near future it will be able to be simulated with virtual reality where you will wear a full body suit and, ah, **make love to your ego ideal** thus making it pointless to, ah, search out all the Freudian implications. You could just pick your ego ideal, punch it into the laser beam program, slip into the virtual reality suit thus rendering that relation, even that intimate relation – sexual relation – **technological**" - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/Music/comments/1ntuh9a/nicole_kidman_and_keith_urban_have_separated/ngwu8ab/
+
+https://old.reddit.com/r/Wellthatsucks/comments/1ntwear/staycation_they_call_it/ngwtj53/
+
+Stress lords dehumanizing via messaging, emotion, peer pressure. OPERA_A https://www.youtube.com/watch?v=XA1LJ3blITU
+
+https://old.reddit.com/r/Wellthatsucks/comments/1ntwear/staycation_they_call_it/ngwtq13/
+
