@@ -796,5 +796,24 @@ https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_reddit
 
 Hate gets you an audience on Reddit, Trump image and Trump quotes are being shared on Reddit all the time. Hate is popular. Nobody seems to notice or call out that popularity itself has become toxic since the IRA invaded Reddit Q2 2013 onward.
 
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzhk26/
 
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzsm70/
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzo71a/
+
+Or men or women or whatever... who get married and suddenly the person they *claimed* they loved more than all other people on Earth is the most hated ex, you meet them saying how important it is to hate their ex and their children should prize hate. Toxic Clergy teachings. That hate is to be prized.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzhov3/
+
+The fiction commenting section where the nonfiction section of the public library is avoided at all cost in favor of massive quantities of disposable commenting messages. Welcome to Reddit where there is a failure of media ecology to learn about the IRA and failure to learn that this pattern of behavior is not limited to Reddit. It even happens on HDTV networks that are not Reddit. Alternate realities. The game Putin has mastered in warfare / meme warfare. ... ... ...
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzqbw6/
+
+Fiction outsells nonfiction. American politics provides pictures and images. Entertainment POTUS.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzm2s6/
+
+Reddit is heavily avoidant of the nonfiction section of the public library. Nonfiction vs. fiction is often a better measure than left vs. right.
 
