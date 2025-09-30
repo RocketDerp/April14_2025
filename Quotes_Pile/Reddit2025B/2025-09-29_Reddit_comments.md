@@ -561,3 +561,5 @@ https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thous
 
 Reddit messaging laugh track, LOL-trck for amused audience engagement.
 
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngx6ols/
+
