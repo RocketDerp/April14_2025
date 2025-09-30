@@ -662,7 +662,7 @@ https://www.themediumisthemassage.com/joyce-is-in-the-wake-making-his-own-altami
 
 &nbsp;
 
-#### Media ecology of recorded images
+### Media ecology of recorded images
 
 Humanity did not have recorded images. Look at how people behave toward children and young people, the shock and turning away from people outside their current comfort zone.
 
@@ -670,7 +670,7 @@ https://old.reddit.com/r/pranks/comments/1ntjkmi/throwback_picture_prank/
 
 &nbsp;
 
-#### Popularity Trafficing, People Trafficing
+### Popularity Trafficing, People Trafficing
 
 This lesson: what do actresses and actors do as children to become famous? Are there patterns in USA over many decades showing children fleeing to New York City to make it in theater? Children who run away to California to try and get on television shows or films?
 
@@ -686,9 +686,9 @@ https://old.reddit.com/r/comedy/comments/1ntu0p9/david_cross_shares_his_feelings
 
 &nbsp;
 
-### Metaphors Unleashed!
+#### Metaphors Unleashed!
 
-I am a published author / expert on oeprating systems. IBM OS/2 books, several. I was both an author and technical editor.
+I am a published author / expert on opeatipng systems. IBM OS/2 books, several. I was both an author and technical editor. IBM appointed me as an OS/2 Ambassor for social media activites, Gold, highest level.
 
 Metaphors used to explain concepts. Tower of Babel topics. Finnegans Wake James Joyce messages.  
 
