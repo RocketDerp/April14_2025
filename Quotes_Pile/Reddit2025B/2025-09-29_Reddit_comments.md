@@ -1076,3 +1076,7 @@ https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_t
 
 People can't tell that Trump is playing Tony Clifton and study Surkov students either.
 
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh2ax5x/
+
+My brothers Jeff and Jon are not age 12, and they are older than me and I've known them my whole life and they blindly trust Vlad Putin.
+
