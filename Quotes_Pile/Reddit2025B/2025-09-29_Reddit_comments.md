@@ -1080,3 +1080,7 @@ https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_t
 
 My brothers Jeff and Jon are not age 12, and they are older than me and I've known them my whole life and they blindly trust Vlad Putin.
 
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh276vx/
+
+The X Files... "I WANT TO.... Believe!". The Church science fiction... "1 John 4:20" veerse in Bible.... *I want to See God*.  Hamlet's Ghost, I want to believe!  McDonald's We Want you to Lovee an It and not learn Bible verse "1 John 4:20" meaning of "Love".
+
