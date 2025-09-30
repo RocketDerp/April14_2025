@@ -1635,3 +1635,7 @@ https://old.reddit.com/r/comics/comments/1ntnq1a/school_paper_part_4_gator_days/
 
 Bus driver. Communications addiction, social media addiction, mobile media addiction.    
 https://old.reddit.com/r/IdiotsInCars/comments/1ntnjrr/my_bus_driver_on_his_personal_phone_while/
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1ntu04k/sibling_experience/
