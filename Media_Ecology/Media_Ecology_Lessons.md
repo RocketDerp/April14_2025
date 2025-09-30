@@ -684,3 +684,27 @@ Standing up to your audience.
 
 https://old.reddit.com/r/comedy/comments/1ntu0p9/david_cross_shares_his_feelings_on_the_comedians/
 
+&nbsp;
+
+### Metaphors Unleashed!
+
+I am a published author / expert on oeprating systems. IBM OS/2 books, several. I was both an author and technical editor.
+
+Metaphors used to explain concepts. Tower of Babel topics. Finnegans Wake James Joyce messages.  
+
+https://old.reddit.com/r/ProgrammerHumor/comments/1nuajyf/howtokillachild/
+
+"Turned one year old in September. Happy Birthday!
+
+ Indiana - Fort Wayne    41/3 
+
+Fort Wayne OS/2 User Group
+Contact - Stephen Gutknecht
+Fort Wayne, Indiana
+Meets -  Central Soya on Cook Rd.
+Meets -  7pm, 2nd Tuesday
+Phone -  Voice -- (219) 484-0062 (Bus. Hrs.)
+Phone -  BBS  -- (219) 471-3918"
+
+http://files.mpoli.fi/unpacked/software/os2/texts/mm1193.zip/nov93.txt
+
