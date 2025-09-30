@@ -597,3 +597,17 @@ https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_
 
 https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngx8c8r/
 
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngwo2rh/
+
+https://old.reddit.com/r/politics/comments/1nttpny/were_being_ruled_over_by_the_worlds_biggest_losers/ngxedpo/
+
+https://old.reddit.com/r/politics/comments/1ntgwx5/anyone_with_courage_has_to_acknowledge_trump_isnt/ngthcmt/
+
+https://old.reddit.com/r/politics/comments/1ntgwx5/anyone_with_courage_has_to_acknowledge_trump_isnt/nguog95/
+
+https://old.reddit.com/r/politics/comments/1ntgwx5/anyone_with_courage_has_to_acknowledge_trump_isnt/ngti7be/
+
+https://old.reddit.com/r/politics/comments/1ntgwx5/anyone_with_courage_has_to_acknowledge_trump_isnt/ngu6p0j/
+
+https://old.reddit.com/r/politics/comments/1ntgwx5/anyone_with_courage_has_to_acknowledge_trump_isnt/ngtx4uk/
+
