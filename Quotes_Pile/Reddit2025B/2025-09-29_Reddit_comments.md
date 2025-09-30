@@ -693,3 +693,29 @@ https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngylbbp/
 
 Racism is popular. Competting over nation-flag status is popular. competting over songs is popualr. Competing over Reddit messaging is popular. Pouplarity is toxic. I dread that what I should be doing is editing and organizing the information on this GitHub. Quantity over quality.... but I'm trying to make a point. Not mocking, not satire, desperation. Absolute desperation that I don't have to walk out into a Earth where people prize dunking on others, insulting and hate, more than leaving good seeds to grow on Wikipedia or secondary Wiki systems with expanded topic focuses beyond Wikipedia's editorial concern. Why aren't we connecting ALL information of 8 plus billion people? Why can't we see the common good, goodness itself, and even TRY to climb the tower of Babel? We are drowning in toxic popularity of our own programming. Reddit is only 20 years old, people still alive can remember before the iPhone in year 2007. Why do we think this is better? Trump is better? Why aren't we asking for *same page*, 1985 book "Amusing Ourselvs To Death". September is ending now, and even in SEPTEMBER a huge media system of Time Magazine reminded us - that's enough. Get on the same fucking page. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzd9z5/
+
+Subreddit vs. Subreddit. Fiction vs. nonfiction. Refinement Wikipedia vs. disposable commenting.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzl1gt/
+
+"Wait for it", media cults. Subreddit filter-bubble egomania cults. People who meet in public and find they are in agreement because they all watched Fox News last night together independently, but not so indpeendent content. Same with people who meet in the same hour of the same comment section on Reddit, but tomorrow it won't be the same filter bubble people. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md). Russia crafted 5,000 of them and deployed them on Reddit since Q2 2013. USA didn't stand a chance. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzx29h/
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzq2eg/
+
+You don't have to hate your enemy. You have to become a teacher and preacher. Nothing supernatural about being a preacher who goes around speaking words. John 1:1  
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzlzcs/
+
+Cramming everything into left vs. right.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzed6f/
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzgyt2/
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzsal6/
+
+That's Romans 11:32, (SEE_ALSO_A James Joyce 1132)... that God is an all=powerful authority who makes rules, then forces his creation (us people on Earth) to break the rules. That's what Romans 11:32 paradox is describing, this Reddit commenting in modern non-poetic language. 
+
