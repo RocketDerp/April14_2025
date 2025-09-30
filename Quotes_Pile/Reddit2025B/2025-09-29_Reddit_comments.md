@@ -1267,7 +1267,7 @@ Bourbon isn't selling well to Canada, that's an emergency! And you thought I had
 
 https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2i4gr/
 
-OPERA_A I was there at Jazz Festival the year of this recording in the Paul Simon audience, so... https://www.youtube.com/watch?v=tzA_2ohzn8s  153 views March 31, 2022 
+OPERA_A I was there at Jazz Festival 2006 the year of this recording in the Paul Simon audience, so... https://www.youtube.com/watch?v=UwNYK9KULks
 
 https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_national_guard/nh2jak1/
 
