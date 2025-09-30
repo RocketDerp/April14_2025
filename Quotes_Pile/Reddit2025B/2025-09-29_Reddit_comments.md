@@ -1283,3 +1283,15 @@ https://old.reddit.com/r/news/comments/1nuno2j/louisiana_governor_asks_for_natio
 
 I met muy wife Tristan at a live NOLA crawfish resturant (in North Dallas, Nate's), she was my waitress on a Saturday morning.
 
+https://old.reddit.com/r/HumorInPoorTaste/comments/1nunp8g/hooah/nh2fuas/
+
+Trump and Putin lead the USA with fiction since year 2013, and everyone follows with fiction. Fiction vs. fiction.
+
+https://old.reddit.com/r/HumorInPoorTaste/comments/1nunp8g/hooah/nh2lucu/
+
+This made the front page of Reddit...
+
+https://old.reddit.com/r/HumorInPoorTaste/comments/1nunp8g/hooah/nh2hyot/
+
+Believes the Tony Clifton performance of Trump White House is real, doesn't care about fake, about sums up the Russian win of War Against Reality described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
