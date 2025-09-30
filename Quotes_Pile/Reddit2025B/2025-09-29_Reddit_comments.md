@@ -880,3 +880,21 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1nuc9jk/what_does_this_mean_why
 
 Someone on the serious topics of what is actually wrecking the USA!
 
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0k3t6/
+
+The low-effort Reddit snark comment, amusement-washing the serious situation. This is what got upvoted to the top of the page of comment sections at the time I amw riting this comment. USA is a ***Total Mockery*** of mocking back and forth with Trump the circus ringleader of social media / media systems / mainstream media / all media.
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0ow9t/
+
+President Tony Clifton acting, the Surkov govening methods of Russia. The Reddit audience compusively mocks how terribe and bad Tony Clifton is - without learning anything about the nonfiction Andy Kaufman. Eating the Surkovian onions.
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0qnzi/
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0qhug/
+
+We "liberals', sent-identifying in binary of liberal vs. conservative logic. I'll tell you what I say as a person thinking in terms of fiction vs. nonfiction, the USA is addicted to mocking and insulting bullshit, over and over. Instead of going to the public library and learning nonfiction about the Internet Reseach Ageny and Cambridge Analytica and waking the fuck up how brains are epxloited and that Russian defeated the USA in a thinking mindsets war.
+
+https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_states_cities_san/nh0qhug/
+
+"they do not care", they care and put labor into weapon delivery. Such denial on Reddit. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
