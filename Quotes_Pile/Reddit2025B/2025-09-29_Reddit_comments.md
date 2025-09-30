@@ -454,3 +454,19 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_whil
 
 https://old.reddit.com/r/TwoXChromosomes/comments/1nto7i0/i_expelled_an_iud_while_cramping_at_an_er_in/ngvxac1/
 
+https://old.reddit.com/r/illinois/comments/1ntt4pk/pritzker_in_any_other_country_if_federal_agents/ngw8fef/
+
+Stress lords. Rule by stress. Nonstop unpredictable wild events.
+
+https://old.reddit.com/r/illinois/comments/1ntt4pk/pritzker_in_any_other_country_if_federal_agents/ngwv5xl/
+
+me, egomania.
+
+https://old.reddit.com/r/illinois/comments/1ntt4pk/pritzker_in_any_other_country_if_federal_agents/ngwhfzr/
+
+People living in huge denial of what has happened since year 2013. It isn't starting, it's been ongoing. Ignoring the nonfiction learning of the Ukraine war, despite it being in the news, nobody learning details about the Internet Research Agency. Not keeping eye on a lifelong enemy, Russia. Not keeping eye on the ball. Focused instead on LOL LOL LMAO how dumb Trump is playing Tony Clifton, amused the nation away for over a decade.
+
+https://old.reddit.com/r/illinois/comments/1ntt4pk/pritzker_in_any_other_country_if_federal_agents/ngwrfin/
+
+"They" is Putin and Trump and others using Surkov govening. They want you captivated on Reddit going LOL LOL LOL they so dumb as conditioned since year 2013.
+
