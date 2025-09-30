@@ -872,3 +872,11 @@ https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_reddit
 
 Resposne to messaging saying education has been bad.
 
+https://old.reddit.com/r/ExplainTheJoke/comments/1nuc9jk/what_does_this_mean_why_is_there_some_random_guy/nh05w2g/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nuc9jk/what_does_this_mean_why_is_there_some_random_guy/nh0lan9/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nuc9jk/what_does_this_mean_why_is_there_some_random_guy/nh0pfb2/
+
+Someone on the serious topics of what is actually wrecking the USA!
+
