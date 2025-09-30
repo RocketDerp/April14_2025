@@ -563,3 +563,10 @@ Reddit messaging laugh track, LOL-trck for amused audience engagement.
 
 https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngx6ols/
 
+https://old.reddit.com/r/news/comments/1ntwctt/youtube_to_pay_245_million_to_settle_2021_lawsuit/ngx1ls6/
+
+https://old.reddit.com/r/news/comments/1ntwctt/youtube_to_pay_245_million_to_settle_2021_lawsuit/ngx2ae1/
+
+https://old.reddit.com/r/news/comments/1ntwctt/youtube_to_pay_245_million_to_settle_2021_lawsuit/ngx4ves/
+
+https://old.reddit.com/r/news/comments/1ntwctt/youtube_to_pay_245_million_to_settle_2021_lawsuit/ngxj4y5/
