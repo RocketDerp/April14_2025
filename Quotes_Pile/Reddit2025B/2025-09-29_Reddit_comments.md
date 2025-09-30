@@ -677,3 +677,19 @@ https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyqj2a/
 
 If everything is ass-backwards, when do you stand up for humanism, when do you education teach priority blah blah blah blah?
 
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyr4yu/
+
+I no longer believe simple ideas that reading is important if the reading population only cares to defeat other human beings with knowledge. The 1954 Equation is more important prioirty. Elon Musk taking over knowledge systems with Grok AI and Twitter to defeat humanity and anti-Wikipedia https://www.theguardian.com/commentisfree/2023/oct/23/why-is-elon-musk-attacking-wikipedia-because-its-very-existence-offends-him
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngytv1z/
+
+Look at the screenshot source. Look at the competitive race to be the first to make a low-effort comment in public. Look at NFL sports owners, wealthy, providng Tricke Down Entertainment shows and how audiences of Reddit flock to the brand-name sports and brand-name music.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngyjkpw/
+
+There is nothing human beings who flock to Reddit comment sections about low-effort screenshots of social media posts ... wanting huge quanitites of disposable comments in the face of a nation under siege by trash information. Or something ike that, what is the fucking point of any of this, English itself, drown myself in language metaphors, Tower of Babel meaning.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nu3w8z/fact_check/ngylbbp/
+
+Racism is popular. Competting over nation-flag status is popular. competting over songs is popualr. Competing over Reddit messaging is popular. Pouplarity is toxic. I dread that what I should be doing is editing and organizing the information on this GitHub. Quantity over quality.... but I'm trying to make a point. Not mocking, not satire, desperation. Absolute desperation that I don't have to walk out into a Earth where people prize dunking on others, insulting and hate, more than leaving good seeds to grow on Wikipedia or secondary Wiki systems with expanded topic focuses beyond Wikipedia's editorial concern. Why aren't we connecting ALL information of 8 plus billion people? Why can't we see the common good, goodness itself, and even TRY to climb the tower of Babel? We are drowning in toxic popularity of our own programming. Reddit is only 20 years old, people still alive can remember before the iPhone in year 2007. Why do we think this is better? Trump is better? Why aren't we asking for *same page*, 1985 book "Amusing Ourselvs To Death". September is ending now, and even in SEPTEMBER a huge media system of Time Magazine reminded us - that's enough. Get on the same fucking page. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
