@@ -865,3 +865,10 @@ https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_reddit
 "Ends (Goals) Justify the means", but the absence of cittion / quote / author name / book title, something outside Reddit...
 
 https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzgsa4/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1nuc9jk/what_does_this_mean_why_is_there_some_random_guy/ngzzoco/
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/nh0r0xc/
+
+Resposne to messaging saying education has been bad.
+
