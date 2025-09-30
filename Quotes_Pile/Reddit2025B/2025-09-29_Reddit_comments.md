@@ -1119,3 +1119,12 @@ Normalizing the situation, denial abounds.
 https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1kld6/
 
 <img width="1058" height="550" alt="image" src="https://github.com/user-attachments/assets/9b8825a7-42d4-46be-84a9-3273c0b8803f" /> One person calling out the amusement-washing LOL-washing Reddit messaging has been doing for over a decade around Trump.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1m66b/
+
+They were paid, given money, praised. Denial abounds. Fox News does not bribe their audience, people PAY MONEY to the sponsors of Fox News. People pay subscrition fees to Cable TV services. Donald Trump is the most charming entertainer in all human history and Reddit society eats up the Tony Clifton President acting.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1iypb/
+
+Satire-washing to the situation. Trump provides every comedian material for their popularity.
+
