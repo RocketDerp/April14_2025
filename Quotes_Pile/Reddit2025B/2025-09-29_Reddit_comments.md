@@ -545,3 +545,19 @@ https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thous
 
 Note the absence of quotes, book titles, author names, links.
 
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwn8bj/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwt005/
+
+Exactly what they want out of the audience. LOL stupor mental state.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngwx87c/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngx0842/
+
+Satire-washing, everything Fox News does is entertainment. Reddit audience thrilled to call everyone else dumb and stupid while creating low-effort disposable comments. Spending free time and spare time on Reddit with comments to drown out serious nonficiton learning of Russian information warfare / Kremlin defeat of USA society since year 2013 using "War Against Reality".
+
+https://old.reddit.com/r/CringeTikToks/comments/1ntuime/fox_falsely_claims_thousands_of_fans_wore_charlie/ngx1vov/
+
+Reddit messaging laugh track, LOL-trck for amused audience engagement.
+
