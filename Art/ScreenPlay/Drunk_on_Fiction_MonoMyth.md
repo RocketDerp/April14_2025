@@ -4,7 +4,7 @@ https://old.reddit.com/r/scotus/comments/1nubm15/drunk_with_power_author_tells_h
 
 &nbsp;
 
-### The Discovery of MonoMyth Srings
+### The Discovery of MonoMyth Strings
 
 Musical strings, the discovery of John 1:1 Bible Verse, String Pulling of Memes.  
 The discovey of the "1 John 4:20" Bible vese crisis of the Levant. Have not seen fiction character God.    
