@@ -1034,3 +1034,45 @@ Peace is a joke, "whirled peas" amusement-washing away warfare and Ukraine invas
 
 https://old.reddit.com/r/law/comments/1nuiw7h/and_if_you_dont_like_what_im_saying_you_can_leave/nh1h4vu/
 
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh28zaa/
+
+Nightmare world. People who claim that they are not what they consume, fund, vote for, upvote. Donald Trump has proven this isn't just "the Internet", and why I devoted my time to the Arab Spring since December 16, 2009 and traveled to Algeria December 2, 2010. Detachment from language, detamchment from their religion itself, despite claiming siad religion or said marriage vows and said children are the most important thing. If children are what parents love so much, voting for Donald Trump to deceive you and wreck all education systems of all the people your children will encounter is a self-harm aginast humanity. Wasn't this quote set in a school scene? “History, Stephen said, is a nightmare from which I am trying to awake.” ― James Joyce, Ulysses
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh2d57p/
+
+"All the world’s a stage, And all the men and women merely players; They have their exits and their entrances; And one man in his time plays many parts" - https://www.poetryfoundation.org/poems/56966/speech-all-the-worlds-a-stage
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh21i9y/
+
+FinWakeIndraNet ....
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh22lml/
+
+... Finnegans Wake Indra's Net of Gems ....
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh25gnx/
+
+I worked my way up to the Billionaire's private staff in Bellevue, Washington in 1997. I had everything I needed to research as I desired in my office. The things I saw....
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh22t5b/
+
+Remedial morality 330?
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh22pjr/
+
+The Experience Music Project, Bellevue, Washington research and development
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh237ev/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh26a38/
+
+Putin. https://www.nbcnews.com/world/russia/trump-putin-russia-ukraine-war-ceasefire-talks-zelenskyy-turkey-rcna207903
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh23ip6/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh24j85/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nult6m/kais_clip_farmers_are_trying_to_drown_this/nh29i25/
+
+People can't tell that Trump is playing Tony Clifton and study Surkov students either.
+
