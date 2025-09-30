@@ -966,3 +966,11 @@ https://old.reddit.com/r/law/comments/1nuerng/trump_declaring_war_on_united_stat
 
 Minds blown as they are constantly by Trump messaging. Tony Clifton award goes to Donald J. Trump for the best ever super star in all world history. OPERA_A If they only had mass TCP/IP communications in Israel back then. https://www.youtube.com/watch?v=SKicGSYSwKY
 
+https://old.reddit.com/r/politics/comments/1nud28h/pete_hegseth_tells_top_generals_prepare_for_war/nh11f0w/
+
+Reality has to be assert to Reddit users, they disassociate from reality in their fiction addictions.
+
+https://old.reddit.com/r/politics/comments/1nud28h/pete_hegseth_tells_top_generals_prepare_for_war/nh13363/
+
+The Bible is science fiction, Trump provides fiction storytelling.
+
