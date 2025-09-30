@@ -482,3 +482,11 @@ Seems like an ideal way to injur both an employee and a customer. But I also poi
 
 https://old.reddit.com/r/nextfuckinglevel/comments/1ntwnnu/fearless_bartender_meets_uninterested_crowd/ngwwyzv/
 
+https://old.reddit.com/r/Music/comments/1ntuh9a/nicole_kidman_and_keith_urban_have_separated/ngwgse0/
+
+ToDo: mine this thread for famous people with excellent communications skills, wealth, no housing problems, tons of people willing to listen to their problems... who stil can't live the metaphors of eternity of marriage. Parenitng / children? Choice marriage topis. 
+
+https://old.reddit.com/r/Music/comments/1ntuh9a/nicole_kidman_and_keith_urban_have_separated/ngww8ck/
+
+The superficial and shallow values. People who can't stand up to call for end of all hate and end of all war, because... so engaged measuring which performer fits "their type". Generative artificial intelligence is what all the billionares are investing in. To put "filters" on content and rewrite people. No need to deal with ugly imperfect humans when you can have an A.I. do your egoism just as you like it. ... ... ... 
+Texan Rick Roderick, Duke Univesity, 1993: "whether you are talking about, ah, the sexual act which could be simulated either through, you know, repetitive pornographic films or in a very near future it will be able to be simulated with virtual reality where you will wear a full body suit and, ah, **make love to your ego ideal** thus making it pointless to, ah, search out all the Freudian implications. You could just pick your ego ideal, punch it into the laser beam program, slip into the virtual reality suit thus rendering that relation, even that intimate relation – sexual relation – **technological**" - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
