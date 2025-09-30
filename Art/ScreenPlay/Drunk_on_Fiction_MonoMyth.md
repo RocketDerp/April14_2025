@@ -30,3 +30,11 @@ Tim Finengans found Him / He on the Concrete.... Born Again.
 The Story is not over now, the story iterates! Finnegans Wake Iterates.
 
 https://www.youtube.com/watch?v=k0BWlvnBmIE
+
+### Oops, The Fall of Mankind Interates ...
+
+If we don't wake the fuck up, it keeps iterating.
+
+Ooops, He Did It Again, He Romans 11:32 us All again...   
+
+https://www.youtube.com/watch?v=CduA0TULnow
