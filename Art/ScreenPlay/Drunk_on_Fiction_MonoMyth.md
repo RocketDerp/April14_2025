@@ -10,3 +10,21 @@ Musical strings, the discovery of John 1:1 Bible Verse, String Pulling of Memes.
 The discovey of the "1 John 4:20" Bible vese crisis of the Levant. Have not seen fiction character God.    
 
 Where do they lead? John 1:1   https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s
+
+Our world has grown to where we can't remake it...
+
+&nbsp;
+
+## Do you ever feel?
+
+We The People have to come together over Neil Postman's 1985 book. Own the Subconsions Night of Finnegans Wake, James Joyce 1924 onward...
+
+https://www.youtube.com/watch?v=QGJuMBdaqIw
+
+&nbsp;
+
+## "Wake Woke", Joyce Wake / Woke!
+
+Tim Finengans found Him / He on the Concrete.... 
+
+https://www.youtube.com/watch?v=k0BWlvnBmIE
