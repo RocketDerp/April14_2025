@@ -739,3 +739,48 @@ https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_reddit
 
 We have a massive gap, all inclusive everyone, in our literacy. Bible is science fiction, and the metaphors translate to Star Wars 1977 film, but people don't know metaphor translations. Hamlet's Ghost is Force Ghost, Angels, etc. ... ... ...
 “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzlr0w/
+
+Winning by direct conversation instead of engaging the Wikipedia public library to cite organized learning and teachings. 
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzdrjc/
+
+Mass mind (Howard Bloom terminology), Mass Man (Marshall McLuhan term)
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzyjpu/
+
+Genocide MAGA culture seems popular in year 2025.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzqphi/
+
+Every group but my immediate subreddit is bad. Wikipedia is bad. Public library nonfiction section is bad.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzmhrv/
+
+We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). Technology of genocide alone keeps advancing and with over 8 bill people we are crowding into common greed.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzndit/
+
+Competition to avoid the nonfiction section of the public library in favor of low-effort massive quanitites of commenting.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzktxc/
+
+don't mix ideas from two subreddits.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzwquu/
+
+Twitter is account-specific, like following a Reddit login, filter-bubble. Reddit is more like Usenet in following topics / hashtags.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzgdn1/
+
+My fiction is better than your fiction storytelling. Yet, the shift away from nonfiction is a self-harm to all humanity in a world educated to believe competing with fiction is what matters most. Everything a bamboozle, every sign a trick, every message intended to turn you into entertainment to mock on camera. Everything a prank. Russia pranking Ukraine. Tryuing to out-smart other humans into death.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngzsesf/
+
+Quotations instead of off-the-cuff commenting. But it's levels deep where people will move on to the next topic change / mental context change and not focus on landing on 1985 book by Neil Postman titled "Amusing Ourselves To Death' that discusses Donald Trump / Second Term President that Entertains.
+
+https://old.reddit.com/r/science/comments/1nu94z4/moral_tone_of_rightwing_redditors_varies_by/ngziz72/
+
+One sentence had a mistake, so throw the baby and bathwater all out.
+
