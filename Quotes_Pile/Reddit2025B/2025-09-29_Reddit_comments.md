@@ -1295,3 +1295,12 @@ https://old.reddit.com/r/HumorInPoorTaste/comments/1nunp8g/hooah/nh2hyot/
 
 Believes the Tony Clifton performance of Trump White House is real, doesn't care about fake, about sums up the Russian win of War Against Reality described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/PublicFreakout/comments/1nuqmpl/sen_ted_cruz_how_about_we_all_come_together_and/nh33fk0/
+
+Social media audience amusement track, laugh-track, LOL messaging. Entertained constantly by antics politics.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nuqmpl/sen_ted_cruz_how_about_we_all_come_together_and/nh344mj/
+
+Fiction addicts will die for fictions storytelling. "No bottom" to fiction addiction behaviors of Fox News audience, Reddit audience. The avoidance of nonfiction learning about Russian Surkov methods abounds. People willing to die for monomyth storytelling patterns. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ... BILL MOYERS: But how does one worship a metaphor, love a metaphor, die for a metaphor?
+JOSEPH CAMPBELL: That’s **what people are doing all over the place — dying for metaphors**. But when you really realize the sound, “AUM,” the sound of the mystery of the word everywhere, then **you don’t have to go out and die for anything** because it’s right there all around. Just sit still and see it and experience it and know it. That’s a peak experience.
+
