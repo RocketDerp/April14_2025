@@ -1163,4 +1163,33 @@ https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_d
 
 He is a good leader for self-harm of the nation, compusively being addicted to chase memes into self-harm fires. This is what Americans are willing to die for, LOL amusement of Tony Clifton acting.
 
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh26p1i/
+
+NFL / Supebowl are huge media icon symbol, status symbols in mass mind of society. This is the behavior of people with blown-out minds from Cambridge Analytica payloads from IRA since year 2013. Conditioned symbolism mindsets.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh28zlg/
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2agtz/
+
+ToDo: JCF lecture mention of moon landing and broadcast about Christmans mythology / monomyth in face of science of moon travel.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh29ua3/
+
+The new rules of who to favor.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh26z5z/
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2fwd3/
+
+People in USA seriously believe Jesus is Donald J. Trump. And that other people are NOT every going to be equal to Trump.
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh286tn/
+
+Blows people's mind that they don't recognize after 20 years of memecasting, Reddit is a media outlet. People can't see the ocean they are swiming in. University of Toronto's Marshall McLuhan's year 1968 book about media ecology of Reddit users in year 2025: “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.”
+― Marshall McLuhan, War and Peace in the Global Village, 1968
+
+https://old.reddit.com/r/Music/comments/1numg10/maga_continues_to_meltdown_over_bad_bunnys_super/nh2u6vg/
+
+Just remember, "both sides". If there is a wrong answer one, and a wrong answer two, give up, because counting beyond two is not the Cambridge Analytica programming of the mindsets from year 2013 onward.
+
 
