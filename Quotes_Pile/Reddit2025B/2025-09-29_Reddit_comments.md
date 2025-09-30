@@ -1128,3 +1128,16 @@ https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_d
 
 Satire-washing to the situation. Trump provides every comedian material for their popularity.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1m9vk/
+
+Is insane, induces insanity. Everyone. The entire society. Everyone insane at Mass Mind level. ... ... ... 
+"The burden of self-deception has grown too heavy, and some minor incident, in my case my little boy, hardly more than a baby, saying ‘Jewish swine,’ collapses it all at once, and you see that everything, **everything, has changed and changed completely under your nose**. The world you live in—your nation, your people—is not the world you were born in at all. The forms are all there, all untouched, all reassuring, the houses, the shops, the jobs, the mealtimes, the visits, the concerts, the cinema, the holidays. But the spirit, which you never noticed because you made the lifelong mistake of identifying it with the forms, is changed. Now you live in a world of hate and fear, and the people who hate and fear do not even know it themselves; **when everyone is transformed, no one is transformed**. Now you live in a system which rules without responsibility even to God. The system itself could not have intended this in the beginning, but in order to sustain itself it was compelled to go all the way.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45. Published 1955.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1jigf/
+
+Reddit was so amusement-washing mockery-washing Elon Musk back then in the early months of 2025. LOL-washing endlessly about Elon Musk. No diaper jokes or dementia-washing of Musk, but broken penis washing as entertainemnt instead of "mushroom penis" washing enterainment about Trump.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1kzyp/
+
+Putin owns your nation and Reddit mindsets. Since Q2 2013.
+
