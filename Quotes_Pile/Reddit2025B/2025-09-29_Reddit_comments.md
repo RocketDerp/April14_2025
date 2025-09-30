@@ -1139,5 +1139,17 @@ Reddit was so amusement-washing mockery-washing Elon Musk back then in the early
 
 https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1kzyp/
 
-Putin owns your nation and Reddit mindsets. Since Q2 2013.
+Putin owns your nation and Reddit mindsets. Since Q2 2013. Reddit worships cynical conditioend patterns. Russia won. OPERA_A You are tricking your own minds with Reddit trash low-effort comments, killing your nation with this mockery. https://www.youtube.com/watch?v=apTy_Wez4V4
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1otmp/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1j4h0/
+
+Exactly the shit Reddit community flocks to for 10 years and 3 months, welcoming Russia's IRA and Putin's invasion of Reddit.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nujas0/trump_we_can_do_things_during_the_shutdown_that/nh1iw4k/
+
+Denial that it's been LOUDLY screamed for over a decade. Recency bias. Unable to recall yesterday or the Charlie Kirk September speeches.
+
+
 
