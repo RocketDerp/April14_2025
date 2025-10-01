@@ -69,3 +69,19 @@ Matthew 6:5 - Trump posing with Bible
 "1 John 3:17" - Wealth hoarding    
 "1 John 4:20" - "I love Jesus" is wrong, hate of anyone is wrong.   
 Proverbs 14:31  - Whoever oppresses a poor man insults his Maker, but he who is generous to the needy honors him.   
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+### Social media did not stand up
+
+People on socal media using spare time and free time did not "stand up" for seirous situations. Entertainment and mocking is what people prize, mockery messaging. Amusement messaging. Humor-washing the serious situation.
+
+#### October 1, 2025
+
+https://autistics.life/@RoundSparrow/115299985532975924    
+https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3m25jgse2bs2i    
+https://old.reddit.com/r/politics/comments/1nvb3ts/pritzker_calls_for_trumps_removal_from_office/   
