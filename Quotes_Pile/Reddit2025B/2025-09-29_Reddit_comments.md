@@ -1515,5 +1515,6 @@ https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computerg
 
 https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh5oj49/
 
-So ignorant, celebrating ignorance, thinking this is a "civil war". Russia won, Putin won, Surkov won. Since year 2013. People embraced Russian memes and Russian insults.
+So ignorant, celebrating ignorance, thinking this is a "civil war". Russia won, Putin won, Surkov won. Since year 2013. People embraced Russian memes and Russian insults. And if it were a civil war, it is being faught with powerful systems of health care harm against the poor, powerful media machines against We The People, powerful systemic attacks on world trade and supply chain. These are real-world complex systems that meme-think Twitter-thinking short-length addictions to memes and jokes don't cover.
+
 
