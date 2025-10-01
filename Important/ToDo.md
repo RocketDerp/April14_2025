@@ -1660,3 +1660,8 @@ https://old.reddit.com/r/CuratedTumblr/comments/1nub0yn/just_give_me_a_quest/
 
 American Pie lyrics in comments     
 https://old.reddit.com/r/interesting/comments/1nuhpce/farmer_drives_trucks_loaded_with_dirt_into_levee/
+
+&nbsp;
+
+Concerns of Finnegans Wake, English word meaning overloading    
+https://old.reddit.com/r/todayilearned/comments/1nuspgm/til_the_most_complex_word_in_the_english_language/
