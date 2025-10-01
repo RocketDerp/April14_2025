@@ -1588,3 +1588,15 @@ https://old.reddit.com/r/Music/comments/1nv51no/white_house_laughably_claims_tru
 
 Wouldn't it be good if goodness itself wasn't avoided. If nonfiction learning of reality was more engaging to people than massive quantities of disposable commenting messages.
 
+https://old.reddit.com/r/technology/comments/1nv5q62/the_ai_slop_drops_right_from_the_top_as_the_white/nh63vpc/
+
+There is no supernatural, there is no magic. There is only science fiction storytelling. Bible verse "1 John 4:20" says this 2000 years ago. To Reddit, comedy is gold, comedy is God itself, He / Him / God of amusmenet-waashing Tony Clifton President of USA. People on Reddit can not resist declaring how terrible Tony Clifton is. Tony Clifton declares he is the best, and comedy is what matters most above all life on earth to the audience of Bluesky and Reddit. As long as they can keep mocking away at Trump, as long as there is satire-washing, anything is swallowed. Russia won, NATO lost, Putin won, USA lost. Surkov comedy students won.
+
+https://old.reddit.com/r/technology/comments/1nv5q62/the_ai_slop_drops_right_from_the_top_as_the_white/nh6nd6i/
+
+If Reddit community could focus and sustain focus, repeating and repeating critical and important nonfiction learning topics....
+
+https://old.reddit.com/r/technology/comments/1nv5q62/the_ai_slop_drops_right_from_the_top_as_the_white/nh67ssd/
+
+People who think that above age 21 you should not move The Bible over to the science fiction section with peers like Hamlet's Ghost and Star Wars "Force Ghosts" 1977. But Reddit doesn't want to take on the nonfiction vs. fiction addiction issues of society. Wanting to go down with the USA ship of people who have decided fiction is worth death over. White House is leading Reddit with fiction content.
+
