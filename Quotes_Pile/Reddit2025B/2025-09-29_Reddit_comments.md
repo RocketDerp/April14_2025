@@ -1525,3 +1525,19 @@ https://old.reddit.com/r/politics/comments/1nv0z5x/military_leaders_seriously_al
 
 "only half", people so divided and anti-empathy and anti-compassion that they have convinced themselves Greenland and Canada NATO has nothing to do with Putin and IRA invasion of Reddit commenting since year 2013. Bad is bad, doesn't matter what geography or what political party, badness is bad. Russia attacking Ukraine is bad. Anti-humanism is bad. 
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh66sfn/
+
+For over TEN YEARS AND THREE MONTHS: nonstop LOL and humor at Russia mind-fucking the USA with Trump values. People can not resist absurd humor, surreal comedy mind-fucking. Exploiting their brain with LOL-washing LMAO-washing messages. Any paradox they encounter on a meme machine puts them into LOL stupor of being attracted to more Trump antics / Fox News antics / IRA inofmration warfare. Surkov mastereed this. Infinite Jest is no longer fiction, Surkov and Putin realized this 25 years ago that people fall in line and can not stop even pointless wars against Ukraine where Russian men die... as long as people can have absurd military paradox self-harm to LOLat. Neil Postman was correct in 1985 book "Amusing Ourselves To Death"
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh6dpno/
+
+Fiction addicts,  The Fall of mankind, the crisis of Finnegans Wake believing fiction clergy.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh6ez6n/
+
+People living in denial of how all people in USA are prizing hate. Hate of Trump is faith in hate.Mocking Trump is the faith MAGA desires, total mockery of goodness. Goodness and nonfiction have been abandoned by everyone in USA who seeks ouot trash Bluesky and Reddit commenting and not calling for a return to nonfiction and serious study of Russian information warfare that started March 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh6hlwl/
+
+OPERA_A Dogs of war, men of hate, hate prized. What has Begun... We are at Surkov Stage 14 https://www.youtube.com/watch?v=m7VTL_fLt5M
+
