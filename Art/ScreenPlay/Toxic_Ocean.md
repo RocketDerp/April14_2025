@@ -10,7 +10,7 @@ USA year 2025, Toxic Ocean abounds. The ocean we swim in, the media enviornments
 
 ### 1945 Carl Jung
 
-[/main/Quotes_Pile/Doctors/Carl_Jung.md](/main/Quotes_Pile/Doctors/Carl_Jung.md)
+[/Quotes_Pile/Doctors/Carl_Jung.md](/Quotes_Pile/Doctors/Carl_Jung.md)
 
 ### 1968
 
