@@ -1717,4 +1717,7 @@ Crazy times. Wild and unpredictable. And people can't turn to nonfiction writing
 
 https://old.reddit.com/r/law/comments/1nviqv1/rep_jason_crow_donald_trump_and_his/nh8w4t2/
 
-OPERA_A Wake the fuck up, Skating Away! https://www.youtube.com/watch?v=S5D9HZyYI6g
+OPERA_A Wake the fuck up, Skating Away! You did not stand a chance, son. Russia mind-fucked you all, and it's time to study nonfiction. https://www.youtube.com/watch?v=S5D9HZyYI6g
+
+https://old.reddit.com/r/law/comments/1nviqv1/rep_jason_crow_donald_trump_and_his/nh8wv6c/
+
