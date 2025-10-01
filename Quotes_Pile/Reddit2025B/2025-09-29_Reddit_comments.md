@@ -1552,7 +1552,39 @@ JOSEPH CAMPBELL: That’s **what people are doing all over the place — dying f
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh62zvt/
 
-As if Reddit anti-nonfiction anti-goodness "for t he LOL" didn't become saturation toxic in 2014 after the IRA invasion of Reddit, I called / telephoned the Pentagon about Reddit shift in mindsets in year 2015. As if Facebook didn't become toxic in 2014. As if Twitter didn't become toxic in 2014. As if YouTube comments didn't become toxic in 2014. As if this story published August 24, 2018 does not say: ... ... ...
+As if Reddit anti-nonfiction anti-goodness "for the LOL" didn't become saturation toxic in 2014 after the IRA invasion of Reddit, I called / telephoned the Pentagon about Reddit shift in mindsets in year 2015. As if Facebook didn't become toxic in 2014. As if Twitter didn't become toxic in 2014. As if YouTube comments didn't become toxic in 2014. As if this story published August 24, 2018 does not say: ... ... ...
 "Many posted both pro- and anti-vaccination messages to create "false equivalency", the study found. It examined thousands of tweets sent between **2014** and 2017. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University."  https://www.bbc.com/news/world-us-canada-45294192
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh66adm/
+
+The IRA has been training Reddit comment section since March 2013.
+
+https://old.reddit.com/r/Music/comments/1nv51no/white_house_laughably_claims_trump_ended/nh60mmi/
+
+Laughing-washing, amusement-washing, humor-washing. Reddit's favorite leadershp signals. Marching into "Amusing Ourselves To Death"
+
+https://old.reddit.com/r/Music/comments/1nv51no/white_house_laughably_claims_trump_ended/nh6ktca/
+
+"Somehow"... can't be bothered to read nonfiction and learn about the Ukraine war. Publiched September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/Music/comments/1nv51no/white_house_laughably_claims_trump_ended/nh6ooxn/
+
+They comment shit like that on meme sites and amusment-wash on social machines.
+
+https://old.reddit.com/r/Music/comments/1nv51no/white_house_laughably_claims_trump_ended/nh6mw6z/
+
+They are simple-think, meme-thnk, anti-comprehension, anti-understanding, Twitter-thinking. ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/Music/comments/1nv51no/white_house_laughably_claims_trump_ended/nh6la84/
+
+Your average American thinks clever satire-washing the sitaution with Reddit comments is A-OK.
+
+https://old.reddit.com/r/Music/comments/1nv51no/white_house_laughably_claims_trump_ended/nh5ztr4/
+
+Amusement mills of Reddit and Bluesky and other platforms eat up the LOL LOL, Trump White House, so entertaining to see a Reality TV entertainer and not boring serous people who use nonfiction.
+
+https://old.reddit.com/r/Music/comments/1nv51no/white_house_laughably_claims_trump_ended/nh6ei7v/
+
+Wouldn't it be good if goodness itself wasn't avoided. If nonfiction learning of reality was more engaging to people than massive quantities of disposable commenting messages.
 
