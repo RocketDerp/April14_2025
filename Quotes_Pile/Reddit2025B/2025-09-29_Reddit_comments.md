@@ -1614,3 +1614,11 @@ https://old.reddit.com/r/news/comments/1nv7y90/faa_plans_to_furlough_11000_emplo
 
 There are dozens and dozens of these eogmania messages that what matters is personal flights. Not rescuing hundreds of millions of MAGA population from media addiction to Trump antics. Not resucing the USA from Russia's mind-fucking war. Just personal self concerns, egoism. Exctly like role models RFK Jr and Donald J Trump - egomania adopted by Reddit users. A nation that follows an egomania leader and adopts egomania.
 
+https://old.reddit.com/r/MurderedByWords/comments/1nv8dkd/stephanopoulos_its_a_factual_statement/nh6n49n/
+
+Absurd-washing everything via media systems, media messages of paradox / absurd / surreal rule the USA. Nobody wants to engage nonfiction learning on how Surkov govening works. How surreal absurd antics blows the minds of Reddit audiences into condition predictable reactionary patterns of recency bias. Unable to assert important and critical thinking defense education against Russia.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nv8dkd/stephanopoulos_its_a_factual_statement/nh6tz5q/
+
+The USA filter-bubble echo-chambers of fiction addictions ar out of control. Reddit is ground zero. Subreddit alternate universe vs. Subreddit alternate universe. Even threads within a comment section on the SAME POSTING have alternate reality "choose your own adventure" storytelling. Millions and millions of disposable comments leading a nation for over a decade! IRA won, Reddit is ground zero.
+
