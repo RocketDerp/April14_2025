@@ -1656,3 +1656,18 @@ https://old.reddit.com/r/Snorkblot/comments/1nv91cr/the_next_time/nh6zmwg/
 
 To many of "them" can't see their own messaage about out-group "them".  What computerized messaging has done in low-effort high-speed high-quantity comment consumption of Reddit users. Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
 
+https://old.reddit.com/r/nottheonion/comments/1nvauld/iowa_teen_dies_after_being_mistaken_for_squirrel/nh7aanb/
+
+https://old.reddit.com/r/nottheonion/comments/1nvauld/iowa_teen_dies_after_being_mistaken_for_squirrel/nh7lpvy/
+
+Sports game mentality. Drinking away in sports audience.
+
+https://old.reddit.com/r/politics/comments/1nvc4t8/trump_is_far_weaker_than_he_looks_aoc_says_gop/nh7gy1i/
+
+Unable to grasp that the more antics and unusual / odd behavior, the more Reddit audience flocks to smartphone commenting. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/politics/comments/1nvc4t8/trump_is_far_weaker_than_he_looks_aoc_says_gop/nh7flki/
+
+Thrilled, waiting for the ending to the fiction storytelling. Audience members glued to touch screen subreddit. ... ... ...
+Texan Rick Roderick: " And what it was about, was about how when capitalism reached a certain level of accumulation, commodities began to detach themselves and become images. And citizens who formerly had played roles as political actors began to detach themselves from their own lives and become spectators." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
