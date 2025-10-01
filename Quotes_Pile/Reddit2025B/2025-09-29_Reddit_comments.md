@@ -1400,3 +1400,7 @@ https://old.reddit.com/r/BlueskySkeets/comments/1nutlq5/deplorable_wasnt_even_cl
 
 Reddit media participatns did the normalization via amusmement-washing and humor-washing the Russian media invasion. Satire-washing everything as a joke-wshing opportunity.
 
+https://old.reddit.com/r/BlueskySkeets/comments/1nutlq5/deplorable_wasnt_even_close/nh3qwoc/
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nutlq5/deplorable_wasnt_even_close/nh47108/
+
