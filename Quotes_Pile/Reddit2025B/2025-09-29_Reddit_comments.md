@@ -1638,5 +1638,13 @@ https://old.reddit.com/r/videos/comments/1nv8sn4/jack_daniels_cuts_off_free_catt
 
 https://old.reddit.com/r/clevercomebacks/comments/1nv5rk1/a_fat_general_policy_that_starts_at_the_top/nh70kfj/
 
-Donald Trump has complete control and access to any illegal or experimental treatments and drugs for obesity. He could drop weight in 12 months and document it. Because people are more entertained with a single person than they are boring unimportant people in the nation who want Reddit meme society and media addicts to Fox News HDTV to stop letting amusement be the end-all be-all of society worship values. Trump is God to meme addicts.
+Donald Trump has complete control and access to any illegal or experimental treatments and drugs for obesity. He could drop weight in 12 months and document it. Because people are more entertained with a single person than they are boring unimportant people in the nation who want Reddit meme society and media addicts to Fox News HDTV to stop letting amusement be the end-all be-all of society worship values. Trump is God to meme addicts. I could see Trump branding his own drug for weight loss, his family all comething together to rescue the old man in selling/branding obesity, saving the USA. Reddit community would eat this up in mocking absurd surreal comedy all the way to the end of all goodness. 
+
+https://old.reddit.com/r/clevercomebacks/comments/1nv5rk1/a_fat_general_policy_that_starts_at_the_top/nh67g0t/
+
+This is what Reddit community prizes above all else. Mocking. Not messages about Russian information warfare, not to rescue MAGA from Fox News addiction. Not to make Jen Senko's year 2015 film a household name. Not to teach Bible literacy of "1 John 3:17" and apply it to Trump and Musk.... but this is what the audiences crave in USA. More mocking, eating the Surkovian onions.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nv5rk1/a_fat_general_policy_that_starts_at_the_top/nh6igpq/
+
+The human lard is what is a core theme to bomb making in Fight Club. People in Reddit can't even cite culural references of Trickle Down Lard / Fat of the Land. Right Lenny?
 
