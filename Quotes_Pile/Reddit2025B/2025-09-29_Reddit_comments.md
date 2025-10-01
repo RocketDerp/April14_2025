@@ -1721,3 +1721,8 @@ OPERA_A Wake the fuck up, Skating Away! You did not stand a chance, son. Russia 
 
 https://old.reddit.com/r/law/comments/1nviqv1/rep_jason_crow_donald_trump_and_his/nh8wv6c/
 
+https://old.reddit.com/r/okbuddycinephile/comments/1nveg4s/wake_up_babe_new_woman_for_grifters_to_fucking/nh89uab/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1nveg4s/wake_up_babe_new_woman_for_grifters_to_fucking/nh8pezw/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1nveg4s/wake_up_babe_new_woman_for_grifters_to_fucking/nh8domu/
