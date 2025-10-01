@@ -1701,3 +1701,12 @@ https://old.reddit.com/r/law/comments/1nvht42/ice_agents_in_military_gear_are_no
 Our lives do depend on it. And the fighting back is: reform social media. Organize around fiction vs. nonfiction. Organize around important and serious comprehension vs. antics and bullshit. It is an EMERGENCY and THREAT TO ENTIRE WORLD that runaway technology addictions have wrecked the USA. Call for a HALT to entertainment, halt to video games, halt to sports engagements to for-profit sports. Halt to television that isn't focused on comprehension, learning, understnading. Make Neil Postman's 1985 book a topic every person age 12 to age 120 respects and understands. Stand up and die for goodness and teaching and learning, follow Malala's role model. Ask all the mental health workers in the world to lead online teachings to rescue cult members.
 
 https://old.reddit.com/r/law/comments/1nvht42/ice_agents_in_military_gear_are_now_jumping_out/nh8spyh/
+
+https://old.reddit.com/r/SocialistRA/comments/1nvi9gp/theyre_really_ramping_up_their_disinformation/nh8s4ox/
+
+Gun worship media content community loves it / thrilled that there are people following conditioned Russian mental patterns to self-harm USA.
+
+https://old.reddit.com/r/SocialistRA/comments/1nvi9gp/theyre_really_ramping_up_their_disinformation/nh8slm7/
+
+The defense against the radical right informaition warfare from the IRA is to turn to nonfiction learning and teaching about cult deprogramming. Especially Reddit-style media cult addictions to out-group mind patterns.
+
