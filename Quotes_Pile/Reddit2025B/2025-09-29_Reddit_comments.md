@@ -1541,3 +1541,18 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh6hl
 
 OPERA_A Dogs of war, men of hate, hate prized. What has Begun... We are at Surkov Stage 14 https://www.youtube.com/watch?v=m7VTL_fLt5M
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh655ef/
+
+Mandatory service like Israel. Indoctrination into MAGA values. You don't need a lottery draft. You just change society to one where military service is for everyone.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh68f1t/
+
+The denial on Reddit of realty. Agressive behavior will be rewarded. Mafia mentality, mob mentality, killing your own people out of display of power and to redice mindsets. Russia has been sending Russian people off to death just to keep society entertained and amused. Reddit will eat up it and create special langauges to keep joking about how funny it is taht MAGA was mind-fucked by Putin into self-harm and how  amusing it is to laugh at people self-harming via Kremlin winning an information war since year 2013. People will kill for and cheer on that their fiction monomyth meme group is killing.  George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ... BILL MOYERS: But how does one worship a metaphor, love a metaphor, die for a metaphor?
+JOSEPH CAMPBELL: That’s **what people are doing all over the place — dying for metaphors**. But when you really realize the sound, “AUM,” the sound of the mystery of the word everywhere, then **you don’t have to go out and die for anything** because it’s right there all around. Just sit still and see it and experience it and know it. That’s a peak experience.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nv5jov/bookmark_this/nh62zvt/
+
+As if Reddit anti-nonfiction anti-goodness "for t he LOL" didn't become saturation toxic in 2014 after the IRA invasion of Reddit, I called / telephoned the Pentagon about Reddit shift in mindsets in year 2015. As if Facebook didn't become toxic in 2014. As if Twitter didn't become toxic in 2014. As if YouTube comments didn't become toxic in 2014. As if this story published August 24, 2018 does not say: ... ... ...
+"Many posted both pro- and anti-vaccination messages to create "false equivalency", the study found. It examined thousands of tweets sent between **2014** and 2017. Vaccination was being used by trolls and sophisticated bots as a "wedge issue", said Mark Dredze from Johns Hopkins University."  https://www.bbc.com/news/world-us-canada-45294192
+
+
