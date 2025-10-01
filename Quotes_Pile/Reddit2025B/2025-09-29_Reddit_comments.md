@@ -1687,3 +1687,12 @@ Morally. The Church / Clergy have been morality-washing by not making "1 John 3:
 https://old.reddit.com/r/politics/comments/1nvb3ts/pritzker_calls_for_trumps_removal_from_office/nh7k1ki/
 
 <img width="934" height="572" alt="image" src="https://github.com/user-attachments/assets/fe27ffcb-5518-4cb7-983b-7cd642144471" /> Yes. It is Fox News audience brainrot, Russian IRA originated briainrot, media cults brainrot. Same with Reddit community brainrot to avoid nonficiton learning. Why haven't the Reddit community sustained focus and repeating of important topics? Such as why hasn't Reddit made this front-page every 48 hours, over and over? ... ... ...**"The 'Shared Psychosis' of Donald Trump** and His Loyalists January 11, 2021 — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/law/comments/1nvht42/ice_agents_in_military_gear_are_now_jumping_out/nh8niyu/
+
+What USA is doing is what the IRA conditioned it to do since year 2013. Self-harm. Putin wants USA to prize self-harm and wrecking itself on the world stage for no reason other than media addiction to a pattern of Surkov student monomyth meme patterns amplified with Cambridge Analytica doctors. This is what you get when social media users spend their free time and spare time doing everything they can to humor-wash and entertainment-wash Donald J. Trump and MAGA ... without being serious about nonfiction learning of mob mentality.
+
+https://old.reddit.com/r/law/comments/1nvht42/ice_agents_in_military_gear_are_now_jumping_out/nh8nris/
+
+I want Donald Trump to recognize his mind-fucking by Russia, resign, document all he can about his mistakes and errors, and get every person in the world to face up to Leavnt monoomyth warfare patterns. Give Trump a cush prison cell if you need to, but what we need is mental reformation / facing up to the brain flaws we keep exploiting. Real People admit Russia won an information warfare and go back to the defense and betterment drawing boards.
+
