@@ -1507,5 +1507,9 @@ Leven of fiction. Publishing Realoty TV entertainment, publishing fiction, to Ru
 
 https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh4wy58/
 
-Yes, people cheering on stupid. Fiction stupidity over intelligent non-fiction learning. Repetitive fiction memes and comedy, not science learning. 
+<img width="1086" height="232" alt="image" src="https://github.com/user-attachments/assets/5bd5dfa1-e672-4af7-bfc7-4e0abdd320e7" /> Yes, people cheering on stupid. Fiction stupidity over intelligent non-fiction learning. Repetitive fiction memes and comedy, not science learning. USA meme addicts begged for more stupid, people in USA begged for Russian mind-fucking, people in USA cheered on the #stupid as entertainment. OPERA_A You can say they didn't warn you, USA https://www.youtube.com/watch?v=SjwfNAYdBVQ
+
+https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh5exfo/
+
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
