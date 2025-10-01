@@ -6,6 +6,12 @@ USA year 2025, Toxic Ocean abounds. The ocean we swim in, the media enviornments
 
 2. Marshall McLuhan 1968 War and Peace in Global Village, the heart of Fin Wake Indra Net / WakeIndra.com project
 
+3. Carl Jung said the same thing as out outsider describing the aftermath in 1945, in this GitHub project already
+
+### 1945 Carl Jung
+
+[/main/Quotes_Pile/Doctors/Carl_Jung.md](/main/Quotes_Pile/Doctors/Carl_Jung.md)
+
 ### 1968
 
 “One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.”
