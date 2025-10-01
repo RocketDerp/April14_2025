@@ -1437,3 +1437,75 @@ https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump
 
 Internet Resarch Agency (IRA) invaded Reddit commentingt to mind-fuck USA as Russia took on Ukraine in invasion in February 2014. That is why Trump seemed like a good choice to voters and meme addicts alike, because doctors of the mind / psychology, manipulated Reddit users on social devices. Pizzagate / Q QAnon fiction addictions, War Against Reality. What is going on with self-harm in USA isn't about Epsten list, it is about butchering the USA on the world stage with self-harmm mental programming by doctors. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ and https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ and https://www.bbc.com/news/world-us-canada-45294192
 
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh4yjae/
+
+Put fraudlent information systems like Reddit at the center of adult education and learning, let Twiter-length tweet-think meme-thinking one-line jokes and thinking rule society...
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh5adk2/
+
+Goes far beyond one single subreddit that IRA and CA mind-fucked into egomania.
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh5mt14/
+
+Mind-fucked mother with Cambridge Analytica using the Internet, and meme addicts cheered it on with amusement-washing and not taking serious nonficiton learning. Make a joke of Russia "bots" and didn't use real names of Russian people and Russian organizations.  September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ and https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ and https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh5pl5o/
+
+Tree after tree, not seeing the forest of multiple NATO nations. Attacking NATO Canada to serve Putin and Russia. This is not just USA and republicans. It is reality itself of Earth and science.
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh5155n/
+
+Reddit community doesn't understand behaviors of low-effort commenting fiction addictions of millions of disposable comments and it really shows. Reddit community did not come together to fight back against Russian invasion of Reddit since year 2013, and it really shows...
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh53alk/
+
+Reddit messages cheering on self-harm of the USA to serve Putin's brain-damage of USA into more chaos and instability.
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh55hht/
+
+To control elections... to control EVERY aspect of life. Beyond anything humanity has ever seen, with technologies hat Euopre didn't have in 1930's and 1940's.
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh5ksdh/
+
+They is Russia, as published December 20, 2013 which is right before December 2014 Ukraine war start. The Republican are shirt-lording, winning self-harm and shit, this is not a "win" for USA Americans / USA Republcians. This is a win for Putin to self-harm the world on a global scale.  USA self-harm is not "winning", it is programmed abuse of self and others as directed by Russia's IRA.  https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh50dit/
+
+Factual evidence shows Russia seeded mind-fuck to self-harm in many ways. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh51812/
+
+Short comment. Absence of quotes, book titles, author names, links to back up claims. People blindly accept infiltrated Russian-manipulated social comments. 
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh51w6s/
+
+Can't keep eye on the ball of enemy Russia who is killing people in Ukraine in offense.
+
+https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh4bdk0/
+
+Amusement-washing entertainment-washing joke-washing the addiction to fiction going on in USA.
+
+https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh5dp40/
+
+The minds are programmed by low-effort Reddit comments, Facebook content, Twitter, etc. Peopledon'twant nonficiton any more, the Russian information warfare has Americans concerned with fiction video content.
+
+https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh4itox/
+
+Providing fiction entertainment like Donald Trump. More fiction to satisfy the fiction addictions of Reddit audience.
+
+https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh4gi0l/
+
+Just like MAGA likes fiction Fox News and fiction Turth Social and fiction-based leadership of Surkov governing since year 2013.
+
+https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh4ons8/
+
+Fighting for more fiction, billionares exploiting minds with fiction like Saudi Arabia does with Mecca theme park and Quran scinece fiction. Anything to avoid learning nonfiction of Russian information warfare.
+
+https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh5s7jd/
+
+Leven of fiction. Publishing Realoty TV entertainment, publishing fiction, to Russia's Kremlin Surkov level. Fiction addicts of Reddit love that science and truth are abandoned in favor of fiction storytelling via video medium. September 9, 2014 nonfiction learning avoided: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computergenerated_video_of/nh4wy58/
+
+Yes, people cheering on stupid. Fiction stupidity over intelligent non-fiction learning. Repetitive fiction memes and comedy, not science learning. 
+
