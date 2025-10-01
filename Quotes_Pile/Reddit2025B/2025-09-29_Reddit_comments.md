@@ -1622,3 +1622,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1nv8dkd/stephanopoulos_its_a_f
 
 The USA filter-bubble echo-chambers of fiction addictions ar out of control. Reddit is ground zero. Subreddit alternate universe vs. Subreddit alternate universe. Even threads within a comment section on the SAME POSTING have alternate reality "choose your own adventure" storytelling. Millions and millions of disposable comments leading a nation for over a decade! IRA won, Reddit is ground zero.
 
+https://old.reddit.com/r/MurderedByWords/comments/1nv8dkd/stephanopoulos_its_a_factual_statement/nh799bp/
+
+Watching Reddit fiction vs. Reddit fiction. All avoiding nonfiction learning of how Russian information warfare works since year 2013 defeat of USA.
