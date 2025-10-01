@@ -1665,3 +1665,8 @@ https://old.reddit.com/r/interesting/comments/1nuhpce/farmer_drives_trucks_loade
 
 Concerns of Finnegans Wake, English word meaning overloading    
 https://old.reddit.com/r/todayilearned/comments/1nuspgm/til_the_most_complex_word_in_the_english_language/
+
+&nbsp;
+
+Choice marriage honesty, choice marriage on a foundation of lies and deception. Just like Donald Trump is the leader of free natiion of "free choice" marriage role model.    
+https://old.reddit.com/r/CoupleMemes/comments/1nv6cx7/sometimes_its_not_about_whos_right_its_about/
