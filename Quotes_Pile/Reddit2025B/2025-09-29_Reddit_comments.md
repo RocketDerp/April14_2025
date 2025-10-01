@@ -1696,3 +1696,8 @@ https://old.reddit.com/r/law/comments/1nvht42/ice_agents_in_military_gear_are_no
 
 I want Donald Trump to recognize his mind-fucking by Russia, resign, document all he can about his mistakes and errors, and get every person in the world to face up to Leavnt monoomyth warfare patterns. Give Trump a cush prison cell if you need to, but what we need is mental reformation / facing up to the brain flaws we keep exploiting. Real People admit Russia won an information warfare and go back to the defense and betterment drawing boards.
 
+https://old.reddit.com/r/law/comments/1nvht42/ice_agents_in_military_gear_are_now_jumping_out/nh8phyt/
+
+Our lives do depend on it. And the fighting back is: reform social media. Organize around fiction vs. nonfiction. Organize around important and serious comprehension vs. antics and bullshit. It is an EMERGENCY and THREAT TO ENTIRE WORLD that runaway technology addictions have wrecked the USA. Call for a HALT to entertainment, halt to video games, halt to sports engagements to for-profit sports. Halt to television that isn't focused on comprehension, learning, understnading. Make Neil Postman's 1985 book a topic every person age 12 to age 120 respects and understands. Stand up and die for goodness and teaching and learning, follow Malala's role model. Ask all the mental health workers in the world to lead online teachings to rescue cult members.
+
+https://old.reddit.com/r/law/comments/1nvht42/ice_agents_in_military_gear_are_now_jumping_out/nh8spyh/
