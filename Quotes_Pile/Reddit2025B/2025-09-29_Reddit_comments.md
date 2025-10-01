@@ -1364,3 +1364,35 @@ https://old.reddit.com/r/politics/comments/1nut1e7/democrats_defeat_republican_f
 
 Reddit is a reactionary chamber to avoid nonfiction learning about Russian information warfare and getting on the same page of important serious topics.
 
+https://old.reddit.com/r/news/comments/1nurc53/us_housing_agency_blames_radical_left_for_looming/nh39sgm/
+
+https://old.reddit.com/r/news/comments/1nurc53/us_housing_agency_blames_radical_left_for_looming/nh3erhx/
+
+Elon Musk was calling for a massive shutdown less than a year ago. December 18, 2024 https://www.politico.com/news/2024/12/18/elon-musk-false-claims-cr-00195252
+
+https://old.reddit.com/r/news/comments/1nurc53/us_housing_agency_blames_radical_left_for_looming/nh3cd69/
+
+People will LOL-wash amusement-wash joke-wash the sitaution as has been going on for over a decade.
+
+https://old.reddit.com/r/news/comments/1nurc53/us_housing_agency_blames_radical_left_for_looming/nh396yd/
+
+Social media laugh track for audience, "LMAO"
+
+https://old.reddit.com/r/news/comments/1nurc53/us_housing_agency_blames_radical_left_for_looming/nh385oi/
+
+Fiction addicts calling out that everyone should abandon reality to Russia's war and go with more fiction. Nobody standing up for nonfictoin and calling out Putin.
+
+https://old.reddit.com/r/news/comments/1nurc53/us_housing_agency_blames_radical_left_for_looming/nh3byyw/
+
+2013, the year the Russian IRA spun up based on the November 7, 2012 agreeement.
+
+https://old.reddit.com/r/news/comments/1nurc53/us_housing_agency_blames_radical_left_for_looming/nh3cqj4/
+
+The rapid abandonment of nonfiction with the Apple iPhone / iPad / social meme systems that fit a small screen.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nuu8dn/republicans_are_a_noshow_to_keep_the_federal/nh41f76/
+
+The IRA with CA payloads has brainwashed the nation into thinking Bluesky and Reddit commenting will get people on the same page instead of recognzing that there needs to be a call to intellectual behavior changes. Such as meeting times, no entertainment days, teaching days to get on the same topic, comprehension of media ecology, etc.
+
+https://old.reddit.com/r/PublicFreakout/comments/1nuu8dn/republicans_are_a_noshow_to_keep_the_federal/nh3z7zw/
+
