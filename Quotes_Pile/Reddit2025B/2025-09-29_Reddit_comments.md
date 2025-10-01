@@ -1731,3 +1731,15 @@ https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_wi
 
 For OVER TEN YEARS, Donald Trump has been doing more and more antics. People on Reddit have not studied Russian techniques of Putin in domestic governing. USA can not get ENOUGH of mocking Trump's action. Just listen to this message... the implication that Donald Trump should still be around at Super Bowl. People are not calling for his removal, they are commenting on it like more is coming. OVER TEN YEARS of this audience reaction as if We The People can't alter the outcomes by confronting WE THE PEOPLE, rescuing MAGA cult and Reddit cult to the mockery!
 
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh93g68/
+
+Social media laugh track, "LMAO". A nation of social touch device addicts who have never been this thrille din their life. A normal non-entertainment non-amusement leader can't excite people 24 hours a day 7 days a week like has been going on for 10 years. Donald Trump should have never gotten more than 5% or 7% support in a healthy society, but in a meme addicted antics society - this is what people crave. Even if they vote against Trump, they have sold out goodness to Reddit commenting against godness in favor of amusement-washing LMAO-washing the situation of everyday life and normalizing it via humor. 
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh9cmlg/
+
+Yes...
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh91xjr/
+
+Let Russia mind-fuck the entire population, not just Republicans, but EVERYONE into simualcra screen games of constantly *hate harder* upon American people instead of recognized just how fucked-up drunk everyone is on memes and trash commenting.
+
