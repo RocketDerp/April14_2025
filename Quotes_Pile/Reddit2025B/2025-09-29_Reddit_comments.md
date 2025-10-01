@@ -1636,3 +1636,7 @@ https://old.reddit.com/r/videos/comments/1nv8sn4/jack_daniels_cuts_off_free_catt
 
 https://old.reddit.com/r/videos/comments/1nv8sn4/jack_daniels_cuts_off_free_cattle_feed_to/nh6xra4/
 
+https://old.reddit.com/r/clevercomebacks/comments/1nv5rk1/a_fat_general_policy_that_starts_at_the_top/nh70kfj/
+
+Donald Trump has complete control and access to any illegal or experimental treatments and drugs for obesity. He could drop weight in 12 months and document it. Because people are more entertained with a single person than they are boring unimportant people in the nation who want Reddit meme society and media addicts to Fox News HDTV to stop letting amusement be the end-all be-all of society worship values. Trump is God to meme addicts.
+
