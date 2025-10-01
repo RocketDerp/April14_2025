@@ -1348,3 +1348,19 @@ https://old.reddit.com/r/politics/comments/1nur8nc/google_is_blocking_ai_searche
 
 Reddit blocks my comments.
 
+https://old.reddit.com/r/politics/comments/1nut1e7/democrats_defeat_republican_funding_plan_taking/nh3ndvi/
+
+Humans have been programmed mentally to detach from goodness and self-harm the USA. Nobody wanted to take seriously that doctors at Cambidge Analytica had bucket that went deeper than anyone else.
+
+https://old.reddit.com/r/politics/comments/1nut1e7/democrats_defeat_republican_funding_plan_taking/nh3np3n/
+
+A lot of newsweek bashing on Reddit. Yet, I find Reddit community with no real names, no-identity does not like this year 2019 story from Newsweek about Russia: https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
+
+https://old.reddit.com/r/politics/comments/1nut1e7/democrats_defeat_republican_funding_plan_taking/nh3lx3c/
+
+Nothing prevents Reddit community from posting thier own Reddit headlines on links to The Hill. I do it on Reddit. Yet, people can't organize and flock to nonfiction and prefer to engage fiction storytelling and low-effort commmennting. WikiTribune or /R/BetterPolitics could have rules that allow better headlines.
+
+https://old.reddit.com/r/politics/comments/1nut1e7/democrats_defeat_republican_funding_plan_taking/nh3oo0f/
+
+Reddit is a reactionary chamber to avoid nonfiction learning about Russian information warfare and getting on the same page of important serious topics.
+
