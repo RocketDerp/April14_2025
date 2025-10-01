@@ -1726,3 +1726,8 @@ https://old.reddit.com/r/okbuddycinephile/comments/1nveg4s/wake_up_babe_new_woma
 https://old.reddit.com/r/okbuddycinephile/comments/1nveg4s/wake_up_babe_new_woman_for_grifters_to_fucking/nh8pezw/
 
 https://old.reddit.com/r/okbuddycinephile/comments/1nveg4s/wake_up_babe_new_woman_for_grifters_to_fucking/nh8domu/
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh91lb6/
+
+For OVER TEN YEARS, Donald Trump has been doing more and more antics. People on Reddit have not studied Russian techniques of Putin in domestic governing. USA can not get ENOUGH of mocking Trump's action. Just listen to this message... the implication that Donald Trump should still be around at Super Bowl. People are not calling for his removal, they are commenting on it like more is coming. OVER TEN YEARS of this audience reaction as if We The People can't alter the outcomes by confronting WE THE PEOPLE, rescuing MAGA cult and Reddit cult to the mockery!
+
