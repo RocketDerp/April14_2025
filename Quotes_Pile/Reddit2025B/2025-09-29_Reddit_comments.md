@@ -1652,3 +1652,7 @@ https://old.reddit.com/r/Snorkblot/comments/1nv91cr/the_next_time/nh7844j/
 
 Reddit community thinks it is in the cool meme club of mocking away. Unable to engage nonfiiction learning of media ecology, 1985 book "Amusing Ourselves To Death"
 
+https://old.reddit.com/r/Snorkblot/comments/1nv91cr/the_next_time/nh6zmwg/
+
+To many of "them" can't see their own messaage about out-group "them".  What computerized messaging has done in low-effort high-speed high-quantity comment consumption of Reddit users. Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
+
