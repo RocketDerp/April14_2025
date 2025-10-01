@@ -1648,3 +1648,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1nv5rk1/a_fat_general_policy_t
 
 The human lard is what is a core theme to bomb making in Fight Club. People in Reddit can't even cite culural references of Trickle Down Lard / Fat of the Land. Right Lenny?
 
+https://old.reddit.com/r/Snorkblot/comments/1nv91cr/the_next_time/nh7844j/
+
+Reddit community thinks it is in the cool meme club of mocking away. Unable to engage nonfiiction learning of media ecology, 1985 book "Amusing Ourselves To Death"
+
