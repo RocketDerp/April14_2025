@@ -1517,4 +1517,11 @@ https://old.reddit.com/r/democrats/comments/1nuwb91/newsom_team_shares_computerg
 
 So ignorant, celebrating ignorance, thinking this is a "civil war". Russia won, Putin won, Surkov won. Since year 2013. People embraced Russian memes and Russian insults. And if it were a civil war, it is being faught with powerful systems of health care harm against the poor, powerful media machines against We The People, powerful systemic attacks on world trade and supply chain. These are real-world complex systems that meme-think Twitter-thinking short-length addictions to memes and jokes don't cover.
 
+https://old.reddit.com/r/politics/comments/1nv0z5x/military_leaders_seriously_alarmed_by_hegseths/nh5cd10/
+
+Praising Trump values that revenge is the motivation the USA needs. Revenge second term messaging. Hate motivtes, revenge motivates. Flint Michigan a man used his truck to take revenge on a Morman church on Sunday. Terrorism is revenge values. Addicts to fiction and entertainment find it thrilling way to focus on life, revenge against the Earth with toxic pollution. Israel taking revenge on Palestine for Saturday October 7, 2023 terrorism. Very popular. Popularity itslef is toxic. Fucked-up thinking and values.
+
+https://old.reddit.com/r/politics/comments/1nv0z5x/military_leaders_seriously_alarmed_by_hegseths/nh5g9na/
+
+"only half", people so divided and anti-empathy and anti-compassion that they have convinced themselves Greenland and Canada NATO has nothing to do with Putin and IRA invasion of Reddit commenting since year 2013. Bad is bad, doesn't matter what geography or what political party, badness is bad. Russia attacking Ukraine is bad. Anti-humanism is bad. 
 
