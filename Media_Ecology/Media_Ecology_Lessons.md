@@ -707,4 +707,17 @@ Phone -  BBS  -- (219) 471-3918"
 http://files.mpoli.fi/unpacked/software/os2/texts/mm1193.zip/nov93.txt      
 https://archive.ph/4CgwH    
 
+&nbsp;
+
+### Art named after publication ID
+
+Ablumbs with their own barcode / product selling / library identification code.
+
+Music albums: https://rateyourmusic.com/list/LDD/albums_titled_after_their_catalog__serial_or_barcode_numbers/
+
+ToDo: find less spammy site with that list?
+
+Are there books named after Duey decimal system or other public library category systems? ISBN?
+
+YouTube songs named after their YouTube song ID? "The 11-character alphanumeric YouTube video ID system (e.g., dQw4w9WgXcQ) allows for approximately 73 quintillion unique combinations."
 
