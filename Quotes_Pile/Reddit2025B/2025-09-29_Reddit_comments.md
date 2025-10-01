@@ -1600,3 +1600,17 @@ https://old.reddit.com/r/technology/comments/1nv5q62/the_ai_slop_drops_right_fro
 
 People who think that above age 21 you should not move The Bible over to the science fiction section with peers like Hamlet's Ghost and Star Wars "Force Ghosts" 1977. But Reddit doesn't want to take on the nonfiction vs. fiction addiction issues of society. Wanting to go down with the USA ship of people who have decided fiction is worth death over. White House is leading Reddit with fiction content.
 
+https://old.reddit.com/r/news/comments/1nv7y90/faa_plans_to_furlough_11000_employees_in_us/nh6kibo/
+
+https://old.reddit.com/r/news/comments/1nv7y90/faa_plans_to_furlough_11000_employees_in_us/nh6npfa/
+
+"Backfired", psychologial denial runs incredibly deep on Reddit. Donald Trump brans all failures as his own. Reddit community thinks "grab them by the pussy" isn't a real behavior of being a superstar. People can not resist mocking Trump, the engagement needle of media systems has never been higher in all human history. Bigger than Jesus, bigger than Hitler, bigger than God, bigger than The Beatles, bigger than any commedian. People can not resist watching Trump wreck the USA and then rushing to their social devices to message "dumb idiot" over and over, eating the Tony Clifton show! Tony Clifton is a role Trump is playing Surkov Students are not understood by Reddit community that lives in massive denial that their brains are manipuated by the absurd surreal antics of Trump's choices. A nation that sold out to comedy-washing and LOL-washing on Reddit who could not engage nonfiction learning of Cambridge Analytica and Internet Research Agency since year 2014.
+
+https://old.reddit.com/r/news/comments/1nv7y90/faa_plans_to_furlough_11000_employees_in_us/nh6o9ul/
+
+Calling for important messagess.... No, it is not what needs to be repeated and said loudly. Russia defeated the USA using Reddit, Twitter, Facebook, etc. THIS is what needs to be said LOUDLY and REPEATED: "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/news/comments/1nv7y90/faa_plans_to_furlough_11000_employees_in_us/nh6r6t2/
+
+There are dozens and dozens of these eogmania messages that what matters is personal flights. Not rescuing hundreds of millions of MAGA population from media addiction to Trump antics. Not resucing the USA from Russia's mind-fucking war. Just personal self concerns, egoism. Exctly like role models RFK Jr and Donald J Trump - egomania adopted by Reddit users. A nation that follows an egomania leader and adopts egomania.
+
