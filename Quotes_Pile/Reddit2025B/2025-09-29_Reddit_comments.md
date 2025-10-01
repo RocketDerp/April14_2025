@@ -1396,3 +1396,7 @@ The IRA with CA payloads has brainwashed the nation into thinking Bluesky and Re
 
 https://old.reddit.com/r/PublicFreakout/comments/1nuu8dn/republicans_are_a_noshow_to_keep_the_federal/nh3z7zw/
 
+https://old.reddit.com/r/BlueskySkeets/comments/1nutlq5/deplorable_wasnt_even_close/nh3sg3u/
+
+Reddit media participatns did the normalization via amusmement-washing and humor-washing the Russian media invasion. Satire-washing everything as a joke-wshing opportunity.
+
