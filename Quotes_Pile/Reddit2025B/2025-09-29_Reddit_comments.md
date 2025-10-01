@@ -1673,5 +1673,10 @@ Texan Rick Roderick: " And what it was about, was about how when capitalism reac
 
 https://old.reddit.com/r/politics/comments/1nvamcq/google_accused_of_blocking_searches_about_trump/nh7giem/
 
-Blind leading the blind. What's important to corporations seeking profit is that fiction outsells nonfiction. By training machines on Reddit comment, the reinforcement is that repetitive looping of huge quanitites of low-quality low-effort commenting far outsells any seriously written nonfiction. The reinforcement learning is showing the reality of alternate universe games (AUG) alternate reality games (ARG) interactive fiction storytelling / games ... ... ... 
+Blind leading the blind. What's important to corporations seeking profit (and to [Pied Piper / der Rattenfänger](https://www.youtube.com/watch?v=e7olfvXs2R4) the audience of Reddit) is that fiction outsells nonfiction. By training machines on Reddit comment, the reinforcement is that repetitive looping of huge quanitites of low-quality low-effort commenting far outsells any seriously written nonfiction. The reinforcement learning is showing the reality of alternate universe games (AUG) alternate reality games (ARG) interactive fiction storytelling / games ... ... ... 
 “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and **audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases**. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/politics/comments/1nvamcq/google_accused_of_blocking_searches_about_trump/nh78uzd/
+
+Interactive fiction, the Reddit game of avoiding nonfiction learning. ARG. 
+
