@@ -1304,3 +1304,47 @@ https://old.reddit.com/r/PublicFreakout/comments/1nuqmpl/sen_ted_cruz_how_about_
 Fiction addicts will die for fictions storytelling. "No bottom" to fiction addiction behaviors of Fox News audience, Reddit audience. The avoidance of nonfiction learning about Russian Surkov methods abounds. People willing to die for monomyth storytelling patterns. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ... BILL MOYERS: But how does one worship a metaphor, love a metaphor, die for a metaphor?
 JOSEPH CAMPBELL: That’s **what people are doing all over the place — dying for metaphors**. But when you really realize the sound, “AUM,” the sound of the mystery of the word everywhere, then **you don’t have to go out and die for anything** because it’s right there all around. Just sit still and see it and experience it and know it. That’s a peak experience.
 
+https://old.reddit.com/r/PublicFreakout/comments/1nuqmpl/sen_ted_cruz_how_about_we_all_come_together_and/nh39x7p/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nuqmpl/sen_ted_cruz_how_about_we_all_come_together_and/nh328d5/
+
+https://old.reddit.com/r/PublicFreakout/comments/1nuqmpl/sen_ted_cruz_how_about_we_all_come_together_and/nh37sgr/
+
+https://old.reddit.com/r/politics/comments/1nup66c/antilgbtq_gop_rep_calls_for_public_execution_of/nh35s2q/
+
+https://old.reddit.com/r/politics/comments/1nuqe1d/so_donald_trump_is_declaring_war_on_us_cities/nh34vkd/
+
+The Media Consumes the Audience.
+
+https://old.reddit.com/r/politics/comments/1nuqe1d/so_donald_trump_is_declaring_war_on_us_cities/nh32zkh/
+
+https://old.reddit.com/r/politics/comments/1nuqe1d/so_donald_trump_is_declaring_war_on_us_cities/nh36e6u/
+
+Trump trusts Putin. People trust Trump. This has wrecked the USA that people can't see trusting Putin is a foundation of problems.
+
+https://old.reddit.com/r/politics/comments/1nuqe1d/so_donald_trump_is_declaring_war_on_us_cities/nh3b73l/
+
+https://old.reddit.com/r/politics/comments/1nuqe1d/so_donald_trump_is_declaring_war_on_us_cities/nh3agsc/
+
+https://old.reddit.com/r/politics/comments/1nuqe1d/so_donald_trump_is_declaring_war_on_us_cities/nh3cc6q/
+
+Mechanisms of the War Against Reality.
+
+https://old.reddit.com/r/politics/comments/1nuqe1d/so_donald_trump_is_declaring_war_on_us_cities/nh3cgnd/
+
+The Kremlin does.
+
+https://old.reddit.com/r/politics/comments/1nur8nc/google_is_blocking_ai_searches_for_trump_and/nh3bhbt/
+
+https://old.reddit.com/r/politics/comments/1nur8nc/google_is_blocking_ai_searches_for_trump_and/nh3fdbe/
+
+https://old.reddit.com/r/politics/comments/1nur8nc/google_is_blocking_ai_searches_for_trump_and/nh3jqfu/
+
+https://old.reddit.com/r/politics/comments/1nur8nc/google_is_blocking_ai_searches_for_trump_and/nh3czx4/
+
+https://old.reddit.com/r/politics/comments/1nur8nc/google_is_blocking_ai_searches_for_trump_and/nh36utf/
+
+https://old.reddit.com/r/politics/comments/1nur8nc/google_is_blocking_ai_searches_for_trump_and/nh3dbye/
+
+Reddit blocks my comments.
+
