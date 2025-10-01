@@ -1680,3 +1680,10 @@ https://old.reddit.com/r/politics/comments/1nvamcq/google_accused_of_blocking_se
 
 Interactive fiction, the Reddit game of avoiding nonfiction learning. ARG. 
 
+https://old.reddit.com/r/politics/comments/1nvb3ts/pritzker_calls_for_trumps_removal_from_office/nh7dw5a/
+
+Morally. The Church / Clergy have been morality-washing by not making "1 John 3:17" Bible verse known to every person in USA. Reddit comment sections morality-washing Trump by not making "1 John 3:17" Bible verse known to every person in USA. Same with Bluesky community. People will not rescue MAGA from Russian mind-fuck since year 2013 with remedial morality lessons. OPERA_A Hate prized, the messages people share, the faith in hate. Morality of good from bad. https://www.youtube.com/watch?v=Iww5eeEjxiI 121,679 views  January 26, 2018
+
+https://old.reddit.com/r/politics/comments/1nvb3ts/pritzker_calls_for_trumps_removal_from_office/nh7k1ki/
+
+Yes. It is Fox News audience brainrot, Russian IRA originated briainrot, media cults brainrot. Same with Reddit community brainrot to avoid nonficiton learning. Why haven't the Reddit community sustained focus and repeating of important topics? Such as why hasn't Reddit made this front-page every 48 hours, over and over? ... ... ...**"The 'Shared Psychosis' of Donald Trump** and His Loyalists January 11, 2021 — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
