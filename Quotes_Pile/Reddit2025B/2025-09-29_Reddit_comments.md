@@ -1404,3 +1404,36 @@ https://old.reddit.com/r/BlueskySkeets/comments/1nutlq5/deplorable_wasnt_even_cl
 
 https://old.reddit.com/r/BlueskySkeets/comments/1nutlq5/deplorable_wasnt_even_close/nh47108/
 
+https://old.reddit.com/r/comedy/comments/1nurptn/bill_burr_defends_performing_at_controversial/nh3j2hb/
+
+https://old.reddit.com/r/comedy/comments/1nurptn/bill_burr_defends_performing_at_controversial/nh42zu1/
+
+https://old.reddit.com/r/comedy/comments/1nurptn/bill_burr_defends_performing_at_controversial/nh3nx4t/
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh4yk2l/
+
+People in USA are going around chanting "Epstein" name like it is garlic to vampires, like it is magic holy water that will save their life from fiction vampires. People in USA have their minds so blown-out by Cambridge Analytica & Russian meme warfare. If social media gave a half-shit about standing up for girls and children, Malala since October 2013 would be getting the attention Trump has gotten since November 2013 hena Moscow sex show was hosted by Donald Trump. Honest sincere Internet blogger Malala would be leading a revolution long overdue for thousands of years. Life expectancy in yea 1775 was far lower and "tradition" of marriage with young children have changed. Instead of making this abouto one man, social media could make this about using media to give voice to girls. ... ... ...
+“If one man can destroy everything, why can't one girl change it?” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh58vc3/
+
+People don't see progress is needed world-wide and changing Epstein is chanting a man's name. Giving women the media attention lets them decide and have power over their bodies. Address the parents who abuse and exploit children for films and marriage and business deals.
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh5gnhf/
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh5kjhc/
+
+People are in DENIAL of health care attitudes and military killing orders. People are CHEERING ON the health care cuts, the pregnent women abuse. Cambridge Analytica has mind-fucked people into dehumanization and "action film" / "horror film" self-harm entertainment mindsets. Unleased horror on Earth mind-fuck.
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh595fp/
+
+Reddit messages to wash away language and rituals and witnessing. May as well create short messages on reddit saying world wide that wedding rituals do nothing either. Self-dehumanize more in worship of magical Epstein garlic against vampires.
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh4yb0i/
+
+Disgusting that social media addicts drown out nonfiction books about Russian information warfare by using spare time and free timeto scatter ideas and topics with amusement-washing and mockery-washing on powerful information machines.
+
+https://old.reddit.com/r/news/comments/1nuych7/us_government_shuts_down_as_trump_and_congress/nh53f2d/
+
+Internet Resarch Agency (IRA) invaded Reddit commentingt to mind-fuck USA as Russia took on Ukraine in invasion in February 2014. That is why Trump seemed like a good choice to voters and meme addicts alike, because doctors of the mind / psychology, manipulated Reddit users on social devices. Pizzagate / Q QAnon fiction addictions, War Against Reality. What is going on with self-harm in USA isn't about Epsten list, it is about butchering the USA on the world stage with self-harmm mental programming by doctors. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ and https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ and https://www.bbc.com/news/world-us-canada-45294192
+
