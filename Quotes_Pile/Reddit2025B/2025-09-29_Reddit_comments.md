@@ -1624,4 +1624,9 @@ The USA filter-bubble echo-chambers of fiction addictions ar out of control. Red
 
 https://old.reddit.com/r/MurderedByWords/comments/1nv8dkd/stephanopoulos_its_a_factual_statement/nh799bp/
 
-Watching Reddit fiction vs. Reddit fiction. All avoiding nonfiction learning of how Russian information warfare works since year 2013 defeat of USA.
+Watching Reddit fiction vs. Reddit fiction. All avoiding nonfiction learning of how Russian information warfare works since year 2013 defeat of USA. Surkov won, IRA won, USA lost.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nv8dkd/stephanopoulos_its_a_factual_statement/nh78n5t/
+
+How many times do you have to witness that low-effort high-quantity high-speed commenting on meme amusement machines is abandonment of reality? How many times do you have to see people living in filter-bubbles? Egomania White House leading egomania Reddit comment creators. Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
+
