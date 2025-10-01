@@ -1630,3 +1630,9 @@ https://old.reddit.com/r/MurderedByWords/comments/1nv8dkd/stephanopoulos_its_a_f
 
 How many times do you have to witness that low-effort high-quantity high-speed commenting on meme amusement machines is abandonment of reality? How many times do you have to see people living in filter-bubbles? Egomania White House leading egomania Reddit comment creators. Filter bubbles, subscibe and block. "The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation. The bubble effect may have negative implications for civic discourse" https://en.wikipedia.org/wiki/Filter_bubble
 
+https://old.reddit.com/r/videos/comments/1nv8sn4/jack_daniels_cuts_off_free_cattle_feed_to/nh6rmz9/
+
+https://old.reddit.com/r/videos/comments/1nv8sn4/jack_daniels_cuts_off_free_cattle_feed_to/nh70kru/
+
+https://old.reddit.com/r/videos/comments/1nv8sn4/jack_daniels_cuts_off_free_cattle_feed_to/nh6xra4/
+
