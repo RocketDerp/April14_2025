@@ -2356,5 +2356,8 @@ Lot's of Fun At Finnegans Wake Opera, "Wake Indra Opera" OPERA_A REPEAT_TRACK_A 
 
 https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd60is/
 
-It would be entertaining! The Simpsons fiction storytelling is entertaining. OPERA_A Anti-California https://www.youtube.com/watch?v=bv4a7ZtDZhI
+<img width="838" height="700" alt="image" src="https://github.com/user-attachments/assets/ff7e7906-f57f-49ea-b0a5-757eab3c97dd" /> "They" will not LOOK away, everyone is clued to entertainment networks commenting about the antics! Nobody is standing up to Russia while USA is in feedback loops of self-harm. They are WATCHING, not turning way! It would be entertaining to see a baby eaten! The Simpsons fiction storytelling is entertaining. OPERA_A Anti-California https://www.youtube.com/watch?v=bv4a7ZtDZhI
 
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd6awk/
+
+The Reddit low-effort high-quantity commenting section school of avoiding the nonfiction library secion of learning media ecology.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
