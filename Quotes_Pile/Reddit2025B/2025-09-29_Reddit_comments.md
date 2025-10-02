@@ -2183,3 +2183,8 @@ https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_t
 https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdq4is/
 
 People in USA are happy to have fiction monomyth take over with Russian media invasion (IRA) since year 2013, as long as out-groups suffer. MAGA suffering / red states suffering / blue states suffering / "Leopards Ate My Face" suffering, as long as there is out-group amusement. People have [Settled For Toxic Clergy that has disqualified themselves with out-group hate](/Art/ScreenPlay/Settled_For.md)
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdiqtn/
+
+Give up on Malala's reformation messages. Give up on teching the difference of nonfiction vs. fiction machine messages on Reddit.
+
