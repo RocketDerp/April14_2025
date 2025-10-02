@@ -2312,5 +2312,5 @@ https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_bei
 
 https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd7gc9/
 
-Fiction vs. fiction. Unhinged from nonfiction!
+<img width="1020" height="1004" alt="Screenshot from 2025-10-02 10-49-42" src="https://github.com/user-attachments/assets/b6889cf4-15b5-4feb-8b32-6be470a2c61d" /> Fiction vs. fiction. Monomyth vs. monomyth patterns. Unhinged from nonfiction!
 
