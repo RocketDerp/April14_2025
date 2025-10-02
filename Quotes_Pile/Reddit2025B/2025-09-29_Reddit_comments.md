@@ -2356,8 +2356,12 @@ Lot's of Fun At Finnegans Wake Opera, "Wake Indra Opera" OPERA_A REPEAT_TRACK_A 
 
 https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd60is/
 
-<img width="838" height="700" alt="image" src="https://github.com/user-attachments/assets/ff7e7906-f57f-49ea-b0a5-757eab3c97dd" /> "They" will not LOOK away, everyone is clued to entertainment networks commenting about the antics! Nobody is standing up to Russia while USA is in feedback loops of self-harm. They are WATCHING, not turning way! It would be entertaining to see a baby eaten! The Simpsons fiction storytelling is entertaining. OPERA_A Anti-California https://www.youtube.com/watch?v=bv4a7ZtDZhI
+<img width="838" height="700" alt="image" src="https://github.com/user-attachments/assets/ff7e7906-f57f-49ea-b0a5-757eab3c97dd" /> "They" will not LOOK away, everyone in USA is glued to entertainment networks commenting about the antics leadership signals and content! Nobody is standing up to Russia while USA is in feedback loops of self-harm. They are WATCHING, not turning way! It would be entertaining to see a baby eaten! The Simpsons fiction storytelling is entertaining. OPERA_A Anti-California https://www.youtube.com/watch?v=bv4a7ZtDZhI
 
 https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd6awk/
 
 The Reddit low-effort high-quantity commenting section school of avoiding the nonfiction library secion of learning media ecology.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhda3mb/
+
+<img width="838" height="636" alt="image" src="https://github.com/user-attachments/assets/da6df0d0-03cc-43c6-aef6-d7a107a03d1f" /> Year 1924 onward publication of James Joyce's Finnegans Wake monomyth English language patterns. SEE_ALSO_A October 20, 2011. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin "This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for neuro-linguistic programming and Eriksonian hypnosis: types of subliminal manipulation based largely on confusing your opponent, first developed in the US in the 1960s. There are countless NLP and Eriksonian training centres in Moscow, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator. Newly translated postmodernist texts give philosophical weight to the Surkovian power model."
