@@ -2134,3 +2134,39 @@ https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_
 
 We The People are the source of power. But we must all choose, free will, to be serious at serious times. Not serious about violence, serious about nonfiction learning and teaching. Like Malala is serious. Halt all etertainmet, halt all joking and mocking, and behave as if serious stiuations are serious! Rescue the White House from Putin! [/Grim_Blunt/Stop_All_Entertainment.md](/Grim_Blunt/Stop_All_Entertainment.md)
 
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhdawfi/
+
+Mockery-washing serious situation. Low-effort moockery media content, following Trump's lead of mockery nation. Anything to avoid serious sustained focus and repeating of nonfiction about Russian information warfare and IRA simualcra patterns.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhdfugs/
+
+Repeating trash low-effort commenting is what social media addicts crave. ANYTHING to avoid nonfiction learning about Russian information warfare since year 2013. ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd9ga9/
+
+Reddit fixates and never goes beyond superfical banal shalowness. Anyone else notice that? Millios and millions of dispoable commenting messages that drown out sustained repeat focus on what is improtant and critical. Superficial and shallow is pouplar. Popularity has become toxic.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd21yv/
+
+Mockery-washing that Americans (Tiffany the American I'm pointing to) have had their hearts and minds put into anti-reality by Russian information warfare. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd0vvo/
+
+Insanity abounds. People can't turn to nonfiction learning on insanity itself. Instead constantly reacting to White House messages over and over on meme machines. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd0jjw/
+
+Reddit messages cheering on the harm of USA people. Unable to imagine that the "in-groups" will thrive on hate and special treatment / membershp in clubs and groups. ... ... ... “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1955.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd4j53/
+
+Russia's Internet Research Agency invaded both Facebook and Reddit and other media systems since year 2013. People who will not turn to nonfiction sustained focus and learning / teaching of media ecology and mechanics of Russian information warfare / mass mind manipulation.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd1scj/
+
+Peole go out to vote in Russia in huge numbers. The problem is the avoidance of nonfiction mindsets and avoidance of facing Russia won an information war. Reddit drowning in low-effort huge quanities of messages that do not get people on the same page of critical priorities of importance.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd2p2l/
+
+Fiction outsells nonfiction. People on Reddit in October 2025 can't even cite this about altenate reality / alternate universe mind-fuck warfare from September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
