@@ -1743,3 +1743,39 @@ https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_wi
 
 Let Russia mind-fuck the entire population, not just Republicans, but EVERYONE into simualcra screen games of constantly *hate harder* upon American people instead of recognized just how fucked-up drunk everyone is on memes and trash commenting.
 
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh9taui/
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh9m23t/
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh9emdm/
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh95eg7/
+
+People just can't face this isn't Germany and the technology isn't 1933. People can't see that blocking on reddit out of egomania is just like book burning. A media ecology lesson: They didn't have Unicode messaginga nd Reddit block buttons in 1933 Germany! The USA is a monster state all by itself now, Germany did not have nuclear weapons with mad men able to press a button in minutes to wreck people anywhere in the world! This is a terror and nightmare far beyond. People who are science trained know we have NASA and moon landing and things Germany with Hitler never could mind-fuck people with. OPERA_A Manic USA President with cult of deeath to humanity, death to Earth climate, poison harder / toxic Earth harder values. Did you read the news today? They say the danger has gone away! https://www.youtube.com/watch?v=Yq7FKO5DlV0
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh921jr/
+
+"Fuck this", instead of addressing the timeline and teaching remedial compassion, remedial love lessons, a media consumer attitude like watching a television show. This is real life, real reality, rescue humanity. Support Malala, she is teaching remedial compassion for Levant faiths.
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh968m0/
+
+High-speed reactionary messaging systems feed thoughtless reacting to out-groups.
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh9ck7y/
+
+Fiction addiction, the avoidance of reality through fantasy fiction Fox News addiction and Reddit comment addiction. Loving Reddit messages while hating human persons. Loving a screen video game while hating human persons.
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh96k0d/
+
+"LMAO", finding Trump antics politcs and White House going after entertainment symbolisms such comedy engagement. Entirely addicted to the Surkov Governing techniques. 
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh94lsf/
+
+Entertainment addicts of Reddit meme machines calling out their wishes for the hyper reality. Entirely wishing for Directors at the White House to make year 2026 entertinment even more exciting!  This is a nation full of meme addicts who can't get enough of antics politics to feed their touch screen addictions.
+
+https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_will_be_at_super/nh9ne7g/
+
+Reddit addicts know that addictions to superficial and banal things are driving the nation. Alas, won't stand up and *be preachy* and lecture that that trash is shallow and superficial compared to loving one another and rescuing MAGA from Putin / Russian informationw war. Admitting that ignoring the Russian invasion of Reddit and other social meme systems was a horrible mistake and priorites need to change to be serious until all people understand the self-harm that fiction addiction and sports addictions have caused.
+
+
+
