@@ -2516,3 +2516,30 @@ JOSEPH CAMPBELL: That’s **what people are doing all over the place — dying f
 https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfq0np/
 
 It is radical to point out that Russia is winning an information war of manipulating people into logic polarity thinkig patterns since year 2013.
+
+https://old.reddit.com/r/scotus/comments/1nw8822/clarence_thomas_admits_that_hes_coming_for_our/nhea2e7/
+
+https://old.reddit.com/r/scotus/comments/1nw8822/clarence_thomas_admits_that_hes_coming_for_our/nheaw4k/
+
+Anything to not face the public library nonfiction section to study how Putin has waged information warfare on Reddit and what the outcomes of Cambridge Analytica executive function mind manipulation does to people who don't face the forest for the trees. Attacking Greenland and Canada with information warfare wasn't anti-NATO enough in 2025 for people to wake up to Putin's manipulation? ... ... ...
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/Music/comments/1nw80wz/hayley_williams_confirms_morgan_wallen_is_the/nhelih6/
+
+The role models for children since year 2015.
+
+https://old.reddit.com/r/Music/comments/1nw80wz/hayley_williams_confirms_morgan_wallen_is_the/nhe13kl/
+
+https://old.reddit.com/r/politics/comments/1nw826b/trump_shutdown_shuts_down_white_house_troll/nhe1898/
+
+https://old.reddit.com/r/politics/comments/1nw826b/trump_shutdown_shuts_down_white_house_troll/nhek25e/
+
+https://old.reddit.com/r/politics/comments/1nw826b/trump_shutdown_shuts_down_white_house_troll/nheyle5/
+
+https://old.reddit.com/r/politics/comments/1nwc7cx/trump_directive_classifies_anticapitalism_and/nhfa9oc/
+
+https://old.reddit.com/r/politics/comments/1nwc7cx/trump_directive_classifies_anticapitalism_and/nheu38h/
+
+https://old.reddit.com/r/politics/comments/1nwc7cx/trump_directive_classifies_anticapitalism_and/nhezdvf/
+
+
