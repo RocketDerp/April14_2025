@@ -2399,3 +2399,54 @@ https://old.reddit.com/r/whenthe/comments/1nw1eo4/this_is_genuinely_the_largest_
 https://old.reddit.com/r/whenthe/comments/1nw1eo4/this_is_genuinely_the_largest_digital_media_wipe/nhedvzu/
 
 https://old.reddit.com/r/whenthe/comments/1nw1eo4/this_is_genuinely_the_largest_digital_media_wipe/nhdf803/
+
+https://old.reddit.com/r/InflatedEgos/comments/1nw955x/a_fight_breaks_out_at_the_airport/nhed17q/
+
+https://old.reddit.com/r/InflatedEgos/comments/1nw955x/a_fight_breaks_out_at_the_airport/nhewzce/
+
+https://old.reddit.com/r/InflatedEgos/comments/1nw955x/a_fight_breaks_out_at_the_airport/nhf0me8/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhd7vj7/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdatbp/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdfqc4/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdpq41/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhe1l5j/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdprph/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhe4zac/
+
+Reddit community is one of the main meeting points of people who have amusemen-washed joke-washed the Russian media invasion, the IRA and CA since year 2013.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhetkuq/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhd9kg0/
+
+Tony Clifton audience eating the onions. Surkov governing works every time on Reddit community who can't engage nonfiction learning of Russian techniques and timelines.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdgn0q/
+
+Bible memes, John 1:1 patterns, still work no matter how outdated to people who don't study nonfiction learning of mob mentality and group thinking.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdfmxk/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdmgrg/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdfjc9/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdopuh/
+
+Minds blown by humor exploits.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdbsp7/
+
+Lost to Russia, hearts and minds in unreality. Russia won the War Against Reality since year 2013.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_to_cancun/nhdwdrv/
+
+Exactly the kind of comments you expect in a Tony Clifton performance audience. People who can't grasp they are eating the Surkovian onions.
+
