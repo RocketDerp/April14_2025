@@ -1777,5 +1777,25 @@ https://old.reddit.com/r/Music/comments/1nvjr43/trump_advisor_says_ice_agents_wi
 
 Reddit addicts know that addictions to superficial and banal things are driving the nation. Alas, won't stand up and *be preachy* and lecture that that trash is shallow and superficial compared to loving one another and rescuing MAGA from Putin / Russian informationw war. Admitting that ignoring the Russian invasion of Reddit and other social meme systems was a horrible mistake and priorites need to change to be serious until all people understand the self-harm that fiction addiction and sports addictions have caused.
 
+https://old.reddit.com/r/madlads/comments/1nvjhav/madlad_gets_his_meal_at_a_discount/nh95qnt/
 
+Tony Clifton performances count on audiences reacting like this. Infinite Jest mechanics.
+
+https://old.reddit.com/r/law/comments/1nvlteb/pritzker_it_appears_that_donald_trump_not_only/nh9izlf/
+
+Very comptently serving Putin's messaged agenda of self-harm to USA. Not dementia, but focused execution. And not just one single person age 79. Elon Musk doesn't have dementia and serves Putin's agenda messages.
+
+https://old.reddit.com/r/law/comments/1nvlteb/pritzker_it_appears_that_donald_trump_not_only/nh9m8ai/
+
+https://old.reddit.com/r/illinois/comments/1nvk1yp/it_appears_that_donald_trump_not_only_has/nh96woq/
+
+https://old.reddit.com/r/illinois/comments/1nvk1yp/it_appears_that_donald_trump_not_only_has/nh98jib/
+
+https://old.reddit.com/r/illinois/comments/1nvk1yp/it_appears_that_donald_trump_not_only_has/nh94ygi/
+
+Russia mind-fucked the population. IRA and CA.
+
+https://old.reddit.com/r/illinois/comments/1nvk1yp/it_appears_that_donald_trump_not_only_has/nh9iyxl/
+
+Exactly. Ignoring the threat of Fox News, ignoring the threat of Internet Research Agency. Mocking and feeding the flames, actively contibuting, not just ignoring! 
 
