@@ -2124,3 +2124,13 @@ Rule by stress lords. Stress of a mythology story that Judgement Days will come 
 https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd4egz/
 
 Note the absence of links, author names, book titles, etc.
+
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd8q84/
+
+IT IS TIME, BEYOND TIME, for social media users to stop commenting on thousands of independent pages with disposable content. Halt all etertainmet, halt all joking and mocking, and behave as if serious stiuations are serious! [/Grim_Blunt/Stop_All_Entertainment.md](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhda0o3/
+
+We The People are the source of power. But we must all choose, free will, to be serious at serious times. Not serious about violence, serious about nonfiction learning and teaching. Like Malala is serious. Halt all etertainmet, halt all joking and mocking, and behave as if serious stiuations are serious! Rescue the White House from Putin! [/Grim_Blunt/Stop_All_Entertainment.md](/Grim_Blunt/Stop_All_Entertainment.md)
+
