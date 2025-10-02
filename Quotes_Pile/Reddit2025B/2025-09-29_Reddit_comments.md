@@ -2250,3 +2250,23 @@ JOSEPH CAMPBELL: Yes. But then there comes a time when the machine begins to dic
 BILL MOYERS: There is a fetching story about President Eisenhower and the first computers —
 JOSEPH CAMPBELL: — Eisenhower went into a room full of computers. And he put the question to these machines, “Is there a God?” And they all start up, and the lights flash, and the wheels turn, and after a while a voice says, “Now there is.” BILL MOYERS: But isn’t it possible to develop toward your computer the same attitude of the chieftain who said that all things speak of God?
 
+https://old.reddit.com/r/therewasanattempt/comments/1nw4olx/to_not_have_a_president_who_is_mocked_and_laughed/nhd9ha8/
+
+Amusement-washing, laugh-washing serious situation. Putin / Kremlin mind-fuck exploits the brian into meme stupor, laugh stupor, to reset into recency bias and addictionto more antics politics. 
+
+https://old.reddit.com/r/therewasanattempt/comments/1nw4olx/to_not_have_a_president_who_is_mocked_and_laughed/nhda2hk/
+
+Reddit lead the USA since year 2013 into avoiding the nonfiction section of the public library to be extremely serious and sustained on fighting the IRA. Evidence gong back to year 2014: https://www.bbc.com/news/world-us-canada-45294192 - Reddit too https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/therewasanattempt/comments/1nw4olx/to_not_have_a_president_who_is_mocked_and_laughed/nhdbwyd/
+
+Egomania abounds. 
+
+https://old.reddit.com/r/therewasanattempt/comments/1nw4olx/to_not_have_a_president_who_is_mocked_and_laughed/nhdc3zk/
+
+NATO lost a war to the IRA meme front lines of Reddit / Twitter / Faceebook. ... ... ...
+By **Daisy Sindelar. August 12, 2014** - https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/ and also on https://archive.ph/ncxw6 "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at **The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments** that sound like they were written by 12-year-olds, then you just don't bother to comment," she says. "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and they work."
+
+https://old.reddit.com/r/therewasanattempt/comments/1nw4olx/to_not_have_a_president_who_is_mocked_and_laughed/nhddqjd/
+
+Laugh-washing, mind-fucking resets with humor. Eating right out of Putin and Surkov Kremlin hands since year 2013. Exactly as conditioned, to view Trump / MAGA / U.S.A. as enteratinment first / amusement first. ... ... ... “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
