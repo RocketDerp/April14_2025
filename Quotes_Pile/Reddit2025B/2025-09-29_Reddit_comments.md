@@ -1799,3 +1799,30 @@ https://old.reddit.com/r/illinois/comments/1nvk1yp/it_appears_that_donald_trump_
 
 Exactly. Ignoring the threat of Fox News, ignoring the threat of Internet Research Agency. Mocking and feeding the flames, actively contibuting, not just ignoring! 
 
+https://old.reddit.com/r/interesting/comments/1nvhp8f/this_japanese_man_had_an_argument_with_his_wife/nha3b67/
+
+Tower of Babel barriers, egomania, anti-learning, anti-teaching, anti-growth.
+
+https://old.reddit.com/r/interesting/comments/1nvhp8f/this_japanese_man_had_an_argument_with_his_wife/nha32h0/
+
+https://old.reddit.com/r/politics/comments/1nviy7r/trump_cuts_funding_to_16_blue_states_that_didnt/nh8whb2/
+
+President of the Fiction Addicts of America, the people who wish to avoid nonfiction learning of the details and technques of Russian mind manipulaton and infornation warfare
+
+https://old.reddit.com/r/politics/comments/1nviy7r/trump_cuts_funding_to_16_blue_states_that_didnt/nh992du/
+
+Relddit's whole community mob mentality tehnique is downovting down / punching down on ideas outside egomania. To filter out nonfiction and serious callouts. Same with Bluesky, block-happy cheering of deporting people with silence filter / squelch settings. Trump White House is implrementing Truth Social values of machine behaviors towards fiction addicts who don't like the fiction other people favor. Meanwhile, nonfiction and science thinking has been trashed in allt he ways Carl Sagan described in his 1995 book and January 8, 1994 public notice to We The People. https://www.washingtonpost.com/archive/entertainment/books/1994/01/09/with-science-on-our-side/9e5d2141-9d53-4b4b-aa0f-7a6a0faff845/
+
+https://old.reddit.com/r/politics/comments/1nviy7r/trump_cuts_funding_to_16_blue_states_that_didnt/nh8vz7r/
+
+Reddit community / hivemind fixate on one man, one single person, this is a mob mentality  / group think of mass mind behaviors. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1nviy7r/trump_cuts_funding_to_16_blue_states_that_didnt/nh8z5y7/
+
+Note the absence of link, quote, name any author, name any book title, etc. Surkov himself bragged about mind-altering to self-harm, to be attracted to Russian values and Russian methods: February 12, 2019 https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
+
+https://old.reddit.com/r/politics/comments/1nviy7r/trump_cuts_funding_to_16_blue_states_that_didnt/nh9oj01/
+
+Unable to cite any author names, book titles, "tinfoil fiction" washing the topic, short-message washing a serious topic. Tinfoil hat itself has been exploited by Putin / Russia. It generates a contioned knee-jerk dismisall. Viwed as pitty and not a serous important topic. ... ... ...
+“With today’s regimes, which struggle to formulate a single ideology, the idea that one lives in a world full of conspiracies becomes the worldview itself. Conspiracy theory replaces ideology with a mix of self-pity, paranoia, self-importance, and entertainment.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
