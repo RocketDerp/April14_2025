@@ -2170,3 +2170,11 @@ https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_
 
 Fiction outsells nonfiction. People on Reddit in October 2025 can't even cite this about altenate reality / alternate universe mind-fuck warfare from September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdeifu/
+
+Religion monomyth fiction wars. Media venue for Torah. Unable to cite the Russian monomyth war since year 2013. Torah / Quran / Bible fictions storytellng manipulation to mind-fuck audiences. Fiction outsells nonfiction. People on Reddit in October 2025 can't even cite this about altenate reality / alternate universe mind-fuck warfare from September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdn2be/
+
+Church in USA in Flint Michgan attacked on Sunday, here another terror attack on Thursday.
+
