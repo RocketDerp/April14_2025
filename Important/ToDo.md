@@ -1675,3 +1675,8 @@ https://old.reddit.com/r/CoupleMemes/comments/1nv6cx7/sometimes_its_not_about_wh
 
 Concerns of Finnegans Wake, language learning, English singsong. AC/DC We've Got Big Balls in our family!   
 https://old.reddit.com/r/ContagiousLaughter/comments/1nw71gt/daycare_tomorrow_is_going_to_be_interesting/
+
+&nbsp;
+
+I observe James Joyce community on reddit downvoted this posting.. https://old.reddit.com/r/jamesjoyce/comments/1nvl5jf/is_ulysses_actually_that_hard/
+32 comments, yet posting voted "0 points (43% upvoted)"
