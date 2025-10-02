@@ -1842,3 +1842,27 @@ https://old.reddit.com/r/AskReddit/comments/1nvth7g/a_major_development_related_
 
 No link, no author, no book title. Yes, Jesus mythology is highly relevant. Surkov monomyth mind-fuck patterns of Levant are highly relevant. But this short-length-washing of the situation, this disposable-commenting-washing of reality is part of the crisis. Mindsets of goodness abandoned in favor of tiny-length snark.
 
+https://old.reddit.com/r/NoFilterNews/comments/1nvk2h9/trump_hinted_at_plans_to_cancel_2028_election/nh964jd/
+
+Messages to wait out Trump. Mental denial of the cult behaviors of Reddit commenting, Fox News HDTV audience cult, etc. Russia won, Putin won the population. Waiting entertainment watching Trump does not address cult problem, cult of mythology. Fiction addictions. Avoidance of serious nonfiction learning. Comment message cults.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nvk2h9/trump_hinted_at_plans_to_cancel_2028_election/nh981qa/
+
+React with physical violence. Anything to avoid nonfiction learning of Russian information warfare and improving thinking systems of We The People.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nvk2h9/trump_hinted_at_plans_to_cancel_2028_election/nh9lcoz/
+
+"It sums up the strange mood of our time, where nothing really makes any coherent sense. We live with a constant vaudeville of contradictory stories that makes it impossible for any real opposition to emerge, because they can't counter it with any coherent narrative of their own. And it means that we as individuals become ever more powerless, unable to challenge anything, because we live a state of confusion and uncertainty. **To which the response is: Oh dear. But that is what they want you to say**." https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/NoFilterNews/comments/1nvk2h9/trump_hinted_at_plans_to_cancel_2028_election/nh9am3p/
+
+Reddit will meme-wash everything serious. Reddit society and Bluesky society will fragment any complex mutual understanding into meme fodder trash commentiong addictions. Ultra processed food for brain-damage. Anything to avoid learning nonfiction media ecology and coming together over a shared high-speed reactionary high-quantity messaging problem.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nvk2h9/trump_hinted_at_plans_to_cancel_2028_election/nh9s08s/
+
+Due for 2A, die for guns. Anti-Malala. Progress comes from Swat Valley, Pakstian and it is avoided at all cost since year 2013 in favor of anti-intellectual anti-comprehension anti-understanding messaging consumption on social machines.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nvk2h9/trump_hinted_at_plans_to_cancel_2028_election/nh9d79c/
+
+Denial abounds.
+
