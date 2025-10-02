@@ -2200,3 +2200,27 @@ https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_t
 Fiction addicts, compuslive reaction to ANY fiction storytelling. Like Putin and Trump fiction stories. People can't see the pattern goes far beyond thousands of years old religion science fiction stories. Fox News fiction also creates alternate universes / alternate realities. So does Reddit fiction. ... ... ...
 “Today, reports of the day’s events are conveyed to the viewing public by **way of alternate universes**, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
 
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdo284/
+
+Fiction addiction abounds. "It wouldn’t work if it weren’t popular, and **audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases**. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdopmm/
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdphj4/
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdpmxo/
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdqrl6/
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdkq7o/
+
+OPERA_A Imagine. They called Him a Dreamer. https://www.youtube.com/watch?v=gncyDkWWY_w
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdjpl3/
+
+Reddit is media. The "Social media", where hate messages of out-groups are common.
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdqy2z/
+
+Alternate reality, alternate universe. So does Reddit. Fiction draws audiences, nonfiction is considered boring. So does Reddit fiction. ... ... ...
+“Today, reports of the day’s events are conveyed to the viewing public by **way of alternate universes**, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
