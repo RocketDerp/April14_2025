@@ -2270,3 +2270,26 @@ By **Daisy Sindelar. August 12, 2014** - https://www.theatlantic.com/internation
 https://old.reddit.com/r/therewasanattempt/comments/1nw4olx/to_not_have_a_president_who_is_mocked_and_laughed/nhddqjd/
 
 Laugh-washing, mind-fucking resets with humor. Eating right out of Putin and Surkov Kremlin hands since year 2013. Exactly as conditioned, to view Trump / MAGA / U.S.A. as enteratinment first / amusement first. ... ... ... “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/nottheonion/comments/1nw4v9v/congressman_now_claims_existence_of_five/nhdewes/
+
+https://old.reddit.com/r/nottheonion/comments/1nw4v9v/congressman_now_claims_existence_of_five/nhdbwim/
+
+Fiction storytelling is more popular with Reddit audiences than nonfiction serious learning about using unreality to govern nations, Surkov governing methods.
+
+https://old.reddit.com/r/nottheonion/comments/1nw4v9v/congressman_now_claims_existence_of_five/nhdiiq6/
+
+Entertainment sells to Reddit community. Mocking Tony Clifton performances.
+
+https://old.reddit.com/r/nottheonion/comments/1nw4v9v/congressman_now_claims_existence_of_five/nhdbcik/
+
+Audiences got bored and want creative mythology storytelling for leadership again. Like the "old world order" of Mecca that Saudi Arabia uses, science fiction, magic space aliens called "angels". UFO style fiction storytelling.
+
+https://old.reddit.com/r/nottheonion/comments/1nw4v9v/congressman_now_claims_existence_of_five/nhdf3ks/
+
+Choose your own fictions storytelling. Surkov governing method for nations.
+
+https://old.reddit.com/r/nottheonion/comments/1nw4v9v/congressman_now_claims_existence_of_five/nhddoqd/
+
+Fiction outsells even on Reddit. Nonfiction learning about modern Russian mind-fucking with mythology storytelling isn't popular.
+
