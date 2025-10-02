@@ -2229,3 +2229,24 @@ https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_t
 
 People with hate as fatih, the belief that hate will improve the world, that war will solve problems, do not like messages against hate. Audience member crying out that hate needs defending. Out-group hate patterns. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md). Stop acting like hate is ejoyable, hate is not fun. Face the truth of hate. Have Pale Blue Dot pride, human species learning from errors pride.
 
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdm6j2/
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdsysw/
+
+People want to racce to "breaking news" events, speed and high quantity over comprehension and undestanding.
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdo5jl/
+
+Wildcard magic messages can't be said. I am only seeing censorship that I am documenting on this GitHub in detail. Instead of just making wildcard claims. Mine have time, message links, content that is forbidden on Reddit.
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdsb9h/
+
+Amusement-washing, entertainment-washing video-game-washing the serious situaiton. Anti-reality washing real reality problems with mind-fuck messages for Reddit audiences.
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdg8kr/
+
+"Ask ChatGPT" - the new John 1:1 fiction storytelling God.  George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): BILL MOYERS: Machines help us to fulfill the idea that we want the world to be made in our image, and we want it to be what we think it ought to be.
+JOSEPH CAMPBELL: Yes. But then there comes a time when the machine begins to dictate to you. For example, I have bought this wonderful machine—a computer. Now I am rather an authority on gods, so I identified the machine—it seems to me to be an Old Testament god with a lot of rules and no mercy.
+BILL MOYERS: There is a fetching story about President Eisenhower and the first computers —
+JOSEPH CAMPBELL: — Eisenhower went into a room full of computers. And he put the question to these machines, “Is there a God?” And they all start up, and the lights flash, and the wheels turn, and after a while a voice says, “Now there is.” BILL MOYERS: But isn’t it possible to develop toward your computer the same attitude of the chieftain who said that all things speak of God?
+
