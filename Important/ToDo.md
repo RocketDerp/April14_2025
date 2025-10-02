@@ -1670,3 +1670,8 @@ https://old.reddit.com/r/todayilearned/comments/1nuspgm/til_the_most_complex_wor
 
 Choice marriage honesty, choice marriage on a foundation of lies and deception. Just like Donald Trump is the leader of free natiion of "free choice" marriage role model. A society that flocks to liars as leaders. Booss man (workpalce relevant to cited posting topic) liars, employees who prize liars as leaders and role models, politicians as liars, lie to everyone as leadership technique.     
 https://old.reddit.com/r/CoupleMemes/comments/1nv6cx7/sometimes_its_not_about_whos_right_its_about/
+
+&nbsp;
+
+Concerns of Finnegans Wake, language learning, English singsong. AC/DC We've Got Big Balls in our family!   
+https://old.reddit.com/r/ContagiousLaughter/comments/1nw71gt/daycare_tomorrow_is_going_to_be_interesting/
