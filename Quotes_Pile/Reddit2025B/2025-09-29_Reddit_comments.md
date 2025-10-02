@@ -2224,3 +2224,8 @@ https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_t
 
 Alternate reality, alternate universe. So does Reddit. Fiction draws audiences, nonfiction is considered boring. So does Reddit fiction. ... ... ...
 “Today, reports of the day’s events are conveyed to the viewing public by **way of alternate universes**, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdnmhw/
+
+People with hate as fatih, the belief that hate will improve the world, that war will solve problems, do not like messages against hate. Audience member crying out that hate needs defending. Out-group hate patterns. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md). Stop acting like hate is ejoyable, hate is not fun. Face the truth of hate. Have Pale Blue Dot pride, human species learning from errors pride.
+
