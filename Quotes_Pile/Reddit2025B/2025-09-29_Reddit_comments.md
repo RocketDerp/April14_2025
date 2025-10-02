@@ -1876,3 +1876,33 @@ Torah is science fiction. But Reddit community can't stand up for nonfiction sci
 
 https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhchzfq/
 
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcchca/
+
+Right here on this github I've documented censorship that people on Reddit don't discuss.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhci5jz/
+
+Allh and Yawheh, Torah and Quran, both promote dictators from outer space to children. Challenge the clergy, not just governments.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhckh40/
+
+Dehumanizing people as 'bots' is very popular to machine loving people who are touching their warm social devices.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhc52zi/
+
+Unreality. Short tiny messages of out-group bots.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhce049/
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcqrlm/
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcmnsj/
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcnt24/
+
+I keep trying to figure out why nobody on Reddit seems to mention Malala. As if science education / nonfiction teaching and learning is a bad thing. Undesirable.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhctuuv/
+
+Winning debate tactic.
+
