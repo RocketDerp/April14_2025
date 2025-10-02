@@ -2028,3 +2028,23 @@ https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_
 
 People believing fiction story characters are "persons" is a crisis. Bible verse "1 John 4:20" crisis known for thousands of years.
 
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhctqu6/
+
+Social media laugh track for audience, "LOL".  ... ... ...
+“In America, everyone is entitled to an opinion, and it is certainly useful to have a few when a pollster shows up. But these are opinions of a quite different order from eighteenth- or nineteenth-century opinions. It is probably more accurate to call them emotions rather than opinions, which would account for the fact that they change from week to week, as the pollsters tell us. What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information--misplace, irrelevant, **fragmented or superficial information -- information that creates the illusion of knowing something but which in fact leads one away from knowing**. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that **when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhculo7/
+
+Putin and Trump have created the most penetrating media patterns in all human history. Bigger than The Beatles and Jesus combined. So many media machines constantly repeating the Trump brand and symbolism / monomyth meme patterns. OPERA_A "If you'd come today you could have reached a whole nation. Israel in 4 BC had no mass communication." https://www.youtube.com/watch?v=LBB26xe01XM
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcsb5y/
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcu693/
+
+Obamaa did not provide a constant source of fiction storytelling, many people complain how boring nonfiction can be.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhct5nr/
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcuo48/
+
+Published January 2015, before Trump started run for office in June 2015: https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
