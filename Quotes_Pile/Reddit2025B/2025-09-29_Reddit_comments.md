@@ -2117,3 +2117,10 @@ https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_
 
 Russia's Internet Research Agency since year 2013 has won a war of Reddit hearts and minds to avoid serious nonfiction learning about Russian information warfare and media ecology.
 
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd4mo3/
+
+Rule by stress lords. Stress of a mythology story that Judgement Days will come if you aren't loyal to the fiction storytelling. Proven Levant and Russian systems of leadership.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd4egz/
+
+Note the absence of links, author names, book titles, etc.
