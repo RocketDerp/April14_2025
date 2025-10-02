@@ -1826,3 +1826,19 @@ https://old.reddit.com/r/politics/comments/1nviy7r/trump_cuts_funding_to_16_blue
 Unable to cite any author names, book titles, "tinfoil fiction" washing the topic, short-message washing a serious topic. Tinfoil hat itself has been exploited by Putin / Russia. It generates a contioned knee-jerk dismisall. Viwed as pitty and not a serous important topic. ... ... ...
 “With today’s regimes, which struggle to formulate a single ideology, the idea that one lives in a world full of conspiracies becomes the worldview itself. Conspiracy theory replaces ideology with a mix of self-pity, paranoia, self-importance, and entertainment.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
 
+https://old.reddit.com/r/AskReddit/comments/1nvth7g/a_major_development_related_to_the_shutdown_is/nhb4vze/
+
+Top voted comment, massive engagement. Fiction addicts doing fantasy politics. "Quit the union", serve Russia vibe politics. No leaders emerge with confrontation of Fox News HDTV vs. Reddit comment section, the low bar of measure vs. low bar of measure that is going on. Stand up for no taxes is MAGA values. Standing up for not payint for "the outsiders" and "deporting those we disagree with" from money and helath care is MAGA values. People are not standing up to die for nonfiction learning to pass down to children, Wikipedia educaiton for all humanity as a USA reputation, but out-group vs. out-group starve them / health-care them to death. Luigi December 4. 2024 went nowhere in grasping "we humanity are all in this together in leading the world". Except in gun-stroking sneak-attack murdering over health care Luigi values. Russia won, Surkov won, those with nonfiction spare time and free time on social media should be rescuing rural population with less education that Fox News has fucked over. Writing this is shit work. Nobody wants to stand up for authentic sustained goodness. Malala called all this shit mindsets out January 2009 onward.
+
+https://old.reddit.com/r/AskReddit/comments/1nvth7g/a_major_development_related_to_the_shutdown_is/nhb617v/
+
+Yet the faith in no-identity Reddit commenting that are disposable avoidance of nonfiction serious sustained learning keeps growing. Addiction to *breaking news* of White House bullshit. Addiction to Putin mind-fuck outcomes.
+
+https://old.reddit.com/r/AskReddit/comments/1nvth7g/a_major_development_related_to_the_shutdown_is/nhb65io/
+
+No link, no author, no book title. People have lost all sense of how many times / pattern of legal court and intelligence thinking failures. Tiny-short length Twitter-thinking messages rule minds. 
+
+https://old.reddit.com/r/AskReddit/comments/1nvth7g/a_major_development_related_to_the_shutdown_is/nhb6sh8/
+
+No link, no author, no book title. Yes, Jesus mythology is highly relevant. Surkov monomyth mind-fuck patterns of Levant are highly relevant. But this short-length-washing of the situation, this disposable-commenting-washing of reality is part of the crisis. Mindsets of goodness abandoned in favor of tiny-length snark.
+
