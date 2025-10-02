@@ -2340,3 +2340,21 @@ https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_bei
 
 Sickening the nation is the entire point of Surkov governing / Russian media ecology.
 
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhdvbiw/
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd5i22/
+
+Reddit community is ground-zero for joke-washing amusement-washing LOL-washing serious problems and bad situations as attractive entertainment for humor.
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd77mk/
+
+Yes, a thought-terminating cliche. So you don't look at more serious and important topics and instead parrot the thought-terminaintg phrase "you just used whataboutsm!" and it ends the conversation and thinking. Name Surkov, call it "Surkov techniques", and study how Surkov and Putin have controlled Russia for over 25 years.
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhdbeqq/
+
+Lot's of Fun At Finnegans Wake Opera, "Wake Indra Opera" OPERA_A REPEAT_TRACK_A https://www.youtube.com/watch?v=YdizZtOddC8
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd60is/
+
+It would be entertaining! The Simpsons fiction storytelling is entertaining. OPERA_A Anti-California https://www.youtube.com/watch?v=bv4a7ZtDZhI
+
