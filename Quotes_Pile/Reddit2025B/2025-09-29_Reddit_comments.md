@@ -2048,3 +2048,38 @@ https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_
 https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcuo48/
 
 Published January 2015, before Trump started run for office in June 2015: https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcuf1m/
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcueg9/
+
+Sicening the population with information.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcu8jp/
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcsi2q/
+
+1985, the year Neil Postman published his book "Amusing Ourselves To Death" about an entertainer as POTUS.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhctghy/
+
+Brand seared into minds. Media addiction taken over a nation, Putin won, Surkov won.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcuoru/
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcuxre/
+
+Calling Tony Clifton bad performer.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcvk4q/
+
+People don't understand basic media ecology. Monomyth fiction storytelling outsells nonfiction science and reality. Fiction addicton runs Reddit and White House alike.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcvtol/
+
+OVER TEN YEARS AND THREE MONTHS of Reddit cloking to every mockery and antic.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcy2rb/
+
+Russian Internet Research Agency went online in Q2 2013. Leading up to the February 2014 land invasion of Ukraine.
+
