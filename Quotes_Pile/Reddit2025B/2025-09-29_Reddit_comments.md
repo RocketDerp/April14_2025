@@ -2293,3 +2293,24 @@ https://old.reddit.com/r/nottheonion/comments/1nw4v9v/congressman_now_claims_exi
 
 Fiction outsells even on Reddit. Nonfiction learning about modern Russian mind-fucking with mythology storytelling isn't popular.
 
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhcxu1v/
+
+<img width="1038" height="558" alt="image" src="https://github.com/user-attachments/assets/75dfe770-5cbc-4021-bd43-f4b1e69d20bf" /> Feedback loops, *no you*, back and forth between media cults. The entire nation, progressivley since March 2013 with the Cambridge Analytica and Russian Inernet Research Agency outcomes. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd3je7/
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd6vi3/
+
+Yes it works because 1-bit binary mental thinking of left vs. right, conservative vs. liberal, team sports meantality. Fully exploited in every variation by Cambridge Analytica and IRA since year 2013. Simualcra vs. Simualcra, fiction vs. fiction, **ALL AVOIDING NONFICTION REALITY OF NATO UNDER ATTACK BY RUSSIA VIA MIND-FUCK MONOMYTH PATTERNS**. ... ... ...
+"Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd3poa/
+
+What's scary is 100% of the population flocking to Tony Clifton antics like flies to shit, mocking away in a 100% all inclusive age 12 to age 120, including non-voters, U.S.A. TOTAL FUCKING MOCKERY. All avoiding nonfiction learning of IRA and CA.
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd2id2/
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd7gc9/
+
+Fiction vs. fiction. Unhinged from nonfiction!
+
