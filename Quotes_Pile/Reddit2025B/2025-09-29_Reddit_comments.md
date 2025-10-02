@@ -2332,3 +2332,11 @@ https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_bei
 
 <img width="986" height="718" alt="Screenshot from 2025-10-02 11-04-37" src="https://github.com/user-attachments/assets/a600be12-00f6-4c25-a4a5-da15694ea5cc" /> It is more like front-row seating for the Tony Clifton antics show, with Congress-audience participation when Tony Clifton interacts. OPERA_A Get your ticket, Congress has some of the best tickets and Seatings to the White House and Kremlin MonoMyth MultiMedia MultiPlatform SHOWS!  Wecome to **THE BRAND NEW NATION** of Russian Surkov Governing! https://www.youtube.com/watch?v=aIuCdQtNBgg
 
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd55sr/
+
+Kremlin information warfare induces widespread denial of information warfare. Psycholgical denial abounds in USA!
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd46kx/
+
+Sickening the nation is the entire point of Surkov governing / Russian media ecology.
+
