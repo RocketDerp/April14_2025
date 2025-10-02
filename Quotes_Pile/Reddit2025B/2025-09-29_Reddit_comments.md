@@ -2450,3 +2450,38 @@ https://old.reddit.com/r/clevercomebacks/comments/1nw4n2b/the_senator_who_fled_t
 
 Exactly the kind of comments you expect in a Tony Clifton performance audience. People who can't grasp they are eating the Surkovian onions.
 
+https://old.reddit.com/r/nottheonion/comments/1nwdxcy/dave_chappelle_criticizes_free_speech_in_america/nhfa0iw/
+
+https://old.reddit.com/r/nottheonion/comments/1nwdxcy/dave_chappelle_criticizes_free_speech_in_america/nhfakah/
+
+ToDo: Tom Waits on Pepsi
+
+https://old.reddit.com/r/nottheonion/comments/1nwdxcy/dave_chappelle_criticizes_free_speech_in_america/nhf980l/
+
+Reddit so often heers on "fuck you money".
+
+https://old.reddit.com/r/nottheonion/comments/1nwdxcy/dave_chappelle_criticizes_free_speech_in_america/nhf8c63/
+
+Joke-washing is popular on every media platfom. The Surkov techniques of mind-fucking.
+
+https://old.reddit.com/r/nottheonion/comments/1nwdxcy/dave_chappelle_criticizes_free_speech_in_america/nhfbmvt/
+
+https://old.reddit.com/r/nottheonion/comments/1nwdxcy/dave_chappelle_criticizes_free_speech_in_america/nhfmz01/
+
+https://old.reddit.com/r/nottheonion/comments/1nwdxcy/dave_chappelle_criticizes_free_speech_in_america/nhfg0vp/
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfnm18/
+
+People in deep denial on Reddit. <img width="1122" height="672" alt="image" src="https://github.com/user-attachments/assets/35b38d10-7339-46fa-a1eb-bb200dae85f1" />
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfpygg/
+
+Die for nonfiction and peace. Nobody has ever thought that madmen with nuclear weapons in Russia and USA can't fuck us all over? Standing up to madness itself is important. Technology death, biological warfare, new forms of killing. Stand up for goodness. Guns do not fix people who lust for fiction, we have to educate our way out of these problems.
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfml4f/
+
+Russian information warfare had made everyone avoid the nonfiction learning about Russian informaiton warfare. As I keep repeating. Sustained, serious, important *on the same page* learning.
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfq2mk/
+
+Truth Social values of mockery-washing and winning debate by making everythign serious a mockery.
