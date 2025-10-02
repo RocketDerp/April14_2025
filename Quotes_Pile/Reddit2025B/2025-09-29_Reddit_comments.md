@@ -2083,3 +2083,37 @@ https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_
 
 Russian Internet Research Agency went online in Q2 2013. Leading up to the February 2014 land invasion of Ukraine.
 
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcyeim/
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhczrh9/
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhcyb1y/
+
+People are blind to the nonfiction section of the public library on learning about Putin Kremlin ageanda and information warfare since year 2012.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhczu8z/
+
+Parrot Kremlin information warfare since Q2 2013. This September 9, 2014 article explains it. Which is more than 2 full years befoe November 2016 electon day. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhcxd8t/
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd1mcl/
+
+Nonficton public library is how USA audiences need to come together against Putin's information war win.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd7la8/
+
+Reddit comment consuemrs love to be drowned in millions and millions of disposable (short-lived) comments instead of calling to get on the same Wikipedia style "same page" of topics with refined information. Instead, it's a constant of low-effort banal messaging quantity.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd5nr1/
+
+Putin gone, been there for 25 years with hate of USA.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd9uk5/
+
+Conftonting the fiction addiction, monomyth storytelling leadership of Mecca Saudi Arabia and Kremlin under Putin.
+
+https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhczbj5/
+
+Russia's Internet Research Agency since year 2013 has won a war of Reddit hearts and minds to avoid serious nonfiction learning about Russian information warfare and media ecology.
+
