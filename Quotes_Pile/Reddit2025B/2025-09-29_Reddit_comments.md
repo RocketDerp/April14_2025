@@ -1975,5 +1975,20 @@ JOSEPH CAMPBELL: That’s **what people are doing all over the place — dying f
 
 https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc67w7/
 
-A author and book title about cults, not just the lowest effort "cult" commenting!
+<img width="890" height="644" alt="image" src="https://github.com/user-attachments/assets/09799a49-5c66-4cf5-8553-a69049f9171c" /> Name drop of author and book title about cults, not just the lowest effort "cult" commenting! ... ... ...
+"**collective freedom of choice and action** is compromised by agents or agencies that modify or distort perception, motivation, affect, cognition and/or behavioral outcomes. It is **neither magical nor mystical**, but a process that involves a set of basic social psychological principles. Conformity, compliance, persuasion, dissonance, reactance, guilt and fear arousal, modeling and identification are some of the staple social influence ingredients well studied in psychological experiments and field studies. In some combinations, they create a powerful crucible of extreme mental and behavioral manipulation when synthesized with several other real-world factors, such as charismatic, authoritarian leaders, dominant ideologies, social isolation, physical debilitation, induced phobias, and extreme threats or promised rewards that are typically deceptively orchestrated, over an extended time period in settings where they are applied intensively.” ― Steven Hassan, Combating Cult Mind Control: The Guide to Protection, Rescue and Recovery from Destructive Cults ... ... ...
+“Stories and metaphors are compelling ways to communicate information and change attitudes and behavior.”
+― Steven Hassan PhD, Freedom of Mind: Helping Loved Ones Leave Controlling People, Cults, and Beliefs 
 
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc7ee6/
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc84n9/
+
+When people tie science fiction storytelling, Bible, to a geography / specific area of land - I wonder if they study more modern science fiction stories like Hamlet's Ghost, Star Wars 1977 "Force Ghost" storytelling media ecology. There is no magic or supernatural about 2,000 year old stories. Science fiction storytelling, monomyth patterns, are extremely common now.
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhcdlw3/
+
+“learn the clichés, doublespeak and coded jargon that the group uses to shut down critical thinking. Each group has its own buzzwords and platitudes.”
+― Steven Hassan, Freedom of Mind: Helping Loved Ones Leave Controlling People, Cults, and Beliefs 
+
+Monomyth mind-fuck patterns have many variations. James Joyce's Finnegans Wake published year 1924 onward is excellent for English langauge teaching on the variation patterns of monomyth memes.
