@@ -1964,3 +1964,16 @@ https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neig
 
 "LOL" social media laugh track. ELIZA effect?
 
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc28oi/
+
+Minds blown by the Russian information war since year 2013 against Europe and USA and even Japan reporting Russian media invasion in 2025. People avoidant of nonfiction and taking seriously topics that require sustained focused rehashing and education.
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc3j36/
+
+People are willing to die for monomyth fiction storytelling and monomyth clergy throughout history.  George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ... BILL MOYERS: But how does one worship a metaphor, love a metaphor, die for a metaphor?
+JOSEPH CAMPBELL: That’s **what people are doing all over the place — dying for metaphors**. But when you really realize the sound, “AUM,” the sound of the mystery of the word everywhere, then **you don’t have to go out and die for anything** because it’s right there all around. Just sit still and see it and experience it and know it. That’s a peak experience.
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc67w7/
+
+A author and book title about cults, not just the lowest effort "cult" commenting!
+
