@@ -2314,3 +2314,15 @@ https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_bei
 
 <img width="1020" height="1004" alt="Screenshot from 2025-10-02 10-49-42" src="https://github.com/user-attachments/assets/b6889cf4-15b5-4feb-8b32-6be470a2c61d" /> Fiction vs. fiction. Monomyth vs. monomyth patterns. Unhinged from nonfiction!
 
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd81y2/
+
+Paving over reality with monomyth fiction storytelling is what Reddit community, Fox News audience, all the fiction addicts in USA desire. Surkov governing in action.
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhd9119/
+
+Everyone sees the forest for the trees of the ENTIRE United States of America losing marbles, not just Republicans, and drowning of important nonfiction information in massive quantities of commenting trash messages...  Yet people are so glued to their touchscreen devices watching the fiction vs. fiction vs. fiction vs. fiction **5,000 alternate reality screen games on touchscreens / video game spcial device sceens** - people can't call for a halt to all entertainment and BE SERIOUS about Russian information warfare!  "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhcyosm/
+
+Because unhinged antics behavior is part of a total mockery. And that is what Reddit society craves, more mocking, always more insulting and mockery. A Total Mockey of shared faith in mockery.
+
