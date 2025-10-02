@@ -1950,5 +1950,17 @@ https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_b
 
 Filter-bubble egoism. "Inbreeding" is a Middle East marriage within the religion tradition, and giving it the short-message treatment. Religion practices of age 16 marriage based on thousans of years ago when human life expectancy was far lower than with modern medicine and science learning. "Life expectancy in the Middle East around the year 635 is not precisely documented, but scholarly estimates place the average lifespan in the early Islamic Caliphate at over 35 years, significantly higher than in ancient Rome or medieval Europe."
 
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc0ni3/
 
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc1nuz/
+
+Social media laugh track, "LMAO", that everything around Trump and MAGA topics is amusing and laughing entertainment topics.
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhcf277/
+
+Minds blown easily by paradox messages on Reddit. Laughter resetting the mind into meme stupors.
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhczn7k/
+
+"LOL" social media laugh track. ELIZA effect?
 
