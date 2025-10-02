@@ -1866,3 +1866,13 @@ https://old.reddit.com/r/NoFilterNews/comments/1nvk2h9/trump_hinted_at_plans_to_
 
 Denial abounds.
 
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcfad9/
+
+No-identity social media logic.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcfqhx/
+
+Torah is science fiction. But Reddit community can't stand up for nonfiction science. Inspiring science fiction, but claims of magical space alients (angels) as a government policty has been anit-human.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhchzfq/
+
