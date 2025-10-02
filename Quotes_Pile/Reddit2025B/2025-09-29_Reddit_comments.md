@@ -2365,3 +2365,32 @@ The Reddit low-effort high-quantity commenting section school of avoiding the no
 https://old.reddit.com/r/politics/comments/1nw3agt/mike_johnsons_response_to_being_told_trump_is/nhda3mb/
 
 <img width="838" height="636" alt="image" src="https://github.com/user-attachments/assets/da6df0d0-03cc-43c6-aef6-d7a107a03d1f" /> Year 1924 onward publication of James Joyce's Finnegans Wake monomyth English language patterns. SEE_ALSO_A October 20, 2011. https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin "This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for neuro-linguistic programming and Eriksonian hypnosis: types of subliminal manipulation based largely on confusing your opponent, first developed in the US in the 1960s. There are countless NLP and Eriksonian training centres in Moscow, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator. Newly translated postmodernist texts give philosophical weight to the Surkovian power model."
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nw4ef9/are_they_libs_owned_yet/nhd7nv7/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nw4ef9/are_they_libs_owned_yet/nhd7nv7/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nw4ef9/are_they_libs_owned_yet/nhd87dj/
+
+A society of constantly being tricked, gamed, manipulated by people you encounter.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nw4ef9/are_they_libs_owned_yet/nhdb6wh/
+
+Russia manipulated minds since year 2014 about the pandemic. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nw4ef9/are_they_libs_owned_yet/nhdg6a3/
+
+Faith in ridicule. MAGA lead the way in year 2015 onward with ridicule and everyone adopted ridicule. Some greater leader values, "ridicule thy neighbor". Shallow, superficial, self-harm.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nw4ef9/are_they_libs_owned_yet/nhdmhed/
+
+Maybe should media shouldn't be a training ground for the Russians to mind-fuck the population and social media society should learn about fiction addiction, entertainment-washing, joke-washing serious problems. Fox News HDTV "common gorund" thinking of audience members is alaso toxic to society, not just social media.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nw4ef9/are_they_libs_owned_yet/nhdbi33/
+
+People favor fiction over nonfiction.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nw4ef9/are_they_libs_owned_yet/nhdkcen/
+
+Alex Jones is a big source of fiction storytelling, anti-reality.
+
