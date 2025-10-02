@@ -2188,3 +2188,15 @@ https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_t
 
 Give up on Malala's reformation messages. Give up on teching the difference of nonfiction vs. fiction machine messages on Reddit.
 
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdtnc9/
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdltuo/
+
+Atheism wasn't created on Reddit. An inability to translate science fiction Torah / Quran / / Bible to Hamlet's Ghost and Star Wars 1977 "Force Ghost" fiction storytelling is a failure of media literacy just as much as *believers* who confuse fiction with authentic reality / real world facts. ... ... ...
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/pics/comments/1nw5ika/large_police_presence_after_the_terror_attack_at/nhdr2pn/
+
+Fiction addicts, compuslive reaction to ANY fiction storytelling. Like Putin and Trump fiction stories. People can't see the pattern goes far beyond thousands of years old religion science fiction stories. Fox News fiction also creates alternate universes / alternate realities. So does Reddit fiction. ... ... ...
+“Today, reports of the day’s events are conveyed to the viewing public by **way of alternate universes**, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
