@@ -2485,3 +2485,34 @@ Russian information warfare had made everyone avoid the nonfiction learning abou
 https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfq2mk/
 
 Truth Social values of mockery-washing and winning debate by making everythign serious a mockery.
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfkqt7/
+
+Calling out that in Russia's War Agaisnt Reality since year 2013, what people wnat is the Democrats to give up entirely on science nonfiction realty and also adopt monomyth fiction storytelling for leadership of USA. A nation fully adopting fiction storytelling as Putin has done.
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfmxxr/
+
+Nothing can seem to stop the Surkovian information warfare tactics. Minds get blow and people will not engage nonfiction learning of Neil Postman and other essential comprehensions of media ecology. Feedback loop to death. Self-harm to Russia too, it this runaway monomyth simulacras situation is wrecking all authentic joy and goodness. Infinte Jest V meltdown, China Syndrome of every mind mocking away in hate motivations.
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfklmu/
+
+Self-harm USA future for children, while entertaining all the adults who mock how terrible Tony Clifton performances are without learning a damn thing about Andy Kaufman or Surkov.
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfpipf/
+
+Anything to not face the public library nonfiction section to study how Putin has waged information warfare on Reddit and what the outcomes of Cambridge Analytica executive function mind manipulation does to people who don't face the forest for the trees.
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfqmi1/
+
+Fiction storytelling of Truth Social and White House and Kremlin is far more popular than nonfiction leadershp, which is considered boring and unattractive to meme-driven USA 2025.
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfqbzq/
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfmgq8/
+
+The Adminstration believes people prefer fiction-based leadershp and will die for monomyth metaphors. People who will die to entertainment that only Donald Trump could provide. People who will not stand up for nonfiction learning and defense of NATO against Russia, too busy mocking in comment sections. Domestic Russians have died for Kremlin fiction storytelling.... to the front line for Ukraine, motivated by monomyth fiction stories.  "No bottom" to fiction addiction behaviors of Fox News audience, Reddit audience. The avoidance of nonfiction learning about Russian Surkov methods abounds. People willing to die for monomyth storytelling patterns. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ... BILL MOYERS: But how does one worship a metaphor, love a metaphor, die for a metaphor?
+JOSEPH CAMPBELL: That’s **what people are doing all over the place — dying for metaphors**. But when you really realize the sound, “AUM,” the sound of the mystery of the word everywhere, then **you don’t have to go out and die for anything** because it’s right there all around. Just sit still and see it and experience it and know it. That’s a peak experience.
+
+https://old.reddit.com/r/technology/comments/1nwfce5/government_workers_say_their_outofoffice_replies/nhfq0np/
+
+It is radical to point out that Russia is winning an information war of manipulating people into logic polarity thinkig patterns since year 2013.
