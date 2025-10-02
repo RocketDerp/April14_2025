@@ -1906,3 +1906,49 @@ https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_b
 
 Winning debate tactic.
 
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhclyte/
+
+I don't see this Reddit comment calling for world peace and end to all hate across the world, incluidng on Reddit. I do witness people who love their touch devices and promote hate of humans. Technology addicts to social machines. People who adore fiction more than persons. The problem described 2,000 years ago in Bible verse "1 John 4:20"
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcdrmu/
+
+Absurd comedy, surreal humor mind exploit. Serious topics amusing.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcp1k3/
+
+Reddit community loves to give low-effort comments prioirty over serious nonfiction learning.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcoz42/
+
+Reddit users hate nonfiction serious learning so much and are attracted to consuming massive quanitites of short-tiny low-effort commenting messages.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcpl7q/
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcivak/
+
+Common sense claim. It is not commmon experience and war and terrorism should not be normalized. And acting like terrorism is common sense, war is common sense, murder is common sense, just because humanity has a tradition and record of doing it. Soldiers from Israel go into palestine, peace lovers are not allowed to die in the name of peace, but military people are. And you can't just join the Israel military on a whim. But you can, anywhere in the world, call for peace and compassion. Death with a gun in hand as a soldier is considered "common sense" in a world that does not take *world peace* seriously and turns it into Reddit jokes of *whirled peas* mocking.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcb3gl/
+
+People on reddit prize huge quanities of low-effort commenting over nonfiction learning. And appeal to subreddit rules and authority of "law", war and terrorism when under "law" of nations like Russia. Goodness itself isn't asserted, ending all war, ending all hate.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcj5mj/
+
+ELIZA effect.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhc79pj/
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhcj8jb/
+
+Superficial and shallow dehumanization of people as "bots" is poopular in short-length Reddit commenting, oftena training ground for dehumanization and anti-goodness.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhc5f07/
+
+The world does not stand up against all hate in all places. Many people prize hate.
+
+https://old.reddit.com/r/pics/comments/1nvybfw/unarmed_multinational_civilians_being_kidnapped/nhc8l13/
+
+Filter-bubble egoism. "Inbreeding" is a Middle East marriage within the religion tradition, and giving it the short-message treatment. Religion practices of age 16 marriage based on thousans of years ago when human life expectancy was far lower than with modern medicine and science learning. "Life expectancy in the Middle East around the year 635 is not precisely documented, but scholarly estimates place the average lifespan in the early Islamic Caliphate at over 35 years, significantly higher than in ancient Rome or medieval Europe."
+
+
+
