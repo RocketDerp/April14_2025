@@ -1988,7 +1988,43 @@ When people tie science fiction storytelling, Bible, to a geography / specific a
 
 https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhcdlw3/
 
-“learn the clichés, doublespeak and coded jargon that the group uses to shut down critical thinking. Each group has its own buzzwords and platitudes.”
-― Steven Hassan, Freedom of Mind: Helping Loved Ones Leave Controlling People, Cults, and Beliefs 
+“learn the clichés, doublespeak and coded jargon that the group uses to shut down critical thinking. Each group has its own buzzwords and platitudes.” ― Steven Hassan, Freedom of Mind: Helping Loved Ones Leave Controlling People, Cults, and Beliefs. Monomyth mind-fuck patterns have many variations. James Joyce's Finnegans Wake published year 1924 onward is excellent for English langauge teaching on the variation patterns of monomyth memes.
 
-Monomyth mind-fuck patterns have many variations. James Joyce's Finnegans Wake published year 1924 onward is excellent for English langauge teaching on the variation patterns of monomyth memes.
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc1my7/
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc2neu/
+
+Reddit comment community consumes high quantities of high-speed commenting messages while using spare time and free time. There seemt to be a crisis of avoiding nonfiction learning about Russian infomation warfare and media ecology.
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhcj7j8/
+
+Note the "LOL" social media laugh track for Reddit audience on serious topics of fiction addicts attacking other fiction addicts in horrible grasp of compusive behavior patterns induced by fiction poetry and storytelling.
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1nvygns/got_my_us_maga_neighbours_visa_revoked/nhc51ao/
+
+Mind blown by arrangement of symbols in a Reddit message system.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcrxwm/
+
+Changed since Q2 2013 when the Internet Research Agency and other agents of the Kremlin invaded USA media systems.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhd26y2/
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcu7o1/
+
+Putin and Trump and many around them are excellent at fiction storytelling. People are attracted to the fiction stories, constantly commenting about them on social media systems like Reddit. Fiction outsells nonfction. Donald Trump is an entrtainer, an actor famous for Reality TV including "The Apprentice". Attractin to fiction and people centering their lives around fiction storytelling goes far far beyond politics and what most people recognize as government / governing.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhd3934/
+
+Antics events draw attention. What's happaned is high-speed media systems are now mastered by Putin / Russia since year 2013.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhctsq0/
+
+That's like calling for banning of all comic books or fiction films, or calling for the banning of all Church and Mosque and Scientology venues.
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhd0ife/
+
+https://old.reddit.com/r/Millennials/comments/1nw2irj/how_do_you_feel_about_the_below/nhcv6pl/
+
+People believing fiction story characters are "persons" is a crisis. Bible verse "1 John 4:20" crisis known for thousands of years.
+
