@@ -1678,5 +1678,5 @@ https://old.reddit.com/r/ContagiousLaughter/comments/1nw71gt/daycare_tomorrow_is
 
 &nbsp;
 
-I observe James Joyce community on reddit downvoted this posting.. https://old.reddit.com/r/jamesjoyce/comments/1nvl5jf/is_ulysses_actually_that_hard/
+I observe James Joyce community on reddit downvoted this posting.. https://old.reddit.com/r/jamesjoyce/comments/1nvl5jf/is_ulysses_actually_that_hard/     
 32 comments, yet posting voted "0 points (43% upvoted)"
