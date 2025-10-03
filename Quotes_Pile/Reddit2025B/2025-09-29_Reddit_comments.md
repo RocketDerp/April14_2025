@@ -2740,3 +2740,7 @@ https://old.reddit.com/r/news/comments/1nx2ajg/trump_freezes_21_billion_in_funds
 
 Reddit audience messages that hate is good, and deporting people is good. Deport people you don't like to mars, indulge in hate mental states, and do everything you can to avoid leanring about Russian information warfare in the nonfiction section of the publib library. Machine messages on Reddit server hardware to hate humans. ... ... ... 
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr.
+
+https://old.reddit.com/r/news/comments/1nx2ajg/trump_freezes_21_billion_in_funds_for_chicago_in/nhkdyfw/
+
+Addictions to fiction storytelling of Putin and Trump. Addicts of fiction share short-length messages like this one you see on Reddit comment section. Disposable commenting drives mindsets. No serious sutained focus on nonfiction learning of how Russian information warfare works since year 2013, no calling for people to come together and get on the same page of media ecology learning and self-awareness of low-effort short-length commenting problems in society.
