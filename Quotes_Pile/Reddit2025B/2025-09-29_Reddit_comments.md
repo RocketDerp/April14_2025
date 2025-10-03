@@ -2564,4 +2564,6 @@ https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotti
 
 https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotting_fake_crisis/nhfvcez/
 
+https://old.reddit.com/r/California/comments/1nwir7q/gov_newsom_threatens_to_withhold_billions_from/nhgidx3/
+
 
