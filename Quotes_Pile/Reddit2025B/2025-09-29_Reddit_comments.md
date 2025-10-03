@@ -2617,3 +2617,36 @@ https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies
 https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj4h6l/
 
 Denial of IRA. Reddit community not recalling the 2018 and 2019 stories, even Star Wars Day 2019 story from Stephen Colbert (still on YouTube)... when Wuhan China spread a virus via airports all over the world in January 2020... that was when it was clear that Surkov's bragging February 12, 2019 was right. This August 24, 2018 story should be known by everyone on Reddit and USA: https://www.bbc.com/news/world-us-canada-45294192 OPER_A https://www.youtube.com/watch?v=HLdurSmOf4E 221,884 views April 16, 2020
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj56bv/
+
+People in USA are going around chanting "Epstein" name like it is garlic to vampires, like it is magic holy water that will save their life from fiction vampires. People in USA have their minds so blown-out by Cambridge Analytica & Russian meme warfare.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhiyebx/
+
+Ddin't have the people with tech information skills and free time and spare time constantly flocking to millions of disposable comments that keepe very person in a filter-bubble, no sense of *getting on the smae page* when serious times come and goingto the important and serious nonfiction seciton of the public library and sobering up from amusements.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj82n8/
+
+People have become such addicts to memes and disposable commenting on meme devices that people do not even know what to resist. The addiction fo fiction, the avoidance of nonfiction learning about media ecology is waht needed to be resisted. Enteratinment mocking and insulting is what people wanted to die for, not science learning and nonfiction serious topics. Death by LOL mills.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj5qyk/
+
+Don't deserve to live. Why aren't you rescuing hearts and minds from Russia? Cold as ice, throwing away a fortuine in emotions. OPERA_A https://www.youtube.com/watch?v=ySb1f9zWJkQ
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj0xzn/
+
+It is acting, ot a habbit. It is his job. Trump works very hard at playing Tony Clifton acts and Reddit thinks it is accidental. Eating the Onions of Surkov governing.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj83kw/
+
+Trump learned long before the first term. November 8, 2013 was the final training session in Moscow of how to be MC of entertainment shows with Surkovian studnd methods.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj78jh/
+
+Typing on paper books isn't the problem. Using a typewriter to publish a book isn't the issue. It is the books that people avoided, the nonfiction books of media ecology.  Get on the same fucking page. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhizuvg/
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj0a8s/
+
