@@ -2752,3 +2752,24 @@ Tiny short messages that show zero self-awareness of the IRA invasion of Reddit 
 https://old.reddit.com/r/news/comments/1nx2ajg/trump_freezes_21_billion_in_funds_for_chicago_in/nhkofux/
 
 People are not looking away, they are engaging social machines to mock and insult and declare that *hate harder* will impove the situation. Tiny short messages that show zero self-awareness of the IRA invasion of Reddit and the Russian "War Against Reality" since year 2013. Anything to avoid nonfiction learning. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nx1sb6/trump_has_not_been_seen_in_public_since_tuesday/nhkfzjh/
+
+Everyone in *every party*, and even people not in a party, have so much entertainment to engage. Mocking the White House on Reddit comment sections, sharing memes on Bluesky, football college, baseball world series, football NFL, speculation about NFL Superbowl half time music, video games to play, rich people stories about car racing lifestyles, so much /r/All content to keep up with! Anything to avoid facing the real reality of nonfiction techniques of Putin and Trump defeating We The People. Priorities of free time and spare time.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nx1sb6/trump_has_not_been_seen_in_public_since_tuesday/nhkbzwe/
+
+If there is such demand, I'm sure a $1.50 a day YouTubee donation will get media station to say it every day. If there is profit to be made announcing the age of Donald Trump oveer and over on front page of Reddit as if that is an accomplishment, money pays for content. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nx1sb6/trump_has_not_been_seen_in_public_since_tuesday/nhkbvfj/
+
+Media addicted society cries out for more Donald Trump images and video content. USA, Starting Donald Trump.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nx1sb6/trump_has_not_been_seen_in_public_since_tuesday/nhk6irt/
+
+Audiences like reruns and repeats in fiction storytelling.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nx1sb6/trump_has_not_been_seen_in_public_since_tuesday/nhkbrwz/
+
+Simulacra Reddit ARG games.
+
