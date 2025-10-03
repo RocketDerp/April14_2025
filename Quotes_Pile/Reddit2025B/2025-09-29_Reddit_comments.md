@@ -2824,3 +2824,8 @@ Unable to see that mutliple NATO nations have been reporting mind manipulation w
 https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl71t8/
 
 Almost possibly associates this with "RUSSIA" template / pattern.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl7fvy/
+
+Yes Reddit audience values.
+
