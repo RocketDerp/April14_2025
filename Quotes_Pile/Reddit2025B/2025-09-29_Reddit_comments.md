@@ -2829,3 +2829,35 @@ https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violate
 
 Yes Reddit audience values.
 
+https://old.reddit.com/r/news/comments/1nx5o1t/us_strikes_another_boat_off_venezuela_coast/nhl8qqi/
+
+Entertainment of Reddit audiences is more the priority.
+
+https://old.reddit.com/r/news/comments/1nx5o1t/us_strikes_another_boat_off_venezuela_coast/nhl73jt/
+
+Reddit audiences like these patterns of high-action.
+
+https://old.reddit.com/r/news/comments/1nx5o1t/us_strikes_another_boat_off_venezuela_coast/nhl55am/
+
+Science fiction storytelling, like religion science fictions, justify audience engagement methods.
+
+https://old.reddit.com/r/news/comments/1nx5o1t/us_strikes_another_boat_off_venezuela_coast/nhkz8qy/
+
+Wild west entertainment methods are shoot first for media engagement.
+
+https://old.reddit.com/r/news/comments/1nx5o1t/us_strikes_another_boat_off_venezuela_coast/nhl1ay5/
+
+Some people on Reddit recognize the media ecology.
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1nx7dyt/zero_chance/nhlmo4t/
+
+It draws attention to have the screenplay have antics / mistakes in the performance.
+
+https://old.reddit.com/r/SelfAwarewolves/comments/1nx7dyt/zero_chance/nhlgf72/
+
+Antics and paradox messages draw large Reddit audiences.
+
+https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_on_trump_and_tells/nhllchj/
+
+https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_on_trump_and_tells/nhlrivm/
+
