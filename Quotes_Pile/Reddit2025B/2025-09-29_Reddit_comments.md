@@ -2580,3 +2580,15 @@ https://old.reddit.com/r/LivestreamFail/comments/1nwktar/streamer_who_stalked_an
 
 https://old.reddit.com/r/LivestreamFail/comments/1nwktar/streamer_who_stalked_and_killed_2_teen_girls/nhgqczt/
 
+https://old.reddit.com/r/Fauxmoi/comments/1nwp8se/the_late_show_with_stephen_colbert_via_tiktok_we/nhho3tr/
+
+An entire society that does not give a fuck that turning the USA into a joke with humorand memes is Russian information warfare. This shit has been going on since year 2013 and people even got Trump out of office for 4 years to add new players like J D Vance. The addiction to trash media is winning, everything Neil Postman wrote about in 1985 "Amusing Ourselves To Death" book.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nwp8se/the_late_show_with_stephen_colbert_via_tiktok_we/nhhwr2n/
+
+The popular media meme-washng humor-washing away Russian informaiton warfare and Kremlin media techniques for profit and engagement.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nwp8se/the_late_show_with_stephen_colbert_via_tiktok_we/nhhxenp/
+
+Kremlin all over Facebook since year 2013.
+
