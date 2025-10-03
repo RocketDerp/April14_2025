@@ -2650,3 +2650,25 @@ https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies
 
 https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj0a8s/
 
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj5guq/
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj2pnv/
+
+Trump knows that Reddit community favors fiction and consideres nonfiction boring and tedius.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhiyduy/
+
+Recency bias.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj0e3z/
+
+Wake the fuck up to what? ***Media Woke, Finnegans Woke** People keepcrying for more fiction memes and A.I. generated "resistance" to the abandonment of nonfiction seirous learning? Entertainment addictions has the USA by the male Reddit audience balls. Men who won't put down their mocking and insulting and face the IRA and CA with nonfiction books at the public library. Drunk on commenting with disposable messages. Donald Trump mad Rossie the worst enemy, entertainers are the threat to Trump, wake the fuck up. https://www.yahoo.com/entertainment/celebrity/articles/rosie-o-donnell-fires-back-153053821.html
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhiy0s1/
+
+calling for all people in the USA to flock to Neil Postman's 1985 book as to *why* what Trump and MAGA are chasing, entertainment, is harming us all.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhizq6o/
+
+Laugh-washing a threat to the entire world.
+
