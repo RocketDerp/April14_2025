@@ -2566,4 +2566,17 @@ https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotti
 
 https://old.reddit.com/r/California/comments/1nwir7q/gov_newsom_threatens_to_withhold_billions_from/nhgidx3/
 
+https://old.reddit.com/r/LivestreamFail/comments/1nwktar/streamer_who_stalked_and_killed_2_teen_girls/nhhcbn6/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nwktar/streamer_who_stalked_and_killed_2_teen_girls/nhh7f6k/
+
+Egomania abounds. Dehumanization via automobile machine, streaming media machine.
+
+https://old.reddit.com/r/LivestreamFail/comments/1nwktar/streamer_who_stalked_and_killed_2_teen_girls/nhhc206/
+
+https://old.reddit.com/r/LivestreamFail/comments/1nwktar/streamer_who_stalked_and_killed_2_teen_girls/nhgyrf1/
+
+"MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/LivestreamFail/comments/1nwktar/streamer_who_stalked_and_killed_2_teen_girls/nhgqczt/
 
