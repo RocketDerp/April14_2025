@@ -2861,3 +2861,15 @@ https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_
 
 https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_on_trump_and_tells/nhlrivm/
 
+https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_on_trump_and_tells/nhldaap/
+
+If people would study the payloads of Russian information warfare it would make far more sense why people find they have common ground with anti-reality anti-goodness values. Since year 2013, consuming the same information warfare mind-fuck and find they all flock to self-harm of USA messages and leadership signaling.
+
+https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_on_trump_and_tells/nhlb7bw/
+
+https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_on_trump_and_tells/nhlepm5/
+
+https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_on_trump_and_tells/nhld40y/
+
+Engaging content for Reddit audiences.
+
