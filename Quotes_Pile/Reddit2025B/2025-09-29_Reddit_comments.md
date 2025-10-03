@@ -2672,3 +2672,21 @@ https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies
 
 Laugh-washing a threat to the entire world.
 
+https://old.reddit.com/r/politics/comments/1nwv885/trump_calls_democrats_the_party_of_hate_evil_and/nhj0wlt/
+
+Great Seal USA quote!
+
+https://old.reddit.com/r/politics/comments/1nwv885/trump_calls_democrats_the_party_of_hate_evil_and/nhixzmj/
+
+https://old.reddit.com/r/politics/comments/1nwv885/trump_calls_democrats_the_party_of_hate_evil_and/nhizar5/
+
+Bible verse "1 John 3:17" should be front-page of Reddit and Bluesky every 3 days for 18 months, every person age 12 to age 120, including non-belivers, should know Karl Marx did not write "1 John 3:17" verse
+
+https://old.reddit.com/r/politics/comments/1nwv885/trump_calls_democrats_the_party_of_hate_evil_and/nhjdn3j/
+
+That's the whole point. It boggles the mind. Surkov monomyth weaponized this mass mind boggel messaging.
+
+https://old.reddit.com/r/politics/comments/1nwv885/trump_calls_democrats_the_party_of_hate_evil_and/nhixdkp/
+
+Mind-blowing paradox messages for Reddit minds easily blown. 
+
