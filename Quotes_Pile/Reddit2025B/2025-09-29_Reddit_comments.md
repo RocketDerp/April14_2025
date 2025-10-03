@@ -2722,3 +2722,7 @@ https://old.reddit.com/r/science/comments/1nwx7sr/simplistic_thinking_and_reject
 
 Entertainment-washing the situation with Japanese entertainment. Short simplistic thinking message, twitter-think, very popular and upvoted on Reddit. Anything to avoid 1985 book from Neil Postman "Amusing Ourselves To Death" and facing up the role Reddit community plays.
 
+https://old.reddit.com/r/science/comments/1nwx7sr/simplistic_thinking_and_rejecting_democracy_have/nhj7axl/
+
+Alasm people don't want to get on the same page and face the emotional problems of media addiction. Come toether on common problem of what changed the USA since year 2013. ... ... ... https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
