@@ -2787,5 +2787,40 @@ Most popular comment, one-word Twitter-think, entire society of blown minds, "Un
 
 https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl9eam/
 
-<img width="1406" height="446" alt="image" src="https://github.com/user-attachments/assets/8efcf336-d905-486c-bb24-5d8757354418" /> Calling the White House media message "a show", Tony Clifton style of show - shit content deliberately scripted antics performance. Unable to describe Surkov governing methods of Russia for past 25 years. Recency bais to say only 200 days. Minds completely in awe at the Trump White House media performance of an audio recording.
+<img width="1406" height="446" alt="image" src="https://github.com/user-attachments/assets/8efcf336-d905-486c-bb24-5d8757354418" /> Calling the White House media message "a show", Tony Clifton style of show - shit content deliberately scripted antics performance. Unable to describe Surkov governing methods of Russia for past 25 years. Recency bais to say only 200 days. Minds completely in awe at the Trump White House media performance of an audio recording. ALSO_NOTE_A both accounts as top comments are new for year 2025 Reddit accounts.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhln082/
+
+People unable to recognize that Surkov governing exploits minds with surreal humor, absurd antics, comedy patterns of Tony Clifton acting / surkov student screenplays.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhlp3wc/
+
+Fiction content creators know they are dressing up every day, they watch the audience reactions, fiction content creators know they are creating fiction and that fiction is making them incredibly popular and powerful over a audience of media addicts.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhlnjel/
+
+In awe at Russian governing techniques on smartphone devices, audience minds blown at the quality of the performances.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl4gxx/
+
+They care about all these things. This Reddit comment is eating The Onion. As if waving around Bible monomyth symbols isn't specifically selected. Like saying a resutrant isn't concerned with seafood while drawning an audience with fish and shrimp! Fiction addicts to The Bible science fiction monomyth meme patterns is exactly how Surkov monomyth storytelling works!
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl8mlh/
+
+A gross misunderstanding. They have learned they have the same power as The Church 600 yearsa ago in Europe waaving around monomyth fiction patterns. They have learned the power of mythology! They have learned that Redit audiences bow to carefully arraanged fiction art and symbolism meme patterns.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl4ji9/
+
+Tiny short-length messaging of women only defined as body parts. Unable to engage higher brain fuctions to address the Reddit cult of total mockery.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl404l/
+
+Entirely unable to recognize this is Russian governing of Surkov students. That this is how Kremlin information warfare works. That this all started in year 2013 as lead-up to the Ukraine war that was described February 2014. Recency bias that it is "early stages" of an information warfare to control and manipulate the audiences, We The People, not just voters - but every person in the nation. This s Surkov Stage 14.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl4hdl/
+
+Unable to see that mutliple NATO nations have been reporting mind manipulation warfare since year 2013. Thinks this is only USA and not self-harm to USA to serve conditioned Putin desires.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl71t8/
+
+Almost possibly associates this with "RUSSIA" template / pattern.
