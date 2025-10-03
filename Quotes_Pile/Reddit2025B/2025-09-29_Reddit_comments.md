@@ -2781,3 +2781,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1nx3qu0/police_officer_pepperspr
 
 All the people who told you to learn about mind-fucking and to study Comparative Mythology lessons that George Lucas fillmed in summer of 1986 and summer of 1987 you ignored in favor of entertainment watching Star Wars instead. Instaead of learning the huge power monomyth story patterns have over human brain across the world, sucked down entertainment memes from Russian IRA since March 2013 on Reddit.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl3w6n/
+
+Most popular comment, one-word Twitter-think, entire society of blown minds, "Unreal". Reddit community can't fight against Russia, unable to call out more than audience awe. The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx6aep/i_think_she_just_violated_the_hatch_act/nhl9eam/
+
+<img width="1406" height="446" alt="image" src="https://github.com/user-attachments/assets/8efcf336-d905-486c-bb24-5d8757354418" /> Calling the White House media message "a show", Tony Clifton style of show - shit content deliberately scripted antics performance. Unable to describe Surkov governing methods of Russia for past 25 years. Recency bais to say only 200 days. Minds completely in awe at the Trump White House media performance of an audio recording.
+
