@@ -2773,3 +2773,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nx1sb6/trump_has_not_been_
 
 Simulacra Reddit ARG games.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nx3qu0/police_officer_peppersprays_the_vent_of_a/nhkqjb6/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx3qu0/police_officer_peppersprays_the_vent_of_a/nhkuocc/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nx3qu0/police_officer_peppersprays_the_vent_of_a/nhkqx1l/
+
+All the people who told you to learn about mind-fucking and to study Comparative Mythology lessons that George Lucas fillmed in summer of 1986 and summer of 1987 you ignored in favor of entertainment watching Star Wars instead. Instaead of learning the huge power monomyth story patterns have over human brain across the world, sucked down entertainment memes from Russian IRA since March 2013 on Reddit.
+
