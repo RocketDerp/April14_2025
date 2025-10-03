@@ -2542,4 +2542,26 @@ https://old.reddit.com/r/politics/comments/1nwc7cx/trump_directive_classifies_an
 
 https://old.reddit.com/r/politics/comments/1nwc7cx/trump_directive_classifies_anticapitalism_and/nhezdvf/
 
+https://old.reddit.com/r/popculturechat/comments/1nwfsex/ariana_grande_and_her_boyfriend_ethan_slater_are/nhfnsg4/
+
+https://old.reddit.com/r/politics/comments/1nwiwoc/jeffries_says_trumps_behavior_is_unserious_and/nhga343/
+
+https://old.reddit.com/r/politics/comments/1nwiwoc/jeffries_says_trumps_behavior_is_unserious_and/nhgalvk/
+
+https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotting_fake_crisis/nhf6fwa/
+
+https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotting_fake_crisis/nhfdi8w/
+
+https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotting_fake_crisis/nhfixcs/
+
+https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotting_fake_crisis/nhgf6g0/
+
+https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotting_fake_crisis/nhf38fr/
+
+https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotting_fake_crisis/nhf2wcw/
+
+https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotting_fake_crisis/nhf92oc/
+
+https://old.reddit.com/r/law/comments/1nwci3e/lawmaker_sounds_alarm_trump_plotting_fake_crisis/nhfvcez/
+
 
