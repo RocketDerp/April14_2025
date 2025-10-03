@@ -2698,3 +2698,11 @@ https://old.reddit.com/r/politics/comments/1nwv885/trump_calls_democrats_the_par
 
 OPERA_A Any major MonoMyth storytelling dude will tell you... https://www.youtube.com/watch?v=HBzzdlpISFg
 
+https://old.reddit.com/r/politics/comments/1nwx5cz/trump_brands_dems_the_party_of_satan_in_unhinged/nhj6sik/
+
+Reddit does not recognize that Satan is a science fiction story character. The avoidance of nonfiction is what powers the situation, cocentraing power and wealth by exploiting fiction addictions.
+
+https://old.reddit.com/r/politics/comments/1nwx5cz/trump_brands_dems_the_party_of_satan_in_unhinged/nhjsfz6/
+
+Make "1 John 4:20" about fiction addiction teaching to everyone. "I love God" is wrong, love living humans.
+
