@@ -2592,3 +2592,28 @@ https://old.reddit.com/r/Fauxmoi/comments/1nwp8se/the_late_show_with_stephen_col
 
 Kremlin all over Facebook since year 2013.
 
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhixtyt/
+
+Reddit has an enemy. The United States of America has an enemy. An enemy that openly taunts USA and Reddit. February 12, 2019 https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793 Enemy bragging how it is  mind-controlling USA. An enemy that isn't just words, but has been killing real people in Ukraine since February 2014. The same February 2014 that is only months after November 2013 where Donald Trump visited and praised that enemy nation. An enemy nation that tellls you it is manipulating the minds of people like donald Trump. One enemy that would unite all the USA together in a common source of all the wild and crazy behavior since year 2013. And people on social media can not even name the "Internet Reserach Agency" and tie Internet fiction storytelling to cult films or cult book mssage patterns like L. Ron Hubbard. People don't have to hate Russia, but being self-aware of how Russia has made people hate the USA is called being educated and comprehending, situational awareness.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj6f35/
+
+The mindset of mob mentality, Reddit hive mind, is 5th grade level. A sinking tide lowers all ships. A HiveMind that mocks and avoids serious nonfiction learning of Neil Postman's books and self-awareness sinks the whole nation and NATO.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhizur1/
+
+BBC Adam Curtis on NYE 2014, way back in year 2014, called it "Contradictory Vaudeville" https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhivh6v/
+
+The will to face addictions. Faith in mocking, addiction to mockery. Faith in out-group hate, faith that *hate harder* will address too much hate. Grim.
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj2f4z/
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj3u50/
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj363k/
+
+https://old.reddit.com/r/technology/comments/1nwvs0h/president_publishes_enemies_list_to_white_house/nhj4h6l/
+
+Denial of IRA. Reddit community not recalling the 2018 and 2019 stories, even Star Wars Day 2019 story from Stephen Colbert (still on YouTube)... when Wuhan China spread a virus via airports all over the world in January 2020... that was when it was clear that Surkov's bragging February 12, 2019 was right. This August 24, 2018 story should be known by everyone on Reddit and USA: https://www.bbc.com/news/world-us-canada-45294192 OPER_A https://www.youtube.com/watch?v=HLdurSmOf4E 221,884 views April 16, 2020
