@@ -22,3 +22,14 @@ https://www.youtube.com/watch?v=mjg43nzSYck
 ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
 Translation of Moses burning bush messages, outer space angel metaphors to .... Hamlet's Ghost metaphors of Shakespeare, to 1977 Star Wars "Force Ghost" storytelling metaphors...
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+BEST_OF_YEAR_2025     
+https://old.reddit.com/r/science/comments/1nwx7sr/simplistic_thinking_and_rejecting_democracy_have/     
+Friday, October 3, 2025. The nonfiction section of the public library.    
+"Simplistic thinking and rejecting democracy have a “strikingly” strong link. People who lacked “actively open-minded thinking” — a tendency to consider opposing viewpoints and revise beliefs based on evidence — were more likely to oppose core democratic principles, especially free elections."
