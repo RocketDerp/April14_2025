@@ -2744,3 +2744,11 @@ Reddit audience messages that hate is good, and deporting people is good. Deport
 https://old.reddit.com/r/news/comments/1nx2ajg/trump_freezes_21_billion_in_funds_for_chicago_in/nhkdyfw/
 
 Addictions to fiction storytelling of Putin and Trump. Addicts of fiction share short-length messages like this one you see on Reddit comment section. Disposable commenting drives mindsets. No serious sutained focus on nonfiction learning of how Russian information warfare works since year 2013, no calling for people to come together and get on the same page of media ecology learning and self-awareness of low-effort short-length commenting problems in society.
+
+https://old.reddit.com/r/news/comments/1nx2ajg/trump_freezes_21_billion_in_funds_for_chicago_in/nhklndw/
+
+Tiny short messages that show zero self-awareness of the IRA invasion of Reddit and the Russian "War Against Reality" since year 2013. Anything to avoid nonfiction learning. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1nx2ajg/trump_freezes_21_billion_in_funds_for_chicago_in/nhkofux/
+
+People are not looking away, they are engaging social machines to mock and insult and declare that *hate harder* will impove the situation. Tiny short messages that show zero self-awareness of the IRA invasion of Reddit and the Russian "War Against Reality" since year 2013. Anything to avoid nonfiction learning. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
