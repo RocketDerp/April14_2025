@@ -2690,3 +2690,11 @@ https://old.reddit.com/r/politics/comments/1nwv885/trump_calls_democrats_the_par
 
 Mind-blowing paradox messages for Reddit minds easily blown. 
 
+https://old.reddit.com/r/politics/comments/1nwv885/trump_calls_democrats_the_party_of_hate_evil_and/nhiswqt/
+
+Yes, it scrables minds into addicton to the abuse. Paradox storytelling. Monomyth weaponized by Surkov students.
+
+https://old.reddit.com/r/politics/comments/1nwv885/trump_calls_democrats_the_party_of_hate_evil_and/nhiydsb/
+
+OPERA_A Any major MonoMyth storytelling dude will tell you... https://www.youtube.com/watch?v=HBzzdlpISFg
+
