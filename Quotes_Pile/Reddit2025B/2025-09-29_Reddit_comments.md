@@ -2736,3 +2736,7 @@ https://old.reddit.com/r/science/comments/1nwx7sr/simplistic_thinking_and_reject
 
 Reddit comments like this fail because they think there is two and only two answers to every problem. Answer One: Rain falls upward. Answer two: There is no rain. Answer Three: both answer one and answer to are wrong and more learning and study is required. But since human brains have been educated to prize left vs. right, two answers to every problem, that all things are solved by thinking and interpreting rainfall as "conservative or liberal", there are TWO AND ONLY TWO answers and counting stops. People won't count beyond two "sides" to every problem. Logic machine addictions. Polarity.
 
+https://old.reddit.com/r/news/comments/1nx2ajg/trump_freezes_21_billion_in_funds_for_chicago_in/nhkh6m0/
+
+Reddit audience messages that hate is good, and deporting people is good. Deport people you don't like to mars, indulge in hate mental states, and do everything you can to avoid leanring about Russian information warfare in the nonfiction section of the publib library. Machine messages on Reddit server hardware to hate humans. ... ... ... 
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr.
