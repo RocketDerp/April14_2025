@@ -2873,3 +2873,14 @@ https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_
 
 Engaging content for Reddit audiences.
 
+https://old.reddit.com/r/politics/comments/1nx7528/marjorie_taylor_greene_turns_on_trump_and_tells/nhlnu9g/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nx6ql6/privileged_power_play/nhl7hzr/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nx6ql6/privileged_power_play/nhl8yuz/
+
+Engaging content for Reddit audiences.
+
+https://old.reddit.com/r/MurderedByWords/comments/1nx6ql6/privileged_power_play/nhltqwb/
+
+https://old.reddit.com/r/MurderedByWords/comments/1nx6ql6/privileged_power_play/nhlla4c/
