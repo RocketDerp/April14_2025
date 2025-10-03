@@ -2706,3 +2706,19 @@ https://old.reddit.com/r/politics/comments/1nwx5cz/trump_brands_dems_the_party_o
 
 Make "1 John 4:20" about fiction addiction teaching to everyone. "I love God" is wrong, love living humans.
 
+https://old.reddit.com/r/PoliticalHumor/comments/1nwzilq/this_kind_of_talk_gets_me_sexually_aroused/nhjy9k7/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1nwzilq/this_kind_of_talk_gets_me_sexually_aroused/nhk2uqc/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1nwzilq/this_kind_of_talk_gets_me_sexually_aroused/nhjxn6l/
+
+Jokes are what is popular to a nation full of social meme addictions
+
+https://old.reddit.com/r/science/comments/1nwx7sr/simplistic_thinking_and_rejecting_democracy_have/nhj9w59/
+
+I will never forget why I called the Pentagon in summer of year 2015 about Reddit messaging behavior towards simplistic binary logic of two and only two sides to every problem. The IRA had already defeated the mindsets of goodness in favor of fiction addictions.
+
+https://old.reddit.com/r/science/comments/1nwx7sr/simplistic_thinking_and_rejecting_democracy_have/nhj6se2/
+
+Entertainment-washing the situation with Japanese entertainment. Short simplistic thinking message, twitter-think, very popular and upvoted on Reddit. Anything to avoid 1985 book from Neil Postman "Amusing Ourselves To Death" and facing up the role Reddit community plays.
+
