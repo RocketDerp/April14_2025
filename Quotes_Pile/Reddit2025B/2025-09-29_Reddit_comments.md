@@ -3174,3 +3174,30 @@ https://old.reddit.com/r/shittymoviedetails/comments/1nxjytn/this_would_be_consi
 
 It's an important point, but needs context of other points made in this GitHub commentary. Finnegans Wake James Joyce concern, people who have words in their mind but do not grasp the Tower of Babel metaphor problem of understanding and comprehension. We have built machines to communiate at very high speeds and share, but one-line Twitter-length commenting rules minds now. We no longer understand and cmprehend why hate is bad. Why ar is bad. Why harming other people is bad. Russian informationw warfare since year 2013 ha made people who worship hate. People who worship *hate harder* Trump. People who worship *mock harder* Trump. Mocking has become more powerful than understanding. Mocking requires no thinking or comprehension, just mocking away goodness by mockery-washing. Like dumping acid (mocking) over everything and goodness is abandoned. Love and compassion and forgiveness and progress abandoned in addictoin to hate leadership. Addiction to Trump hate, addiction to Trump mocking. Self-harm via Russian IRA and CA since year 2013.
 
+https://old.reddit.com/r/news/comments/1nxnup3/pope_leo_faces_maga_ire_after_immigration_and/nhommd6/
+
+MAGA is an out outcome of avoiding nonfction learning and comprehension of Russian information warfare since March 2013. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1nxnup3/pope_leo_faces_maga_ire_after_immigration_and/nhooioe/
+
+Monomyth warfare by Russia had mind-fucked the USA population. Published November 7, 2014 https://www.theatlantic.com/international/archive/2014/11/hidden-author-putinism-russia-vladislav-surkov/382489/
+
+https://old.reddit.com/r/news/comments/1nxnup3/pope_leo_faces_maga_ire_after_immigration_and/nhoqbei/
+
+https://old.reddit.com/r/news/comments/1nxnup3/pope_leo_faces_maga_ire_after_immigration_and/nhord9i/
+
+Millions of dispable commenting messages is what attracts people. Avoiding serious thinkng and focus on these important issues. We The Peple, unable to organize and defend against Putin inforamtionw warfare since year 2013. Regarding Levant religion crisis of Bible / USA clergy: https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/news/comments/1nxnup3/pope_leo_faces_maga_ire_after_immigration_and/nhp1afo/
+
+https://old.reddit.com/r/news/comments/1nxnup3/pope_leo_faces_maga_ire_after_immigration_and/nhop95v/
+
+Cramming the entire world into mental view of left vs. right is brainrot.
+
+https://old.reddit.com/r/news/comments/1nxnup3/pope_leo_faces_maga_ire_after_immigration_and/nhowjfn/
+
+Woke to what exactly? year 1924 Dublin story bu James Joyce, Finnegans Wake about being woke to Pope, the Catholic Church meme programming, the Pope is topic of this Reddit posting. "Finnegans Woke" story. It confronts language and clergy patterns with self-awareness outcomes.
+
+https://old.reddit.com/r/news/comments/1nxnup3/pope_leo_faces_maga_ire_after_immigration_and/nhp04jf/
+
+People give up, let Russian inforamtion warfare damage "Woke" of James Joyce's year 1924 onward publication of Finnegnas Wake, Woke of Finnegans.
