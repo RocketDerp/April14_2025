@@ -3436,3 +3436,7 @@ It is exahusting. Carl Sagan explained how unpopular science thinking is in seve
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhquebo/
 
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhr44tb/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhr5pbi/
+
+Mocked the message about Founding Fathers with immigrant writing of Hollar, then blocked.
