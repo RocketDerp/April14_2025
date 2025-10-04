@@ -3483,5 +3483,59 @@ Yes, it is. Just as blocking people on Bluesky and Reddit is book burning. But p
 
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhqoahq/
 
-Sunday Bible is fiction. Reactionary mindsets against nonfiction learning and science, reactionary against people without other languages and usages of language.
+Sunday Bible sermon is fiction storytelling. Very popular on Reddit too, fiction over nonfiction. Not just Sunday on Reddit. Reactionary mindsets against nonfiction learning and science, reactionary against people without other languages and usages of language.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpvoue/
+
+No links, no author names, no book titles, just more bewildering word meaning over "consercative". What about pro nonfiction? I find plenty of addicts to low-effort commenting on Reddit get angry and frustated and atatck when presented with a quotation or citation and refernce. They seem highly addicted to low-effort commenting and high quanitites of high-speed messages.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpwavb/
+
+Egomania abounds. 
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpxbse/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpxqm1/
+
+Fiction vs. nonfictio. The entire United States of America is abandoning common understanding of nonfiction in favor of more and more subreddits, filte-bubble, more Disney Plus fiction (Star Wars Andor was huge this year 2025, fiction story), Netflix, TikTok, etc.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhq0y0c/
+
+The War Against Reality, the War Against Nonfiction. Not "bots", but people against nonfiction and citations.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhq1lfa/
+
+Why does this Reddit comment creator compse messages caring about what the Right are doing?
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhqent0/
+
+That's why Finnegans Wake by James Joyce year 1924 is such an excellent tool on grasping the Tower of Babel metaphor behaviors and conflicts. ... ... ...
+"Do You Speak Fox? How Donald Trump’s favorite news source became a language. By Megan Garber. September 16, 2020", "You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions consider a loss that Americans don’t have good language for, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox." https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhqey16/
+
+I find people are educated by parents on attaacking / insulting / mocking  others for comprhension and misunderstandings instead of teaching and educating are the problem. People don't stand up for understanding, they self-declaer themselves on teams of out-group hate. People who prize hate, prize mocking, prize misunderstandings so they can lord over others with their egoism. Competitive degrees at univesity, copetitive school rankings, constantly competiting over univesity sports teams, etc. Sports mentality of leaning. Wanting to sabotage and defeat others so that they know information others do not understand. ... ... ... 
+“In the way that scepticism is sometimes applied to issues of public concern, there is a tendency to belittle, to condescend, to ignore the fact that, deluded or not, supporters of superstition and pseudoscience are human beings with real feelings, who, like the sceptics, are trying to figure out how the world works and what our role in it might be. Their motives are in many cases consonant with science. If their culture has not given them all the tools they need to pursue this great quest, let us temper our criticism with kindness. None of us comes fully equipped.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp7fjf/
+
+"Eat shit" hate messaging on Reddit machines.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhplbtb/
+
+Twitter-length simple-think polarity lgoic. "That is all".
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpjubv/
+
+Wikipedia originated in the U.S.A. The abandonment of nonfiction for fiction addictions is a problem on Reddit, not just Wikipedia. The pro-hate pro-machine pro-technolgy lust and anti-huamnism anti-learning anti-unnderstanding trends are bad.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhq54hm/
+
+Yes, people in USA do not study outside the USA like Middle East, or Pakistan.   Fiction vs. nonfiction. ... ... ... 
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhq18ql/
+
+Trying to cram all topics into "right-wing" and "left" is bewildering and confusing. Fiction vs. nonfiction better expalins the audience attraction to Fox News HDTV and Reddit low-effort commenting addictions.
+
 
