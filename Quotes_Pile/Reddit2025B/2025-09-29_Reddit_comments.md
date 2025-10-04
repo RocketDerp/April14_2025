@@ -3223,4 +3223,36 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_sh
 
 I am sorry for all humanity with the sad state of Toxic Clergy values and that people don't even have a good education on the meaning of love and compassion and their best idea of joy is to dehumanize out-groups of people and spread pollution to harm wild animals and other life on Earth. People who care more about being in a subreddit hate club than condeming all hate in all places, because they are raised and parented that out-group hate is the most rewarding life accomplishment. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md).
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpopgr/
 
+Programmed by Russian information warfare to hate Americans since year 2013. For example: minds manipulated to be gleeful that people die from COVID-19 during the pandemic, see this August 24, 2018 about Russia: https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpq6bv/
+
+Anti-empathy messages on Reddit machines. Love the machines, hate human persons messages. Elon Musk, richest person in the world, owner of media machine platforms promotes this anti-compassion anti-empathy anit-forgiveness signaling: https://www.theguardian.com/us-news/ng-interactive/2025/apr/08/empathy-sin-christian-right-musk-trump
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpd722/
+
+Dictating to spouse how she must feel in the future. Instead of experiencing life and favoring paths of love and sharing love, dictating that spouse must have no other. Very common Levant values. Exodus 20:3 kind of dictatorship role models.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpope4/
+
+Children in USA are being harmed with measles because of Russia spreading false messages on social machines. People are constantly promoting hate, promoting murder, promoting killing. https://www.bbc.com/news/world-us-canada-45294192 Instead of being educated to consider than an illness to you or others should inspire free sharing of medical knowledge in a Wikipedia systems like WikiMedical or some other, one must prize the negative experience with egoism and only concern for people you agree with. Not looking to rescue some child you have never met and encourage end to ALL hate and ALL war and ALL suffering, but only the rich American prizing of having money to pay for medical services of people who "earn it". Spare time and free time on Reddit not used to encourage people to see goodness itself, common goodness for all mankind. But isntead to use spare time and free time on Reddit to flock to Charlie Kirk topics as conditioned by media systems of Reddit servers. There is no self-awareness to others suffering from not even having the most basic health care in the world and how privledged the USA lifestyle is in 2025 compared to other people. And how Wikipedia and other sharing of medical knowledge and lowering the cost of educucationand increasing correct understandings can benefit the world. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md).
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpgphr/
+
+Smiles are bad, will cancel smiles. Not going to celebrate life.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpfbih/
+
+Who would have thought short-length message systems of 10-second sound bites would wreck a nation when people are attracted to podcast-thinking and Reddit messaging? Who would think mockery-washing away, peeling away of feelings, with Reddit servers, would be a badness trainng ground? Who would think Trump is leading a nation in total mockery with the tunes of out-group hate patterns from Russia since year 2013? ... ... ...
+"The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpsr9c/
+
+But not on Reddit! Machine lust for computer systems on Reddit doesn't put people in out-group hate patterns. Only the Fox News audience. ... ... ...
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpg3vq/
+
+By that simplstic short-length thinking pattern, Reddit users have never been happier in thier life except when mocking MAGA / mocking Charlie Kirk. Suddenly experts on the entire lifetime of a person because of an image shared on Reddit servers. Reactionary thinking, conditioned reactions by doctors of Cambridge Analytica.
