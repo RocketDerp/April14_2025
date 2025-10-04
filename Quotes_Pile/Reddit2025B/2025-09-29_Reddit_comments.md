@@ -3782,3 +3782,43 @@ https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_p
 
 Russia won an information war using media sites like Reddit since year 2013. Self-harm mindsets abound in USA in October 2025.
 
+https://old.reddit.com/r/news/comments/1ny2fr3/federal_agents_shoot_woman_they_say_boxed_in/nhrsx63/
+
+https://old.reddit.com/r/news/comments/1ny2fr3/federal_agents_shoot_woman_they_say_boxed_in/nhrnqfu/
+
+Fucked up by being amused all the time when the topic of Russian information warfare came up. Think Doanld Trump is so entertaining and not taking serious the nonfiction learning of society. Not standing up to people celebrating ignroance and avoiding important and critical teaching. 
+
+https://old.reddit.com/r/news/comments/1ny2fr3/federal_agents_shoot_woman_they_say_boxed_in/nhs7iks/
+
+https://old.reddit.com/r/news/comments/1ny2fr3/federal_agents_shoot_woman_they_say_boxed_in/nhschwg/
+
+https://old.reddit.com/r/news/comments/1ny2fr3/federal_agents_shoot_woman_they_say_boxed_in/nhs5bzu/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ny24u3/trump_declares_war_on_his_own_country/nhrnrg9/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ny24u3/trump_declares_war_on_his_own_country/nhrmrc5/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ny24u3/trump_declares_war_on_his_own_country/nhrp0d6/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ny24u3/trump_declares_war_on_his_own_country/nhrk9f9/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhqpy9c/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhrubos/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhqvsmp/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhqowy0/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhqvjh4/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhqs91v/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhqwut3/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhqms31/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhr7ohr/
+
+https://old.reddit.com/r/law/comments/1nxxqoi/this_order_nspm7_drafted_by_stephen_miller_and/nhrljuz/
+
