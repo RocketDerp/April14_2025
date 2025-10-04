@@ -3256,3 +3256,27 @@ But not on Reddit! Machine lust for computer systems on Reddit doesn't put peopl
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpg3vq/
 
 By that simplstic short-length thinking pattern, Reddit users have never been happier in thier life except when mocking MAGA / mocking Charlie Kirk. Suddenly experts on the entire lifetime of a person because of an image shared on Reddit servers. Reactionary thinking, conditioned reactions by doctors of Cambridge Analytica.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhppo7n/
+
+The message here is that money is worth everything. That prizing money is truly rewarding. That the egomania of counting money numbers like a video game high score bank account balance number is what matters. Message to Reddit audience is that life's great purpose is mouney prizing, just look at the free time and spare time people use seeking more money than others!
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpukjx/
+
+Why are Reddit users spending free time and spare time in service to low-effort commenting about Charlie Kirk? except to point out that this is a mob mentality behavior / Reddit Mob Mentality / Reddit HiveMind exploit as conditioned flocking of the Russian information warfare. That children are having their brains blown / minds blown out by Kremlin information warfare, and nobody on Reddit cares to see this is MULTIPLE NATO NATIONS, EVEN JAPAN, ONGOING https://www.japantimes.co.jp/news/2025/07/18/japan/politics/russia-influence-japan-election/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpnrg0/
+
+Entertainment addictions abound, people who live for rich wealthy sports games with armies of medical doctors... instead of going to the local park in thier own community and having thier neighbors share in frindship rituals and getting exercise. Instead, cheering for elites gifted people from an audience.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhphuxb/
+
+Rumors about the rich and famous, spending spare time and free time on Reddit, not to teach serious lessons of remedial morality, but to spread rumors without quotes / author names / links / titles of articles or books... but just rumor-speak. Especially about how women should behave with thier own bodies, woemn should not be allowed to choose thier own life and should be closely monitored for dating outside community guidelines.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpgl7z/
+
+Reddit owners ban people on Reddit 12 or 15 years ago and never forgive them. As if people can't improve. It is a LIFETIME ban. And I don't se Reddit users talk about the forgivness issues of the Reddit owners.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpshjl/
+
+One person speaks up, not a popular comment, but spoke up that mob mentality of Reddit audience is just as much a concern as mob mentality to Charlie Kirk's podcast. Note the length of the message is a little longer to explain thoughtful ideas and not just reactionary conditioned out-group hate patterns that have taken over USA society since year 2013 invasion by Putin's meme army / IRA.
