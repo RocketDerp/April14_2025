@@ -3398,5 +3398,28 @@ Proven system to lead by mythology. Mecca science ficiton theme park, Disney Sta
 
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp6y7t/
 
-Wikipedia is the oppsoite of Reddit. Instead of millions of disposable low-effort comments all on different pages, Wikipedia is about geetting on the *same page* all across every language of the world with refined and progrssive improvements to information. Reddit lacks any self-awareness of the attraction to low-quality high-quantity high-speed messaging being how Russia defeated the USA and NATO in informaiton warfare since year 2013.
+Wikipedia is the oppsoite of Reddit. Instead of millions of disposable low-effort comments all on different pages, Wikipedia is about geetting on the *same page* all across every language of the world with refined and progrssive improvements to information. Reddit society lacks self-awareness of the attraction to low-quality high-quantity high-speed messaging being how Russia defeated the USA and NATO in informaiton warfare since year 2013.
 
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp8nrk/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp68wo/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpb35a/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpadsz/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp9t60/
+
+War Against Nonfiction. Reddit society revels in low-quanlty high-speed commenting that do not reach nonfiction common learning of Wikipedia.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpi51s/
+
+Monomyth fiction storytelling addictions abound.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpovp3/
+
+Fiction addictions, entertainment addictions, to Star Wars year 1977 and Quran science fiction year 635 far exceed serious sober nonfiction learning.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpgpd5/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhqkj59/
