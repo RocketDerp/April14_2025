@@ -3091,4 +3091,37 @@ https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free
 
 https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhnhxrh/
 
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhmgfc9/
+
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhmoe6b/
+
+https://old.reddit.com/r/PS5/comments/1nxcuuq/as_microsoft_lays_off_thousands_and_jacks_up_game/nhmjwsk/
+
+https://old.reddit.com/r/PS5/comments/1nxcuuq/as_microsoft_lays_off_thousands_and_jacks_up_game/nhmizuk/
+
+https://old.reddit.com/r/PS5/comments/1nxcuuq/as_microsoft_lays_off_thousands_and_jacks_up_game/nhmrwzc/
+
+https://old.reddit.com/r/PS5/comments/1nxcuuq/as_microsoft_lays_off_thousands_and_jacks_up_game/nhmsswg/
+
+https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhnblbi/
+
+https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhn4fpg/
+
+https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhmzjkx/
+
+https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhn7fcy/
+
+A lot of these comments don't mention the 79 year old role Trump model and the old-man role model of Rupert Murdoch values / conditoning of Fox News. Jen Senko should be a household name since year 2015...
+
+https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhmz55g/
+
+https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhn3bqs/
+
+https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhn3hg2/
+
+https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhn5geo/
+
+https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhnge3k/
+
+My god, social media uses of Reddit have wrecked society by not being serous about Fox News. Jen Senko should be a household name. Why did Reddit community not post this film every week for the past 9 years? Why isn't it a household name? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
