@@ -3066,4 +3066,9 @@ I have not been able to rest since Q4 2014 when the IRA fucked-over our nation i
 
 https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhmc920/
 
-People love what Donald Trump has done to everyone in society. People who found goodness USA, usa back in year 2012 and earlier, to be boring and not enteratining enough. Media addicts wanting the whole world run like a fiction video game. Donald Trump is a Reality TV addict leaning a Rality TV addict nation.
+People love what Donald Trump has done to everyone in society. People who found goodness USA, usa back in year 2012 and earlier, to be boring and not enteratining enough. Media addicts wanting the whole world run like a fiction video game. Donald Trump is a Reality TV addict leaning a Reality TV addict nation.
+
+https://old.reddit.com/r/AmIOverreacting/comments/1nxavq2/aio_gf_sent_me_photos_of_her_with_another_guy/nhm6pmt/
+
+Death threats over images on meme machines. Mass denumanization trainign camp.
+
