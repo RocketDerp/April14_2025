@@ -3129,3 +3129,5 @@ https://old.reddit.com/r/PublicFreakout/comments/1nx9x0q/outside_portlands_ice_b
 
 Reddit HiveMind / Mob Mentality of Reddit / Bluesky other social machine clubs is the same way when encountering out-group. People do not stand up against ALL hate in ALL palces, want hate to be a weapon against people they dislike. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md).
 
+https://old.reddit.com/r/politics/comments/1nxit5q/trump_is_no_longer_denying_support_for_project/nhnpxwm/
+
