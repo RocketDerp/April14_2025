@@ -3360,3 +3360,34 @@ https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attac
 
 Insame, insane from low-quality media consumption. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhq219t/
+
+Who are these "normal people", what is the baseline for people favoring nonfiction vs. fiction? People don't grasp the Tower of Babel langauge issues of menaing and interpretation are global and span thousands of years. People do not favor nonfiction, science learning, that is new. USA is the first nation to base itself on reason thinking, science, The Enlightment, and people in USA in year 2025 don't even know that. People think Fox News is nonfiction. People flock to and seek out Reddit commenting as gold standard of learning, all on different pages with wildly different perspectives.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpcfzd/
+
+Reddit community needs to get on the same page. This page published December 20, 2013 where many things are spelled out why **year 2013** thinking in USA changed so much from the year before (2012). ... ... ...
+December 20, 2013 - "Vladimir Putin, Conservative Icon. The Russian president is positioning himself as the world's leading defender of traditional values." By Brian Whitmore https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp884c/
+
+Translation between fiction systems is one of the most painful things you will encounter. Brain damage abounds. Russia's War Against Reality started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analytica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpo0o0/
+
+Faith in snark. Tony Clifton performance faith. Exploited by Russia. Surkov governing methods exploit absurd, surreal, snark, comedy. People can not be serious and get on the same page of what is imporotant. Instead of confronting Russia techniques, people reset their brain with snark exploits.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp95ff/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp9x92/
+
+War Against Reality. The Russian War Against Nonfiction started Q2 2013 on Reddit and other media systems. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp61we/
+
+Balanced to what? What exactly is being balanced? People can't say. Fiction addiction, egomania, vs. nonfiction science learning. Egoism cravings vs. factual reality.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp8ge0/
+
+Colbert satire-washes reality, humor-washes, mcokery-washes as does Reddit community. Faith in mocking, faith in nonfiction, faith in satire. The deepest faith in USA in October 2025 is Doanld Trump's fatih: faith in mocking reality. Faith in mockery. The USA **Is a Total Mockery** in year 2025. Fiction addictions being fed by media machines in millions of patterns of electric messages. All avoiding the nonfiction learning about 5,000 ARG patterns deployed by Kremlin since year 2013. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
