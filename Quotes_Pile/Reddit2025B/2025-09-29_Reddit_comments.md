@@ -3538,4 +3538,7 @@ https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attac
 
 Trying to cram all topics into "right-wing" and "left" is bewildering and confusing. Fiction vs. nonfiction better expalins the audience attraction to Fox News HDTV and Reddit low-effort commenting addictions.
 
+https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of_measles/nhqnn7y/
+
+Top popular comment. Machine lovers who hate humans, hate messages as condtioned by the IRA. Russia has defeated heart and minds of Americans to *hate harder* upon each other instead of calling out this August 24, 2018 articale about measles warfare: https://www.bbc.com/news/world-us-canada-45294192
 
