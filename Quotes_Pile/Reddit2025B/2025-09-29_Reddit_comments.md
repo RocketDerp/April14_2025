@@ -3072,3 +3072,23 @@ https://old.reddit.com/r/AmIOverreacting/comments/1nxavq2/aio_gf_sent_me_photos_
 
 Death threats over images on meme machines. Mass denumanization trainign camp.
 
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhm67z6/
+
+A world role model for love and compassion teaching. I moved to Jordan to study media ecology during the Arab Spring, and people who think thousands of year old science fiction storybooks don't need reformation of reading are not living in factual reality. Malala from Swat Valley Pakistain came on the world stage in January 2009 / year 2012 / October 8, 2013 book published - and people need to be taking what she wrote and say seriously. Pakistain is VERY far away from the Middle East. People should also focus on 
+Elif Shafak.
+
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhm3rro/
+
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhm7ynd/
+
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhmgy2f/
+
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhmueys/
+
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhnb56j/
+
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhnc0px/
+
+https://old.reddit.com/r/worldnews/comments/1nx9c3h/hamas_says_it_agrees_to_free_all_hostages_enter/nhnhxrh/
+
+
