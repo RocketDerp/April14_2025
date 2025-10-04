@@ -3641,3 +3641,34 @@ https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_
 
 Pretty easy to proide a link or citation or quote on Reddit. Alas, not poular. Popularity is toxic.
 
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhrfvdu/
+
+Go to the nonfiction section of the library and study media ecology. "The extremists are afraid of books and pens. The power of education frightens them. **They are afraid of women. The power of the voice of women** frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqw733/
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhr93nb/
+
+Deport-happy, instructing people to leave the conversation (self-deport Trump messaging values) because ideas outside filter-bubble are unwelcome on Reddit community.
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhrdc15/
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhr4m90/
+
+Conformity enforcers, who flock to powerful media machines to make sure everyone stays in line and mocks any attempts to call out that war and terrorism are bad.
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqtfgg/
+
+Fish right there, but not allowed to capture them.
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhrjbss/
+
+Greta has HyperEmpahty as part of her autism. People who travel to Africa for the Arab Spring like I did in year 2010. Or how I see livng in a nation mind-fucked by the IRA is bad in October 2025. USA worship of hate leadership signals. https://en.wikipedia.org/wiki/Hyper-empathy
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhrfram/
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhr4law/
+
+Amusement-washing Trump, humor-washing, joke-washing, entertainment-washing of Trump brand. Has been ongong on Reddit society for over 10 full years. Addicts to mockery who can never be satisfied in their cravings for more mockery and mocking as leadership. Donald Trump provides that leadership to fiction addits that others could not provide. High speed message addicts flock to Trump brand for hate stimuation. ... ... ... 
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
