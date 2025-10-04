@@ -1680,3 +1680,9 @@ https://old.reddit.com/r/ContagiousLaughter/comments/1nw71gt/daycare_tomorrow_is
 
 I observe James Joyce community on reddit downvoted this posting.. https://old.reddit.com/r/jamesjoyce/comments/1nvl5jf/is_ulysses_actually_that_hard/     
 32 comments, yet posting voted "0 points (43% upvoted)"
+
+&nbsp;
+
+Giving up on love / giving up on copassion / giving up on forgveness.   
+Choice marriage honesty. Logical solutions of anti-Malala. Gender aparthied of anti-Malala   
+https://old.reddit.com/r/mapporncirclejerk/comments/1nxmx9z/my_proposal_for_the_gender_wars/
