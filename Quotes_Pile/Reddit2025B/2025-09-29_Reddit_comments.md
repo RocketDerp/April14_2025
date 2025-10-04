@@ -3582,3 +3582,50 @@ https://old.reddit.com/r/Fauxmoi/comments/1nxxcha/turkish_journalist_and_global_
 
 Television reality vs. real reality. People who view televison as their model of the real world.
 
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqukdb/
+
+"We are never going back to normal again, because "normal" was already a crisis. What we refer to as "normal" is an extreme system built on exploitation of people and planet. It is a system defined by colonialism, imperialism, oppression and genocide by the so-called Global North to accumulate wealth that still shapes our current world order. Some people say that the system is now malfunctioning, but that is not true. The system is doing exactly what it is meant to be doing. If economic growth is our only priority, then what we are experiencing now should be exactly what we should be expecting." - October 30, 2022, https://en.wikiquote.org/wiki/Greta_Thunberg
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqfcsv/
+
+Dehumanization by machine addicts of Reddit is common.
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqgfrh/
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqzpzj/
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhr0j32/
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhr3qvt/
+
+Uh, yha, before Twitter and Facebook and Reddit. What's changed is the high-speed reactions, the ability to consume huge quantities of low-effort comments with high-speed machines. "Harlan Ellison, Middle East 8,000 years" [/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqnn6u/
+
+People aren't at home doing nothing, they are attacking humanism using powerful message machines.
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqnylb/
+
+Hate is popular, toxic popularity.
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhr9e2d/
+
+Russia has oil to sell and nations to conquest since year 2013. Minds to fuck by IRA.
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhr3poz/
+
+Autism super-power, irritate ego. Elon Musk has autism super-power to irrtate people. I have the same superpower.  Greta Thunberg irritates the fuck out of egomaniacs. SEE_ALSO_A In context of a person who knows Donanld Trump... "Elon Musk is the 'most irritating person I’ve ever had to deal with,' Trump official says" - By Ryan Adamczeski Monday, April 14, 2025 https://www.yahoo.com/news/elon-musk-most-irritating-person-222004495.html
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqx5ut/
+
+Malala's October 8, 2013 book describes this. Fiction vs. nonfiction. ... ... ... 
+"The extremists are afraid of books and pens. The power of education frightens them. **They are afraid of women. The power of the voice of women** frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqw0h2/
+
+War of supressing information, downvoting on Reddit. Hate-filled people who can't even tolerate ideas without trying to shut them down. Egomania abounds under Donald Trump society October 2025.
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhqzdev/
+
+Pile-on mob mentality of downvoting.
+
