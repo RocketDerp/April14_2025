@@ -2978,5 +2978,38 @@ https://old.reddit.com/r/nextfuckinglevel/comments/1nxcsx6/officer_avoids_gettin
 
 "the amount of people who just do not give a shit is astounding" machine induced detachment and mania is something we do not teach or address in society as a threat / something to educate and learn about to solve.
 
+https://old.reddit.com/r/nextfuckinglevel/comments/1nxcsx6/officer_avoids_getting_crushed_twice_within/nhmyyca/
 
+Media mania, touch screen device mania / addictions.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhm0931/
+
+I was hospitalized for the first time in my life at summer of year 2015 when it was clear how mind-fucked the USA population has become to Russian self-harm. People can't even see how they are flocking to leadershp signals of self-harm to USA and NATO. It just never ends, the trend just keep going more and more into detachment from goodness and people flocking to hate signals and mockery signals.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhm6svd/
+
+Living in a sewer of hate values is horrib.e It has been worse living in USA since Q4 2014 than it was when I lived in the Middle East for years. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): "CAMPBELL: It’s primarily a spiritual exercise, and the society is supposed to help us have the realization. Man should not be in the service of society, society should be in the service of man. When man is in the service of society, you have a monster state, and that’s what is threatening the world at this minute."
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhn1q1j/
+
+People keep praising *hate harder* messages and behaviors. USA faith of We The People, the population faith, is that hate will solve Trump problems. It just keeps getting worse. BEEN GOING N FOR OVER TEN YEARS AND THREE MONTHS, a constant worship of hate messages and symbols. ... ... ... 
+"The burden of self-deception has grown too heavy, and some minor incident, in my case my little boy, hardly more than a baby, saying ‘Jewish swine,’ collapses it all at once, and you see that everything, everything, has changed and changed completely under your nose. The world you live in—your nation, your people—is not the world you were born in at all. The forms are all there, all untouched, all reassuring, the houses, the shops, the jobs, the mealtimes, the visits, the concerts, the cinema, the holidays. But the spirit, which you never noticed because you made the lifelong mistake of identifying it with the forms, is changed. **Now you live in a world of hate** and fear, and **the people who hate** and fear do not even know it themselves; when everyone is transformed, no one is transformed. **Now you live in a system which rules without responsibility** even to God. The system itself could not have intended this in the beginning, but in order to sustain itself it was compelled to go all the way.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45. Published 1955.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhn13s0/
+
+People on meme machines have embraced Russian IRA mind-fuck and we are in a wasteland. Joy has been wrecked, goodness abandoned, worship of *hate harder* values and *mock harder*. People mock anything that is goodness (of real world, reality itself) or serious in favor of their entertainment addictions.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhmes6j/
+
+There are times people need to stop their fiction and sports concern, games and fiction addictions. And be serious about larning what the toxic clergy has failed to teach. ... ... ...
+"So the question is not whether we will be extremists, but what kind of extremists we will be. Will we be extremists for hate or for love?" - MLK Jr
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhmmwta/
+
+Machine lovers of Reddit computer systems who prize hate. ... ... ...
+"We must develop and maintain the capacity to forgive. He who is devoid of the power to forgive is devoid of the power to love." - MLK Jr.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhm1z6q/
+
+You should see how Reddit users behave towards people who show weakness or difficulting compusing compelx ideas and emotions. People who prize systems, machine systes, government systems over humans have taken over society mindsets. The Russian IRA has mind-fucked people into prizing dehumanization and prizing hate since year 2013. We have abadoned our best American teachers in the face of lust for systems. ... ... ...
+"In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - MLK Jr
