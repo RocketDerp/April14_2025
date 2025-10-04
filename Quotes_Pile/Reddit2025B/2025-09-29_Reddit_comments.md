@@ -3206,3 +3206,21 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_sh
 
 Soldiers don't have time for years of downtime when they are on a conques to defeat the enemy. Soldiers from all nations behave this way. Ignorace abounds on Reddit community, popular comment upvoted. Tower of Babel: people who speak different langauges believe out-group is magical aliens. And that a magical alien from outer space communicates to their in-group about the situation. The Middle East patterns of Abraham / Moses magical commandments and burning bush / angels. Reddit thinks pepole from another subreddit are aliens. If you communicate or ritual (funeral / death ritual of Charlie Kirk) in any way different, you are on Reddit a bot. ... ... ... "Do You Speak Fox? How Donald Trump’s favorite news source became a language. By Megan Garber. September 16, 2020", "You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions consider a loss that Americans don’t have good language for, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox." https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhph93v/
+
+Cults. Notice the Reddit cult behavior of: extreme avoidance of discussion of Russian cult behaviors. Russian information warfare nonfiction learning. Extreme Reddit cult behavior of nonfiction public library. No author name, no book name, no link, cult of millions and millions of high-speed low-effort convesational commenting. Cult of avoiding Wikipedia style refinement and *on the same page* of *common sense* that is shared with the world (Wikipedia even has conventiosn for tanslating a topic to all the languages of the world). ... ... ... 
+“Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1955.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpfzf6/
+
+Complete ignorance of funeral rituals. Which is why Finnegans Wake by James Joyce about funeral waks is so important for learning of media ecology. People celebrate the life of the living. Fireworks and music and party. OPERA_A https://www.youtube.com/watch?v=wTkLLQjgoEU
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpjqmu/
+
+Their god is fictions storytelling, Fox News messages, Truth Social monomyth fiction, Putin Kremlin Surkov monomyth fiction storytelling, Reddit commenting audiences treat low-effort comments as John 1:1 god messages. Obeying signals of computer-delivered high-speed messages. Flocking to amuseemnt mills / meme systems for daily prayer / messages. The "1 John 4:20" crisis of people loving words more than all living human persons / life on Earth.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpjhoi/
+
+I am sorry for all humanity with the sad state of Toxic Clergy values and that people don't even have a good education on the meaning of love and compassion and their best idea of joy is to dehumanize out-groups of people and spread pollution to harm wild animals and other life on Earth. People who care more about being in a subreddit hate club than condeming all hate in all places, because they are raised and parented that out-group hate is the most rewarding life accomplishment. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md).
+
+
