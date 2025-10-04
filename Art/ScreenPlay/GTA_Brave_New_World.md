@@ -29,6 +29,6 @@ Published January 2015, before Trump started run for office in June 2015: https:
 
 &nbsp;
 
-# Plitics has got to feel like Grand Theft Auto.
+# Politics has got to feel like *Grand Theft Auto*.
 
-A video game.
+A video game. GTA.
