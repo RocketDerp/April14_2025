@@ -3549,3 +3549,17 @@ https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of
 https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of_measles/nhqpuej/
 
 Unreal. The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of_measles/nhqq1a9/
+
+https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of_measles/nhqp4oj/
+
+Satire-washing seious sitaution, as Reddit does all the time in the face of wepaonized information topics. Russia won, Surkov won, Measles was part of the topics of attack since year 2014 documented. People can not name Cambridge Analytica or IRA.  https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of_measles/nhqt7oa/
+
+Note the absence of link, not using quotes, no authors named, no book titles, just millions and millions of low-effort commenting that people flock to with spare time and free time.
+
+https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of_measles/nhqozxw/
+
+<img width="868" height="406" alt="image" src="https://github.com/user-attachments/assets/f9303464-cfbc-4062-ba09-4d1f5b410e3c" /> Mind-fucked by Russia since year 2013 fucked-up, that's how fucked up USA is. Russia won, Surkov won. People don't even reocgnize they lost and to who they lost. Russia promoted deaths in USA, and social media users can't even cite the August 24, 2018 date and Johns Hopkins University / George Washington University. There is a complete avoidance of nonfiction learning on how Russia defeated USA. https://www.bbc.com/news/world-us-canada-45294192
