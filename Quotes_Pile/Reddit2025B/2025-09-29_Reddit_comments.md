@@ -3475,3 +3475,13 @@ https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attac
 
 Note the abscence of links, citations, book titles, author names, etc.
 
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpojpb/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpq4er/
+
+Yes, it is. Just as blocking people on Bluesky and Reddit is book burning. But people can't grasp that in 1933 Germany they didn oot have Unicode messages with "Block" buttons on touch screens. Media ecology literacy is critical for all people age 12 to age 120 to rescue from Russian IRA / CA outcomes.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhqoahq/
+
+Sunday Bible is fiction. Reactionary mindsets against nonfiction learning and science, reactionary against people without other languages and usages of language.
+
