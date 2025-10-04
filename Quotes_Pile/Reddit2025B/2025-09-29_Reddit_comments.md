@@ -3038,3 +3038,32 @@ https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_th
 
 USA needs remedial morality for the entire population. The Clergy has failed to make Bible verse "1 John 3:17" known to every person in the face of White House Elon Musk.
 
+https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhm0vx6/
+
+Media addicts needing their stimulation. So driven by hate and mockery that wihtout Trump's hate leadership social machine addicts cry out.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhm0u4i/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhm2uuf/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhm2nqu/
+
+Emotions entirely driven by Donald Trump.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhlytxj/
+
+Meme addicted audience thrilled at the Donald Trump leadership of the nation. Popcorn track for Reddit audience.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhm370g/
+
+Media addicted audience calling out and offering money for more Trump content. Living under a society like this for OVEER TEN YEARS AND THREE MONTHS, addicts to media systems who can never get enough Donald Trump entertainment. Constnatly asking for more hate and mockery. This is Hell.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhm4gy2/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhm7s7g/
+
+I have not been able to rest since Q4 2014 when the IRA fucked-over our nation into worship of badness.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nx9s4c/no_one_can_find_him_trump_drops_from_public_view/nhmc920/
+
+People love what Donald Trump has done to everyone in society. People who found goodness USA, usa back in year 2012 and earlier, to be boring and not enteratining enough. Media addicts wanting the whole world run like a fiction video game. Donald Trump is a Reality TV addict leaning a Rality TV addict nation.
