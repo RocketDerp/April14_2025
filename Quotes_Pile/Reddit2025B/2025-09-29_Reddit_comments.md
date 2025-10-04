@@ -3280,3 +3280,48 @@ Reddit owners ban people on Reddit 12 or 15 years ago and never forgive them. As
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nxrxok/she_seems_really_shaken_up_still/nhpshjl/
 
 One person speaks up, not a popular comment, but spoke up that mob mentality of Reddit audience is just as much a concern as mob mentality to Charlie Kirk's podcast. Note the length of the message is a little longer to explain thoughtful ideas and not just reactionary conditioned out-group hate patterns that have taken over USA society since year 2013 invasion by Putin's meme army / IRA.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpdaay/
+
+Media woke. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpq6ok/
+
+Liberal vs. conservative is brain rot, so this is NOT Media woke messaging. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, p.56, February 28, 1966
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpoies/
+
+Fiction outsells nonfiction. Fiction draws audiences more than nonfiction. Popularity has become toxic.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpnfnd/
+
+People are programmed that if something is free it is worthless. Hence why they often prize money and don't prize compassion and love. But democracy and society is shit, terrible, horrible, when there is an absence of love and compassion. Democracy built upon hate is a monster state.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpn1ti/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpxkjs/
+
+That is why I say Donald Trump is an extremely gifted actor. Surkov students / Surkov student screenplays and Tony Clifton writiers (includng Andy Kaufkman) deserve credit. Trump can charm people into attraction, this is a talent, audience charming. Very gifted with poetry and langauge that people parrot and copy constantly all over in USA. 
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp6zxv/
+
+Crazy. Alas, Reddit comment community prizes huge quantities of high-speed commenting over getting on the same page and calling for others to please halt less-important entertainment and rescue the nation from Russian information warfare that started in year 2013. "Crazy". "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpgsua/
+
+Tony Clifton character. People "Eat The Onion" and do not study Surkov techniques of domestic Russia for past 25 years. Ignorance abounds that absurd surreal antics are a new political system. https://www.youtube.com/watch?v=h9_L9GRRsQo
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpeett/
+
+Fiction outsells nonfiction.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp63oa/
+
+Fraaming everything in one-bit logic of conservative vs. liberal is brainrot, self-induced harm of the mind to cram all perspectives that way. Fiction vs. nonfiction is a much wider perspective and understanding of what people are "conserving". What is Fox News conserving when audience rocks back and forth memorizing fiction storytelling of how wealth lords are better than others? ... ... ... “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpgs3j/
+
+Social media adicts prize witty entertainment and fiction above all else. Musk knew to purchase Twitter and Reddit community mocked and mocked and mocked as conditioned in a total mockery.
+
+
+
