@@ -3717,4 +3717,38 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_g
 
 Crazy. Media mania. Crazy over media systems of fiction storytelling. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrmksa/
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrw8y0/
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrs58x/
+
+They provide entertainment and mockery images for Reddit audiences. A society that will do anything but study nonfiction laarning of Russian information warfare. Anything but sustain focus on Fox News media ecology cisis and values. Guns don't fix a Fox News mindset problem.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrw9cv/
+
+Hate of human beings and love of systems. ... ... ...
+"That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - November 17, 1957, MLK Jr.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrst1n/
+
+Dear Leader is Putin, the IRA on Reddit since year 2013. But Reddit can't stop with the hate prizing and hate worship to see clearly.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrn9o2/
+
+People are dong shit, they are adopting the worship of out-group hate and repeating hate ideas on media systems day in and day out. That's not doing nothing, they are actively engaging and accepting that hate of human persons. Abaoning goodness itself and flocking to the total mockery networks of amusement and mockery at people.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhro4tr/
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrvae6/
+
+The hood of Reddit community too. Conpetitive education, stepping on other people to push them down. Anti-wikipedia, pro Reddit commenting to drown out common progress of all mankind. Because univversity is competitive, can't get in without the right connections, competititon in learning is about defeating others.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrktv6/
+
+"our media" had to keep an audience who got addicted to fiction. A society that mocked and amusedment-washed the Ukraine invasion by Russia. Who avoided learning the nonfiction serious subjects of Cambridge Analytica and the Internet Research Agency in favor of memorizing memes about Spongebob.\
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrnu2d/
+
+Gun stroking messags on Reddit. Shoot everyone. Murder everyone. Kill everyone. Egomania messaging to mind-fuck Reddit audiences into addressing nonfiction learning of cult deprogramming. Cults of gun messages.
 
