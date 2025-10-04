@@ -3629,3 +3629,15 @@ https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_
 
 Pile-on mob mentality of downvoting.
 
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhrbbu0/
+
+Note the "LOL" laugh-track for Reddit audience. Serious topics are turned into entertaining content, amusement content. A mindset that anything is acceptable as long as you can LOL about it. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhrb3ho/
+
+Note the avoidance of author names, book titles, citations, links, just lots of anti-citation anti-public library commenting competitiion. This is what draws crowds in October 2025. People using free time and spare time to drown out learning with low-effort commenting addictions.
+
+https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_detained_by/nhrquan/
+
+Pretty easy to proide a link or citation or quote on Reddit. Alas, not poular. Popularity is toxic.
+
