@@ -3340,3 +3340,23 @@ https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attac
 
 Left vs right is brainrot thinking system. Note the absence of any author names, book titles, links. Out-group vs. out-group polarity. Conservering what exactly? Why not a named list of values instead of wildcard "the right" meanings. Fiction vs. nonfiction is a big measure of human progress, science nonfiction vs. storytelling appeal of magic fiction. "The Right's sole purpose is to be anti-Left." - polarity logic. Reddit vs. Twitter, Reddit vs. Facebook, Reddit vs. Fox News. People really need to view this as learning sources, ADULTS learn from Fox News, adults learn form low-effort dispostable Reddit comments and are not citing nonfiction learning and getting on the smae page. Instead, all consuming millions of different comments and not prioritizing some learning as importanta and critical to rescue the USA from the 5,000 Russian mind-fuck patterns since year 2013.
 
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpf96s/
+
+"religous", media cults abound. Studying this as cults of Fox News HDTV, cults of science fiction Bible media / Church fiction venue, Reddit commenting section cults. Cults vs. cults, all avoiding same page of nonfiction science learning in favor of fiction storytelling.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpdups/
+
+An actual link / reference citation!
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpawj2/
+
+Left vs. right is brainrot and people don't recognize the one-bit logic problem.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhph48j/
+
+Fiction outsells nonfiction. Bullshit outsells seriuos nonfiction. Reddit comment section is full of bullshit too. Because bullshit is popular.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhps7jq/
+
+Insame, insane from low-quality media consumption. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
