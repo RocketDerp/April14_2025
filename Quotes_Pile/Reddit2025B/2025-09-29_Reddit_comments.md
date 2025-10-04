@@ -3123,5 +3123,9 @@ https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_t
 
 https://old.reddit.com/r/Millennials/comments/1nxf2bq/is_there_such_a_thing_as_the_terrible_60s/nhnge3k/
 
-My god, social media uses of Reddit have wrecked society by not being serous about Fox News. Jen Senko should be a household name. Why did Reddit community not post this film every week for the past 9 years? Why isn't it a household name? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+My god, social media uses of Reddit have wrecked society by not being serious about **comitng together as a community regarding the common problem of** Fox News. Jen Senko should be a household name. Why did Reddit community not post this film every week for the past 9 years? Why isn't it a household name? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/PublicFreakout/comments/1nx9x0q/outside_portlands_ice_building_a_female_protester/nhm644s/
+
+Reddit HiveMind / Mob Mentality of Reddit / Bluesky other social machine clubs is the same way when encountering out-group. People do not stand up against ALL hate in ALL palces, want hate to be a weapon against people they dislike. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md).
 
