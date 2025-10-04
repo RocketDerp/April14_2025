@@ -2884,3 +2884,44 @@ Engaging content for Reddit audiences.
 https://old.reddit.com/r/MurderedByWords/comments/1nx6ql6/privileged_power_play/nhltqwb/
 
 https://old.reddit.com/r/MurderedByWords/comments/1nx6ql6/privileged_power_play/nhlla4c/
+
+https://old.reddit.com/r/politics/comments/1nx8s0g/bessent_unveils_illegal_plan_to_put_trumps_face/nhlmba1/
+
+https://old.reddit.com/r/politics/comments/1nx8s0g/bessent_unveils_illegal_plan_to_put_trumps_face/nhlmr82/
+
+https://old.reddit.com/r/politics/comments/1nx8s0g/bessent_unveils_illegal_plan_to_put_trumps_face/nhln6o2/
+
+https://old.reddit.com/r/politics/comments/1nx8s0g/bessent_unveils_illegal_plan_to_put_trumps_face/nhlzffd/
+
+https://old.reddit.com/r/politics/comments/1nx8s0g/bessent_unveils_illegal_plan_to_put_trumps_face/nhm3v4w/
+
+Reddit audiences and USA society finds this so entertaining.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhm92ni/
+
+Entertainment for a society that is attracted to trash media content, Reality TV like Donald Trump and South Park.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhm7jhs/
+
+Reddit messages that hate is love, that "hate thy enemy" is prized. That this is excellent Reddit content to love. 
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmeini/
+
+Messages to not stand up to Russian information warfare and point at all the anti-NATO actions such as attacking Canada and Greenland and emergency cult deprogramming of the nation and defense against Putin's mental manipulation.... instead, enjoy the massive quanities of low-effort commenting from no-identity Reddit accounts and don't act now in year 2025 fighitng the intellectual war. Russia won, Surkov won.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmk3m2/
+
+Denial of reality messages on Reddit messages. Russia has mentally manipulated people to favor these shirt-tiny messages and not face nonfiction learning about Reddit society being overrun by the IRA since March 2013.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmoh3o/
+
+Audience members calling out their predictions of the Reality TV performances / scenes and lines of dialog coming up. No concern to fight Russia, it's too entertaining watching mentally manipulated Americans attack and hate upon Americans.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhm7hus/
+
+Dehumanize thy enemy. Not rescuing culb members of Putin's IRA messages who are self-harmng USA, dehumnaizin them to animals. Machine lovers on Reddit mahines often hate human persons who use real names while hiding thier own real name on touch screen Reddit systems.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmjish/
+
+Hate for women who don't sexually please the Reddit audeince. This was called out by Pussy Right in their Make American Great Again video as Trump Putin shared values (Pussy Riot is Russian, experts on Putin informationw arfare and Kremlin thinking). OPERA_A "no more small breasts" https://youtu.be/s-bKFo30o2o?t=75
+
