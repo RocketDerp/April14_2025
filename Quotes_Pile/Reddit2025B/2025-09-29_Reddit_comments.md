@@ -3013,3 +3013,28 @@ https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_th
 
 You should see how Reddit users behave towards people who show weakness or difficulting compusing compelx ideas and emotions. People who prize systems, machine systes, government systems over humans have taken over society mindsets. The Russian IRA has mind-fucked people into prizing dehumanization and prizing hate since year 2013. We have abadoned our best American teachers in the face of lust for systems. ... ... ...
 "In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - MLK Jr
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhm4avn/
+
+People who prize hate.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhm2rt0/
+
+Gets people riled with engagement, seeing this video image on their entertainment meme devices. We all need to address the Russian information warfare that has mind-fucked people.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhm4zl7/
+
+We need to address the entire society that has come to prize hate and refuses to engage nonficiton public library learning about what Cambridge Analytica and IRA did to minds to destroy USA.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhm5jep/
+
+People love, lust for hate.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhn0iux/
+
+Fixated on politicains instead of over 300 million We The People who do not express desire for goodness and are entirely addicted to the fiction and mental manipulation Russia has seeded on social media and medidia systems since year 2013. People are not quoting Martin Luther King Jr and showing they want goodness, not asserting good, but instead asserting *hate harder* values and machine / technology lust for high speed messaging reactionary thinking.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nxaj8d/speaking_on_behalf_of_the_world/nhmj3r0/
+
+USA needs remedial morality for the entire population. The Clergy has failed to make Bible verse "1 John 3:17" known to every person in the face of White House Elon Musk.
+
