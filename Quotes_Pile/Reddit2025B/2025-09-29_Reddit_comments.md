@@ -3366,7 +3366,7 @@ Who are these "normal people", what is the baseline for people favoring nonficti
 
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpcfzd/
 
-Reddit community needs to get on the same page. This page published December 20, 2013 where many things are spelled out why **year 2013** thinking in USA changed so much from the year before (2012). ... ... ...
+<img width="1610" height="1468" alt="image" src="https://github.com/user-attachments/assets/8eb1c43f-447e-415c-9bf3-570afa9e4e45" /> Reddit community needs to get on the same page. This page published December 20, 2013 where many things are spelled out why **year 2013** thinking in USA changed so much from the year before (2012). ... ... ...
 December 20, 2013 - "Vladimir Putin, Conservative Icon. The Russian president is positioning himself as the world's leading defender of traditional values." By Brian Whitmore https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
 
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp884c/
@@ -3390,4 +3390,13 @@ Balanced to what? What exactly is being balanced? People can't say. Fiction addi
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp8ge0/
 
 Colbert satire-washes reality, humor-washes, mcokery-washes as does Reddit community. Faith in mocking, faith in nonfiction, faith in satire. The deepest faith in USA in October 2025 is Doanld Trump's fatih: faith in mocking reality. Faith in mockery. The USA **Is a Total Mockery** in year 2025. Fiction addictions being fed by media machines in millions of patterns of electric messages. All avoiding the nonfiction learning about 5,000 ARG patterns deployed by Kremlin since year 2013. Reddit community can't even name "Internet Research Agency" or "Cambridge Analtyica". ... ... ... "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpappf/
+
+Proven system to lead by mythology. Mecca science ficiton theme park, Disney Star Wars science ficiton theme park. Notice the absence of any book authors, book titles, quotes on the subject. ... ... ...
+“Everything is PR” has become the favorite phrase of the new Russia; my Moscow peers are filled with a sense that they are both cynical and enlightened. When I ask them about Soviet-era dissidents, like my parents, who fought against communism, they dismiss them as naïve dreamers and my own Western attachment to such vague notions as “human rights” and “freedom” as a blunder. “Can’t you see your own governments are just as bad as ours?” they ask me. I try to protest—but they just smile and pity me. **To believe in something and stand by it in this world is derided**, the ability to be a shape-shifter celebrated. Vladimir Nabokov once described a species of butterfly that at an early stage in its development had to learn how to change colors to hide from predators. The butterfly’s predators had long died off, but still it changed its colors from the sheer pleasure of transformation. Something similar has happened to the Russian elites: during the Soviet period they learned to dissimulate in order to survive; now there is no need to constantly change their colors, but they continue to do so out of a sort of dark joy, conformism raised to the level of aesthetic act.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014**.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp6y7t/
+
+Wikipedia is the oppsoite of Reddit. Instead of millions of disposable low-effort comments all on different pages, Wikipedia is about geetting on the *same page* all across every language of the world with refined and progrssive improvements to information. Reddit lacks any self-awareness of the attraction to low-quality high-quantity high-speed messaging being how Russia defeated the USA and NATO in informaiton warfare since year 2013.
 
