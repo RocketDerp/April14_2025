@@ -2956,11 +2956,27 @@ https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicag
 
 https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmlljr/
 
-Why are people citing Putin's Birthday on October 7, 2025 about seeing her? Looking forward to some new episode of the antics politics?
+Why are people citing Putin's Birthday on October 7, 2025 about seeing her? Looking forward to some new episode of the antics politics? Oh, it's street-gang coded messages to dehumanize woemn as just sexual parts. "See you next Tuesday is a common euphemistic backronym for the word "cunt"" hate messages against women.
 
 https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhm74w1/
 
-Why is audience citing Putin's Birth on October 7?
+Why is audience citing Putin's Birth on October 7? Oh, it's street-gang coded messages to dehumanize woemn as just sexual parts. "See you next Tuesday is a common euphemistic backronym for the word "cunt""
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmkvgz/
+
+Peole have fantasy narator in thier addiction to the hyper reality spectacles created by Trump society. Intelligent nonficiton learning is avoided, but experts on fiction storytelling tropes and actors. Anything to avoid being serious about defending against Russia's cult programming systems.
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1nxcsx6/officer_avoids_getting_crushed_twice_within/nhmhjvp/
+
+Machine loving maniacs are not concerned with the lives of strangers they don't know. The machines give a sense of god power and speed that detaches them from reality. Even Fox News HDTV machine rapid mental context changes can induce these detachment states. We do not teach about these problems nor do fire drills / training to teach people how to not become detached from loving human people, especially strangers they view as non-person like they living in a ficiton TV show / glass screen of a television set / video game world through thier machine windshield.
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1nxcsx6/officer_avoids_getting_crushed_twice_within/nhmk785/
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1nxcsx6/officer_avoids_getting_crushed_twice_within/nhmjqb6/
+
+https://old.reddit.com/r/nextfuckinglevel/comments/1nxcsx6/officer_avoids_getting_crushed_twice_within/nhmthr1/
+
+"the amount of people who just do not give a shit is astounding" machine induced detachment and mania is something we do not teach or address in society as a threat / something to educate and learn about to solve.
 
 
 
