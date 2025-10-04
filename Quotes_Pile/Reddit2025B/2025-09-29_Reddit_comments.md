@@ -3423,3 +3423,14 @@ Fiction addictions, entertainment addictions, to Star Wars year 1977 and Quran s
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpgpd5/
 
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhqkj59/
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpiuf5/
+
+"lunatic" media consumers. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpb845/
+
+It is exahusting. Carl Sagan explained how unpopular science thinking is in several of his books. People constantly avoid nonfiction science learning and are out to attack it. The Russian Internet Research Agency has invaded the USA media systems to attack science thinking. Such as reported here August 24, 2018: https://www.bbc.com/news/world-us-canada-45294192 And billionares networks such as the many systems owned by Rupert Murdoch, and Elon Musk's Twitter network / Starlink networks / Grok AI networks, and Truth Social networks, and Reddit no-identity messaging network ... ... ... 
+“One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, published 1995, 30 years ago.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhquebo/
