@@ -3672,3 +3672,49 @@ https://old.reddit.com/r/news/comments/1nxx54d/greta_thunberg_says_she_is_being_
 Amusement-washing Trump, humor-washing, joke-washing, entertainment-washing of Trump brand. Has been ongong on Reddit society for over 10 full years. Addicts to mockery who can never be satisfied in their cravings for more mockery and mocking as leadership. Donald Trump provides that leadership to fiction addits that others could not provide. High speed message addicts flock to Trump brand for hate stimuation. ... ... ... 
 “When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhptlu6/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhqcofx/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhqsytl/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhpzc0h/
+
+Irony-washing and satire-washing of Putin's IRA and mind-fucking of the population is inicredibly popular on Reddit for the past 11 years.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhqqrp0/
+
+I have another thoery: if you make millions of messages teaching idiot values, people learn from the messages, and people behave as they are educated. Education doesn't happen in classrooms with rectangle buildings and seating. It happens on Reddits with low-effort commentings that prize "Celebration of Ignorance" as Carl Sagan described it in his 1995 book.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhqlf3o/
+
+Take? Seek out. Like people who seek out consumming high quantities of low-effort comment messages instead of getting on the same page of a nonfiction Russian information war happening since year 2013.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhpthz0/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhq2k6g/
+
+Amusment-washing away serious problems with name-calling and insults. That's the IRA and CA mind-fuck outcomes in USA since year 2013.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhq72u2/
+
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka. He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhqa9zl/
+
+Anything to avoid nonficiton learning of Russia's informtion warfare, which is not domestic children, but a hostile enemy who waged meme warfare against USA since year 2013. Surkov won, Putin won, Russia won. Hearts and minds lost to self-harm mindsets.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhqn6i1/
+
+Nonfiction has to be perfect. Where addicts to fiction, anything goes, you can retcon the story as you please. Fox News fiction sells far better than nonfiction. Audiences have flocked to fiction based Surkov governing methods in USA, can not get enough of Truth Social fiction leadership. Reddit community is avoidant of nonfiction, quotes, citations, serious learning about media ecology.  ... ... ...
+“For in the end, he was trying to tell us what afflicted the people in 'Brave New World' was not that they were laughing instead of thinking, but that they did not know what they were laughing about and why they had stopped thinking.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985, nonfiction. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhpzwe9/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhq3dok/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nxu7jo/right_wing_leaning_gaming_community_furious_at_50/nhpunzo/
+
+Crazy. Media mania. Crazy over media systems of fiction storytelling. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+
