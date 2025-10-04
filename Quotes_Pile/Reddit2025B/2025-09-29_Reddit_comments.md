@@ -3542,3 +3542,10 @@ https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of
 
 Top popular comment. Machine lovers who hate humans, hate messages as condtioned by the IRA. Russia has defeated heart and minds of Americans to *hate harder* upon each other instead of calling out this August 24, 2018 articale about measles warfare: https://www.bbc.com/news/world-us-canada-45294192
 
+https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of_measles/nhqo06z/
+
+"Research" means don't defend against the **Internet Research** Agency created in year 2013 in Saint Pete. People on Reddit can't even name the IRA.
+
+https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of_measles/nhqpuej/
+
+Unreal. The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
