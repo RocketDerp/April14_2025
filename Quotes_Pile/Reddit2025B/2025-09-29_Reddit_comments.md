@@ -3461,3 +3461,17 @@ Humanisn is hated by machine lovers. In the fiction 1940 film, Charlie Champlin 
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp7uw7/
 
 Just commenting on reddit gets slammed with downvotes.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpe1dq/
+
+Franking everything as "conservative vs. liberal" creates such bewilderment of meaning. People need to have NAMED LISTS of exactly what they support. I can name the values of the Taliban in Swat Valley Pakistan as conservatives. Malala's October 8, 2013 book describes this. Fiction vs. nonfiction. ... ... ... 
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpfztr/
+
+I have known self-declared conservative people who do not attack Wikipedia. But I also find there ia massive confusion and bewilderment over these terms "conservative" and "liberal". I'm for Wikipedia and sharing human knowledge, just as I am thankful for the authors in the public library who have died before I was even born. Such as James Joyce who died January 13, 1941 and I wasn't even born until October 7, 1969. I am pro-education, pro-sharing. I think we need some copyright reforms. That we are self-harming outselves by keeping information from each other in a competittion to harm.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpjm3t/
+
+Note the abscence of links, citations, book titles, author names, etc.
+
