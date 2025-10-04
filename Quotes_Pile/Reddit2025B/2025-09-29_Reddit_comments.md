@@ -2925,3 +2925,42 @@ https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicag
 
 Hate for women who don't sexually please the Reddit audeince. This was called out by Pussy Right in their Make American Great Again video as Trump Putin shared values (Pussy Riot is Russian, experts on Putin informationw arfare and Kremlin thinking). OPERA_A "no more small breasts" https://youtu.be/s-bKFo30o2o?t=75
 
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmmrvw/
+
+Everything is funny, LOL-washing the situation, sexual fetish talk commenting. Anything to avoid the nonfiction public library learning abut the mind-fucking Cambridge Anaytica doctors did to the population to dehumanize out-groups.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhme5hx/
+
+Shallow and sueprficial values. Machine users who have their high standards for female bodies. Anything to avoid the nonfiction public library learning abut the mind-fucking Cambridge Anaytica doctors did to the population to dehumanize out-groups.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmg7dp/
+
+Sexualizing the situation, entertainment fantasy sex acts.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmdlte/
+
+Reddit audience loves this entertainment and constant stimualtion that only Donald Trump has provided. Other leaders who use nonfiction nonentertainment leadershp of USA are considered boring to Reddit audience. ... ... ... 
+Published January 2015, before Trump started run for office in June 2015: https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhm8csg/
+
+Media addicts THRILLED that Donald Trump White House creates constant fiction content / South Park content. A normal healthy leader could never provide the amusement and entertainment Donald Trump provides and inspires. The Reddit audiece can not get enough. This shit has been ongoing fo OVER TEN YEARS AND THREE MONTHS that an entertainer has been the cneter of all USA media systems.
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmkzg0/
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhm9i35/
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmb5ym/
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmkz3b/
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhmlljr/
+
+Why are people citing Putin's Birthday on October 7, 2025 about seeing her? Looking forward to some new episode of the antics politics?
+
+https://old.reddit.com/r/illinois/comments/1nxbicd/you_shall_not_poo_said_chicago_kristi_noam_forced/nhm74w1/
+
+Why is audience citing Putin's Birth on October 7?
+
+
+
