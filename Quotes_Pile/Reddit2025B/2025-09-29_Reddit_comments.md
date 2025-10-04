@@ -3752,3 +3752,33 @@ https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_p
 
 Gun stroking messags on Reddit. Shoot everyone. Murder everyone. Kill everyone. Egomania messaging to mind-fuck Reddit audiences into addressing nonfiction learning of cult deprogramming. Cults of gun messages.
 
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrsop7/
+
+I don't see a coward. I see agression, I see hate, I see dehumanization, I see machine of a gun. Reddit constantly calls others cowards when what I see on Reddit is avoidance of nonfiction serious learning and favoring of low-effort comments in high quanitites.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrmayn/
+
+Russia won an information war using media sites like Reddit since year 2013. Self-harm mindsets abound in USA in October 2025.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrmlqw/
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrmu4t/
+
+People on Reddit upvoted for constant mockey and hate messages. Upvoted the IRA and CA without even realizing their own addiction to fiction.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrp1i2/
+
+Compusively laughing at images. Amused at sitatuion. Video clips are waht USA sold out for.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrp50y/
+
+Insane, crazy.  "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrpz6g/
+
+It's what the IRA programmed into USA society since year 2013: self-harm, Americans hate Americans. Anything to avoid the nonfiction public library learning about Russian information warfare.
+
+https://old.reddit.com/r/illinois/comments/1ny27cr/37_and_kedzie_east_garfield_park_to_protect/nhrqf5v/
+
+Russia won an information war using media sites like Reddit since year 2013. Self-harm mindsets abound in USA in October 2025.
+
