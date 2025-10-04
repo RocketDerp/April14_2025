@@ -3439,4 +3439,25 @@ https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attac
 
 https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhr5pbi/
 
-Mocked the message about Founding Fathers with immigrant writing of Hollar, then blocked.
+Mocked the message about Founding Fathers with immigrant writing of Hollar, then blocked. Anything to avoid engaging with 1987 deep perspective from a serious lecture on meaning of the United States of America thinking.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpstnc/
+
+One problem is that it has requirements for outside sources, and if you remove those sources from public (such as shut down a website, a news business that was the source) then there is no longer a source. It gets messy quick when people prize fiction over nonfiction learning.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpek70/
+
+More thoughtful focus on deeper motivation. Fiction copyright vs. nonfiction open information. And people are entirely addicted to fiction storytelling / copyrighted content.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhpqkqv/
+
+Huge funding going into ChatGPT and other interactive fiction / perosnalized fiction storytelling systems. Grok A.I., Microsoft AI, Google AI systems... egoism feeding of creating many perosnalized variations of fiction storytelling.
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhq1h9r/
+
+Humanisn is hated by machine lovers. In the fiction 1940 film, Charlie Champlin gives a great speech that emphasizes love for machines over human persons. Alas, even when people use ficiton and dress up to perform in military outfits for ficton storytelling, people can't get on the same page. ... ... ... 
+"men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle, use you as cannon fodder. Don’t give yourselves to these unnatural men - machine men with machine minds and machine hearts! You are not machines! You are not cattle! You are men! You have the love of humanity in your hearts!"  https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/nhp7uw7/
+
+Just commenting on reddit gets slammed with downvotes.
