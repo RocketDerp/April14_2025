@@ -3563,3 +3563,22 @@ Note the absence of link, not using quotes, no authors named, no book titles, ju
 https://old.reddit.com/r/news/comments/1nxy5hl/sc_confirms_fullblown_outbreak_of_measles/nhqozxw/
 
 <img width="868" height="406" alt="image" src="https://github.com/user-attachments/assets/f9303464-cfbc-4062-ba09-4d1f5b410e3c" /> Mind-fucked by Russia since year 2013 fucked-up, that's how fucked up USA is. Russia won, Surkov won. People don't even reocgnize they lost and to who they lost. Russia promoted deaths in USA, and social media users can't even cite the August 24, 2018 date and Johns Hopkins University / George Washington University. There is a complete avoidance of nonfiction learning on how Russia defeated USA. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/Fauxmoi/comments/1nxxcha/turkish_journalist_and_global_sumud_flotilla/nhqhxfq/
+
+Anti-Malala messages. Short reactionary anti-education anti-learning anti-teaching mindset conditoning. Most popular comment on the posting.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nxxcha/turkish_journalist_and_global_sumud_flotilla/nhqwwju/
+
+Yes, age 22, the past the age of reason thinking.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nxxcha/turkish_journalist_and_global_sumud_flotilla/nhqj4cj/
+
+Mind-blown by reality.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nxxcha/turkish_journalist_and_global_sumud_flotilla/nhqlvm1/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nxxcha/turkish_journalist_and_global_sumud_flotilla/nhqtqem/
+
+Television reality vs. real reality. People who view televison as their model of the real world.
+
