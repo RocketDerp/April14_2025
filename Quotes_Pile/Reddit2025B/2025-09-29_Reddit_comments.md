@@ -3861,3 +3861,46 @@ https://old.reddit.com/r/minnesota/comments/1nxy758/governor_tim_walz_on_republi
 
 And Russia's plans to wreck USA on the world stage since year 2013. Denial abounds.
 
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtj0oc/
+
+Russia mind-fucked very aspect of society to self-harm in USA and be pro-hate anti-understanding anti-goodness.
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtl8pk/
+
+It is, and it has been gong on nonstop since year 2013 with no reversal. People will not face up to mass mind behaviors and face that addiction to entertainment and thrill politics, antics politics, is wrecking society. Those who have faith in hate do not see their own mental state regarding Trump. Mocking Trump is not resisting Trump, Surkov govening exploits all. The only option I see is self-awareness education from Neil Postman and everyone sobering up from the hate mindsets.
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtn7h2/
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtk5qg/
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtmcbr/
+
+Reddit community can't even name Cambridge Analytica and Internet Research Agency and describe thier techniques.
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtp252/
+
+Left vs. Right thinking is brainrot. 
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtpn6i/
+
+Obviously whoever put the message up is being absurd surreal, it is mind-fucking message on the store.
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtq5qv/
+
+Media addicts. Fiction outsells nonfiction.
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtl9bo/
+
+In the War Against Reality, people will run with fiction.
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtnmf3/
+
+Launched March 2013, the War Againt Reality. Publicly described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtnj7r/
+
+Reddit has been normlaizing the IRA and CA all along since year 2013.
+
+https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtmrbw/
+
+Gullibility crisis. October 19, 2024 https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
