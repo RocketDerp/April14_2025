@@ -126,5 +126,23 @@ The Pentagon and military did not stop the IRA from mind-fucking the population 
 
 https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhwk7o1/
 
-People in USA are drownign the nation in low-effort disposable commenting instead of getting on the same page of how Putin's war against USA actually works. Context of this Reddit message thread is gun ownership, second ammendment. Putin already mind-fucked everyone into self-harm of USA, and started early on with the NRA. ... ... ...
+People in USA are drowning the nation in low-effort disposable commenting instead of getting on the same page of how Putin's war against USA actually works. Context of this Reddit message thread is gun ownership, second amendment. Putin already mind-fucked everyone into self-harm of USA, and started early on with the NRA.. ... ... ...
 "September 27, 2019 — The National Rifle Association acted as a "foreign asset" for Russia in the period leading up to the 2016 election, according to a new investigation unveiled" https://www.npr.org/2019/09/27/764879242/nra-was-foreign-asset-to-russia-ahead-of-2016-new-senate-report-reveals
+
+https://old.reddit.com/r/clevercomebacks/comments/1nyovh7/also_inmensely_idiot/nhw60wv/
+
+This Twitter image posted on Reddit has no date (it was edited out of the screenshots). It is a repeat / rerun. It is not important or priority, but it is what gets repeated for Sunday Shcool. Mocking, insutling, and this Reddit message of laugh-track and irony-poisioning to irony-wash the situations that are serious. Instead of dreaming up how we can overcome all hate in the world, all Christian vs. Muslim vs. Jewish conflicts of the Levant with education and teaching... people on Reddit find it popular to create disposable comments of amusement at the misunderstandings others have. Sooner or later this is blowing up in our face, again, as the 3 Levant religion conflicts have blown up in our face before. What's news is wepaons technology of the taxi cab machine and other means to wage hate and terrorism. But amusement-washing the situation as ironic messages, a brain exploit, is the priority. Avoiding the elephant in the room by taking a different taxi driver and mockery-washing on Reddit meme systems. ... ... ... 
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/clevercomebacks/comments/1nyovh7/also_inmensely_idiot/nhwj61p/
+
+So many sexual fantasy low-effort commenting messages that drown out important topics. People care so much aobut the penis of rich and famous people. Instead of focusing on critical issues of Russia winning an information war on Reddit via the IRA.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nyovh7/also_inmensely_idiot/nhwvvd9/
+
+Grow up to be an audience making low-effort comments in spare time and free time while Russia has won the hearts and minds to self-harm the USA by avoiding nonfiction serious learning of Kremlin information warfare methods. Don't defend your nation from hate and bigotry, make low-effort commenting on amusement-washing platforms.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nyovh7/also_inmensely_idiot/nhwrxu6/
+
+People can't pinpoint that it started to change in year 2013, lead-up to the February 2014 hot war Russia waged against Ukraine. Messages to give up, don't defend against Russia. The meeting in Alaska with Putin and Trump already amusement-washed out of minds into recency bias of the next image posting on Reddit to come down the pipe.
+
