@@ -86,3 +86,32 @@ https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gu
 
 Hate-filled, high-speed twitchy, reactionary. All what people prize in U.S.A. A society that praises disposable comment messaging way above same-page goodness learning and preaching of remedial morality to every person age 12 to age 120.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhvpyqc/
+
+This is law enforcement. Reactinary society screams out "TERRORISM", calling out for MILITARY WEAPONS, and bombs instead of addressing the brainwashing the Russian Internet Resaerch Agency has done to society since March 2013. Instead of actually teaching remedial love lessons, remedial compassion lessons, the popular comment with upvotes on Reddit is calls for miitary technology and military to fight in the strees of cities of USA. Minds entirely screaming out on meme devices for more action violence like it is a video game. Machine video screen game, detached from hjumanism, begging for more expensive weapon systems to address mind problems of terrorism. ... ... ...
+“With guns you can kill terrorists, with education you can kill terrorism.”
+― Malala Yousafzai ... ... ...
+“I had grown up hearing the word terrorism, but I never really understood what it meant. Until now. Terrorism is different from war-where soldiers face one another in battle. Terrorism is fear all around you. It is going to sleep at night and not knowing what horrors the next day will bring.”
+― Malala Yousafzai, I Am Malala: How One Girl Stood Up for Education and Changed the World ... ... ...
+“Let us pick up our books and our pens, they are the most powerful weapons.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhvqfw7/
+
+The dehumanization training started in March 2013 with Reddit as ground zero for the Saint Pete IRA. Egomania and love for **systems** and machines over human persons. ... ... ...
+"That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - November 17, 1957
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhvrvlc/
+
+Yes. Dressed up in clothing as weapon, mindsets of being trained to be a weapon, anti-listening, anti-learning, anti-goodness in favor of reactionary programming.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhw21ps/
+
+In-group friends, and those calling for world peace (end all wars, end all hate) in all places are the foe. Anti-empathy lead by Elon Musk and messaging systems of Twitter (which Reddint front-pages Twitter).
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhwge7i/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhwgrjd/
+
+Adopted the Truth Social and media training of Trump. Attack Amercans with hate messaging and praise of the winners in the White House mindsets. https://www.yahoo.com/news/why-two-simple-words-bother-084605832.html
+
