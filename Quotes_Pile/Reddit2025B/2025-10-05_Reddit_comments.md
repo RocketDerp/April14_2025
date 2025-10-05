@@ -62,3 +62,27 @@ https://old.reddit.com/r/politics/comments/1nyl03u/trumps_bullying_of_latin_amer
 
 People do not get it. Everything is media. Media addicts don't want to face what is driving society. This Truth Social message.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhvqhor/
+
+Training from social media, to peel away goodness and dehumanize and deport people at the drop of a hat, the slightest ego irritation, block people. A nation that can't even tolerate open discourse via text messages without blocking / deporting people. That's the values people adore, with almost no criticismof the book burning book-blocking message-blocking behaviors. As it's done on touch screeens, not paper books with flame.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhvz4iu/
+
+And strangers. Not just on public streets with cars, but with ideas and mind-fuck on social machines that they leaern from and prize as terrorism mind training grounds to dehumanize out-groups.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhwgdo8/
+
+Not much life experience, politicians in 2025 alone easily exceed that fake story.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhvs56q/
+
+The kind of machine love person hate that social media has become a training ground with in mockery of goodness by IRA and CA and people *trend-chasing* the dehumanization popularity since year 2013. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhw9ah9/
+
+Faith in punishment while holding The Bible isn't a U.S.A. unique problem and behavior. When the Spaniards came to the Americas in year 1492 onward, they too thought punishment and hate and conquest of out-groups was the ansewr. That the answer to war is always more war, always more hate for hate. Technology keepsadvancing, the weapon systems alone and terrorism of punishing out-groups. A faith in prison is exactly what drives I.C.E. - action scenes and anti-empathy *teaching a lesson*. Instead of making nonfiction learning of compassion and nonfiction love important. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1nymqp1/ice_stops_a_family_at_gunpoint_smashes_their_car/nhvt6fy/
+
+Hate-filled, high-speed twitchy, reactionary. All what people prize in U.S.A. A society that praises disposable comment messaging way above same-page goodness learning and preaching of remedial morality to every person age 12 to age 120.
+
