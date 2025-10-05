@@ -1691,3 +1691,8 @@ https://old.reddit.com/r/mapporncirclejerk/comments/1nxmx9z/my_proposal_for_the_
 
 It comes in stages for people. The abandonment of reality.  Then they continue with amusement as usual and it's just another topic. Like the Ukraine war.    
 https://old.reddit.com/r/interestingasfuck/comments/1nyegf8/we_can_no_longer_trust_archival_footage_ever_again/
+
+&nbsp;
+
+Pussy Riot posted a video and then removed it. POLICE STATE day 1. Mocha LA.   
+https://www.youtube.com/watch?v=uqw-60b5K5I
