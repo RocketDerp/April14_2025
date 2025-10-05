@@ -174,3 +174,11 @@ https://old.reddit.com/r/news/comments/1nypk17/montgomery_mass_shooting_leaves_2
 
 Inform people... witout quoting, without linking, without an author name, without a book title. Drowning the USA in conversational commenting, low-effort disposable messages eating up spare time and free time of the people who should be serious. The USA is in a sitaution far more seirous than a heart attack.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nyr4hc/i_have_yet_to_see_a_single_kirk_defender_condemn/nhx0m2v/
+
+Just like the Middle East, give up on cults. Don't turn to nonfiction commen cause and all work together to address the fiction cults of Charlike Kirk fictions storytelling. Accept that weapon systems and technology to kill and murder will keep advancing and no hope at all to learn that violence cults and hate cults are bad. ... ... ... 
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nyr4hc/i_have_yet_to_see_a_single_kirk_defender_condemn/nhwz7fs/
+
+More victims of people who won't stand up and say *all hate* is bad and thtye aren't going to drop the topic until everyone else faces up that we are all one human race in this world with the same brains and programming hate and dehumanization into our minds is a global problem we all need to come together over. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
