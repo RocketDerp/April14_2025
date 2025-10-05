@@ -381,3 +381,14 @@ https://old.reddit.com/r/nottheonion/comments/1nyydno/she_never_took_tylenol_whi
 
 Notice: no links, no author names, no citations, no quotes, no book titles. Disposable commenting, no rally points.
 
+https://old.reddit.com/r/politics/comments/1nyxuhy/trump_sends_california_national_guard_to_portland/nhy5qz5/
+
+Sane, sanity. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1nyxuhy/trump_sends_california_national_guard_to_portland/nhy3gtc/
+
+The paradox and absurd surreal mind-fucking is not understood by Reddit comment community as Surkov methods. People do not recognize nor defend others by describing the mental exploit patterns.
+
+https://old.reddit.com/r/politics/comments/1nyxuhy/trump_sends_california_national_guard_to_portland/nhy5spr/
+
+<img width="1266" height="1300" alt="image" src="https://github.com/user-attachments/assets/f8875562-c9ad-4548-82d1-9c4ad7e279bb" /> A LINK, a CITATION OFF REDDIT to FACTUAL NONFICTION about Russian Information Warfare methods!!! The crisis is that Reddit community has no sense of importance and priority to informaiton as it drowns itself in millions of hihg-speed high-quantity commenting and can't see where mutliple NATO partners since year 2013 are reporting mental manipulation and unreality / losss of reality among the populaton.
