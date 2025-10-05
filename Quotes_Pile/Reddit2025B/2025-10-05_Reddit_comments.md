@@ -299,3 +299,12 @@ https://old.reddit.com/r/CringeTikToks/comments/1nyrsu2/hegseth_diversity_is_our
 
 Of couse the Pentagon had heard of it. What Reddit communeitng community hasn't heard of is "Hybrid Warfare". Warfare where Surkov techniques are used to addict people to low-quality high-speed communication content that does not assert nonfiction learning about Russian information warfare. Exploiting flaws in the human brain that can be exposed with education on media ecology from Marshall McLuhan and Neil Postman. ... ... ...
 "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/CringeTikToks/comments/1nyrsu2/hegseth_diversity_is_our_strength_is_a_dumb/nhxf86n/
+
+I am repeating: "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/CringeTikToks/comments/1nyrsu2/hegseth_diversity_is_our_strength_is_a_dumb/nhx9ix5/
+
+Reddit short commenting addictions. Sound-bites. Yes, expand upon this: ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
