@@ -308,3 +308,8 @@ https://old.reddit.com/r/CringeTikToks/comments/1nyrsu2/hegseth_diversity_is_our
 
 Reddit short commenting addictions. Sound-bites. Yes, expand upon this: ... ... ... 
 "unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/CringeTikToks/comments/1nyrsu2/hegseth_diversity_is_our_strength_is_a_dumb/nhwyn3q/
+
+Reddit eats it up. Tony Clifton audiences on Reddit who keep saying that Tony Clifton performers bragginga bout thier greatness is funny and entertaining. Unable to describe Andy Kaufman (reality) and Surkov (reality). Putin flying into Alaska to meet isn't enough for people to at least ponder how sus it looks.  This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
