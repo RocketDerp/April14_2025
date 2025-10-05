@@ -227,3 +227,27 @@ https://old.reddit.com/r/comedy/comments/1nyn8c9/theo_von_reveals_he_was_shook_a
 
 Egomania abounds. Demanding others fuck off, self-deprot, and hate messaging - parroting Trump Truth Social media systems values of hate and dehumanization of others.
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhx55hk/
+
+People severely need to learn media ecology. Retail store space is not cheap. If you see a product on a store shelf at a major retailer, it sells. You can get reports on sales of brand products. People don't all buy generic canned foods, generic soda 2 liter bottles, generic drugs. You can eaisly witness displays all over the store where valualble real estate is placed. Location in the store is paid for as part of the brand overhead. People really need to get on the sane page of how minds are manipulated with product placement, colors, box styles / shapes, advertising and marketing name-recognition.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhxdknr/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhx3tmn/
+
+Every day, every hour of every day, Reddit front page has Trump brand. Trump's entire life has been devoted to putitng his name and brand on buildings, media systems. People act like this is just a problem of one single family having tacos for dinner. There is no recogntion of the forest for the trees of mind branding and the amount of money spent to promote the brand.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhx4gkj/
+
+Mockery-wshing RFK Jr's attack on autistic people. Satire-washing for entertainment. Millions of disposable low-effort comment addictions to turning everyything to do with Trump White House into content enagement / entertainment. Zero self-awareness that this is exactly how Russian Surkov governing exploits populations. ... ... ...
+"Surkov turned Russian politics into a bewildering, constantly changing piece of theater. He sponsored all kinds of groups, from neo-Nazi skinheads to liberal human rights groups. He even backed parties that were opposed to President Putin. But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - [BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html), **year 2014**
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhx2n86/
+
+This is what the entire world is saying to one nation: You voted for Putin's IRA and self-harm since year 2013. You deseve it. Cheering on the failure of the United States of America because of social media voting and likes of low-effort comments and out-group "fuck you" hate messages.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhxi2g4/
+
+What Reddit community won't tell you or admit is that Russia started an information war against [Reddit end-users](https://www.bbc.com/news/technology-43301643) and other media consumers [to believe falsehoods and anti-reality since year 2013](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). That Cambridge Analytica doctors manipulated people into anti-reality and mass hallucinations. Russia crafted 5,000 addictive fiction storytelling media pasterns and deployed them on [Reddit / Twitter / Facebook / YouTube / News site comment sections since Q2 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america). USA didn't stand a fucking chance. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+
