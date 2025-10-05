@@ -3841,3 +3841,23 @@ Irony-washing Trump and MAGA is what social media addicts have done. Instead of 
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1ny46e9/adin_ross_is_the_latest_podcaster_to_regret/nhs027g/
 
+https://old.reddit.com/r/minnesota/comments/1nxy758/governor_tim_walz_on_republicans_during_a/nhsdp3f/
+
+April 9, 1944, speech by then Vice-President Henry Wallace: “The American fascists are most easily recognized by their deliberate perversion of truth and fact. Their newspapers and propaganda carefully cultivate every fissure of disunity… They claim to be super-patriots, but they would destroy every liberty guaranteed by the Constitution. They demand free enterprise, but are the spokesmen for monopoly and vested interest. Their final objective toward which all their deceit is directed is to capture political power so that, using the power of the state and the power of the market simultaneously, they may keep the common man in eternal subjection.” https://billmoyers.com/story/trump-the-american-fascist/
+
+https://old.reddit.com/r/minnesota/comments/1nxy758/governor_tim_walz_on_republicans_during_a/nhr0hrz/
+
+https://old.reddit.com/r/minnesota/comments/1nxy758/governor_tim_walz_on_republicans_during_a/nhra5zs/
+
+https://old.reddit.com/r/minnesota/comments/1nxy758/governor_tim_walz_on_republicans_during_a/nhreepj/
+
+Hate message of "fuck the out-group" are popular. Donald Trump is a magnet for hate values.
+
+https://old.reddit.com/r/minnesota/comments/1nxy758/governor_tim_walz_on_republicans_during_a/nhqnzft/
+
+Satire-washing entertainment-washing amusement-washing a serious situation as has been going on for over 10 years with everything having to do with Trump. Never enough leadership of mockery for people attracted to total mockery governing.
+
+https://old.reddit.com/r/minnesota/comments/1nxy758/governor_tim_walz_on_republicans_during_a/nhs47w9/
+
+And Russia's plans to wreck USA on the world stage since year 2013. Denial abounds.
+
