@@ -5029,3 +5029,22 @@ https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creat
 https://old.reddit.com/r/politics/comments/1nsq4tm/trump_is_moving_towards_creating_a_military_state/ngor1om/
 
 People have been thrilled with all the dumb as fuck memes on Reddit and Bluesky.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ny46e9/adin_ross_is_the_latest_podcaster_to_regret/nhs5guj/
+
+Anti-education anti-citation anti-goodness meme addicts / entertainment addictions society that can not halt entertainment and be serious. This goes on every day all day, not just eleciton days, not just politics. The drastic change in year 2013 ans start of Ukraine war February 2014 that people wash away on amusement mills. There is no call for goodness, just a revenge and punishment mentality that Trump cultivates. 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ny46e9/adin_ross_is_the_latest_podcaster_to_regret/nhs7lym/
+
+A video game team sport.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ny46e9/adin_ross_is_the_latest_podcaster_to_regret/nhsb9kc/
+
+Out-group hate, toxic religion clergy, toxic university teachings of sports teams, taken to every area of learning and comprehension.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ny46e9/adin_ross_is_the_latest_podcaster_to_regret/nhse16a/
+
+Irony-washing Trump and MAGA is what social media addicts have done. Instead of naming and sticking the topics of behavior changnes in society, the influence of Cambridge Analytica and the IRA, they chase popularity. Which was poinsed by the doctors of CA.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ny46e9/adin_ross_is_the_latest_podcaster_to_regret/nhs027g/
+
