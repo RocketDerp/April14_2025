@@ -22,3 +22,22 @@ https://old.reddit.com/r/50501/comments/1nygpz2/found_on_facebook/nhvdbm9/
 
 Social media can't face the social media addiction to antics politics.
 
+https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvhq0y/
+
+"More importantly, conspiracy is a way to maintain control. In a world where even the most authoritarian regimes struggle to impose censorship, one has to surround audiences with so much cynicism about anybody’s motives, persuade them that behind every seemingly benign motivation is a nefarious, if impossible-to-prove, plot, that they lose faith in the possibility of an alternative, a tactic a renowned Russian media analyst called Vasily Gatov calls ‘white jamming’.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
+https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvhu8v/
+
+Media cults.
+
+https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvighu/
+
+https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvpj6n/
+
+https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvevd7/
+
+https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvw52o/
+
+https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvmfnj/
+
+https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvmvuf/
