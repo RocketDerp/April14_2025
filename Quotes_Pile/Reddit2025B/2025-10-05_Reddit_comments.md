@@ -41,3 +41,24 @@ https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scaven
 https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvmfnj/
 
 https://old.reddit.com/r/Music/comments/1nyl5xt/taylor_swifts_orange_door_scavenger_hunt_sends/nhvmvuf/
+
+https://old.reddit.com/r/politics/comments/1nynsxw/virginias_democratic_ag_nominee_once_suggested_a/nhvwqhp/
+
+Self-harm USA messages abound. And strong avoidance of call for halt to entertainment, getting on the same page. 
+
+https://old.reddit.com/r/politics/comments/1nynsxw/virginias_democratic_ag_nominee_once_suggested_a/nhvx4is/
+
+https://old.reddit.com/r/politics/comments/1nyl03u/trumps_bullying_of_latin_america_isnt_part_of_any/nhvp6aa/
+
+Social media opened up to Internet Research Agency, we have documented evidence.
+
+https://old.reddit.com/r/politics/comments/1nyl03u/trumps_bullying_of_latin_america_isnt_part_of_any/nhvtl7v/
+
+https://old.reddit.com/r/politics/comments/1nyl03u/trumps_bullying_of_latin_america_isnt_part_of_any/nhvkpzm/
+
+The meeting in Alaska with Putin is never enough for people to recall.
+
+https://old.reddit.com/r/politics/comments/1nyl03u/trumps_bullying_of_latin_america_isnt_part_of_any/nhvmjmu/
+
+People do not get it. Everything is media. Media addicts don't want to face what is driving society. This Truth Social message.
+
