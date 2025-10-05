@@ -274,3 +274,10 @@ Reddit is 20 years old. People can organize and have a subreddit of /r/Important
 https://old.reddit.com/r/Fauxmoi/comments/1nyvs7x/while_additional_eyes_are_on_her_charli_xcx_has/nhxp5d0/
 
 Reddit platform uses using their platform for low-effort commenting and avoiding calls to get on the same page and race Russian information warfare that defeated USA hearts and minds since year 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nyvs7x/while_additional_eyes_are_on_her_charli_xcx_has/nhxqbdt/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nyvs7x/while_additional_eyes_are_on_her_charli_xcx_has/nhxzco6/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nyvs7x/while_additional_eyes_are_on_her_charli_xcx_has/nhxqen3/
+
