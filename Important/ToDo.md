@@ -1686,3 +1686,8 @@ I observe James Joyce community on reddit downvoted this posting.. https://old.r
 Giving up on love / giving up on copassion / giving up on forgveness.   
 Choice marriage honesty. Logical solutions of anti-Malala. Gender aparthied of anti-Malala   
 https://old.reddit.com/r/mapporncirclejerk/comments/1nxmx9z/my_proposal_for_the_gender_wars/
+
+&nbsp;
+
+It comes in stages for people. The abandonment of reality.  Then they continue with amusement as usual and it's just another topic. Like the Ukraine war.    
+https://old.reddit.com/r/interestingasfuck/comments/1nyegf8/we_can_no_longer_trust_archival_footage_ever_again/
