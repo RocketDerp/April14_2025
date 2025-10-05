@@ -192,3 +192,15 @@ https://old.reddit.com/r/democrats/comments/1nynff0/a_history_lesson_for_maga/nh
 
 Putin has mastered how to manipulate his own domestic people into self harm and how to export it since year 2013 to Reddit and other media platforms. ... ... ...
 December 31, 2014: "What this film is going to suggest is that that defeatist response has become a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time. Surkov is one of President Putin's advisers, and has helped him maintain his power for 15 years, but he has done it in a very new way." - [BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+
+https://old.reddit.com/r/democrats/comments/1nynff0/a_history_lesson_for_maga/nhx56k4/
+
+https://old.reddit.com/r/comedy/comments/1nyn8c9/theo_von_reveals_he_was_shook_and_paranoid_after/nhw2we4/
+
+Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Publiched September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/comedy/comments/1nyn8c9/theo_von_reveals_he_was_shook_and_paranoid_after/nhwbm9c/
+
+Tiny-short messages, Twitter-thinking. Like 2-second messages. A population drowning in low-effort out-group hate patterns that the IRA conditoined of the Reddit audience since year 2013. ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
