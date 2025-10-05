@@ -367,3 +367,17 @@ https://old.reddit.com/r/TikTokCringe/comments/1nypvnm/why_dont_we_ever_hear_abo
 
 Reddit is 20 years old. People can organize and have a subreddit of /r/ImportantNewsA and assert every 3 hours the MOST IMPORTANT world events get covered. Even BEFORE the Israel protests happen, these things don't just organize in 5 minuttes, you could post NEXT 24 HOURS, NEXT 48 HOURS heads-up on what you value. Instead, drowning and drowning and drowning in low-effort disposable comment messages conplaing about "the media' while using Reddit media. THE AUDIENCE IS THE PROBLEM! People are not interested in nonfiction wrold peace and nonfiction learning, too addicted to entertainment / sports / games / amusement. From the **nonfiction public library section**  ... ... ...
 "What is happening here is that television is altering the meaning of **'being informed'** by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. **I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985, page 174
+
+https://old.reddit.com/r/nottheonion/comments/1nyydno/she_never_took_tylenol_while_pregnant_all_3_of/nhy7iat/
+
+It's almost like RFK Jr and Donald Trump thrive in a nation that has flocked to touch devices for low-effort snark comments that are Twitter-length Tweet-thinking. This is the most popular comment on the Reddit posting. Banality-washing serious situation with tiny messages of satire and snark. I've seen autism become more of a joke than ever and nothing can reverse the trend of people amused and entertained with disposable commenting on serious subjects. Why are we not doing GENTIC testing for autism and langauge issues insead of subjective poorly-designed DSM V subjective criteria? GENETIC TESTING is hard science. DROWNING in these low-effort comments that avoid nonfiction learning. ... ... ...
+"Autism isn't one disorder, a genetic analysis shows. The new research reinforces how complex the neurodevelopmental disorder is and that there isn’t a single cause." October 1, 2025 https://www.nbcnews.com/health/health-news/autism-spectrum-disorder-genetic-analysis-multiple-forms-age-diagnosis-rcna234741
+
+https://old.reddit.com/r/nottheonion/comments/1nyydno/she_never_took_tylenol_while_pregnant_all_3_of/nhy7u0r/
+
+Self-harm of USA, mind-fucked by Putin. See August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/nottheonion/comments/1nyydno/she_never_took_tylenol_while_pregnant_all_3_of/nhyfekf/
+
+Notice: no links, no author names, no citations, no quotes, no book titles. Disposable commenting, no rally points.
+
