@@ -313,3 +313,14 @@ https://old.reddit.com/r/CringeTikToks/comments/1nyrsu2/hegseth_diversity_is_our
 
 Reddit eats it up. Tony Clifton audiences on Reddit who keep saying that Tony Clifton performers bragginga bout thier greatness is funny and entertaining. Unable to describe Andy Kaufman (reality) and Surkov (reality). Putin flying into Alaska to meet isn't enough for people to at least ponder how sus it looks.  This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/pics/comments/1nyy038/my_friend_spotted_this_in_paris_last_week/nhy6xyp/
+
+Again, Donald Trump forcing all government agencies to have him drop weight by any means the world has would mind-fuck the shallow and superficial audiences who keep Trump in power out of mockery addictions.
+
+https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhwamvd/
+
+We have a global WWWW. Every mental health worker in the world should spend all spare time and free time, and others raise money, to cult deprogram the Russian people using media systems. Develop crash-course rehumanization programs. World War is a threat. Preach, speak up, use theraphy and mental health to educate people on morality and why Russia war against Ukraine is bad. Instead, people are in denial of the nuclear war and chemical war and biological war Russia can wage. SEE_ALSO_A August 24, 2018 warning to the world before COVID-19 pandemic from George Washington University and Johns Hopkins University https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhwqp48/
+
+Where are the mental health workers? Why ae social medua users teaching cult deprogramming to counter Russia? "The ultimate measure of a man is not where he stands in moments of comfort and convenience, but where he stands at times of challenge and controversy. The true neighbor will risk his position, his prestige and even his life for the welfare of others." - year 1963, Strength to Love, page 25
