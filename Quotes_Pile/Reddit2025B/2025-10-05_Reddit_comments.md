@@ -281,3 +281,21 @@ https://old.reddit.com/r/Fauxmoi/comments/1nyvs7x/while_additional_eyes_are_on_h
 
 https://old.reddit.com/r/Fauxmoi/comments/1nyvs7x/while_additional_eyes_are_on_her_charli_xcx_has/nhxqen3/
 
+https://old.reddit.com/r/Fauxmoi/comments/1nyvs7x/while_additional_eyes_are_on_her_charli_xcx_has/nhxy7ty/
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1nypzvi/confidently_incorrect/nhwq6cq/
+
+We have known about The ELIZA Effect from MIT University since 1960's / 1970's. People who can not tell comment bots from real human beings, and adopt casual and fast dehumanization in the face of information overload. https://en.wikipedia.org/wiki/ELIZA_effect
+
+https://old.reddit.com/r/CringeTikToks/comments/1nyrsu2/hegseth_diversity_is_our_strength_is_a_dumb/nhwvrh9/
+
+Putin flying into Alaska to meet isn't enough for people to at least ponder how sus it looks.  This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/CringeTikToks/comments/1nyrsu2/hegseth_diversity_is_our_strength_is_a_dumb/nhxdb6u/
+
+Audience of Reddit planning the after-party for the entetainment the White House has been providing. The OVER TEN YEARS AND THREE MONTHS of constant Reddit message stimulation from Donald Trump seeking President to self-harm the nation. People are glued to their touch-screens planing on the events until the sequels. Entirely abandoned any idea of asserting goodness in the face of Putin's Kremlin winning hearts and minds of USA and winning an inforamtion war.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nyrsu2/hegseth_diversity_is_our_strength_is_a_dumb/nhwu7og/
+
+Of couse the Pentagon had heard of it. What Reddit communeitng community hasn't heard of is "Hybrid Warfare". Warfare where Surkov techniques are used to addict people to low-quality high-speed communication content that does not assert nonfiction learning about Russian information warfare. Exploiting flaws in the human brain that can be exposed with education on media ecology from Marshall McLuhan and Neil Postman. ... ... ...
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
