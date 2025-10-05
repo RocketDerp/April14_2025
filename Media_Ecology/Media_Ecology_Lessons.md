@@ -730,3 +730,13 @@ Neil Postman's Teleivison replacing head image on October 5, 2025 front page of 
 The terror of reality itself, ongoings, of a society driven by information systems. The media ecology crisis.
 
 https://old.reddit.com/r/comics/comments/1nyqtpl/2025_terror/
+
+&nbsp;
+
+### Alternate Reality Games
+
+When fiction media reaches out beyond the cinema screen, television screen, video screen games.
+
+1. https://en.wikipedia.org/wiki/Fictitious_telephone_number
+2. https://en.wikipedia.org/wiki/555_(telephone_number)
+3. Year Zero (2007): This ARG was a marketing campaign for the Nine Inch Nails album of the same name. Players discovered phone numbers hidden in the spectrograms of songs, which led to recordings, websites, and other clues that fleshed out the dystopian plot.
