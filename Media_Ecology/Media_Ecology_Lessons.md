@@ -721,3 +721,12 @@ Are there books named after Duey decimal system or other public library category
 
 YouTube songs named after their YouTube song ID? "The 11-character alphanumeric YouTube video ID system (e.g., dQw4w9WgXcQ) allows for approximately 73 quintillion unique combinations."
 
+&nbsp;
+
+### Terrorism training via news networks
+
+Neil Postman's Teleivison replacing head image on October 5, 2025 front page of Reddit. PizzaCake is a Canadian artist.
+
+The terror of reality itself, ongoings, of a society driven by information systems. The media ecology crisis.
+
+https://old.reddit.com/r/comics/comments/1nyqtpl/2025_terror/
