@@ -333,3 +333,19 @@ https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_we
 
 Notice the abscience of links, author names, book titles, etc. Just disposable commenting, no call to get on the same page. Trump rules with fiction storytelling, Truth Social is anti-truth, anti-reality.  Published September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhwmojs/
+
+Massive quanitites of high-speed low-effort comment consumption. Avoidance of nonficton learning.
+
+https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhxaf6g/
+
+Every person with spare time and free time to comment on social devices could repurpose that time to teaching cult deprogramming and engage The People of Russia directly, lecture on remedial morality, promote goodness in the face of hate and dehumanization.
+
+https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhybdte/
+
+https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhybfa6/
+
+The deepest and most cherished faith is mocking. Not love and education, those are not the deepest faith. The religion faith is mocking and insulting the out-group. Horrible faith values. ... ... ... 
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+
