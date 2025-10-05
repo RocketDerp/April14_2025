@@ -3904,3 +3904,56 @@ Reddit has been normlaizing the IRA and CA all along since year 2013.
 https://old.reddit.com/r/pics/comments/1nyb8jp/oc_the_claires_in_my_town_closed_down_and_this_is/nhtmrbw/
 
 Gullibility crisis. October 19, 2024 https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
+
+https://old.reddit.com/r/popculturechat/comments/1nye7wn/bad_bunnys_snl_monologue_after_talking_about_the/nhu68fi/
+
+Love it that people hate each other in USA. So sick of all this hate and people who prize hate.
+
+https://old.reddit.com/r/law/comments/1nybn85/fivealarm_fire_inside_the_doj_lawyer_oyer/nhtq9e6/
+
+Faith in legal when the IRA has wrecked language and communications mindsets.
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtpuxx/
+
+Sports mentality is everything to media addicts society. The advertisments of Super Bowl  attract even people not into sporrts, program sports mentality of jobs and consumerism. A society uneducated on Edward Bernays and sports-mentality of Cambridge Analytica executive function mind manipulation.
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhu00s1/
+
+Recency bias abounds, Reddit commenting high-speed low-quality high-quantity consumption.
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhu29qz/
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtoi97/
+
+Winning Hearts and Minds to self-harm further. Media event, Super Bowl sports mentality of city hates other cities, team-think military conquest of other humans via systems of winning hearts and minds. Putin won. Surkov won since year 2013. Goodness abandoned, science thinking abandoned.
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtrgvj/
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtylbs/
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtqca7/
+
+People can't name Cambridge Analytica and the Internet Research Agency and describe the timelines and techniques.
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtrwq8/
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtu0ti/
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtphe4/
+
+Fiction outsells nonfiction. Sports is popular, nonfiction learnng of Russian informaiton warfare is not popular.
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtv65k/
+
+Evewrything revolves around hate. Reddit is consantly motivated by MAGA hate. Trump provides a constant Putin hate leadershp signnal. Hate signals are what people follow.
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtqoc8/
+
+Denial abounds.
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtzdov/
+
+https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_book_bad_bunny/nhtuvn0/
+
+Denial abounds.Of course peple care. Hate motivates Reddit audience,everyone in USA flocking to hate. that's what Russia mind-fucking did, that's the outcome of Cambridge Analytica mental manipulation. That hate is prized. It'sall over Reddit and has beenfor more than a decade.  Hate is considered the cool attitude towards others, out-groups.
+
