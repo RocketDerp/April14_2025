@@ -392,3 +392,24 @@ The paradox and absurd surreal mind-fucking is not understood by Reddit comment 
 https://old.reddit.com/r/politics/comments/1nyxuhy/trump_sends_california_national_guard_to_portland/nhy5spr/
 
 <img width="1266" height="1300" alt="image" src="https://github.com/user-attachments/assets/f8875562-c9ad-4548-82d1-9c4ad7e279bb" /> A LINK, a CITATION OFF REDDIT to FACTUAL NONFICTION about Russian Information Warfare methods!!! The crisis is that Reddit community has no sense of importance and priority to informaiton as it drowns itself in millions of hihg-speed high-quantity commenting and can't see where mutliple NATO partners since year 2013 are reporting mental manipulation and unreality / losss of reality among the populaton.
+
+https://old.reddit.com/r/politics/comments/1nyxuhy/trump_sends_california_national_guard_to_portland/nhyemof/
+
+We have "Amused Ourselves To Death" as described by Neil Postamn in his 1985 book. OPERA_A https://www.youtube.com/watch?v=zpotZUiKLbU
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz5zup/
+
+Notice the prefacing, extreme defense, to calling out the bullshit style of no-citation no-link no-quotes messaging that people suck down on Reddit in year 2025.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz8air/
+
+"The propaganda was just too much, too many people fell for it" - you can see the bullshit people flock to on every social media system, low-effort sounds-good commenting, feels-good bullshit. MAGA is avoidant of reality and nonfiction leaerning during the pandemic when the whole world is reporting that horse paste doesn't work - [but Joe Rogan Experience convinces people](https://www.unmc.edu/healthsecurity/transmission/2023/05/09/joe-rogan-defends-taking-ivermectin-for-covid-19-in-scathing-rant/). ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz83bf/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz9h0o/
+
+People can't name the Internet Resaerch Agency and Cambridge Analytica... but promote no-evidence rumor comments off from no-identtiy systems. ... ... ...
+"Russian Twitter trolls stoked voter fraud fear before election. Months before Wikileaks messaged Donald Trump Jr. about a "rigged" election, Russian Twitter trolls sowed doubt about the election's validity online." https://www.nbcnews.com/tech/social-media/russian-twitter-trolls-stoked-voter-fraud-fear-election-n820771
+
