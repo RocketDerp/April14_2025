@@ -250,4 +250,17 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complain
 
 What Reddit community won't tell you or admit is that Russia started an information war against [Reddit end-users](https://www.bbc.com/news/technology-43301643) and other media consumers [to believe falsehoods and anti-reality since year 2013](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/). That Cambridge Analytica doctors manipulated people into anti-reality and mass hallucinations. Russia crafted 5,000 addictive fiction storytelling media pasterns and deployed them on [Reddit / Twitter / Facebook / YouTube / News site comment sections since Q2 2013](https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america). USA didn't stand a fucking chance. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhx9wd7/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhxbt2o/
+
+Trump could stangle the minds of USA society (even more) by going on a crash diet and using every resource of the F.D.A. to take experimental drugs and surgery to drop weight and become a status symbol even more of a fat American who lords over others for not having the wealth and resoruces of a billionare to take on his weight problem.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhxfv7w/
+
+The rest of the world in povery looks at rich fat Americans on the latest 5G mobile networks sucking down Billionare Films from Hollywood saying how great super heroes of USA are and how great the USA military is and others don't even have food. Avoided at all cost on Reddit media systems, Bible literacy lessons to confront MAGA, Elon Musk, Donald Trump. Bible verse "1 John 3:17" about the haves and have-nots and how to judge people for love. Mocking eating of faces for sports of hate.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nyt6ul/trump_voter_complains_about_prices_for_taco/nhxb8hh/
+
+Again, Donald Trump single handely could turn himself into a weight-loss Realty TV show for the media addicted society. Using millions of dollars of (hundreds of millions) just for his one body. People on social meme systems already worship sprots stars who have teams of doctors (reminder: I worked on private staff as an analysist / consultant for a NBA teamp owner / NFL team owner and had access to owner information systems).
 
