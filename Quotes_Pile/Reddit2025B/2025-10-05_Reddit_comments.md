@@ -197,7 +197,7 @@ https://old.reddit.com/r/democrats/comments/1nynff0/a_history_lesson_for_maga/nh
 
 https://old.reddit.com/r/comedy/comments/1nyn8c9/theo_von_reveals_he_was_shook_and_paranoid_after/nhw2we4/
 
-Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Publiched September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/comedy/comments/1nyn8c9/theo_von_reveals_he_was_shook_and_paranoid_after/nhwbm9c/
 
@@ -324,3 +324,12 @@ We have a global WWWW. Every mental health worker in the world should spend all 
 https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhwqp48/
 
 Where are the mental health workers? Why ae social medua users teaching cult deprogramming to counter Russia? "The ultimate measure of a man is not where he stands in moments of comfort and convenience, but where he stands at times of challenge and controversy. The true neighbor will risk his position, his prestige and even his life for the welfare of others." - year 1963, Strength to Love, page 25
+
+https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhwtcek/
+
+Even with this dressed up in fiction and playing a character, it isn't entertaining enough for people to cite and reference in October 2025: "We want to live by each other’s happiness - not by each other’s misery. We don’t want to hate and despise one another. In this world there is room for everyone. And **the good earth is rich and can provide for everyone**. The way of life can be free and beautiful, but we have lost the way. Greed has poisoned men’s souls, has barricaded the world with hate, has goose-stepped us into misery and bloodshed. We have developed speed, but we have shut ourselves in. Machinery that gives abundance has left us in want. **Our knowledge has made us cynical. Our cleverness, hard and unkind**. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness. Without these qualities, life will be violent and all will be lost… The aeroplane and the radio have brought us closer together. The very nature of these inventions cries out for the goodness in men - cries out for universal brotherhood - for the unity of us all." - year 1940, https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhwfu5v/
+
+Notice the abscience of links, author names, book titles, etc. Just disposable commenting, no call to get on the same page. Trump rules with fiction storytelling, Truth Social is anti-truth, anti-reality.  Published September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
