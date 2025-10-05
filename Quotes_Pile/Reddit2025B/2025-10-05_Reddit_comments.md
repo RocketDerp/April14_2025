@@ -146,3 +146,31 @@ https://old.reddit.com/r/clevercomebacks/comments/1nyovh7/also_inmensely_idiot/n
 
 People can't pinpoint that it started to change in year 2013, lead-up to the February 2014 hot war Russia waged against Ukraine. Messages to give up, don't defend against Russia. The meeting in Alaska with Putin and Trump already amusement-washed out of minds into recency bias of the next image posting on Reddit to come down the pipe.
 
+https://old.reddit.com/r/clevercomebacks/comments/1nyovh7/also_inmensely_idiot/nhw57ja/
+
+She entertains Reddit audiences who have repsoted this Twitter image over and over. It gave this Reddit user something to comment about in avoidance of nonfiction learning of how Russian informaiton warfare works since year 2013.
+
+https://old.reddit.com/r/news/comments/1nypk17/montgomery_mass_shooting_leaves_2_dead_12_others/nhwich4/
+
+Asking for actaul citations and facts on Reddit instead of just rumor mill no-identity commenting.
+
+https://old.reddit.com/r/news/comments/1nypk17/montgomery_mass_shooting_leaves_2_dead_12_others/nhwrgub/
+
+"We all know" media ecology? hell no. It's the exact opposite. People in their own egoism filter-bubble think everyone understands and is on the same page. Notice no quotations, no book titles, no book authors.
+
+https://old.reddit.com/r/news/comments/1nypk17/montgomery_mass_shooting_leaves_2_dead_12_others/nhwf6cs/
+
+yes, thoughtlessly reacting as expected to Tony Clifton performances / Surkov governing. People on Reddit can not describe how Surkov governing works and that it is a new system. Exploting reactionary mindsets and programmed minsets that were established with the IRA on media systems since year 2013.
+
+https://old.reddit.com/r/news/comments/1nypk17/montgomery_mass_shooting_leaves_2_dead_12_others/nhwicyy/
+
+Yes, because the simulacra for the Reddit audiences, the messages and inforamtion, are a choose your own adventure. Trump throws in random audience visits to places like Memphis as the macro scale of Surkov governing / Tony Clifton antics performances. THE CRISIS is the AUDIENCE not even knowing what goodness is and not asserting goodness. But not crying out for goodness itself, people are normalizing whatever is happening as part of deep media addiction to commenting about this as entertainment. Hate of the entertainment, hate of Tony Clifton's act, is part of the capture! No defense has been found to this Russian governing methods / information warfare technique. People need to come together and get on the same page that we have to create new solutions to a new problem!  NEW NEW NEW WAY. December 31, 2014: "What this film is going to suggest is that that defeatist response has become a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time. Surkov is one of President Putin's advisers, and has helped him maintain his power for 15 years, but he has done it in a very new way." - [BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html)
+
+https://old.reddit.com/r/news/comments/1nypk17/montgomery_mass_shooting_leaves_2_dead_12_others/nhwg179/
+
+Joke-washing and amusement-washing has wrecked the USA. People have been unable to stop joke-washing the Russian media invasion of social meme platforms since year 2013. Hearts and minds wrecked by Putin to self-harm and joke-away serious issues.
+
+https://old.reddit.com/r/news/comments/1nypk17/montgomery_mass_shooting_leaves_2_dead_12_others/nhwgb9b/
+
+Inform people... witout quoting, without linking, without an author name, without a book title. Drowning the USA in conversational commenting, low-effort disposable messages eating up spare time and free time of the people who should be serious. The USA is in a sitaution far more seirous than a heart attack.
+
