@@ -31,3 +31,10 @@ What Reddit community won't tell you or admit is that Russia started an informat
 
 
 
+&nbsp;
+
+&nbsp;
+
+# Reply A postscript A
+
+I now notice the "pasterns" script, I looked up the meanin gof the word... and I'm going to go with not correcting it. It is an honest language mistake of my brain damage from Kremlin information warfare. Further, the setence that follows about "standing" relates to "pasterns" in a roundabout way... so it serves in Finneagans Wake style of poetic mistakes ;)  The brain-damage from dealing with the CA and IRA shit is very real for me. And others. SEE_ALSO_A https://old.reddit.com/r/jamesjoyce/comments/obvy0y/why_did_joyce_never_attempt_himself_to_rid_of_all/
