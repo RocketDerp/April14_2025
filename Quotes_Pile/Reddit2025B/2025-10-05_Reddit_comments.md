@@ -348,4 +348,17 @@ https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_we
 The deepest and most cherished faith is mocking. Not love and education, those are not the deepest faith. The religion faith is mocking and insulting the out-group. Horrible faith values. ... ... ... 
 February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
 
+https://old.reddit.com/r/TikTokCringe/comments/1nypvnm/why_dont_we_ever_hear_about_congo/nhwjor8/
 
+"An Individual has not started living fully until they can rise above the narrow confines of individualistic concerns to the broader concerns of humanity." - August 11, 1957. https://en.wikiquote.org/wiki/Martin_Luther_King_Jr.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nypvnm/why_dont_we_ever_hear_about_congo/nhwdyej/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nypvnm/why_dont_we_ever_hear_about_congo/nhxlzxh/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nypvnm/why_dont_we_ever_hear_about_congo/nhwopik/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nypvnm/why_dont_we_ever_hear_about_congo/nhy6dfq/
+
+We can all still speak out against ALL hate. And promote Malala. ... ... ... 
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
