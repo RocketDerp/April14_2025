@@ -575,3 +575,27 @@ https://old.reddit.com/r/law/comments/1nyw05z/zionist_agitator_known_as_jeffrey_
 
 Just like people on Reddit are now convinced that millions of low-effort commenting that avoids nonfiction books and serous discourse about mob mentality / mass mind media ecology is what the world needs more of. To suck down Internet Research Agency payloads and Cambridge Analytica manipulation of executive fuction of the mind and not call out the free time and spare time spent avoiding getting on the same page. The Anti-Wikipedia / Wiki sstyle of progresivley improving understanding, but instead favoring commenting over and over with disposable messages that keep every person on different pages.
 
+https://old.reddit.com/r/law/comments/1nyw05z/zionist_agitator_known_as_jeffrey_epsteins_former/nhyug3l/
+
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhz51q3/
+
+Why people think the USA mindset is supposed to be Conservative vs. Liberal, it's treated as the deepest faith ahen the Constitution and Decleration of Indpeendence makes no mention of it. People have no clue as to the meaning of the pyramid on the Great Seal from the founding fthers. We did not teach the population, We The People, were not educated on art symbolism and symbolic meanings of the founding fathers. ... ... ...
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that **all of this has been virtually totally forgotten by our days**. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that **we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible** this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhzldrg/
+
+Like /r/LeopardsAteMyFace - thrileld that Russia mind-fucked rural less-educated Americans with powerful social media systems and Internet memes that humanity has never encountered before on farmlands and small towns. Hate as deepest faith, *hate harder* answer to eery situation. Faith in mocking nonfiction learning and avoiding serous study of media ecology and devising strategies to defend against the Russian IRA since year 2013.
+
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhz7v58/
+
+The media is /r/Conservative /r/The_Donald antics. People so attracted to fiction and no-citation no-identity bullshit commenting.
+
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhzia30/
+
+Mocking Trump is the appeal. People can not resist gong to meme sites and mocking and insulting Trump playing President Tony Clifton. Trump is a New Yorker, he knows SNL and Andy Kaufman. Trump and others playing Tony Clifton is like shooting fish in a barrel, people keep eatin up the act. People in USA refuse to take Putin's methods seriously enough, can't even describe Russian Surkov tactics of the past 25 years.
+
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhzj4n7/
+
+People put themselves into fiction addiction, filter-bubble away what they don't like, block and unsubscribe and it's a choose-your-own interactive fiction. Every person on one of 5,000 different monomyth fiction story pattens since year 2013, new ones being created. ... ... ...
+"Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
