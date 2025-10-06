@@ -832,3 +832,13 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nz9bfr/how_is_this_not_the
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nz9bfr/how_is_this_not_the_biggest_story_in_the_country/ni0saig/
 
+https://old.reddit.com/r/goodnews/comments/1nzcp11/youll_be_on_the_right_side_of_history_mr_colbert/ni20wun/
+
+Comedy-washing Trump, normlaizing Donald Trump via comedy shows, amsuement comments, laugh tracks, just as Neil Postman in his 1985 book about media ecology "Amusing Ourselves To Death" warned. OVER TEN YEARS AND THREE MONTHS of turning Putin and Trump into joke material so addicts on meme machines can't wait for the next Truth Social posting to mock and insult! People are eating right out of the hands of Surkov governing techniques because it's so entertaining to people to be living in a total mockery. Russia won, Surkov won. ... ... ...
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/goodnews/comments/1nzcp11/youll_be_on_the_right_side_of_history_mr_colbert/ni1wlpr/
+
+More people looking forward to the entertainment Trump would provide via meme machines.
+
