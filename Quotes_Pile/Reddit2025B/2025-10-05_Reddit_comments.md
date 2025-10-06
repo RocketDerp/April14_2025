@@ -636,3 +636,47 @@ https://old.reddit.com/r/CringeTikToks/comments/1nz4org/james_talarico_calling_o
 
 It is incredibly stressful seeing people not even able to comprehend a 2,000 year old book. Let alone comprehend the impact of high-speed Reddit comment messages on their behavior and minds.
 
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzqss5/
+
+The Surkov Monomyth patterns changed behaviors and attitudes since year 2013. *Hate harder*, prizing of hate, attraction to mockery was a "win" to debate by getting everyone to abandon nonfiction and science thinking. Russia won, Surkov won.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzss30/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzv873/
+
+Social media users could be using free time and spare time to make Bible verse "1 John 3:17" applied to Trump / Musk / Murdoch. But instead, people flock to less important topics in disposable comments.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzzkcr/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/ni062pb/
+
+American Christians avoid "1 John 3:17", "1 John 4:20", Gllatians 3:28 and Romans 11:32 as core understandings. This inverts the relationship with the poetry in their mind, Romans 11:32 comprehension avoided, ass-backwards. People think they are the punisher and here to punish other people instead of here to communicate and educate other people. And people prize educaiton that tricks others into self-harm and weakness instead of common good for all mankind (like Wikipedia and sharing medical knowledge and medical drugs and systems is good for all mankind). ... ... ...
+"The sense of an experience of the sacred is dissociated from life, from nature, from the world, and transferred or projected somewhere else — an imagined somewhere else — while man, mere man, is accursed. The sacred is now not secular, of this world of mere dead dust, but canonical, supernaturally revealed and authoritatively preserved; that is to say: God, from “out there,” has condescended graciously to accord special revelations: (1) to the Hebrews, historically, on Sinai, via Moses; (2) to mankind, historically, via Jesus; but then also, apparently, (3) to mankind, once again, historically, in a cave near Mecca, via Mohammad. All, it will be noted, Semites! No other revelations of this desert god are admitted to exist, and Extra ecclesiam nulla salus (“outside the church there is no salvation”)." https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/ni038uv/
+
+Finnegans Wake / Finnegns Woke / Woke the Finnegans ... James Joyce's 1924 onward publication.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/ni05x80/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/ni050k6/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzuwe1/
+
+Democracy and freedom don't work when love is abandoned and compassion abandoned. It becomes a technology competitition to defeat other people and dominate. 
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhznabw/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzwrzw/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/ni04by5/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzqdm6/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzrbm4/
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzpb2e/
+
+John 1:1 is "Word Woke", Poetry Woke, Language Woke.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzz16w/
