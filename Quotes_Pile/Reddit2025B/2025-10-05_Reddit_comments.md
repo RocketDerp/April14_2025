@@ -887,11 +887,17 @@ https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down
 Reddit community couldn't recognize Russian governing techniques if it was the broad side of a barn. Nobody here can name the Internet Research Agency, Cambridge Analytica. People just keep looking at the icons and figurehead as conditioned when new postings appear on the meme mills. Reddit comment: ". Completely detached from reality."  ... ... ...
 "Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
 
-https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2dfi0/
-
 https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2dygr/
 
 https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2dzt5/
 
 Reddit messages with the MAGA / Trump talking points: deporting people addresses differences in mental states and Spanish language / etc. Deport-happy messaging, prize the machines, hate the persons messaging.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2e6a2/
+
+"mental hospital". As if this crisis in USA of October 2025 is a single person, just one person. Twitter-think low-effort reactionary commenting that doesn't even begin to scratch the surface of the mental problems, it isn't just one person to scrach surface with. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2efzm/
+
+Mind-fuck messages to audience of Reddit. Take pride in low-effort cheering comments. Satire-wash it, it's all so entertaining. No call to intellectual arms, no call to intellectual learning of cult deprogramming.
 
