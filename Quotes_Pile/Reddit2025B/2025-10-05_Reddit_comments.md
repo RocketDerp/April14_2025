@@ -842,3 +842,27 @@ https://old.reddit.com/r/goodnews/comments/1nzcp11/youll_be_on_the_right_side_of
 
 More people looking forward to the entertainment Trump would provide via meme machines.
 
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni204kz/
+
+Every day I wake up to discover new states of "burnout" worse than the day before since year 2014 when it was starting to become more clear that this was not a short-term fad, a seasonal trend, that faith in hate was being adopted by the USA nation in total.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni21p5e/
+
+Supremeacy of hate. Supremacy of anti-love, anti-compasson, anti-goodness. Machine love, systems love, persons hate. So many machine loving touch device social computer users prize this in USA.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni22skk/
+
+No, that is not the best. People are entirely ignorant of how Surkov govening works for Putin for 25 years. If your goal is to wreck the USA in self-harm, "the best" technique is to have an ahdience calling the White House dumb idiots without any ability to describe Surkov techniques. Low-effort commenting is the engagement people desire, anything to avoid nonfiction learning of Kremlin methods.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2gavb/
+
+Tone down the anti-nonfiction, tone down the worship of low-effort high quantities of high-speed comment messages over nonfiction.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2gxcq/
+
+No, smart enough to creatively make fiction stories is not the "smart enough' we need. We need people to focus on important and serious topics, not just react to every beaking news event and then joke-wash and satire-wash it away with low-effort commenting. We need Wikipedia style / Wiki style refinement of knowledge and people understanding how information about a house fire is conveyed. 
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni25mva/
+
+Upending reality in favor of people addicted to mockery, mocking the White House, mocking goodness, mocking nonfiction learning about mob mentality.
+
