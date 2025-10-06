@@ -1065,5 +1065,17 @@ Low-effort high-volume high-speed commenting washes away any sustained focus on 
 
 https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_half_the_country_as/ni31jjq/
 
-People lvoe it in Reddit audience that Russia mind-fucked USA people to self-harm Earth and self-harm USA. Thrilled to see more of this as entertainment for Reddit consumption.
+<img width="1048" height="660" alt="Screenshot from 2025-10-06 11-13-20" src="https://github.com/user-attachments/assets/d4248f2d-89b6-4693-b30e-13596a0e52fb" /> People lvoe it in Reddit audience that Russia mind-fucked USA people to self-harm Earth and self-harm USA. Thrilled to see more of this as entertainment for Reddit consumption.
+
+https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_half_the_country_as/ni2tfb4/
+
+Simple-think sicknesss. Two-words messages. People can't even articulae the widespread sickness. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_half_the_country_as/ni2ug5b/
+
+Paradoxes of Tony Clifton performance, Surkov governing antics enage the audience. 
+
+https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_half_the_country_as/ni2rgcm/
+
+Add all the hate groups together and you have a common faith that the IRA seeded with 5,000 patterns of CA payloads. A TOTAL, not half, EVERYONE who has **Fatih in Hate, that Hate Harder, Mock Harder** makes for a better USA future. The faith people have been demonstrating for over TEN YEARS AND THREE MONTHS. That if we all hate harder, we all have our deepest faith in hate and mocking, things will improve.
 
