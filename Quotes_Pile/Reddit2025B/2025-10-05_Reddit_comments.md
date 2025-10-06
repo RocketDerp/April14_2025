@@ -1058,3 +1058,12 @@ Declaring it a cult. **No urgent call to the community to rescue peole with nonf
 https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_half_the_country_as/ni2wsgp/
 
 Every person age 12 to age 120 needs a crash-course education on media ecology. People make these tiny-short messages of Twitter-thinking patterns that nothing has changed. They do not recognized 4G mobile neworks vs 5G mobile networks and how Elon Musk purchased Twitter in year 2022, they can't recognize media ecology changes and severely need to study and learn that Putin's IRA invaded since year 2013 on Reddit and that is still ongoing (organizations name changed). The Apple iPhone in year 2007 dramatically changed behaviors and thinking patterns in USA and people are not educated to be self-aware of how media systems influences their minds.
+
+https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_half_the_country_as/ni314ti/
+
+Low-effort high-volume high-speed commenting washes away any sustained focus on important and serious topics and getting people on the same page. People drown themselves using spare time and free time to consume these comments with no self-awareness of the fragmented mindsets of the audience around them.
+
+https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_half_the_country_as/ni31jjq/
+
+People lvoe it in Reddit audience that Russia mind-fucked USA people to self-harm Earth and self-harm USA. Thrilled to see more of this as entertainment for Reddit consumption.
+
