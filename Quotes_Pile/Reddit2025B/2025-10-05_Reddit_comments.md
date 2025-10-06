@@ -680,3 +680,44 @@ https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_sto
 John 1:1 is "Word Woke", Poetry Woke, Language Woke.
 
 https://old.reddit.com/r/clevercomebacks/comments/1nz520s/asking_the_pope_to_stop_teaching_christian_values/nhzz16w/
+
+https://old.reddit.com/r/law/comments/1nz61qp/is_this_even_legal_trump_just_named_who_hell/nhzy1al/
+
+People are letting this shit because Russia invaded media systems since year 2013 with Cambridge Analytica payloads to fixate people on mockery and hate signals.
+
+https://old.reddit.com/r/law/comments/1nz61qp/is_this_even_legal_trump_just_named_who_hell/nhzzapk/
+
+https://old.reddit.com/r/law/comments/1nz61qp/is_this_even_legal_trump_just_named_who_hell/ni03xcf/
+
+People are very avoidant of lists and getting on the same page of details of dates, events, acts. People keep flocking to low-effort commenting on meme sites and not seroius organized named lists.
+
+https://old.reddit.com/r/law/comments/1nz61qp/is_this_even_legal_trump_just_named_who_hell/ni04w3w/
+
+https://old.reddit.com/r/inflation/comments/1nz2ao5/599lb_to_999lb_in_nine_months/nhzos98/
+
+https://old.reddit.com/r/inflation/comments/1nz2ao5/599lb_to_999lb_in_nine_months/ni078cg/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_using_dead_gaza/nhzy1hn/
+
+Joke-washing, humor-washing, amusement-washing serious situations is how so many media sellers profit these days. Endlessly creating every variiaton of comedy-washing to put audiences into meme stupors. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_using_dead_gaza/nhzw6k7/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_using_dead_gaza/nhzwpvb/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_using_dead_gaza/nhzwgxb/
+
+If people started to look at humor as a way to exploit minds / reset brains into stupors to avoid nonfiction learning, it starts to make more sense. People only care that it gets an audience, not seeing the long-term outcomes of mocking and insulting.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_using_dead_gaza/nhzwy33/
+
+Joke-washing as a technique is teachable and exploits people all over the world. LOL-washing, satire-washing, absurd-humor-washing, surreal-antics-washing. Surkov students mastered it and exported it since year 2013 in ways never seen before.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_using_dead_gaza/nhzyoy6/
+
+"There is something strangely inconsistent about a nation and a press that would praise you when you say, "Be nonviolent toward Jim Clark," but will curse and damn you when you say, "Be nonviolent toward little brown Vietnamese children." There is something wrong with that press." - Martin Luther King Jr.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_using_dead_gaza/ni004vw/
+
+The Internet Research Agency started to ramp up on March 2013 using Cambridge Anaytlica mental manipulation technqiues.
+
