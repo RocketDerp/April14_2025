@@ -1241,5 +1241,22 @@ https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people
 
 Ok, so low-effort high-quantity high-speed comment consumers... what they "feed off" on Reddit comment sections what people are attracted to in October 2025 with no-citation commentary... is there any self-awareness at all of media ecology crisis being bigger than just A.I.? That Donald Trump believes and trusts Putin in year 2012 onward? That attraction to self-harm from RFK Jr, etc. God this is exhausting. When everyone is flocking to fiction and avoiding Wikipedia style refinement of information, progressive improvement of common ground and undrstanding... vs. dispsosable commenting on Bluesky and Reddit...
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nzswgt/science_rules/ni4jeof/
+
+Why can't Reddit community promote nonfiction and science learning, instead of prizing low-effort high-quantity high-speed comment messages over progessive improvement of Wikipedia style systems? Why can't Reddit turn to nonfiction learning about Russia inforatmon warfare that has been anti-science anti-goodness since year 2013? Such as this science attacking by Putin: https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nzswgt/science_rules/ni4y1q9/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nzswgt/science_rules/ni4jwhk/
+
+Fiction addicts and addicts to low-quality information abound all over the USA. Nonfiction science is not considered cool or worthwhile. Arguments are won by blocking, deporting, insutling, mocking, promoting hate. All over every social media system, people can't even exchange messages without wanting to deport people / block them / put them on a list of undesirables. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nzswgt/science_rules/ni4mzxk/
+
+Donald Trump provides more entertainment to a Reddit audience that prizes hate messages as "winning debate" and mocking and insutling. FOR OVER TEN YEARS AND THREE MONTHS, humor-washing joke-washing Trump as the greatest content to ever have in mocking and insuting. Eating the Surkov student governing methods.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nzswgt/science_rules/ni4okup/
+
+Reddit audience crying out for more MAGA content and more mockery! Just as condtioned by Cambridge Analytica since year 2013. Anything to avoid nonfiction learning of how Russian information warfare works.
 
 
