@@ -474,3 +474,48 @@ Someone is realy addicted to low-effort commenting at high speeds that wash away
 https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz9c69/
 
 The IRA has manipulated audiences of social devices to favor low-effort short messages that have no links, no quotes, no citations, no discussion of strategy to do cult deprogramming, etc.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nx1sb6/trump_has_not_been_seen_in_public_since_tuesday/nhkqluy/
+
+Comment from days ago... reddit community posting how Trump is Dead like start of September 2025. People who do not want to rally around nonfiction learning of Russian informaiton warfare and society and want to drown in low-quality high-speed commucations commenting.
+
+https://old.reddit.com/r/comics/comments/1nywh12/protecting_women_oc/nhy3iuv/
+
+Weaponied organized military. Internet Research Agency since year 2013 and newer organizations. Hate is treated as entertainment on Bluesky and Reddit, people block instead of document and detail what is happening.
+
+https://old.reddit.com/r/comics/comments/1nywh12/protecting_women_oc/nhyfsi2/
+
+Hate for hate cravings. Dehumanization for dehumanization desires.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1nyztg9/kristi_noem_lookin_great/nhyim4p/
+
+Shallow, superficial, machine lovers don't want women to be below their content consumption standards of images. Anti-love, anti-compassion dehumanization training grounds. Instead of focusing on Russian information warfare and defenidng the nation, people adopt Truth Social values of insulting and mocking. ... ... ...
+"October 16, 2018 — 'Horseface,' 'Lowlife,' 'Fat, Ugly': How the President Demeans Women. President Trump has a history of attacking women by mocking" https://www.nytimes.com/2018/10/16/us/politics/trump-women-insults.html
+
+https://old.reddit.com/r/PoliticalHumor/comments/1nyztg9/kristi_noem_lookin_great/nhyonta/
+
+https://old.reddit.com/r/illinois/comments/1nz3gsz/chicago_priest_father_michael_pfleger_speaking/nhzch0x/
+
+Leadership by stress and hate. Hate motivates self-harm to the world. Attacking Earth, attacking people. Anti-goodness.
+
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhz498j/
+
+Reddit community flocks to a headline sharming a man for height and body characteristics. Shallow and superficial, avoidant of facing up to Russia's information warfare and the mindsets of shallowness and superficial to avoid nonficiton learning. ... .. ...
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhz7tt6/
+
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhzl9qn/
+
+Audience laugh track for reddit: "LOL".
+
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhz7r5k/
+
+Nobody on Reddit can possibly imagine that laughing has been exploited. That Cambridge Analytica found a way to explot the human brain. That amusement-washing and laugh-washing Trump for over TEN YEARS AND THREE MONTHS is the very Surkov Russian technique of mind-fucking the population into constant amusement / meme stupors. ... ... ...
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhzmu2y/
+
+Yes, it is incredibly shallow and superficial. It's hate-based power, self-harm.
+
