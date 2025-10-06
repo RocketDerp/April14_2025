@@ -599,3 +599,7 @@ https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hu
 People put themselves into fiction addiction, filter-bubble away what they don't like, block and unsubscribe and it's a choose-your-own interactive fiction. Every person on one of 5,000 different monomyth fiction story pattens since year 2013, new ones being created. ... ... ...
 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhzbkqs/
+
+Solving Fox News and Reddit comment problems with guns. Cults of media don't go away with violence. We know this from Levant monomyth relgions. People are NOT taking on the monomyth patterns directly. Finnegans Wake 1924 onward publication has the answers. Marshall McLuhan's writings about James Joyce... gun stroking gun worship just passes on that the answer is always guns. Anti-education anti-learning, that's MAGA Putin values.
+
