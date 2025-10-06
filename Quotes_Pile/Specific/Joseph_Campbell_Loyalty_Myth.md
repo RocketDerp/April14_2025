@@ -1,7 +1,7 @@
 Lecture I.1.4 - New Horizons   
 By Joseph Campbell   
 
-Date: November 16, 196
+Date: November 16, 1961
 
 TRACK 4:  Society’s Choice: Tradition or Truth?
 
