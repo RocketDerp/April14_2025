@@ -729,3 +729,42 @@ https://old.reddit.com/r/TikTokCringe/comments/1nz4ki7/4_years_of_therapy_in_1_m
 
 https://old.reddit.com/r/TikTokCringe/comments/1nz4ki7/4_years_of_therapy_in_1_minute/nhzo7so/
 
+https://old.reddit.com/r/worldnews/comments/1nzcict/zelensky_accuses_west_of_zero_real_reaction_to/ni1afze/
+
+Russia won, Surkov won. The self-harm of humanity, the abandonment of goodness since year 2013. NATO lost. The monomyth cults of fiction storytelling have induced egoism.
+
+https://old.reddit.com/r/worldnews/comments/1nzcict/zelensky_accuses_west_of_zero_real_reaction_to/ni1nhei/
+
+Self-harm and self-destruction. 
+
+https://old.reddit.com/r/worldnews/comments/1nzcict/zelensky_accuses_west_of_zero_real_reaction_to/ni1c99h/
+
+https://old.reddit.com/r/worldnews/comments/1nzcict/zelensky_accuses_west_of_zero_real_reaction_to/ni1ctra/
+
+The fear of reality is a fear of nonfiction. Afear of taking seriously the avoidance of nonfiction learning and education and understanding. The anti-science pro-disease and other things people won't sober up from.
+
+https://old.reddit.com/r/worldnews/comments/1nzcict/zelensky_accuses_west_of_zero_real_reaction_to/ni14x25/
+
+"Amused Ourselves To Death" as described in 1985 book, applied to IRA outcomes.
+
+https://old.reddit.com/r/worldnews/comments/1nzcict/zelensky_accuses_west_of_zero_real_reaction_to/ni1fagm/
+
+I really wonder why so many had to create new accounts. There were tons of pro-Russia accounts back in 2022.
+
+https://old.reddit.com/r/worldnews/comments/1nzcict/zelensky_accuses_west_of_zero_real_reaction_to/ni1s7hn/
+
+https://old.reddit.com/r/worldnews/comments/1nzcict/zelensky_accuses_west_of_zero_real_reaction_to/ni1o6yi/
+
+https://old.reddit.com/r/worldnews/comments/1nzcict/zelensky_accuses_west_of_zero_real_reaction_to/ni1jmii/
+
+That's why I point to Malala's October 8, 2013 book. Goodness itself isn't attracting focus. Progress of sharing education.
+
+https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1id9v/
+
+People compusivly self-harming even when it is self-evident that hate and dehumanization are not enjoyable. The WWWW outcomes of the IRA self-harm mindset seedings.
+
+https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1njm0/
+
+The press has discovered fiction outsells nonfiction, mythology leadership.
+
+https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1vcm6/
