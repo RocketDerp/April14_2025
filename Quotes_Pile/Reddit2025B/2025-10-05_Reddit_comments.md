@@ -1014,3 +1014,11 @@ https://old.reddit.com/r/clevercomebacks/comments/1nzn28n/welcome_in_the_us_of_t
 
 People insist that somehow political murder is somehow better death than other murders. Unable to condemn all muders and all hate because they have programmed thier minds to normalize and embrace murder if it is team sports, team A against team B.
 
+https://old.reddit.com/r/clevercomebacks/comments/1nzn28n/welcome_in_the_us_of_today/ni3aumd/
+
+"Their side", "leftist", "girls". Everything is about categorizing and organizing out-groups to hate and dehumanize. That's the Reddit messaging. Mind-fuckeed by Putin's IRA to not see the forest for the trees. All hate is bad and the education we had from MLK Jr has been forgotten and abandoned in favor of entertainment-based podcasting and social media out-group hate content.  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/clevercomebacks/comments/1nzn28n/welcome_in_the_us_of_today/ni3jki0/
+
+Yes. We have lost our way in this society. We let Russia invade our media systems and programming our minds with Cambridge Analytica self-harm mindsets.
+
