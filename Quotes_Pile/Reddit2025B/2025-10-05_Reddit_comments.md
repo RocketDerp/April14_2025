@@ -1237,3 +1237,9 @@ https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people
 
 Donald Trump is a force of social media. As Neil Postman explains in his 1985 book "Amusing Ourselves To Death".  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people_to_stop_sending/ni469bf/
+
+Ok, so low-effort high-quantity high-speed comment consumers... what they "feed off" on Reddit comment sections what people are attracted to in October 2025 with no-citation commentary... is there any self-awareness at all of media ecology crisis being bigger than just A.I.? That Donald Trump believes and trusts Putin in year 2012 onward? That attraction to self-harm from RFK Jr, etc. God this is exhausting. When everyone is flocking to fiction and avoiding Wikipedia style refinement of information, progressive improvement of common ground and undrstanding... vs. dispsosable commenting on Bluesky and Reddit...
+
+
+
