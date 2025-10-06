@@ -699,7 +699,7 @@ https://old.reddit.com/r/inflation/comments/1nz2ao5/599lb_to_999lb_in_nine_month
 
 https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_using_dead_gaza/nhzy1hn/
 
-Joke-washing, humor-washing, amusement-washing serious situations is how so many media sellers profit these days. Endlessly creating every variiaton of comedy-washing to put audiences into meme stupors. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+Joke-washing, humor-washing, amusement-washing serious situations is how so many media sellers profit these days. Endlessly creating every variation of comedy-washing to put audiences into meme stupors. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
 https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_using_dead_gaza/nhzw6k7/
 
@@ -1232,4 +1232,8 @@ Tiny-short message with 100% logic. How facebook influences behavior but not Red
 https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people_to_stop_sending/ni457qj/
 
 "Jesus Christ" opening to this Reddit message. People do not study comparative mythology and see how people keep creating statues and images of dead characters from science fiction stories. Fan fiction of people they have never met. Humans flock to fiction monomyth story patterns. Robin Willions made a lot of money selling fiction stories to audiences and pulling their heart-strings with monomyth story patterns.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people_to_stop_sending/ni4gcoc/
+
+Donald Trump is a force of social media. As Neil Postman explains in his 1985 book "Amusing Ourselves To Death".  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
