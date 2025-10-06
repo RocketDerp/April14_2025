@@ -934,3 +934,11 @@ https://old.reddit.com/r/GreenAndPleasant/comments/1nt9ke6/rightwing_rally_in_th
 
 "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
 
+https://old.reddit.com/r/technology/comments/1nzhycb/when_hes_not_busy_censoring_comedians_brendan/ni27lkb/
+
+An abandonment of goodness, abandonment of nonfiction learning for adults in favor of team sports commenting on meme platforms to mock and insult the out-group as conditioned since yaer 2013 by the Russian IRA.
+
+https://old.reddit.com/r/technology/comments/1nzhycb/when_hes_not_busy_censoring_comedians_brendan/ni2zs5q/
+
+Agreed. We all need to face mob mentality flaws in the human brain. Our minds have known exploits of self-harm, addictions to monomyth fiction patterns, where people would rather die in a mob of killing other mobs than use nonfiction teaching and education to address mass mind / media ecology cult behaviors.  "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
