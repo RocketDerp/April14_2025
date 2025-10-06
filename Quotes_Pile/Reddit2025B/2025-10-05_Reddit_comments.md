@@ -519,7 +519,7 @@ https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_
 
 Yes, it is incredibly shallow and superficial. It's hate-based power, self-harm.
 
-https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhzhttps://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhzmul5/
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhzmul5/
 
 Hate messaging to silence others in democracy.
 
