@@ -555,5 +555,19 @@ Turning to fiction 1940... "Soldiers! don’t give yourselves to brutes - **men 
 
 https://old.reddit.com/r/law/comments/1nz4h2k/ice_posted_this_on_its_official_government/nhznc2c/
 
-Putin humiliating the USA as peopole in USA abandon nonfiction and complex understandings in favor of tiny-short messaging thinking mindsets.
+Putin humiliating the USA as peopole in USA abandon nonfiction and complex understandings in favor of tiny-short messaging thinking mindsets. It is self-harm to the whole world, including domestic Russia, but the techniques sure work with our media ecology gaps in education.
+
+https://old.reddit.com/r/law/comments/1nyw05z/zionist_agitator_known_as_jeffrey_epsteins_former/nhy1629/
+
+Just like TV shows - people love it seeing others in violence and hate.
+
+https://old.reddit.com/r/law/comments/1nyw05z/zionist_agitator_known_as_jeffrey_epsteins_former/nhyfb04/
+
+https://old.reddit.com/r/law/comments/1nyw05z/zionist_agitator_known_as_jeffrey_epsteins_former/nhyqgzz/
+
+Don't document the problem, brush it under the rug. Stick your head in the sand and don't count and quantify how often it is happening and find out that yoru egomania that says everyone else is a machine isn't true. There are people who are now so addicted to hate and fiction that they are true believers that hate is what the world needs. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/law/comments/1nyw05z/zionist_agitator_known_as_jeffrey_epsteins_former/nhzawaw/
+
+Reddit audiences engagement. So entertaining to see people spraeding hate and dehumanization.
 
