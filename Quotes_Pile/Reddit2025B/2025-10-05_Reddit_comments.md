@@ -1165,3 +1165,31 @@ https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen
 
 Russia mind-fucks Americans, kick and hurt them while they are down. Seek out weakness of human beings and attack their weak spot. 
 
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3iin2/
+
+Hot women punching down on ugly men with powerful media machines is entirely cool to a media addict nation who prizes hate. Instead of making nonfiction learning of compassion and nonfiction love important. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3j1wg/
+
+Gun worship faith, that the god of society in USA is gun stroking / gun worship. And ridicule worship. That the deepest faith to have in USA is ridicule and dehumanization. Machine love messages. ... ... ... 
+Turning to fiction 1940... "Soldiers! don’t give yourselves to brutes - **men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle**, use you as cannon fodder. Don’t give yourselves to these unnatural men - machine men with machine minds and machine hearts! You are not machines! You are not cattle! You are men! You have the love of humanity in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power - the power to create machines. The power to create happiness! You, the people, have the power to make this life free and beautiful, to make this life a wonderful adventure." https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3iodb/
+
+The deepest faith: mockery. Donald Trump has turned the USA into a Total Mockery with Putin using Surkov student techniques, and people eat right out of Kremlin hands and add to the mockery faith.
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni4mbax/
+
+Yes, faith in amusement / mockery / clowning / entertainment clows and Tony Clifton acts. People can not get enough of wrecking the world with mockery.
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3ts1e/
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3htv1/
+
+They are not afraid of everything. People who support hate embrace hate, people with faith in hate embrace Russia and Putin, people who dehumanize embrace killing people in Ukraine, people with faith in mocking as the best answer to problems embrace mocking and mockery, people who have egomania embrace addiction to fiction storytelling. People who prize hate embrace Fox News fiction. People are unwilling to analyze what exactly they are afraid of. Nonfiction learning. That's what they are afraid of, science nonfiction. ... ... ... 
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3hq6y/
+
+They insult all the time, insult back. The Taliban in Swat Valley pakistan terrorizes and attacks children all the time, terrorize and attack children back! That sure teaches the Taliban Quran conservatives and the USA Bible conservatives how to read thier book! More hate lessons and bad parenting from a toxic society that's the faith. Always more hate, always more violence, just keep building more technology of weapon systems.
+
