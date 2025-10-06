@@ -197,7 +197,7 @@ https://old.reddit.com/r/democrats/comments/1nynff0/a_history_lesson_for_maga/nh
 
 https://old.reddit.com/r/comedy/comments/1nyn8c9/theo_von_reveals_he_was_shook_and_paranoid_after/nhw2we4/
 
-Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/comedy/comments/1nyn8c9/theo_von_reveals_he_was_shook_and_paranoid_after/nhwbm9c/
 
@@ -331,7 +331,7 @@ Even with this dressed up in fiction and playing a character, it isn't entertain
 
 https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhwfu5v/
 
-Notice the abscience of links, author names, book titles, etc. Just disposable commenting, no call to get on the same page. Trump rules with fiction storytelling, Truth Social is anti-truth, anti-reality.  Published September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+Notice the abscience of links, author names, book titles, etc. Just disposable commenting, no call to get on the same page. Trump rules with fiction storytelling, Truth Social is anti-truth, anti-reality.  Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/worldnews/comments/1nyp6t3/zelenskyy_putin_mocks_the_west_world_has_failed/nhwmojs/
 
@@ -437,7 +437,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_hav
 
 https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz7gqk/
 
-In other words, you witnessed anti-reality before it became real reality. You witnessed mind-fucking on a national scale. And you have ths September 9, 2014 article avoidied at all cost on Reddit. Published September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+In other words, you witnessed anti-reality before it became real reality. You witnessed mind-fucking on a national scale. And you have ths September 9, 2014 article avoidied at all cost on Reddit. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
 https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz8i7d/
 
@@ -881,4 +881,17 @@ Recency bias of Project 2025. People can not even recall this is not Trump's fir
 https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni26pze/
 
 And yet, we are drowning out getting on that same page of encyclopedia with low-effort high-volume high-speed commenting. Anything to avoid nonfiction learning and begging others to stop their entertainment addictions long enough to take nonfiction learning of critical important topics seriously.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2dfi0/
+
+Reddit community couldn't recognize Russian governing techniques if it was the broad side of a barn. Nobody here can name the Internet Research Agency, Cambridge Analytica. People just keep looking at the icons and figurehead as conditioned when new postings appear on the meme mills. Reddit comment: ". Completely detached from reality."  ... ... ...
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2dfi0/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2dygr/
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2dzt5/
+
+Reddit messages with the MAGA / Trump talking points: deporting people addresses differences in mental states and Spanish language / etc. Deport-happy messaging, prize the machines, hate the persons messaging.
 
