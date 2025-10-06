@@ -942,3 +942,7 @@ https://old.reddit.com/r/technology/comments/1nzhycb/when_hes_not_busy_censoring
 
 Agreed. We all need to face mob mentality flaws in the human brain. Our minds have known exploits of self-harm, addictions to monomyth fiction patterns, where people would rather die in a mob of killing other mobs than use nonfiction teaching and education to address mass mind / media ecology cult behaviors.  "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/technology/comments/1nzhycb/when_hes_not_busy_censoring_comedians_brendan/ni2o1fr/
+
+Not just USA, this is a global issue. Fiction outselling nonfiction on radio systems. ... ... ...
+"Mullah Fazlullah has not been heard on the air in Swat for weeks, though some of the valley's residents fear he may eventually return. Sporadic militant attacks continue in the area. At least 15 Pakistani police recruits were killed in a suicide bombing in Swat's main city, Mingora, on Sunday. Malik now has a new project in the works, this time focusing on winning hearts and minds in the mountains of Pakistan's tribal belt: **FM 96 Radio** Waziristan" https://www.npr.org/2009/08/31/112397752/pakistans-military-wins-swat-valley-radio-war
