@@ -1259,4 +1259,27 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nzswgt/science_rules/ni4ok
 
 Reddit audience crying out for more MAGA content and more mockery! Just as condtioned by Cambridge Analytica since year 2013. Anything to avoid nonfiction learning of how Russian information warfare works.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nzs4e0/i_am_speechless_guys/ni4hixf/
 
+https://old.reddit.com/r/CringeTikToks/comments/1nzs4e0/i_am_speechless_guys/ni4cm0i/
+
+Yes. people are attracted to fiction storytelling. Reddit community flocks to Trump posting after Trump posting to mock and insult how terrible President Tony Clifton is. Surkov and Putin have been using absurd surreal media as the heart of their power for 25 years. ... ... ...
+"Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzs4e0/i_am_speechless_guys/ni4ag7s/
+
+I keep warning people about the 5,000 runaway simulacra patterns that the Internet Research Agency deployed since year 2013 to mind-wreck the USA into avoidance of nonfiction learning about mob mentality. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzs4e0/i_am_speechless_guys/ni4a2uj/
+
+People will humor-wash it and mockery-wash it and amusement-wash the situation away on low-effort commenting sections of multiple media platforms as they have been doing FOR OVER TEN YEARS AND THREE MONTHS. People can not take seiously that this is Runnian information warfare! ... ... ...
+"Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia is a 2014 book by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzs4e0/i_am_speechless_guys/ni4fiu0/
+
+Donald Trump is already a walking Mythk a Mythology. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzs4e0/i_am_speechless_guys/ni4c07y/
+
+Fiction storytelling is far far far more popular than nonfiction learning and science teaching. People on social sites like Reddit and Bluesky drown in low-effort high-volume commenting and will not engage nonficton learning from books on what is going on. And SUSTAIN focus on those books and repeat them until every person is on the *same page* of said books.  ... ... ... 
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.” ― Christopher Wylie, Mindf*ck: Cambridge Analytica and the Plot to Break America, page 85. year 2019
