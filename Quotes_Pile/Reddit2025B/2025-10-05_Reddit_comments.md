@@ -519,3 +519,41 @@ https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_
 
 Yes, it is incredibly shallow and superficial. It's hate-based power, self-harm.
 
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhzhttps://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhzmul5/
+
+Hate messaging to silence others in democracy.
+
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhz538u/
+
+Abandon reality, flock to Surkov conditioned fiction as progarmmed by CA and IRA. Fiction for all.
+
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhzhvlm/
+
+https://old.reddit.com/r/MurderedByAOC/comments/1nz2dos/aoc_stephen_miller_is_a_clown_ive_never_seen_that/nhzmul5/
+
+“Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1951 ... ... ... Reddit comment "Intentionally believing in straight-up lies is insane." ... ... ... “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, page 85. **year 2019**
+
+https://old.reddit.com/r/law/comments/1nz4h2k/ice_posted_this_on_its_official_government/nhzlzvh/
+
+The Reddit audiences loves it. Hate upon White House, anything to avoid nonfiction learning about media ecology and how Russia won a information war against USA. It is constant stimulation of mcokery and insulting that Reddit and Bluesky adores as discource in year 2025. It wasn't always like this that people flocked to hate messages endlessly, they would get thier fill and move on, but it's been over TEN YEARS AND THREE MONTHS of nonstop flocking to hate leadership signals. Russia won, Surkov won. Modern "cool" video and antics people can not resist.
+
+https://old.reddit.com/r/law/comments/1nz4h2k/ice_posted_this_on_its_official_government/nhzrbgj/
+
+Meme-washing is exactly what Reddit does, people jump at the chance to turn everything Trump / RFK Jr / Elon Musk does against humanity into a LOL meme. People can't iamgine Surkov Governing exploits all this predictable behavior.
+
+https://old.reddit.com/r/law/comments/1nz4h2k/ice_posted_this_on_its_official_government/nhzrsb3/
+
+Putin and Trump turn it into Netlix style entertainment. Pepole think it is great the White House gives more enteratinment.
+
+https://old.reddit.com/r/law/comments/1nz4h2k/ice_posted_this_on_its_official_government/nhzqha3/
+
+Trials if you support empathy. Elon Musk has already spelled out that empathy and compassion are being targed with "mind virus" tactics by media empire owners. "War On Empathy" https://www.dal.ca/news/2025/05/13/maga-empathy-trump.html
+
+https://old.reddit.com/r/law/comments/1nz4h2k/ice_posted_this_on_its_official_government/nhznd5v/
+
+Turning to fiction 1940... "Soldiers! don’t give yourselves to brutes - **men who despise you - enslave you - who regiment your lives - tell you what to do - what to think and what to feel! Who drill you - diet you - treat you like cattle**, use you as cannon fodder. Don’t give yourselves to these unnatural men - machine men with machine minds and machine hearts! You are not machines! You are not cattle! You are men! You have the love of humanity in your hearts! You don’t hate! Only the unloved hate - the unloved and the unnatural! Soldiers! Don’t fight for slavery! Fight for liberty! In the 17th Chapter of St Luke it is written: “the Kingdom of God is within man” - not one man nor a group of men, but in all men! In you! You, the people have the power - the power to create machines. The power to create happiness! You, the people, have the power to make this life free and beautiful, to make this life a wonderful adventure." https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+https://old.reddit.com/r/law/comments/1nz4h2k/ice_posted_this_on_its_official_government/nhznc2c/
+
+Putin humiliating the USA as peopole in USA abandon nonfiction and complex understandings in favor of tiny-short messaging thinking mindsets.
+
