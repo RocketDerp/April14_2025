@@ -1131,3 +1131,37 @@ Over a decade. The Russin War Against Reality launched Q2 2013, the Internet Res
 https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni3midg/
 
 Note the Reddit community downvoting of a comment that cites names, dates, and not just "off the cuff" conversation comments that gets lots of upvotes.
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni2dwik/
+
+Tiny-short amusement messages at the situation, sports-washing the serious situation. Media addicts can not seem to get enough of this mockery national leadership. The hate signals and mock signals that people flock to from Trump and Putin.
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni2owmr/
+
+Sarcasm washing, mockery as normal / to normal the situation, amusement as usual.
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni2yo1t/
+
+Constant electric messages of joke-washing mindset, setting minds to joke-wash the reality of the USA situation.
+
+https://old.reddit.com/r/pics/comments/1nzpl6m/us_holocaust_memorial_museum_washington_dc_oc/ni4humo/
+
+https://old.reddit.com/r/pics/comments/1nzpl6m/us_holocaust_memorial_museum_washington_dc_oc/ni42qa1/
+
+https://old.reddit.com/r/pics/comments/1nzpl6m/us_holocaust_memorial_museum_washington_dc_oc/ni45b19/
+
+People deny a lot of nonfiction in thier cravings and addictions to fiction storytelling.
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3n2hq/
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3p9r2/
+
+A bueatiful popular woman punching down on men who are not educated in compassion. Teaching hate lessons to people who prize hate.
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni4u4uw/
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni4vr5e/
+\
+
+Russia mind-fucks Americans, kick and hurt them while they are down. Seek out weakness of human beings and attack their weak spot. 
+
