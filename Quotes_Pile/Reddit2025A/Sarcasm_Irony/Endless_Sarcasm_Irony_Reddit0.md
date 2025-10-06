@@ -665,3 +665,6 @@ https://old.reddit.com/r/bonehurtingjuice/comments/1ns3qnt/ouch_oof_my_pedofiles
 
 That has been no sustained call for intelelctual arms on social media. People drown out nonfiction critical learning with nonfiction addictions and mockery. People saw MAGA form around clusters of fiction like Fox News, but no sustained focus on making Jen Senko a household name and organizing repeating the same nonfiction teachings. The high road was teaching Neil Postman and Peter P, not mocking on  meme sites for 10 years. Standing up for mocking isn't ANY high road, it is a low raod We The People took at Russia's direction.
 https://old.reddit.com/r/CringeTikToks/comments/1ntsxi6/i_fear_they_dont_know_what_fascism_is/
+
+Front page of Reddit. The Title calls out the paradox. The image contains a paradox. yet people on Reddit can't go to the nonfiction secton of the public libray and study and learn if perhaps *paradox has been weaponized*, if mind-fucking by Cambridge Analytica and Surkov students is based on absurd / surreal / paradox communications and message patterns to create an obdient population that hands over power and wealth! Eating the Surkovian onions. Unable to grasp the mental mechanics of a Tony Clifton media show.       
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nzhv39/like_a_dog_chasing_its_own_tail/
