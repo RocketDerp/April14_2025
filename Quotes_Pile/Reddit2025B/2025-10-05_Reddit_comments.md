@@ -768,3 +768,22 @@ https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_lau
 The press has discovered fiction outsells nonfiction, mythology leadership.
 
 https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1vcm6/
+
+https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1gqez/
+
+And you see these observations, but then people go back to drowning shared sustained focus will millions of disposable comments and likes. Nonfiction same-page understanding is consdidered boring to people. 
+
+https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1h6ly/
+
+Change to more fiction. 
+
+https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1t9ih/
+
+https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1ms3j/
+
+It's like why Reddit won't rally arond Jen Senko's year 2015 film and make her a household name. Bending raelity seems too entertaining for people, like special effects in TV and films, the appetite for actors and  and fiction in every area of life - even disease prevention - dominates.
+
+https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1s26m/
+
+Note the absence of an author name, book title, link. What specific bad things? Wildcard meaning. Not enough hate? Not enough fiction leadership? More King and Queen entertainment?
+
