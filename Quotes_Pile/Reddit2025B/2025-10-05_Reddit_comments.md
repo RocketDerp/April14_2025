@@ -946,3 +946,16 @@ https://old.reddit.com/r/technology/comments/1nzhycb/when_hes_not_busy_censoring
 
 Not just USA, this is a global issue. Fiction outselling nonfiction on radio systems. ... ... ...
 "Mullah Fazlullah has not been heard on the air in Swat for weeks, though some of the valley's residents fear he may eventually return. Sporadic militant attacks continue in the area. At least 15 Pakistani police recruits were killed in a suicide bombing in Swat's main city, Mingora, on Sunday. Malik now has a new project in the works, this time focusing on winning hearts and minds in the mountains of Pakistan's tribal belt: **FM 96 Radio** Waziristan" https://www.npr.org/2009/08/31/112397752/pakistans-military-wins-swat-valley-radio-war
+
+https://old.reddit.com/r/technology/comments/1nzhycb/when_hes_not_busy_censoring_comedians_brendan/ni2q8kr/
+
+A Reddit comment that reaches outside of Domestic USA October 2025 perspective of media ecology! Alas, wish it had a link / author name / book title, etc.
+
+https://old.reddit.com/r/technology/comments/1nzhycb/when_hes_not_busy_censoring_comedians_brendan/ni2l7vn/
+
+Audience concerns of superficial and shallow. Keeps Reddit entertained with banality and avoidiance of nonfiction learning of important serious topics of rescuing USA in October 2025 fro shallowness itself.
+
+https://old.reddit.com/r/technology/comments/1nzhycb/when_hes_not_busy_censoring_comedians_brendan/ni2oxdz/
+
+Audience mockery track. ... ... ...
+"Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and they work." - https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
