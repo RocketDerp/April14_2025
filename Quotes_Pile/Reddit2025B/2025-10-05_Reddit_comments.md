@@ -450,3 +450,27 @@ https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_hav
 
 Standing up for nonfiction and learning science is important for when pandemics and popular poetry monomyth stories take over society. People didn't take citaitons and Wikipedia style progress seriously and put huge amounts of labor... their spare time and free time... into disposable commenting and memes at high-speed and "common ground" understanding fragemented away as it was abandoned.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz826o/
+
+They put on television and turn off their mind. They flock to low-effort high-speed commenting over common-ground nonfiction learning.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz87br/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhzfx0g/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz9snk/
+
+Why would you ever want election rallies to feel like that. Entertainment rock star cult meetings. Entertainment addicted society. ... ... ...
+“The point is that television does not reveal who the best man is. In fact, television makes impossible the determination of who is better than whom, if we mean by 'better' such things as more capable in negotiation, more imaginative in executive skill, more knowledgeable about international affairs, more understanding of the interrelations of economic systems, and so on. The reason has, almost entirely, to do with 'image.' But not because politicians are preoccupied with presenting themselves in the best possible light. After all, who isn't? It is a rare and deeply disturbed person who does not wish to project a favorable image. But television gives image a bad name. For on television the politician does not so much offer the audience an image of himself, as offer himself as an image of the audience. And therein lies one of the most powerful influences of the television commercial on political discourse.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz5eyd/
+
+Yes. yet messages like this with lo links, quotes, book author names, book titles, call to deal with the mindset problems on Reddit audience are drowning out any attempt to actually confront Russian information warfare and self-harm mindsets in USA.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz81hp/
+
+Someone is realy addicted to low-effort commenting at high speeds that wash away getting on the smae page of how Russian information warfare has worked since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz9c69/
+
+The IRA has manipulated audiences of social devices to favor low-effort short messages that have no links, no quotes, no citations, no discussion of strategy to do cult deprogramming, etc.
