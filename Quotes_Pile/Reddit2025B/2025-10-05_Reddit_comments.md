@@ -959,3 +959,16 @@ https://old.reddit.com/r/technology/comments/1nzhycb/when_hes_not_busy_censoring
 
 Audience mockery track. ... ... ...
 "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and they work." - https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni1wy8x/
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni1z1eg/
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni20vh0/
+
+Are people crazy or have they lost their ability to go search for facts and nonfiction information and provide a link or a quote or even a date and specific name?
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni3327x/
+
+Nobody died in this fire, Reddit audiences / Bluesky audiences / news of death and the live video footage in front of 3,000 people live streaming a dramatic distance rifle murder sells more to entertainment seeking society. People are flocking to entertainment, avoiding nonfiction learning about media ecology. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
