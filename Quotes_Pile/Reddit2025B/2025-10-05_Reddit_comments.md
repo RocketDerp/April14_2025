@@ -616,3 +616,23 @@ https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hu
 Always blaming The Dems, not holding Reddit society / We The People responsible. Avoidiing nonficiton study of media ecology. Never learning nonfiction about Russian information warfare and how Putin has mind-fucked the entire population into 5,000 alternate reality simualcra screen games. The meeting recently in Alaska with Putin isn't enough, the attacking of Canada with mind-fucking out of the White House isn't enough ... ... ...
 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
+https://old.reddit.com/r/CringeTikToks/comments/1nz4org/james_talarico_calling_out_fake_christian/nhzm4sq/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz4org/james_talarico_calling_out_fake_christian/nhzlvo3/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz4org/james_talarico_calling_out_fake_christian/nhzvqu5/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz4org/james_talarico_calling_out_fake_christian/nhzxvrw/
+
+Hamlet has a Ghost. Star Wars 1977 has "Force Ghosts". Science fiction storytelling is popular.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz4org/james_talarico_calling_out_fake_christian/nhzm1ov/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz4org/james_talarico_calling_out_fake_christian/nhzkz2a/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz4org/james_talarico_calling_out_fake_christian/nhzlpr2/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz4org/james_talarico_calling_out_fake_christian/nhzov6b/
+
+It is incredibly stressful seeing people not even able to comprehend a 2,000 year old book. Let alone comprehend the impact of high-speed Reddit comment messages on their behavior and minds.
+
