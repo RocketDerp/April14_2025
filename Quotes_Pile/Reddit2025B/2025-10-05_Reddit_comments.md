@@ -972,3 +972,16 @@ https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobod
 
 Nobody died in this fire, Reddit audiences / Bluesky audiences / news of death and the live video footage in front of 3,000 people live streaming a dramatic distance rifle murder sells more to entertainment seeking society. People are flocking to entertainment, avoiding nonfiction learning about media ecology. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni22f7y/
+
+"libtards", "liberals are retards". Americans can not get enough of this one-bit polarity of declaring the other group retarded. Simple short Twitter-length thinking patterns of out-group retarded. When the entire society has abandoned nonfiction and prizes low-effort insulting commenting off Truth Social as the primary source of adult education and learning.
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni1wxl9/
+
+I see plenty of "cry babies" in the Reddit comment section right here that I am linking. This very low-effort message seems like crying messages using that mindset. People drowning themselves in millions of disposable comment messages and avoiding nonficiton learning of group dynamics and mob mentality.
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni2ss2o/
+
+The 1954 Equation form Dr. Martin Luther King Jr. Out-group team sports of *hate harder* have been conditioend in USA population since year 2013 by Russia's IRA. There you go: 
+... ... ... 
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
