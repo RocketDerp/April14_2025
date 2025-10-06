@@ -571,3 +571,7 @@ https://old.reddit.com/r/law/comments/1nyw05z/zionist_agitator_known_as_jeffrey_
 
 Reddit audiences engagement. So entertaining to see people spraeding hate and dehumanization.
 
+https://old.reddit.com/r/law/comments/1nyw05z/zionist_agitator_known_as_jeffrey_epsteins_former/nhyt1vy/
+
+Just like people on Reddit are now convinced that millions of low-effort commenting that avoids nonfiction books and serous discourse about mob mentality / mass mind media ecology is what the world needs more of. To suck down Internet Research Agency payloads and Cambridge Analytica manipulation of executive fuction of the mind and not call out the free time and spare time spent avoiding getting on the same page. The Anti-Wikipedia / Wiki sstyle of progresivley improving understanding, but instead favoring commenting over and over with disposable messages that keep every person on different pages.
+
