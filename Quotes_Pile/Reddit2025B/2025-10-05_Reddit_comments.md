@@ -413,3 +413,29 @@ https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_hav
 People can't name the Internet Resaerch Agency and Cambridge Analytica... but promote no-evidence rumor comments off from no-identtiy systems. ... ... ...
 "Russian Twitter trolls stoked voter fraud fear before election. Months before Wikileaks messaged Donald Trump Jr. about a "rigged" election, Russian Twitter trolls sowed doubt about the election's validity online." https://www.nbcnews.com/tech/social-media/russian-twitter-trolls-stoked-voter-fraud-fear-election-n820771
 
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz4rgz/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhzcl1b/
+
+It never ends. And there never was a big social media uprising in 10 years calling for science and reality, being serious and sustained focus on what is important.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhzf1mu/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz463p/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz3wqe/
+
+Yes. Mocking Trump as drunk and dumb and eating the Surkovian onions. Entirely ignorant this is how Russian information warfare manipulates audiences.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz4qa4/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz4hpz/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz5xo8/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz7w4o/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nz2bzq/trump_to_the_navy_we_have_to_take_care_of_this/nhz7gqk/
+
+In other words, you witnessed anti-reality before it became real reality. You witnessed mind-fucking on a national scale. And you have ths September 9, 2014 article avoidied at all cost on Reddit. Published September 9, 2014 ... one URL click away, but somehoe for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
