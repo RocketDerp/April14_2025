@@ -1022,3 +1022,10 @@ https://old.reddit.com/r/clevercomebacks/comments/1nzn28n/welcome_in_the_us_of_t
 
 Yes. We have lost our way in this society. We let Russia invade our media systems and programming our minds with Cambridge Analytica self-harm mindsets.
 
+https://old.reddit.com/r/clevercomebacks/comments/1nzn28n/welcome_in_the_us_of_today/ni3dnby/
+
+The Whole World of over 8 billion people needs to talk about how a nation of 0.341 billion has egomania and has been manipulated by Russian hybird warfare. Team sports mentality of domination and "winner takes all" mindsets. How thinking systems changed in year 2013 when the IRA invaded media systems. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/clevercomebacks/comments/1nzn28n/welcome_in_the_us_of_today/ni3fmpj/
+
+Reddit messages to normalize Putin and Trump since year 2013. Anything to blame poor people and avoid blaming Rupert Murdoch, Putin, Elon Musk owner of Twitter, etc.
