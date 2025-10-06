@@ -1079,3 +1079,6 @@ https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_
 
 Add all the hate groups together and you have a common faith that the IRA seeded with 5,000 patterns of CA payloads. A TOTAL, not half, EVERYONE who has **Fatih in Hate, that Hate Harder, Mock Harder** makes for a better USA future. The faith people have been demonstrating for over TEN YEARS AND THREE MONTHS. That if we all hate harder, we all have our deepest faith in hate and mocking, things will improve.
 
+https://old.reddit.com/r/technology/comments/1nxqy0e/why_conservatives_are_attacking_wokepedia/ni48q30/
+
+Amused at the suffering going on in USA. "ha ha ha" at the situaiton. Putin and USA are wrecking the world, and uses social media blocking and messaging to dehumanize others. Eating right out of the hands of the IRA conditioning.
