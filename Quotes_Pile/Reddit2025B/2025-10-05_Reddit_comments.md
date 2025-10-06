@@ -603,3 +603,16 @@ https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hu
 
 Solving Fox News and Reddit comment problems with guns. Cults of media don't go away with violence. We know this from Levant monomyth relgions. People are NOT taking on the monomyth patterns directly. Finnegans Wake 1924 onward publication has the answers. Marshall McLuhan's writings about James Joyce... gun stroking gun worship just passes on that the answer is always guns. Anti-education anti-learning, that's MAGA Putin values.
 
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhzaul3/
+
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhzve9o/
+
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhze5pv/
+
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhzcwgr/
+
+https://old.reddit.com/r/scotus/comments/1nz2lsx/trump_defies_court_mobilizes_hundreds_of_troops/nhzjfoi/
+
+Always blaming The Dems, not holding Reddit society / We The People responsible. Avoidiing nonficiton study of media ecology. Never learning nonfiction about Russian information warfare and how Putin has mind-fucked the entire population into 5,000 alternate reality simualcra screen games. The meeting recently in Alaska with Putin isn't enough, the attacking of Canada with mind-fucking out of the White House isn't enough ... ... ...
+"Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
