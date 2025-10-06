@@ -926,3 +926,11 @@ https://old.reddit.com/r/clevercomebacks/comments/1nzhfvt/well_said_queen/ni257d
 
 Spare time and free time of USA society flocks to superficial shallow banal. That's why Trump dresses up like Tony Clifton, it works. audience eats it up.
 
+https://old.reddit.com/r/GreenAndPleasant/comments/1nt9ke6/rightwing_rally_in_the_uk_the_protect_our_women/ngsawkg/
+
+Choice_Marriage_Honesty topic. Manipulating the society, monster state, to limit choice marriage freedom. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): CAMPBELL: How many people before marriage receive spiritual instruction as to what the **marriage** means? You can stand up in front of a judge and in ten minutes get married. The marriage ceremony in India lasts three days. That couple is glued. MOYERS: You’re saying that marriage is not just a social arrangement, it’s a **spiritual exercise**. CAMPBELL: It’s primarily a spiritual exercise, and **the society is supposed to** help us have the realization. Man should not be in the service of society, society should be in the service of man. When man is in the service of society, **you have a monster state**, and that’s what is threatening the world at this minute.
+
+https://old.reddit.com/r/GreenAndPleasant/comments/1nt9ke6/rightwing_rally_in_the_uk_the_protect_our_women/ngsgzkd/
+
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
