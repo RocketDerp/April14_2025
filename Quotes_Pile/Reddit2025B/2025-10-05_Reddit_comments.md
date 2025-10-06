@@ -787,3 +787,26 @@ https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_lau
 
 Note the absence of an author name, book title, link. What specific bad things? Wildcard meaning. Not enough hate? Not enough fiction leadership? More King and Queen entertainment?
 
+https://old.reddit.com/r/europe/comments/1nzea40/support_for_brexit_drops_to_laughable_low_with/ni1vu4f/
+
+Someone remembers Cambridge Analytica, but wish people dicussed self-harm mob mentality as an evidende side-effect. People haven't come to terms with Comprative Mythology and The 1954 Equation. February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nz9bfr/how_is_this_not_the_biggest_story_in_the_country/ni0l40u/
+
+Satire-washing serious situations. Everything is amusement and entertainment. The top-voted comments on the posting, short-tiny mockery in the Trump Putin Total Mockery that's been gong on for OVER TEN YEARS AND THREE MONTHS. Always more mocking, audience can'pt resist adding more mocking to MAGA values of anti-reality and mocking of reality.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nz9bfr/how_is_this_not_the_biggest_story_in_the_country/ni0k0we/
+
+Thrillseeking entertainment-seeking society. Hate as sport.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nz9bfr/how_is_this_not_the_biggest_story_in_the_country/ni1iexp/
+
+I don't think it is a "goal" more of an emotion and motivation. Terrorists I studied in Algeria heaven after death is a motivation, while not experiencing love and compassion for all mankind.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1nz9bfr/how_is_this_not_the_biggest_story_in_the_country/ni1q7d7/
+
+The abscence of social media halting entertainment and call for people to focus on reality and nonfiction learning is the most alarming. I can only really keep an eye on Bluesky / YouTube / Reddit, I can no longer keep up with Facebook / Instagram / TikTok / Threads / Twitch / others. I hope if there was a Malala like "call to goodness" from white people to return to nonfictoin education. IMPORTANT_A if anyone ever reads what I say here, they may get the impression I hate relgion. Not at all! I think the Quran / Torah / Bible have a lot to teach. Inspiring science fiction and history of fandom of science fiction. It is the failure to adopt MLK Jr's reformations and Malala's reformation of the Levant science fiction triollogy that I criticize since 1948. James Joyce's monomyth gumbo, Finnegans Wake. People will not accept that the metaphors translate from old Torah monomyth patterns to new The Matrix 1999 patterns, or Star Wars 1977 patterns. Inspiring science fiction storytelling. Ultimatly, Malala seems better at pointing to goodness AND getting published for it than clergy that is still locked in out-group hate as Campbell described in 1987 Power of Myth published 1988. Including hate of Earth. ... ... ...
+"Now, the biblical tradition is a socially oriented mythology. Nature is condemned. In the nineteenth century, scholars thought of mythology and ritual as an attempt to control nature. But that is magic, not mythology or religion. Nature religions are not attempts to control nature but to help you put yourself in accord with it. But when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and hence the tension, the anxiety, the cutting down of forests, the annihilation of native people. And the accent here separates us from nature." - age 83, Joseph Campbell, 1987
+
+
+
