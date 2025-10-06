@@ -994,3 +994,12 @@ https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobod
 
 The logic of us vs them. The logic of "the left" vs. "the right". Logic mindsets programmed by the IRA since year 2013 to self-harm USA and avoid reason thinking.
 
+https://old.reddit.com/r/CringeTikToks/comments/1nzkjou/mike_johnson_let_me_look_right_into_the_camera/ni2p4kz/
+
+Reddit audience laugh track, amusement. How entertaining the anti-reality performances are to media addicts. This LOL shit sickens me. People blow-out their minds into tiny short commenting, free time and spare time spent in service to total mockery / amusement mills instead of defending the USA against Putin and Surkov techniques.
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzkjou/mike_johnson_let_me_look_right_into_the_camera/ni2pyp1/
+
+Extremely short messages, Twitter-length, that can't describe Russian information warfare techniques and methods. Putin flying into Alaska to meet isn't enough for people to at least ponder how sus it looks.  This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+
