@@ -721,3 +721,11 @@ https://old.reddit.com/r/Fauxmoi/comments/1nz62ph/ms_rachel_reacts_to_van_jones_
 
 The Internet Research Agency started to ramp up on March 2013 using Cambridge Anaytlica mental manipulation technqiues.
 
+https://old.reddit.com/r/TikTokCringe/comments/1nz4ki7/4_years_of_therapy_in_1_minute/nhzm3e8/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nz4ki7/4_years_of_therapy_in_1_minute/ni01x36/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nz4ki7/4_years_of_therapy_in_1_minute/nhzoz3d/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nz4ki7/4_years_of_therapy_in_1_minute/nhzo7so/
+
