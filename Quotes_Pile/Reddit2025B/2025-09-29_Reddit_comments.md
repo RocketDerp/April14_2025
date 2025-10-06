@@ -3957,3 +3957,17 @@ https://old.reddit.com/r/Music/comments/1nybzkc/kristi_noem_on_nfls_decision_to_
 
 Denial abounds.Of course peple care. Hate motivates Reddit audience,everyone in USA flocking to hate. that's what Russia mind-fucking did, that's the outcome of Cambridge Analytica mental manipulation. That hate is prized. It'sall over Reddit and has beenfor more than a decade.  Hate is considered the cool attitude towards others, out-groups.
 
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni1wy8x/
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni1z1eg/
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni20vh0/
+
+Are people crazy or have they lost their ability to go search for facts and nonfiction information and provide a link or a quote or even a date and specific name?
+
+https://old.reddit.com/r/BlueskySkeets/comments/1nzgmcf/and_just_like_that_nobody_cared_about_political/ni3327x/
+
+Nobody died in this fire, Reddit audiences / Bluesky audiences / news of death and the live video footage in front of 3,000 people live streaming a dramatic distance rifle murder sells more to entertainment seeking society. People are flocking to entertainment, avoiding nonfiction learning about media ecology. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+
+
