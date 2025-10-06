@@ -1193,3 +1193,24 @@ https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen
 
 They insult all the time, insult back. The Taliban in Swat Valley pakistan terrorizes and attacks children all the time, terrorize and attack children back! That sure teaches the Taliban Quran conservatives and the USA Bible conservatives how to read thier book! More hate lessons and bad parenting from a toxic society that's the faith. Always more hate, always more violence, just keep building more technology of weapon systems.
 
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3n36z/
+
+God, this left vs. right brainrot mindsets. "mockery does not bother the left". So going to Wikipedia and putting in a bunch of mock information, turning facts and reality into a mockery, doesn't bother anyone. Having all the road signs point in the wrong direction doesn't bother "the left". This Twitter-think tweet-length short-message logic responses that everything anti-right makes sense... Donald Trump has turned the entire UNITED STATES OF AMERICA into mocking and mockery on the word stage, mocked people in Canada, are they a right-wing nation who isn't bothered that **manic mockery** has taken over the nation? That Surkov Putin information warfare since Q2 2013 has turned the USA into a bunch of meme addicts who can't stop flocking to mockery messages of Truth Social and the White House? Some magical "the left" can deal with measles being spread because of the mocking of science and how how the CDC is now a total mockery?
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3p6pr/
+
+A hot beautiful woman shamed men for superficial and shallow looks, so it's OK. Reddit flocks to signals of being anti-deep about psycological problems caused by Russian information warfare since year 2013.
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3tj8b/
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni3uk46/
+
+Reddit went higher? Reddit went to promoting Jen Senko's cult deprogramming? Oh, teaching cult deprogramming on social media instead of mocking, that isn't higher? Education and compassion lessons, remedial love lessons, that isn't higher. Only name calling and hate messaging. Why hasn't social media made Jen Senko a household hame for standing up to Rupert Murdoch and the fiction brainwashing? All people care about is *hate harder*, hate left, hate rght, everybody hate the out-group! No concern for NONFICTION learning about the crisis of brainwashing. https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni42i4p/
+
+Oh, ok, so going low towaards Putin is not dangerous. going up up the Pyramid of the Great Seal of the United States of America education form the founding fathers, that's what's dangerous. Learning and education "going high" is dangerous. But not using social media infiltrated by the Internet Research Agency to suck down hate mindsets, that's not dangerous. Hate of men will fix the situation! More hate always betters the world, that's how people keep behaving, that's how FUCKED OVER the Cambridge Analytica has done on their mind, that the answer is ALWAYS avoid nonfiction learning and always more hate. OPERA_A https://www.youtube.com/watch?v=8bfyS-S-IJs
+
+https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni4sr0w/
+
+Putin hasn't accepted that weapon systems won't change the behaivor of Ukraine people. Bullets and shots to the head do in fact change behaviors, a dead person doesn't behave the same as alive. Killing outsiders and forcing them into prison and deporting people to a place they have no jobs or friends does indeed change their behavior. What ignorance on Reddit.
