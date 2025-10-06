@@ -1214,3 +1214,22 @@ Oh, ok, so going low towaards Putin is not dangerous. going up up the Pyramid of
 https://old.reddit.com/r/politics/comments/1nzo29i/aoc_mocks_short_troll_stephen_miller_and_urges/ni4sr0w/
 
 Putin hasn't accepted that weapon systems won't change the behaivor of Ukraine people. Bullets and shots to the head do in fact change behaviors, a dead person doesn't behave the same as alive. Killing outsiders and forcing them into prison and deporting people to a place they have no jobs or friends does indeed change their behavior. What ignorance on Reddit.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people_to_stop_sending/ni45b52/
+
+https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people_to_stop_sending/ni4gbxv/
+
+I didn't see many people saying "everyone's grief journey is different" about Charlie Kirk's wife on the front page of Reddit this past few weeks.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people_to_stop_sending/ni473jp/
+
+Fictioon addicts to films (Robin Willions actor) and entertainment conedy performances on a stage want more fiction to run lives. That's why Reddit creates so much poop-diaper orange-skin fiction of Donald Trump, people eating up the Tony Clifton performance.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people_to_stop_sending/ni4akpd/
+
+Tiny-short message with 100% logic. How facebook influences behavior but not Reddit. Fiction addiction on Reddit is popular, often just a different set of fiction than Facebook users. And on Facebook, people often share their real city, their real photographs, their real name, their real place of work. All of which Reddit avoids in favor of hiding and being afraid of humanism. Self-dehumanizing.
+
+https://old.reddit.com/r/Fauxmoi/comments/1nzrjim/zelda_williams_asks_for_people_to_stop_sending/ni457qj/
+
+"Jesus Christ" opening to this Reddit message. People do not study comparative mythology and see how people keep creating statues and images of dead characters from science fiction stories. Fan fiction of people they have never met. Humans flock to fiction monomyth story patterns. Robin Willions made a lot of money selling fiction stories to audiences and pulling their heart-strings with monomyth story patterns.
+
