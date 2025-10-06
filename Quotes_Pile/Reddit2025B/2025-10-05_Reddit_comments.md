@@ -1002,4 +1002,15 @@ https://old.reddit.com/r/CringeTikToks/comments/1nzkjou/mike_johnson_let_me_look
 
 Extremely short messages, Twitter-length, that can't describe Russian information warfare techniques and methods. Putin flying into Alaska to meet isn't enough for people to at least ponder how sus it looks.  This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/clevercomebacks/comments/1nzn28n/welcome_in_the_us_of_today/ni3b1v2/
+
+Exactly. Podcasters (Charlie Kirk) and Realty TV stars (Donald Trump) are what people flock to in media addictions. Especially since both sold fiction storytelling over nonfiction. Trump Bible for $59.99 and Charlie Kirk Bible science fiction media venues / media platform ("Talking Point Faith" formed in year 2021. March 17, 2021 story https://religionnews.com/2021/03/17/charlie-kirk-out-at-liberty-universitys-falkirk-center/ ).
+
+https://old.reddit.com/r/clevercomebacks/comments/1nzn28n/welcome_in_the_us_of_today/ni3d8el/
+
+Satire-washing serous problems in society with people addicted and following satire signals right into self-harm at the hands of Putin's media techniques.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nzn28n/welcome_in_the_us_of_today/ni3inic/
+
+People insist that somehow political murder is somehow better death than other murders. Unable to condemn all muders and all hate because they have programmed thier minds to normalize and embrace murder if it is team sports, team A against team B.
 
