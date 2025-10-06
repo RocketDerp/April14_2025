@@ -3,7 +3,8 @@
 Some would say I'm a lost man in a lost world
 
 One person in all my travels.  Sting.  https://www.youtube.com/watch?v=7km4EHgkQiw     
-One person in all my traavels. Styx.  https://www.youtube.com/watch?v=_fzJGxpcenc     
+One person in all my travels. Styx.  https://www.youtube.com/watch?v=_fzJGxpcenc     
+The February 28, 1954 Equation is in every public library.   https://www.youtube.com/watch?v=5EJdEdk9g2E   
 
 If the world just passed us by... just one person. Alas, the toxic society / parenting in Palestine / parenting under Mutually Assuredd Destruction.
 
