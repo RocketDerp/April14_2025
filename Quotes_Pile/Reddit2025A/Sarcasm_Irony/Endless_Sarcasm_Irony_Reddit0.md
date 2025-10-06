@@ -2,6 +2,7 @@
 
 ++ Paradox   
 ++ Surreal   
+++ Endless attraction to Trump images and icons / status symbol of rich    
 
 &nbsp;
 
@@ -672,5 +673,13 @@ https://old.reddit.com/r/bonehurtingjuice/comments/1ns3qnt/ouch_oof_my_pedofiles
 That has been no sustained call for intelelctual arms on social media. People drown out nonfiction critical learning with nonfiction addictions and mockery. People saw MAGA form around clusters of fiction like Fox News, but no sustained focus on making Jen Senko a household name and organizing repeating the same nonfiction teachings. The high road was teaching Neil Postman and Peter P, not mocking on  meme sites for 10 years. Standing up for mocking isn't ANY high road, it is a low raod We The People took at Russia's direction.
 https://old.reddit.com/r/CringeTikToks/comments/1ntsxi6/i_fear_they_dont_know_what_fascism_is/
 
+&nbsp;
+
 Front page of Reddit. The Title calls out the paradox. The image contains a paradox. yet people on Reddit can't go to the nonfiction secton of the public libray and study and learn if perhaps *paradox has been weaponized*, if mind-fucking by Cambridge Analytica and Surkov students is based on absurd / surreal / paradox communications and message patterns to create an obdient population that hands over power and wealth! Eating the Surkovian onions. Unable to grasp the mental mechanics of a Tony Clifton media show.       
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1nzhv39/like_a_dog_chasing_its_own_tail/
+
+&nbsp;
+
+More worshp of Donald Trump image. People have blown thier minds out. minds blown, on mocking and satire and can not get enough of images and icons of Trump. People have no self-awareness of why Trump brand and orange skin color and recogition works on their brains. Mocking Trump is not resisting a Tony Clifton performance. This is how Surkov and Putin governing has worked in Russia for 25 years! Mind-fucking via symbolism and images and pattens of monomyth. Private jet status sybols, "Epstein Jet", the Jet Set Willie penis lifestyle.    
+https://old.reddit.com/r/pics/comments/1nzk6oi/besties/
+
