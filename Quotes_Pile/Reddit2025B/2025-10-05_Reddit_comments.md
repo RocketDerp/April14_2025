@@ -1092,4 +1092,42 @@ https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni
 
 Behaviors that blow the minds of Reddit audiences. Surkovian techniques. Bible cult fiction techniques. People loyal to the mythology of society.  ... ... ...
 Furthermore, says Dante, “If you have two friends, and one of them is truth, truth is the friend that you must honor.” - [1961](../Joseph_Campbell_Quotes.md) ... ... ...
-"And everyone is challenged in his loyalty — are you going to be loyal to the tradition, to the form, to the morality and myth of your society, or are you going to be loyal to truth? They are two different things. This is the problem in teaching; this is the problem in bringing up your children; this is the problem that was beside me there at the lunch counter." - [Joseph Campbell](../Specific/Joseph_Campbell_Loyalty_Myth.md)
+"And everyone is challenged in his loyalty — are you going to be loyal to the tradition, to the form, to the morality and myth of your society, or are you going to be loyal to truth? They are two different things." - [Joseph Campbell 1961](../Specific/Joseph_Campbell_Loyalty_Myth.md)
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni3vft9/
+
+We don't teach comparative mythology to every person, we don't teach about Edward Bernays to every person, we don't teach media ecology to evey person. We let advertising saturate and fund "free" social media sistes and other media without educating people of the side-effects. We don' teach people to have "fire drills for mob mentality and cult outbreaks.
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni2ug3h/
+
+Mythology loyalty vs. real reality truth loyalty. ... ... ... 
+"And everyone is challenged in his loyalty — are you going to **be loyal to the tradition, to the form, to the morality and myth of your society**, or are you going to be loyal to truth? They are two different things." - [Joseph Campbell 1961](../Specific/Joseph_Campbell_Loyalty_Myth.md)
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni300oe/
+
+A symptom of cult programming. Putin announced that gender, trans gender, traditional gender roles would be the main thurst of the Conservative International 2013 movement. See this from December 20, 2013: https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni300oe/
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni29jg3/
+
+Reality of science nonfiction, or mythology fiction. People on Reddit commenting don't prefer nonfiction citations and quotes and avoid them heavily since year 2013. ... ... ... 
+"Now this is a very serious affair. It is serious because these symbolic worlds were the supports of the civilizations, of the moralities of the civilizations, of the self-confidence of the civilizations, of the vitality and creative power of the civilizations. And with the cutting down, the frustrating of the self-confidence that derives from images of this kind, there is a disequilibrium within the society itself. And everyone is challenged in his loyalty — are you going to **be loyal to the tradition, to the form, to the morality and myth of your society**, or are you going to be loyal to truth? They are two different things." - [Joseph Campbell 1961](../Specific/Joseph_Campbell_Loyalty_Myth.md)
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni2dyhw/
+
+Absurd surreal antics induces laughter that resets the mind into recency bias. Surreal / absurd Surkov governing of Russia methods.
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni3qxf4/
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni2ef09/
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni2gzn9/
+
+Brainwashed how? What has social media done to confront the brainwashing? Why hasn't Reddit and Bluesky made Jen Senko a household name and repeter her 2015 film every day in the face of this Putin mind-fucking and Russian brainwashing of Americans? Disposable commenting messages that people keep creating with free time and spare time and avoidant of nonfiction teaching about the crisis. Jen Senko's year 2015 film: https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni2ev1w/
+
+Over a decade. The Russin War Against Reality launched Q2 2013, the Internet Research Agency. Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/inflation/comments/1nziapj/just_happened_in_9_months/ni3midg/
+
+Note the Reddit community downvoting of a comment that cites names, dates, and not just "off the cuff" conversation comments that gets lots of upvotes.
