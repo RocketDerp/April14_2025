@@ -866,3 +866,19 @@ https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down
 
 Upending reality in favor of people addicted to mockery, mocking the White House, mocking goodness, mocking nonfiction learning about mob mentality.
 
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2gh07/
+
+Don't fight back against the Russian IRA braindamage. 
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni25ax5/
+
+Of course you can. That's what military boot camp / military training techniques do all over the world. That's what Cambridge Analytica mastered with Reddit audiences, self-dehumanization, hate as motivation. We have known since February 28, 1954 that all hate is bad, but we feed hate right into our minds as teaching and traing and praise out-group hate messages.
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni2b8jl/
+
+Recency bias of Project 2025. People can not even recall this is not Trump's first year as President. This was all [planned November 7, 2012](../Cambridge_Analytica_Quotes.md). **Russia is gloating in our face February 12, 2019** https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
+
+https://old.reddit.com/r/NoFilterNews/comments/1nzh68k/stephen_miller_melts_down_as_maga_is_blamed_for/ni26pze/
+
+And yet, we are drowning out getting on that same page of encyclopedia with low-effort high-volume high-speed commenting. Anything to avoid nonfiction learning and begging others to stop their entertainment addictions long enough to take nonfiction learning of critical important topics seriously.
+
