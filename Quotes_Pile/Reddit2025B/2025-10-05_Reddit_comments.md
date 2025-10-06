@@ -912,3 +912,17 @@ https://old.reddit.com/r/clevercomebacks/comments/1nzhfvt/well_said_queen/ni22i4
 The nonfiction section of the public library? No way, you can't get a Reddit user to engage nonfiction learning of The Great Seal of the USA, let alone The Constitution. The Founding Fathers had a lesson about **media systems, the media, the press**. That's what that pyramid on the dollar bill is all about teaching. We The People, were not educated on art symbolism and symbolic meanings of the founding fathers. ... ... ...
 "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that **all of this has been virtually totally forgotten by our days**. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that **we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible** this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
 
+https://old.reddit.com/r/clevercomebacks/comments/1nzhfvt/well_said_queen/ni22v61/
+
+Comedy for Reddit audiences. People eat up the Tony Clifton performances of the White House. Eating the Surkovian onons over and ove and over on meme mills. Funny, entrtaining, engaging content. ... ... ...
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/clevercomebacks/comments/1nzhfvt/well_said_queen/ni24jvu/
+
+Hate, lies, manipulation, fiction storytelling. Above all, Fox News fiction storytelling, IRA monomyth story patterns, Truth Social fiction storytelling. Low-effort Reddit commenting entertainment, avoidance of nonfiction serous learninga bout media ecology and defense against Russina information warfare.
+
+https://old.reddit.com/r/clevercomebacks/comments/1nzhfvt/well_said_queen/ni257ds/
+
+Spare time and free time of USA society flocks to superficial shallow banal. That's why Trump dresses up like Tony Clifton, it works. audience eats it up.
+
