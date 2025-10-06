@@ -1054,3 +1054,7 @@ https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_
 
 Declaring it a cult. **No urgent call to the community to rescue peole with nonfiction cult deprogramming**. Russian IRA originated brainrot, media cults brainrot. Same with Reddit community brainrot to avoid nonfiction learning. Why haven't the Reddit community sustained focus and repeating of important topics? Such as why hasn't Reddit made this front-page every 48 hours, over and over? ... ... ...
 **"The 'Shared Psychosis' of Donald Trump** and His Loyalists January 11, 2021 — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/politics/comments/1nzkfnh/trump_tells_the_navy_to_view_half_the_country_as/ni2wsgp/
+
+Every person age 12 to age 120 needs a crash-course education on media ecology. People make these tiny-short messages of Twitter-thinking patterns that nothing has changed. They do not recognized 4G mobile neworks vs 5G mobile networks and how Elon Musk purchased Twitter in year 2022, they can't recognize media ecology changes and severely need to study and learn that Putin's IRA invaded since year 2013 on Reddit and that is still ongoing (organizations name changed). The Apple iPhone in year 2007 dramatically changed behaviors and thinking patterns in USA and people are not educated to be self-aware of how media systems influences their minds.
