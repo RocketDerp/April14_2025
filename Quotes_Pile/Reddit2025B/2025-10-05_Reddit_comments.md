@@ -1352,3 +1352,16 @@ Nobody is defending against Putin, it's all USA blaming USA, exactly as conditio
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1nzyral/yes_you_did_you_voted_for_all_of_this/ni5om1t/
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nzyral/yes_you_did_you_voted_for_all_of_this/ni5qpgi/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzv98t/trump_recently_they_said_they_found_billions_of/ni50z0p/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzv98t/trump_recently_they_said_they_found_billions_of/ni54dh7/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzv98t/trump_recently_they_said_they_found_billions_of/ni56tge/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzv98t/trump_recently_they_said_they_found_billions_of/ni4z34v/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzv98t/trump_recently_they_said_they_found_billions_of/ni51hdr/
+
+https://old.reddit.com/r/CringeTikToks/comments/1nzv98t/trump_recently_they_said_they_found_billions_of/ni51nrm/
