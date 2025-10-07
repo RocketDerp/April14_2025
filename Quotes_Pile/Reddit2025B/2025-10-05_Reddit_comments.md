@@ -1395,3 +1395,15 @@ https://old.reddit.com/r/law/comments/1nzx4hi/trump_threatens_to_invoke_insurrec
 https://old.reddit.com/r/law/comments/1nzx4hi/trump_threatens_to_invoke_insurrection_act_in/ni5j1te/
 
 https://old.reddit.com/r/law/comments/1nzx4hi/trump_threatens_to_invoke_insurrection_act_in/ni5gu2m/
+
+https://old.reddit.com/r/law/comments/1nzx4hi/trump_threatens_to_invoke_insurrection_act_in/ni5hyq8/
+
+https://old.reddit.com/r/law/comments/1nzx4hi/trump_threatens_to_invoke_insurrection_act_in/ni5pptz/
+
+https://old.reddit.com/r/law/comments/1nzx4hi/trump_threatens_to_invoke_insurrection_act_in/ni63ory/
+
+https://old.reddit.com/r/law/comments/1nzx4hi/trump_threatens_to_invoke_insurrection_act_in/ni5hun2/
+
+https://old.reddit.com/r/law/comments/1nzx4hi/trump_threatens_to_invoke_insurrection_act_in/ni5dtq2/
+
+This kind of logic is like saying Putin can't self-harm Russia in year 1999 because Russia didn't land on the moon first. Like human events must follow a specific pattern to the T or it isn't negative. The Taliban fucked-over Swat Valley Pakistan and they didn't use a Nazi plant of Germany 1930's. There have been self-harm and civil war all thoughout history who didn't follow a specific Nazi Germany pattern. People have eaten the symbolism they can't recongize that hate is self-harm. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
