@@ -1445,3 +1445,9 @@ https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_am
 
 Let's do the math here. The Republican party already "owns the conservatives" via Fox News HDTV, and now "owns the libs" via social media audiences, who is not owned? Owning EVERYONE. ... ... ...
 "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements**, exploiting and rendering them absurd. One moment Surkov would  ..." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014**
+
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/ni8me72/
+
+It's a proven system. Saudi Arabia and Mecca science fiction theme park (comparable to Disney Star Wars science fiction theme parks) has been owning the populations... that's the "old world order" as defined by the Great Seal of the United States of Ameiica. What has happaned is nonfiction has been avandooned in favor of fiction storytelling, low-effort high volume commenting consumption on meme amusement mills.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/ni9bvcm/?context=3
