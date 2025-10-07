@@ -4,7 +4,7 @@ https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_am
 
 &nbsp;
 
-&nbps;
+&nbsp;
 
 &nbsp;
 
