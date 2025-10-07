@@ -1320,3 +1320,35 @@ Prizing the tears and suffering of others. Out-group attraction.
 
 https://old.reddit.com/r/TikTokCringe/comments/1nztwly/and_everybody_just_lets_it_happen/ni4zru5/
 
+https://old.reddit.com/r/TikTokCringe/comments/1nztwly/and_everybody_just_lets_it_happen/ni50aib/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nztwly/and_everybody_just_lets_it_happen/ni4y65i/
+
+The patterns of angering people are so pedictable, outside their media consumption conform zone.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nztwly/and_everybody_just_lets_it_happen/ni4umwp/
+
+https://old.reddit.com/r/TikTokCringe/comments/1nztwly/and_everybody_just_lets_it_happen/ni4v1f4/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nzyral/yes_you_did_you_voted_for_all_of_this/ni5mqkn/
+
+All people who have ignored the alternate-reality Fox News / altenate reality subreddit / alternate reality MAGA / alternate reality Facebook / altenate reality growing problems and not gone to REAL NONFICTION learning ont he subject have abandoned reality / abandoned goodness / abandoned humanism in favor of media consumption.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nzyral/yes_you_did_you_voted_for_all_of_this/ni5ovd6/
+
+The Reddit community this comment is in, is a mocking community, it is a nation with total faith in mocking. the only slight difference in the faith is WHO to mock. Like the 3 Levant religions have devolved into, out-group mocking and out-group hate but all beleving science fiction of magical angels messaging, and moses messaging.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nzyral/yes_you_did_you_voted_for_all_of_this/ni5zlg0/
+
+No, they are influencers, they care about audiences. People care about food, peole care about having attention, it isn't just money. Simple-think twitter-think short-length ideas. Fiction actors will play many roles, and often do roles for no money at all, because people like acting and entertaining. Clergy all over the world shares stories of fiction to people out of acting desire, not just for money.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nzyral/yes_you_did_you_voted_for_all_of_this/ni5orru/
+
+The reality is Reddit community won't cite author names, book titles, about the war against reality. People think they know better how clergy works with mythology, the history of comprative mythology, people don't even know how to name Cambridge Analytica but can mame football stars... CA is way more important too the future of your children. People can't name the Internet Research Agency. 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nzyral/yes_you_did_you_voted_for_all_of_this/ni5nxzm/
+
+Nobody is defending against Putin, it's all USA blaming USA, exactly as conditioned by the IRA.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1nzyral/yes_you_did_you_voted_for_all_of_this/ni5om1t/
+
