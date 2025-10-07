@@ -1283,3 +1283,40 @@ https://old.reddit.com/r/CringeTikToks/comments/1nzs4e0/i_am_speechless_guys/ni4
 
 Fiction storytelling is far far far more popular than nonfiction learning and science teaching. People on social sites like Reddit and Bluesky drown in low-effort high-volume commenting and will not engage nonficton learning from books on what is going on. And SUSTAIN focus on those books and repeat them until every person is on the *same page* of said books.  ... ... ... 
 “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.” ― Christopher Wylie, Mindf*ck: Cambridge Analytica and the Plot to Break America, page 85. year 2019
+
+https://old.reddit.com/r/news/comments/1nzqtyv/cdc_drops_universal_covid_vaccine_recommendations/ni40bl0/
+
+https://old.reddit.com/r/news/comments/1nzqtyv/cdc_drops_universal_covid_vaccine_recommendations/ni46d44/
+
+https://old.reddit.com/r/news/comments/1nzqtyv/cdc_drops_universal_covid_vaccine_recommendations/ni414ue/
+
+https://old.reddit.com/r/news/comments/1nzqtyv/cdc_drops_universal_covid_vaccine_recommendations/ni43afy/
+
+https://old.reddit.com/r/news/comments/1nzqtyv/cdc_drops_universal_covid_vaccine_recommendations/ni490z8/
+
+https://old.reddit.com/r/news/comments/1nzqtyv/cdc_drops_universal_covid_vaccine_recommendations/ni5acih/
+
+https://old.reddit.com/r/Music/comments/1nzum25/maga_turns_on_country_star_zach_bryan_over_teaser/ni4xa8k/
+
+https://old.reddit.com/r/Music/comments/1nzum25/maga_turns_on_country_star_zach_bryan_over_teaser/ni4xmuq/
+
+https://old.reddit.com/r/Music/comments/1nzum25/maga_turns_on_country_star_zach_bryan_over_teaser/ni4yl52/
+
+https://old.reddit.com/r/Music/comments/1nzum25/maga_turns_on_country_star_zach_bryan_over_teaser/ni4z2g9/
+
+https://old.reddit.com/r/Music/comments/1nzum25/maga_turns_on_country_star_zach_bryan_over_teaser/ni5l0bx/
+
+https://old.reddit.com/r/Music/comments/1nzum25/maga_turns_on_country_star_zach_bryan_over_teaser/ni4viwu/
+
+Evidence of alternate-reality abounds, but people won't take media ecology defense seriously.
+
+https://old.reddit.com/r/Music/comments/1nzum25/maga_turns_on_country_star_zach_bryan_over_teaser/ni55b1c/
+
+There is a pretty clear pattern of avoiding nonfiction in favor of fiction. Monomyth stories over science.
+
+https://old.reddit.com/r/Music/comments/1nzum25/maga_turns_on_country_star_zach_bryan_over_teaser/ni4un68/
+
+Prizing the tears and suffering of others. Out-group attraction.
+
+https://old.reddit.com/r/TikTokCringe/comments/1nztwly/and_everybody_just_lets_it_happen/ni4zru5/
+
