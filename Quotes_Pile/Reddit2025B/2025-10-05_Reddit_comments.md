@@ -1450,4 +1450,6 @@ https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_am
 
 It's a proven system. Saudi Arabia and Mecca science fiction theme park (comparable to Disney Star Wars science fiction theme parks) has been owning the populations... that's the "old world order" as defined by the Great Seal of the United States of Ameiica. What has happaned is nonfiction has been avandooned in favor of fiction storytelling, low-effort high volume commenting consumption on meme amusement mills.
 
-https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/ni9bvcm/?context=3
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/ni9bvcm/
+
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/ni9pq3i/
