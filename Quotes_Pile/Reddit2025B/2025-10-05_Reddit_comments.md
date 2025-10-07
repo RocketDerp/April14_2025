@@ -1491,3 +1491,10 @@ https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_am
 https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/niar3p0/
 
 https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/niatbb6/
+
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/niauqzi/
+
+negging. Anything to turn audience away from the nonfiction 1985 book.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/niau1wl/
+
