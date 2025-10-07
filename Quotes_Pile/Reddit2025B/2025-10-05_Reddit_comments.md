@@ -1498,3 +1498,5 @@ negging. Anything to turn audience away from the nonfiction 1985 book.
 
 https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/niau1wl/
 
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/niay29r/
+
