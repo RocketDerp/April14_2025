@@ -1475,3 +1475,14 @@ https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_am
 https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/niagjgy/
 
 https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/niaib6k/
+
+Deleted tactic after reply now? <img width="2600" height="634" alt="image" src="https://github.com/user-attachments/assets/4feac041-e748-414c-8df7-de1bbe05579e" />
+
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/nianvqz/
+
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/nianruz/
+
+Unable to use the words or recognize "misunderstanidng", "comprehension", everyone else is a liar that can't bridge minds.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/nianm00/
+
