@@ -1575,3 +1575,60 @@ https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_a
 
 Fiction vs. nonfiction is a better measure than left vs. right.
 
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibzpav/
+
+Yes, how it is presented, the engagement, the addiction to turning less important events into priority "breakign news". About style addiction. "The Medium is The Mass Age", the style, the presentation method. The image around a MEME text over the text of the message itself, the payload. The wrapper is the message when you are scamming people with shrinkflation of nonfcition.
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibusel/
+
+Left vs. right is a brainrot measure. Fiction vs. nonfiction, "reason thinking" vs anti-reason. 
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibujjp/
+
+Deport yourself, self-deport, leave the nation, leave the USA...
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibu1tp/
+
+Reddit...
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibydsa/
+
+Deviants, lunatics, people outside the egoism filter-bubble.
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibo01x/
+
+Hey, but such a short message. no citation link, no book title, no author name. Tiny-short.
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibw4dg/
+
+ToDo: read this
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibz9t8/
+
+Fruit of. I tend to say "aftermath", "outcomes".
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibtam2/
+
+Toxic popularity. Poopularity itself has become toxic. 
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic3d0a/
+
+And the November 7, 2012 agreement...
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibler4/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/niboglb/
+
+This was publsihed nearly a decade ago. But people want commenting all on different pages, filter-bbuble, and not to get on the same page (page 13) of a topic. And sustain the topic until Jen Senko is a household name. ... ... ... 
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version." "It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibyx3p/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic5ep6/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic74hv/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibmdyu/
+
+Nonfiction, nonfiction is being abandoned. Sane page of important nonfiction. ... ... ...
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
