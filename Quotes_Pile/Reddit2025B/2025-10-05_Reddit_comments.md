@@ -1711,3 +1711,15 @@ https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_cu
 
 Calm down from hyper reality, Trump stimulation constantly.
 
+https://old.reddit.com/r/50501/comments/1o0jl1p/woman_shot_by_ice_agents_in_chicago_last_saturday/ni9sy9a/
+
+https://old.reddit.com/r/50501/comments/1o0jl1p/woman_shot_by_ice_agents_in_chicago_last_saturday/ni9xftb/
+
+https://old.reddit.com/r/50501/comments/1o0jl1p/woman_shot_by_ice_agents_in_chicago_last_saturday/nia1fef/
+
+https://old.reddit.com/r/50501/comments/1o0jl1p/woman_shot_by_ice_agents_in_chicago_last_saturday/nia9nqd/
+
+https://old.reddit.com/r/50501/comments/1o0jl1p/woman_shot_by_ice_agents_in_chicago_last_saturday/niaguw6/
+
+These messages are here on Reddit, but the best I can do is document how unpopular such messages are and how people will not sustain focus on the importance of everyone getting on the same page of these concerns. <img width="2298" height="1480" alt="image" src="https://github.com/user-attachments/assets/a98cc96c-d4cb-4082-85f9-a19ebf2bf0bc" />
+
