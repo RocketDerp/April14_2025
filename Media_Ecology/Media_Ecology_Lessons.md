@@ -767,3 +767,13 @@ The compiler that compiles the compile. The higher language to the self-hosted c
 https://www.youtube.com/watch?v=Fu3laL5VYdM    
 "The Original Sin of Computing...that no one can fix"     
 998 views October 8, 2025   
+
+&nbsp;
+
+### Attention-seeking advertisements
+
+All the things Marshall McLuhan said about adverts.     
+Rick Roderick story about McDonald's advert.    
+Earworms, Earwicker, mind-searing branding.
+
+https://old.reddit.com/r/UpliftingNews/comments/1o1kta5/gavin_newsom_signs_bill_that_restricts_loudness/
