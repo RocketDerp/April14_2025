@@ -2073,3 +2073,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1o1g8ku/streamer_asmongold_advoc
 
 Yes, the whole society. People will not get on the same page of goodness. Education, supprting Malala's education and teaching reformations since year 2013. People are flocking to self-harm leaders like Fox News and Trump and low-effort commenting more and more. It is a society-wide problem and CA and IRA have defeated the mindsets in the USA. It is a mass mind issue, mass man issue. We are educating ourselves into meme stupors with ficiton and entertainment attraction. We need to stop acting like programming minds with hate and dehumanization isn't a cause to our problems. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/LivestreamFail/comments/1o1hm0t/korean_streamer_murdered_after_arguing_with_vip/nigp0je/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o1hm0t/korean_streamer_murdered_after_arguing_with_vip/nih283r/
+
