@@ -2027,3 +2027,31 @@ Parents in USA made Putin and Donald Trump a role model and thing that is good f
 https://old.reddit.com/r/teenagers/comments/1o1dja3/i_hate_my_friends/nifxvrb/
 
 A very thin line, yha. 8 billion people on a world where hate is prized. As if theire isn't enough entertainment and comedy in the world that joke-washing reality itself isn't recognized as a problem. A REAL WORLD issue is being joke washed. Not fiction, reality itself washed with joke-wash liquid. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/law/comments/1o1l3cp/trump_we_took_the_freedom_of_speech_away_because/nih9hbq/
+
+No, Trump is not dumb, he is a master at getting poeple into reactionar mindsets of short popularity messaging. He is mind-fucking the audience using Surkov techniques of governing. And short tiny "Trump dumb" messages FOR OVER TEN YEARS AND THREE MONTHS ae not resistance to Kremlin media techniques, they are putting the Reddit audience into conditioned mindsets of mocking. Eating the Surkovian onions that this is dumb-stupid, when hundreds of people were involved in this stunt of banning flag burning and criticizing people for Charlie Kirk speech. It is an information warfare tactic of leadership, how Putin leads Russia, except way more high-speed and agressive in USA because that's what audiences on social meme sites admire and regard. Anti-intellectual shit-talk about how everyone else in the out-group is dumb and stupid and morons and instead of teaching and educating We The People, fixated on figureheads using the techniques.
+
+https://old.reddit.com/r/law/comments/1o1l3cp/trump_we_took_the_freedom_of_speech_away_because/nihbvzs/
+
+Self-harm to the USA as conditioned and manipualted by Putin has been warned about over and over. People are not studying the mechanics of Edward Bernays, Cambridge Analytica, Church / Musque / Temple / Mecca / inforatmion warfare. Hundreds of millions of people flock to Trump as Jesus / God.
+
+https://old.reddit.com/r/law/comments/1o1l3cp/trump_we_took_the_freedom_of_speech_away_because/nihgs7r/
+
+Ignoring Russian information warfare and monomyth society patterns in education is a huge mistake. Avoding teaching how cults and mob mentality works a massive oversight. Not making Jen Senko a househols name since year 2015 on Reddit, a huge mistake. This anti-goodness did not happen overnight, the IRA started in Q2 2013 invading USA media systems.
+
+https://old.reddit.com/r/law/comments/1o1l3cp/trump_we_took_the_freedom_of_speech_away_because/nihlqfg/
+
+Eletions are not going to fix CA aftermath and the addiction people have to low-effort high-speed commenting all over Bluesky, Reddit, Twitter, Facebook. People are constantly seeking shit media for stimulation, including Trump stimulating people into mock-back engagement.
+
+https://old.reddit.com/r/law/comments/1o1l3cp/trump_we_took_the_freedom_of_speech_away_because/nihigfg/
+
+Let the whole wrold continue to see what Russian information warfare ha done to the population of media addicts in USA who will not study nonfiction about media ecology.
+
+https://old.reddit.com/r/law/comments/1o1l3cp/trump_we_took_the_freedom_of_speech_away_because/nihfaqw/
+
+https://old.reddit.com/r/law/comments/1o1l3cp/trump_we_took_the_freedom_of_speech_away_because/nihiggl/
+
+This is Fox News HDTV featured on Reddit. ... ... ...
+"All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
