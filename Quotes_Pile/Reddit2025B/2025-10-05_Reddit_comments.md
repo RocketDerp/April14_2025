@@ -1723,3 +1723,37 @@ https://old.reddit.com/r/50501/comments/1o0jl1p/woman_shot_by_ice_agents_in_chic
 
 These messages are here on Reddit, but the best I can do is document how unpopular such messages are and how people will not sustain focus on the importance of everyone getting on the same page of these concerns. <img width="2298" height="1480" alt="image" src="https://github.com/user-attachments/assets/a98cc96c-d4cb-4082-85f9-a19ebf2bf0bc" />
 
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibmnjx/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic3tt9/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nicp1b8/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibw99k/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic9n2l/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nicisly/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic78i6/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibr6i0/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic4ich/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic4969/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic1oe0/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic9kv1/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nicpyll/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibv8hy/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibrakq/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nic66q1/
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibrkqu/
+
