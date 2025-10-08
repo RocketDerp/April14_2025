@@ -757,3 +757,13 @@ Measuring and numbers.  Tower of Babel tower climbing conflict experiences.
 Language of time is 60 minutes is a full hour. Language of USA currency is that 25 cents is one quarter, one of four, to 100 cents, one full dollar. So mixing one quarter of an hour with one quater of a dollar exposes a mental junction of thnking. The measurement of time units vs. measurement of money.
 
 https://old.reddit.com/r/MemeVideos/comments/1o1bd2b/the_embarrassment/
+
+&nbsp;
+
+### John 1:1 taken to software
+
+The compiler that compiles the compile. The higher language to the self-hosted compiler
+
+https://www.youtube.com/watch?v=Fu3laL5VYdM    
+"The Original Sin of Computing...that no one can fix"     
+998 views October 8, 2025   
