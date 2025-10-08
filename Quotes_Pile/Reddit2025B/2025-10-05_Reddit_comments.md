@@ -1759,3 +1759,46 @@ https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_a
 
 https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/nid11qf/
 
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nie4jeo/
+
+Holy shit, the replies to this comments. Films *allow us* to dream? Charlie Kirk context aside, the year 1924 Finnegans Wake Dream. Before film and television provided the dreams for Trumpland / Charlie Kirk land. ToDo: Campbell on public dream vs. private dream. As this is public dream of politics. Great Seal topics. ... ... ...
+"something’s different when we are in a world like that one… like this one. Clearly something significant has changed. And it has affected the very nature of what selves are. What humans are. What subjects are. When I talked about how my students had no dreams, I mean, what is there left to dream? When I was a kid I dreamed about dinosaurs. I had a little Walt Disney dinosaur book. Why would I need to dream about dinosaurs now? Steven Spielberg has made them. He has filmed them. They are more real than real dinosaurs. They are hyperreal. You would be disappointed if you saw a real Tyrannosaurus Rex after the movie. You would be disappointed. It wouldn’t be as noisy or as scary or as frightening. The same is true of Jaws, you know. I have actually caught some rather large sharks, I mean, I like to fish – you know, pier fish – so I have caught a few sharks, some of fairly good size. But those real experiences are so boring compared to Jaws. I mean Jaws is a hyperreal experience." - year 1993, https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nie8t2n/
+
+<img width="2560" height="2560" alt="image" src="https://github.com/user-attachments/assets/4a12fa37-b90c-44cf-a62a-cabce4426b50" /> My father was a graduate of Ohio State, by my parents born in Ohio... parents gifted me a shirt... and I wore a buckeye "leaf" shirt to schooland everyoen in Fort Wayne Indiana told me it was a pot leaf. I did not use drugs, I never tried canaibus until I was age 49 and traveled to legal stateof Colorado andl lived in RV. Maybe that public school experience influenced my later life experienced on how people reacted to symbolism and overloaded meanings ;)
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nie096u/
+
+But everyone who memorizes film images as "memes", SpongeBob images as "memes", and film-lines to quote on Reddit is normal. Songs were repeated by people before recording of music was created. Films andimages... Neil Postman topic. Trump content covered by every media system FOR OCER TEN YEARS AND THREE MONTHS is a horrible advertising and marketing experince of wealth being used to saturate our lives with an entertainer / sales man / branding of a family in real estate and other things for generations (Trump's father also in real estate).
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nie1sxc/
+
+Except comedy-washing Trump and Charlie Kirk is washing away the REAL reality, the humor-washing people use to deny reality. I wonder if there is a book on that subject, "Amusing Ourselves To Death" inspired...  
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nie37pi/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nidtm24/
+
+That's the crisis and problem. Our real lives, REALITY, are being fucked over by Charlie Kirk's year 2021 "TP Faith" Bible storytelling. Weaponized monomyth mind-fuck from Surkov students and CAs since year 2013 is not a joke. People are spending free time and spare time wrecking REAL USA Reality of science with comedy-washing amusement-washing. That's what Neil Postmany in NYC was noticing ahead of the curve of rural USA. This is the death Americans have embraced, death by amusement. Sadly, I think we will be harming  other nations, not just USA, we are a threat to the world that we have let our high-speed media systems / media networks feed everyone into meme stupors of self-harm as Neil Postamn described in year 1985. The holiday symbolism mindsets are starting now, the consumerism holidays of Halooween / Thanksgiving / Chiristmas and all the broken families from MAGA hate / Trump support hate, and the faith in *hate harder* that has been dominating USA society since January 2024... thatthe answer to Trump hate and MAGA hate is always more hate and more mocking. So much goodness has been abandoned.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nidr876/
+
+That's the horror of reading comments on Bluesky and Reddit (I can't keep up with other platforms, and don't log Bluesky on Github).... it is evident so many people write-only react-comment to sitautions asconditioned.... without reading what is alrady there. The stimulation that Charlie Kirk provides, the stimulation that Trump provides to people. So much free time and spare time spent in service to these status symbols / icons of society. Hate magnets, dehumanization magnets messages and signals. And how machines / amplifiers of content machines...uggghhh. USA is a mindset breeder reactor that is creating new Charlie Kirk hate messaging audiences, the macro level of all this, the forest level of all this is bad. And people are not crying out about the turning away from goodness itself.
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nie182a/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nidu2yp/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nidnis3/
+
+Yes.MAGA may have been the rural less-educated population that adopted the IRA and CA "own the out-group" first, but since January 2024 it has been "own the conservatives" on Bluesky and Reddit. The Bible symbolism of USA conservatives may have created Taliban mindsets first with the Surkov monomyth mindfuck patterns, but ultimately the anti-MAGA hate has become even more predictable. It is feedbackloops now since January 2024 of hate for hate, mock for mock, mock mock mockery. 
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nie1ez5/
+
+The message in the context of the age and history of this Reddit account.... laugh-track for social media audience. A probe to test just how far-gone the Reddit audience is in conditioned behaviors?
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nie8av1/
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nidrusk/
+
