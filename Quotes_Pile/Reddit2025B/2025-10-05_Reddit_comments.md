@@ -1677,3 +1677,19 @@ https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_cu
 
 Russia IRA and CA mind-fucked everyone into delcaring everyone else insane and crazy and stupid and idiot. Out-group vs. out-group. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic91f6/
+
+Denial abounds. “We drive into the future using only our rearview mirror.” https://mcluhangalaxy.wordpress.com/2010/11/10/marshall-mcluhan-futurist/
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nicaf8x/
+
+Maybe a nonfiction book on printed paper has more thought put into it into it than low-effort no-identity no-name Reddit commenting that people flock to. Maybe "getting on the same page" instead of the 5,000 patterns Cambridge Analytica created with the IRA...
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic9r7v/
+
+Trump is more improv Tony Clifton with the audience. Thoughtful scripting and effort put into communications isn't welcome, not thrilling enough like White House 2025 is constantly providing wild and crazy entertainment for Reddit audiences.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic70ku/
+
+Go away, deport happy, shut up woamn, etc.
+
