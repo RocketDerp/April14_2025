@@ -1802,3 +1802,68 @@ https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nie8av1/
 
 https://old.reddit.com/r/CuratedTumblr/comments/1o11yta/trolling/nidrusk/
 
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nid13hj/
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nidb6b4/
+
+Life or death. ToDo: Rick Roderick on images bombarding our minds to starve ourselves.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nidldaz/
+
+People are using meme stupor / comedy-washing to check out, no drugs required. Meme-washing reality to avoid the real truth. I've seen this living in the Middle East, denial of abuse and hate by media consumption to wash away reality. In this case, Reddit community discussing drugs to vaoid the reality.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nidoq3y/
+
+People saying they have been doing it all yaer 2025 with Trump second term.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nidxuj3/
+
+Science fiction Ready Player One, virtual rality where eral world was abandoned in favor of constant anti-reality content consumption.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nidkdxz/
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nie34i6/
+
+Yes, Rupert Murdoch, Facebook Mark Z, Elon Musk Twitter, Truth Social, sports team owners, Hollywood Andor TV show creators / Disney owners, all bombarding the poor telling them that the poor are the problem and corporate profits must grow and concentration of wealth in the hands of the few must grow. Rarely do I see people point out that with airports all over the world, TCP/IP all over the world, over 8 billion people. that the lifestyle of massive wealth growth for 8 billion people may be hitting a limit of finding easy oil and finding easy gold and trees and other schemes may be running out. That's one way that Ready Player One year 2040 might actually be a *good lifestyle* if people want to spend all their spare time and free time online with Fox News, at least an OPEN simulation of reality would be treated as fiction. Alas, Putin and Trump seem to want to kill off billions out of glory of a "war economy" and making headlines with conquest. Nightmares of technology used to attack Earth and humanity.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nie4g3q/
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nid3dev/
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nidqsiu/
+
+People are taught that big ratings / big numbers are important. Trump constantly talks about TV ratings of news and such. Elon Musk I am sure looks at ratings of Twitter, his coverage. People do not define a set of shared values and human interests, it's runaway media systems ratings driving USA. /r/All of Reddit... nightmares of anti-goodness pro-dehumanization.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nidyevh/
+
+These disposable comments seem informative, but no author names, no book titles, no links. They ar dead-end and people rush to the next post connenting with their free time/spare time. There is no concern that we don't all get on the same page. Cult deprogramming topic is not OPTIONAL in USA 2025. It's what we need to be focusing on the save goodness itself. Cult of hate and cult of dehuamnization is a horrible message cult.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nie3b9b/
+
+Skeptis of history, skeptics of raelity in favor of fiction.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nie5hls/
+
+Allah, Malala in Swat Valley Pakistan and the male Allah vs. girls / women.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nicmbaw/
+
+Yes. Bible thumpers who say we need more Jesus in our schools but can't face how Bible verse "1 John 3:17" is a judgement statement about Rupert Murdoch, Elon Musk, Donald Trump, Charlie Kirk Bible-thumping messages. Further, the anti-MAGA atheists on Reddit and Bluesky who don't see the metaphor literacy problem of BIble verse '1 John 3:17" being ignored. If the BIble is a choose-your-won adventure of cheery-picking, why would you NOT want to cherry-pick an authentic cherry of "1 John 3:17" and verse "1 John 4:20" - why are Reddit and Bluesky not coming together on teaching better Bible reading / literacy? If we can't get a 2,000 year old science fiction story down, what chance do we have with Fox News media reading and Facebook cherry-picking raeding? Democracy will not work if "hate thy neighbor" and "hate harder" is the programming society puts into minds as "winning". Hate is wrecking the USA, the abandonment of MLK Jr teachings and the lust for tehnology of media devices / touch devices / to dehumanize and hate harder in the face of Russia's media invasion since year 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nidd0ek/
+
+Why Malala's Quran reformation, reading nonfiction vs. fiction of the entire public library, was so imporant and a mistake that people since year 2013 have turned media systems toward Trump and not Malala. The Torah / Bible / Quran reading issues of cherry-picking hate was LOUDLY shared. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): MOYERS: “Holding their own head.” That is an interesting idea because, even though the cities emerge around them, within the soul, the place where the inner person dwells, they are still, as you say, in accord with nature.
+CAMPBELL: But in the Bible, eternity withdraws, and nature is corrupt, nature has fallen. In biblical thinking, we live in exile.
+MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future.
+MOYERS: What kind of new myth do we need?
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+MOYERS: There is something about that on the Great Seal of the United States.
+CAMPBELL: That’s what the Great Seal is all about. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_overrides_false_narrative/nidnoh8/
+
+Real cherry-picking. Does it matter WHICH science fiction story inspires people, the flocking to hate, flocking to dehumanization signals is a concern. Regardless of Star Wars Andor, Torah fiction, Bible science fiction, Quran science ficiton - if you cherry-pick the verses and scenes of hate and violence... we are in trouble! That's the crisis, focking to Trump hate, Trump mockery, MLK Jr mocking, Malalaa mocking, the flocking AWAY from goodness cherry-picking Malala is demonstrating and teaching.
+
+
+
