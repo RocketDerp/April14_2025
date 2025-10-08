@@ -1757,3 +1757,5 @@ https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_a
 
 https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibrkqu/
 
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/nid11qf/
+
