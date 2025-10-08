@@ -683,3 +683,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1nzhv39/like_a_dog_chasing_
 More worshp of Donald Trump image. People have blown thier minds out. minds blown, on mocking and satire and can not get enough of images and icons of Trump. People have no self-awareness of why Trump brand and orange skin color and recogition works on their brains. Mocking Trump is not resisting a Tony Clifton performance. This is how Surkov and Putin governing has worked in Russia for 25 years! Mind-fucking via symbolism and images and pattens of monomyth. Private jet status sybols, "Epstein Jet", the Jet Set Willie penis lifestyle.    
 https://old.reddit.com/r/pics/comments/1nzk6oi/besties/
 
+&nbsp;
+
+Describing the War Agaisnt Reality / Media Ecology change without recognizing it. Also this printed on a paper book and photographed, media ecology. Surkov bragged in February 2019. Pandemic May hte Frorce 2019 from Stephen Colbert. Peter P's 2nd book 2019. Cambridge Analtyica mindfuck two books by Christopher W in 2019. The alternate-reality was described in 2019 after discovery of IRA the previous couple years. And ChatGPT coming in 2022, also Twitter Elon Musk in 2022. Media huge waves of changes converging.    
+https://old.reddit.com/r/Adulting/comments/1o11pw4/why_do_i_feel_its_true/
