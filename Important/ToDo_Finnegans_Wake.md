@@ -7,3 +7,7 @@ https://old.reddit.com/r/comics/comments/1nzon4r/banned_books_gator_days/
 
 Finnegans Wake, languages, John 1:1 language, Satan bamboozle    
 https://old.reddit.com/r/NonPoliticalTwitter/comments/1nzo1li/found_in_the_wild/
+
+The hate reactions people have to coining new John 1:1 words without permission from god of society.    
+https://old.reddit.com/r/comedyheaven/comments/1o14in4/words/
+
