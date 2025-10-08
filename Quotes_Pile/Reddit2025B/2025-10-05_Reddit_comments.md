@@ -1651,3 +1651,29 @@ https://old.reddit.com/r/law/comments/1o0np7b/stephen_miller_says_trump_has_plen
 
 People cheer for the sports team total win, mob mentality.
 
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic68l8/
+
+Surkov's war of All Against All. Everyone hates Everyone. Peer to peer outcomes of the IRA, hate peer to peer. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic3syi/
+
+Permantent block, "never hear from her again", everything a person says blocked out in machine logic.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nicedxq/
+
+Insane. What kind of doctors worked for Cambridg Analtyica? By any means... "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nicef8s/
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic43sb/
+
+Bingo. Surkov students!
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic4u93/
+
+Shut up woman, go away woman, go away someone using a real name who understands the sitaution, let Reddit low-effort commenting and no-identity (real name concealed) messages be the center of learning and understanding.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nicfqso/
+
+Russia IRA and CA mind-fucked everyone into delcaring everyone else insane and crazy and stupid and idiot. Out-group vs. out-group. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
