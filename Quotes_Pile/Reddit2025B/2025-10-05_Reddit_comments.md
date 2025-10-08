@@ -1547,3 +1547,18 @@ https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_am
 https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/nic3jd2/
 
 https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/nic4hol/
+
+https://old.reddit.com/r/pics/comments/1o0syhc/us_national_guard_arriving_in_chicago_illinois/nibpftx/
+
+https://old.reddit.com/r/pics/comments/1o0syhc/us_national_guard_arriving_in_chicago_illinois/nibs0fr/
+
+Putin's birtday today, so people are writing fan fiction to the Kremlin "War Against Reality" since year 2013 and how far it has progressed.
+
+https://old.reddit.com/r/pics/comments/1o0syhc/us_national_guard_arriving_in_chicago_illinois/niby68n/
+
+https://old.reddit.com/r/pics/comments/1o0syhc/us_national_guard_arriving_in_chicago_illinois/nibsism/
+
+https://old.reddit.com/r/pics/comments/1o0syhc/us_national_guard_arriving_in_chicago_illinois/nibp68o/
+
+"MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
