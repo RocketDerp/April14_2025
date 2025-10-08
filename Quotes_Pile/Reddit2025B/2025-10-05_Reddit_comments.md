@@ -1877,3 +1877,19 @@ https://old.reddit.com/r/inflation/comments/1o0z97v/found_on_facebook/nieupcg/
 
 Front page of Reddit. The avoidance of dates and locations, just like comment secction avoids real name and locations of where people are communicating from. Constantly washing away context. ABOUT_WAKEINDRA NOTE_A of course, this entire GitHub you could claim I am taking out of context.But the links are there beyond the single-message to the greater context. And I am trying to build a narrative. I do not like this trajectory the USA has been on since year 2014, and it is accelerating into the bad directions / outcomes (Hell metaphor) in year 2025... and I wish people could read even 3 pages of Neil Postman's 1985 book "Amusing Ourselves to Death" and see the Fox News HDTV issue and social media issues and experiences ... and people call for ALL of us to get on the same page of the 184 page book and face up the defeat to the IRA / Kremlin / Putin and stop engaging media without Marshall McLuhan and Neil Postman levels of self-awareness of media cult behaviors / anti-nonfiction behaviors. Every person age 12 to age 120 in USA...
 
+https://old.reddit.com/r/PublicFreakout/comments/1o19o0k/masked_ice_sniper_shoots_a_priest_in_the_eye_with/nif3kbi/
+
+Describing the problem, but a lack of call for promtoing "1 John 3:17" Bible literacy in USA. "1 John 4:20"
+
+https://old.reddit.com/r/PublicFreakout/comments/1o19o0k/masked_ice_sniper_shoots_a_priest_in_the_eye_with/nif10vl/
+
+We need to be teaching remedial morality and comparative mythology. We can not keep letting conflicts over science fiction storytelling intrepretation / fandom of science fiction Bible / Torah / Quran be hate and violence. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/PublicFreakout/comments/1o19o0k/masked_ice_sniper_shoots_a_priest_in_the_eye_with/nif2ldx/
+
+Thomas Jefferson year 1820 Bible. I can't find people in USA who are educated. Even Power of Myth 1988 didn't cover that topic.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o19o0k/masked_ice_sniper_shoots_a_priest_in_the_eye_with/nif1ijo/
+
+People find the inverted monomyth patterns amusing / funny / entertaining. There is an attraction to Trump for the entertainment he provides. Reddit audiences keep being drawn to the values and tactics of Trump. Not to say "we need more love, we need to be teaching remedial Bible literacy, reformation of USA clergy"... but instead a humor-based entertainment and amusement at the sitautions Trump inspires and originates. Antics politics, Surkovian governing.
+
