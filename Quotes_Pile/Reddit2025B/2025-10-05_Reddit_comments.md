@@ -2091,3 +2091,13 @@ https://old.reddit.com/r/HistoryPorn/comments/1o1hb0p/after_84_years_historians_
 
 https://old.reddit.com/r/FBI/comments/1o1fm7a/fbi_shuts_down_corruption_group_fires_agents/nih5oyd/
 
+https://old.reddit.com/r/CringeTikToks/comments/1o1o5y1/kristi_noem_says_antifa_is_just_as_dangerous_as/nihv0e8/
+
+Yes. But what we do in USA is a very popular free time and spare time activity called asking questions on social media instead of providing book names, author names, links to articles. "falls under the broader umbrella of social media engagement questions or audience interaction queries, which aim to boost conversation and gather insights by encouraging followers to comment, participate in polls, or respond to open-ended prompts." - What we do not need is more low-effort high-speed commenting, we need sober up from IRA and CA mental manipulation and start teaching nonfiction media ecology and stand up for goodness itself. Mockery is not worth dying for, nonfiction education is a cause worth risking for.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1o5y1/kristi_noem_says_antifa_is_just_as_dangerous_as/nihzpng/
+
+Exactly, what they are scared of is nonfiction learning, "too boring". They are attracted to hate and badness and we need to address that joy and love, love for strangers, is goodness and worth the effort.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1o5y1/kristi_noem_says_antifa_is_just_as_dangerous_as/nihzt0z/
+
