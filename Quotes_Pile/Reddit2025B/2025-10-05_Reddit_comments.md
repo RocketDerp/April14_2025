@@ -1912,3 +1912,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1o19o0k/masked_ice_sniper_shoot
 
 Why do you require political parties? Why can people assert thier failure here and now, point to the failure of poltical party mindsets. Why are people with free time and spare time on social media not making NAMED LISTS of values they wwant. The Seconc Bill of Rights from January 1944, for example. Instead, people keep talking left vs right, conservative vs. liberal, party vs party... instead of describing the changes and ideas they want for the future. Multiple GOOD ideas to choose from, not a team sports mentality of "winner takes all" and defeating. Goodness isn't about *defeating* anyone. It's about picking the best of many good ideas. ... ... ...
 "That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - November 11, 1957. MLK Jr.
+
+https://old.reddit.com/r/ABoringDystopia/comments/1o16rwk/flotilla_we_have_no_news_from_french_mp_alma/nifcb8w/
+
+Dehumanizing image consumers.
