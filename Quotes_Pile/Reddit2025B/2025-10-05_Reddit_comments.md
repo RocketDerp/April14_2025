@@ -1865,5 +1865,10 @@ https://old.reddit.com/r/MurderedByWords/comments/1o0xcn7/real_world_experience_
 
 Real cherry-picking. Does it matter WHICH science fiction story inspires people, the flocking to hate, flocking to dehumanization signals is a concern. Regardless of Star Wars Andor, Torah fiction, Bible science fiction, Quran science ficiton - if you cherry-pick the verses and scenes of hate and violence... we are in trouble! That's the crisis, focking to Trump hate, Trump mockery, MLK Jr mocking, Malalaa mocking, the flocking AWAY from goodness cherry-picking Malala is demonstrating and teaching.
 
+https://old.reddit.com/r/PublicFreakout/comments/1o0z1fj/snipers_aim_for_peaceful_protesters_in_portland/nie5srw/
 
+Inspiring comment. <img width="1202" height="644" alt="Screenshot from 2025-10-08 05-23-43" src="https://github.com/user-attachments/assets/6df3d805-70d5-4ce0-b941-f766529e96ee" />
 
+https://old.reddit.com/r/SipsTea/comments/1o11xa5/good_lord_save_me/nie900b/
+
+And the John 1:1 implanted childhood Bible science fiction memes, or Star Wars memes, language.
