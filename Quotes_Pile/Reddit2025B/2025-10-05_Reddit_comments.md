@@ -2020,3 +2020,10 @@ https://old.reddit.com/r/Gamingcirclejerk/comments/1o1dtmp/aside_from_the_what/n
 Conserving what exactly? The entire world wide web / social media has grey-rocked Malala since year 2013. Not promoting her and citing her with free time and spare time. To give young girls, future mothers, a voice and education on modern morality and reason thinking. Why are people not standing up and pointing at Malala as a good leader, and instead constantly flocking to video-game leaders and Reality TV entertainer leaders (Trump). What exactly are conservatives conserving? Malala is the point drawing circles around all those topics with children / education / teaching / learning / comprehension / understanding. Malala sees this as a brain issue, education and input, on a global scale of everyone. She has traveled around the world demonstrating this, she even came to the USA! Why does this YouTube video have so low of view count? Why are Reddit, Bluesky, other social media platforms avoiding goodness and reformation of terrism and education? ... ... ...
 "Malala Yousafzai at Ebenezer Baptist Church, Sunday September 3, 2017" 375,255 views September 4, 2017 https://www.youtube.com/watch?v=okGlFU3YW_k
 
+https://old.reddit.com/r/teenagers/comments/1o1dja3/i_hate_my_friends/nigjlic/
+
+Parents in USA made Putin and Donald Trump a role model and thing that is good for the future of the USA.
+
+https://old.reddit.com/r/teenagers/comments/1o1dja3/i_hate_my_friends/nifxvrb/
+
+A very thin line, yha. 8 billion people on a world where hate is prized. As if theire isn't enough entertainment and comedy in the world that joke-washing reality itself isn't recognized as a problem. A REAL WORLD issue is being joke washed. Not fiction, reality itself washed with joke-wash liquid. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
