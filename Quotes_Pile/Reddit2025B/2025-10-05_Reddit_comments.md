@@ -1916,3 +1916,23 @@ Why do you require political parties? Why can people assert thier failure here a
 https://old.reddit.com/r/ABoringDystopia/comments/1o16rwk/flotilla_we_have_no_news_from_french_mp_alma/nifcb8w/
 
 Dehumanizing image consumers.
+
+https://old.reddit.com/r/politics/comments/1o16xxq/fox_news_host_bizarrely_declares_aoc_wants_to/nieoo38/
+
+As if Twitter and Reddit with no-identity messages isn't far far worse. People on Fox News use real names and faces, not sending hate mesages without even identity like Reddit community. The lack of self-awareness of media ecology had wrecked the nation. Out-group blamed for everything. Reddit vs. Fox News. Fiction vs. Fiction bullshit, all avoiding sustained focus on nonfiction serious learning in favor of constnatly turning all topics into amusement and entertainment.
+
+https://old.reddit.com/r/politics/comments/1o16xxq/fox_news_host_bizarrely_declares_aoc_wants_to/nif8f9k/
+
+What does the Mosque media network churn out in Palestine? What does the synagogue media venue churn out in Israel? What does the Church media network churn out in USA? What does Reddit media churn out? ALL media consumption is learning and education. Wrapping it in Reddit memes, Facebook memes, Fox News HDTV memes does not undo the educaiton and learning, the mindsets, created by consumption of information. It creates shared group knowledge, "mass man" mindsets. Peole who think they have the same values in common, when they have consumed the same Church or Fox News or Reddit content. ... ... ...
+“Public education does not serve a public. It creates a public. And in creating the right kind of public, the schools contribute toward strengthening the spiritual basis of the American Creed. That is how Jefferson understood it, how Horace Mann understood it, how John Dewey understood it, and in fact, there is no other way to understand it. The question is not, Does or doesn't public schooling create a public? The question is, What kind of public does it create? A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens?" ― Neil Postman, The End of Education: Redefining the Value of School. September 1995. Eternal September Year One.
+
+https://old.reddit.com/r/politics/comments/1o16xxq/fox_news_host_bizarrely_declares_aoc_wants_to/nieh2sk/
+
+https://old.reddit.com/r/politics/comments/1o16xxq/fox_news_host_bizarrely_declares_aoc_wants_to/nif2741/
+
+Yes. I witness this on Reddit all the time in /r/LeopardsAteMyFace mocking community. Front-page every day of year 2025. People who prize the suffering of others. All they care about is MAGA mocked liberals first, and all that matters is polical assocations and not hate itself. Consumption of images and text inforamtion on machines as a hate club of people they do not know, nor wish to rescue from Russian mind-fucking by IRA. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/politics/comments/1o16xxq/fox_news_host_bizarrely_declares_aoc_wants_to/nif0kgu/
+
+Joke-washing resets audiences minds. Reddit community laugh-trach LOL-tracks constantly joke-washes RFK Jr, Trump, Putin, Musk, Murdoch.
+
