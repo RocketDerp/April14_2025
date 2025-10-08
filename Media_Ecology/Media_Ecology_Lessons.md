@@ -740,3 +740,11 @@ When fiction media reaches out beyond the cinema screen, television screen, vide
 1. https://en.wikipedia.org/wiki/Fictitious_telephone_number
 2. https://en.wikipedia.org/wiki/555_(telephone_number)
 3. Year Zero (2007): This ARG was a marketing campaign for the Nine Inch Nails album of the same name. Players discovered phone numbers hidden in the spectrograms of songs, which led to recordings, websites, and other clues that fleshed out the dystopian plot.
+
+&nbsp;
+
+### Information scams
+
+Telephone and text message scams. The phone networks are regulated by the government for a hundred years, but predatory businesses and money making scemes can't be stopped. There are not that many telecom companies at the back-end (many branding front-ends for marketing and pricing) - this is not impossible to regulate. Yet it goes on for decade after decade. Creating a peer to peer hostility in society. Absuve information system usage. People who tolerate abusive relationships, predators, manipulators, "settle for", who would criticize in a personal romance relationship at family / friends level - entirely allow it at the soiety-wide national level.       
+https://old.reddit.com/r/technology/comments/1o195kb/america_is_drowning_in_scam_calls_and_texts_and/
+
