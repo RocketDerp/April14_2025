@@ -1,3 +1,9 @@
+https://old.reddit.com/r/NoFilterNews/comments/1o0bgo5/gop_busted_using_south_american_riot_pics_to/nid1qv0/
+
+&nbsp;
+
+&nbsp;
+
 > Do you understand how words work?
 
 Bible verse John 1:1, I do.
