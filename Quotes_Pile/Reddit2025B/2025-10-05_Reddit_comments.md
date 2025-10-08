@@ -1693,3 +1693,21 @@ https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_cu
 
 Go away, deport happy, shut up woamn, etc.
 
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic84xm/
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic5ale/
+
+Denial of the Donald Trump first term, mind lost to fiction storytelling, Russia, etc.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nicdr8x/
+
+Palestine and Israel are not responsible, it's USA fault of October 7, 2023 Putin's Birthday.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nicaonv/
+
+She is describign the serious situation.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o0uwf7/kamala_harris_addresses_the_current_political/nic48zd/
+
+Calm down from hyper reality, Trump stimulation constantly.
+
