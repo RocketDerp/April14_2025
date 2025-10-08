@@ -28,8 +28,8 @@ Am I going to read the book? No. But I will go now and look for quotes
 
 Oh yha, this kind of headline is exactly the chekcpoint. People all flocking to *hate harder*,*violence harder*, attitudes that the USA should abandon books and pens.
 
-https://www.npr.org/2025/08/26/nx-s1-5515631/dnc-democrats-ken-martin-trump-facism
-
+https://www.npr.org/2025/08/26/nx-s1-5515631/dnc-democrats-ken-martin-trump-facism     
+August 26, 2025     
 "DNC chair says he's tired of Democrats bringing 'pencil to a knife fight'"
 
 The horrible fantasy that people think there was a "taken high road". Who asserted love? Who asserted Bible verse "1 John 3:17" to Trump Bible, MAGA chistians? Nobody, that is who! There was no high road taken, *hate harder* is the further path of the low road that people alrady were on since IRA year 2013. Road gets longer as Malala said at MLK Jr's Church.
