@@ -2077,3 +2077,17 @@ https://old.reddit.com/r/LivestreamFail/comments/1o1hm0t/korean_streamer_murdere
 
 https://old.reddit.com/r/LivestreamFail/comments/1o1hm0t/korean_streamer_murdered_after_arguing_with_vip/nih283r/
 
+https://old.reddit.com/r/HistoryPorn/comments/1o1hb0p/after_84_years_historians_finally_identified_the/nigm9bp/
+
+The way people in USA go on with life since year 2013 when they see hate and dehumanization be prized more and more. They don't see hate as a problem, only that they are on hte correct team of out-group hate. The correct hate club.
+
+https://old.reddit.com/r/HistoryPorn/comments/1o1hb0p/after_84_years_historians_finally_identified_the/nigrtsk/
+
+Citations, link, nonfiction learning on the subject. Not just low-effort high-speed commenting to drown out nonfiction.
+
+https://old.reddit.com/r/HistoryPorn/comments/1o1hb0p/after_84_years_historians_finally_identified_the/nihdr1g/
+
+https://old.reddit.com/r/HistoryPorn/comments/1o1hb0p/after_84_years_historians_finally_identified_the/nigsgcg/
+
+https://old.reddit.com/r/FBI/comments/1o1fm7a/fbi_shuts_down_corruption_group_fires_agents/nih5oyd/
+
