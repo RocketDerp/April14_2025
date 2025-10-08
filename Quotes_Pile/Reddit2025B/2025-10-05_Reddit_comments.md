@@ -1632,3 +1632,22 @@ https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_a
 
 Nonfiction, nonfiction is being abandoned. Sane page of important nonfiction. ... ... ...
 "unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/law/comments/1o0np7b/stephen_miller_says_trump_has_plenary_authority/niazrmk/
+
+Remedial morality teaching is critical for all people age 12 to age 120. Bible verse "1 John 4:20" about liars, Bible verse "1 John 3:17" to judge wealth concentration.
+
+https://old.reddit.com/r/law/comments/1o0np7b/stephen_miller_says_trump_has_plenary_authority/niat1k0/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / etc.
+
+https://old.reddit.com/r/law/comments/1o0np7b/stephen_miller_says_trump_has_plenary_authority/nibruei/
+
+https://old.reddit.com/r/law/comments/1o0np7b/stephen_miller_says_trump_has_plenary_authority/nibg5j0/
+
+Simulacra vs. simulacra. Fiction vs. fiction. Monomyth vs. Monomyth.
+
+https://old.reddit.com/r/law/comments/1o0np7b/stephen_miller_says_trump_has_plenary_authority/niap541/
+
+People cheer for the sports team total win, mob mentality.
+
