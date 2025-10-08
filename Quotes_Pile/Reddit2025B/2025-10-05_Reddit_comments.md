@@ -1936,3 +1936,13 @@ https://old.reddit.com/r/politics/comments/1o16xxq/fox_news_host_bizarrely_decla
 
 Joke-washing resets audiences minds. Reddit community laugh-trach LOL-tracks constantly joke-washes RFK Jr, Trump, Putin, Musk, Murdoch.
 
+https://old.reddit.com/r/politics/comments/1o1b0yq/trump_calls_for_jailing_democratic_leaders_as/niffgbd/
+
+Entertainment-washing Donald Trump as a source of Reddit audience entertainment. Instead of using spare time / free time on social information systems to organize remedial Bible literacy lessons of "1 John 3:17" to address Trump / Musk / Murdoch wealth behaviors and criticize the Clergy for not doing thier job... amsued constantly that Donald Trump Reality TV celebrety provides constant Reddit entertainment. ... ... ...
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when **serious public conversation becomes a form of baby-talk**, when, in short, a people become an audience, and their public business a vaudeville act” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/politics/comments/1o1b0yq/trump_calls_for_jailing_democratic_leaders_as/nif7nr3/
+
+Mockery-track for Reddit audience. Toss out Putin, toss out Epstein. No links, no book names, no author names, nothing but disposable commenting to reset minds of the Reddit audience. Shallow and superficial and banal. The fuction of Bluesky and Reddit socities in October 2025, to continue to hyper banalize Putin and Trump crisis into normal daily content. ... ... ...
+"Anyway, that’s rationalisation, and then the third – and this is sort of one of my own if you will forgive me – is what I’ll call banalization. And it’s always a danger when you do lectures like the ones I am doing now, and that’s to take these fundamentally important things like what does my life mean, and surely there must be a better way to organise the world than the way it is organised now, surely my life could have more meaning in a different situation. Maybe my life’s meaning might be to change it or whatever, but to take any one of these criticisms and treat them as banalities. This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Rock Roderick, Duke University https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+
