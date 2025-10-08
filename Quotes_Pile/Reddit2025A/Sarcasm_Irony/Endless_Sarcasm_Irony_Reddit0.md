@@ -3,6 +3,7 @@
 ++ Paradox   
 ++ Surreal   
 ++ Endless attraction to Trump images and icons / status symbol of rich    
+++ Hate training camp    
 
 &nbsp;
 
@@ -687,3 +688,8 @@ https://old.reddit.com/r/pics/comments/1nzk6oi/besties/
 
 Describing the War Agaisnt Reality / Media Ecology change without recognizing it. Also this printed on a paper book and photographed, media ecology. Surkov bragged in February 2019. Pandemic May hte Frorce 2019 from Stephen Colbert. Peter P's 2nd book 2019. Cambridge Analtyica mindfuck two books by Christopher W in 2019. The alternate-reality was described in 2019 after discovery of IRA the previous couple years. And ChatGPT coming in 2022, also Twitter Elon Musk in 2022. Media huge waves of changes converging.    
 https://old.reddit.com/r/Adulting/comments/1o11pw4/why_do_i_feel_its_true/
+
+&nbsp;
+
+Hate training camp, hate women in power, superficial and banal shallowness of orange skin of Trump and plastic face. Marshall McLuhan's 1951 "Mechanical Bride" that humans are just body parts for consumers. TIny short messaging to easily generate hate mindsets, normalizing hate. Reddit / Twitter mind-fucking all around.    
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o115ux/dont_forget_she_went_for_the_goat_afterwards_to/
