@@ -1952,4 +1952,12 @@ Yes, Reddit social media comment community is constnatly joke-washing Trump. His
 
 https://old.reddit.com/r/politics/comments/1o1b0yq/trump_calls_for_jailing_democratic_leaders_as/nifdf5k/
 
-This is the fiction-driven Russian Surkov students reality people crave and desire. No book titles, no links, no author names.  The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+This is the fiction-driven Russian Surkov students reality people crave and desire. No book titles, no links, no author names. This comment not only avoids any citations or links, it washes it to be only one 79 year old man. Trump. Ignores RFK Jr, ignores Elon Musk, ignores the people all behaving towards fiction storytelling, ignores Fox News fiction, etc. Also washes away that it is only a couple years ago, as if Trump wsn't already in first term of office in 2017. The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1o1b0yq/trump_calls_for_jailing_democratic_leaders_as/nif9uka/
+
+Conversational commenting, anything to avoid links, author names, book titles, citations to news website about last week. Recommending ANY better source of factual information than low-effort high-speed dispsoable commenting messages and calling out that this style of "learning" on meme mills is exactly what Facebook and Fox News and Truth Social audiences are doing, and the avoidance of everyone getting on the same page of details and important understandings is what has wrecked the nation. People aren't reading newspapers any more that have all the details collected and organized, they are commenting like this on Reddit and *seeking out* such low-effort dispsoable comments. Huge quantities of time and labor going into producing this style of "engagement" questions to the audience. While the USA is in extreme serious crisis, the people with spare time and free time are going right along with the Russian information warfare of anonymous no-identity low-effort low-grade information.
+
+https://old.reddit.com/r/politics/comments/1o1b0yq/trump_calls_for_jailing_democratic_leaders_as/nif80it/
+
+Tiny-short messages to *give up*, audience *give up* track. Nothing can be done, sit in the audience and don't We The People power of reforming thinking and reforming information systems and reforming morality. This is the morality of good, low-effort short-length comments good.
