@@ -1961,3 +1961,25 @@ Conversational commenting, anything to avoid links, author names, book titles, c
 https://old.reddit.com/r/politics/comments/1o1b0yq/trump_calls_for_jailing_democratic_leaders_as/nif80it/
 
 Tiny-short messages to *give up*, audience *give up* track. Nothing can be done, sit in the audience and don't We The People power of reforming thinking and reforming information systems and reforming morality. This is the morality of good, low-effort short-length comments good.
+
+https://old.reddit.com/r/law/comments/1o19wcn/trump_calls_for_chicago_mayor_illinois_governor/nif2gtv/
+
+Satire-washing the hate problem. Tiny-short message. This is what the society flocks to. Nobody calling for reform of the clergy, nobody calling out the hate problem saturaing the nation and how Russia information warfare since year 2013 created all this hate patterns. That hate itslef is a serious and important topic and we should halt all sports, games, entertainment and focus on standing up for goodness itself. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/law/comments/1o19wcn/trump_calls_for_chicago_mayor_illinois_governor/nif5rz3/
+
+Have hyou seen the Reddit commenting of how much people flock to disposable commenting and not calling out for getting on the same page and educating everyone age 12 to age 120 about the Cambridge Analytica and IRA information warfare loss and outcomes / aftermath... ... ... ... 
+"What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
+
+https://old.reddit.com/r/law/comments/1o19wcn/trump_calls_for_chicago_mayor_illinois_governor/nifaa26/
+
+Russia has wrecked the entire population minds, hundreds of millions of people, this isn't just one person age 79. Look at all of the self-harm prizing and hate prizing at every level of society, including Reddit commenting. Hate itself is one of the biggest symptoms of the IRA + CA executive function mind manipulation of *everyone* since year 2013.
+
+https://old.reddit.com/r/law/comments/1o19wcn/trump_calls_for_chicago_mayor_illinois_governor/nifa5fk/
+
+The problem is not justs one single person everyone is fixated on.
+
+https://old.reddit.com/r/law/comments/1o19wcn/trump_calls_for_chicago_mayor_illinois_governor/nif4rkq/
+
+No links, no author names, no book ttiles, no quotes. Just describing a crisis of education and learning, which is many adults who flock to low-effort disposable commenting. And even if people got higher quanities of education, there is little discussion of what. First would be Bible literacy for EVERYONE on how to read a science fiction story and how to cherry-pick great ideas from a fiction story, such as "1 John 3:17" and apply that fiction story idea to Musk / Murdoch / Trump / etc.
+
