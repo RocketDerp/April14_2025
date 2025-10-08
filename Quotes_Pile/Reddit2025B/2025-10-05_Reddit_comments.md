@@ -1562,3 +1562,16 @@ https://old.reddit.com/r/pics/comments/1o0syhc/us_national_guard_arriving_in_chi
 
 "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibmlmx/
+
+Just like Cambridge Analytica. Doctors who don't even know the children and old people they are fucking over, just care that it works. We are in a runaway simulacra, LLM systems aer now trained on this CA shit. ... ... ...
+"What Cambridge Analytica observed was that when respondents were **angry**, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical **trade war with China or Mexico meant the loss of American jobs and profits**, people primed with anger would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibnfmm/
+
+Anti-reality bullshit, War against Reality bullshit, fiction bullshit.
+
+https://old.reddit.com/r/technology/comments/1o0sbux/aoc_says_people_are_being_algorithmically/nibwyt8/
+
+Fiction vs. nonfiction is a better measure than left vs. right.
+
