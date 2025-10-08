@@ -2052,6 +2052,8 @@ https://old.reddit.com/r/law/comments/1o1l3cp/trump_we_took_the_freedom_of_speec
 
 https://old.reddit.com/r/law/comments/1o1l3cp/trump_we_took_the_freedom_of_speech_away_because/nihiggl/
 
-This is Fox News HDTV featured on Reddit. ... ... ...
+<img width="1030" height="828" alt="image" src="https://github.com/user-attachments/assets/7b5b43a1-89f3-4a82-9cc0-e5f54a63d7d9" /> This is Fox News HDTV featured on Reddit. ... ... ...
 "All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
+
+
