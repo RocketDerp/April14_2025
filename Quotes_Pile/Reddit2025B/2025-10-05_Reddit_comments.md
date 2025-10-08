@@ -1872,3 +1872,8 @@ Inspiring comment. <img width="1202" height="644" alt="Screenshot from 2025-10-0
 https://old.reddit.com/r/SipsTea/comments/1o11xa5/good_lord_save_me/nie900b/
 
 And the John 1:1 implanted childhood Bible science fiction memes, or Star Wars memes, language.
+
+https://old.reddit.com/r/inflation/comments/1o0z97v/found_on_facebook/nieupcg/
+
+Front page of Reddit. The avoidance of dates and locations, just like comment secction avoids real name and locations of where people are communicating from. Constantly washing away context. ABOUT_WAKEINDRA NOTE_A of course, this entire GitHub you could claim I am taking out of context.But the links are there beyond the single-message to the greater context. And I am trying to build a narrative. I do not like this trajectory the USA has been on since year 2014, and it is accelerating into the bad directions / outcomes (Hell metaphor) in year 2025... and I wish people could read even 3 pages of Neil Postman's 1985 book "Amusing Ourselves to Death" and see the Fox News HDTV issue and social media issues and experiences ... and people call for ALL of us to get on the same page of the 184 page book and face up the defeat to the IRA / Kremlin / Putin and stop engaging media without Marshall McLuhan and Neil Postman levels of self-awareness of media cult behaviors / anti-nonfiction behaviors. Every person age 12 to age 120 in USA...
+
