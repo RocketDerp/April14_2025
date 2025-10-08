@@ -748,3 +748,12 @@ When fiction media reaches out beyond the cinema screen, television screen, vide
 Telephone and text message scams. The phone networks are regulated by the government for a hundred years, but predatory businesses and money making scemes can't be stopped. There are not that many telecom companies at the back-end (many branding front-ends for marketing and pricing) - this is not impossible to regulate. Yet it goes on for decade after decade. Creating a peer to peer hostility in society. Absuve information system usage. People who tolerate abusive relationships, predators, manipulators, "settle for", who would criticize in a personal romance relationship at family / friends level - entirely allow it at the soiety-wide national level.       
 https://old.reddit.com/r/technology/comments/1o195kb/america_is_drowning_in_scam_calls_and_texts_and/
 
+&nbsp;
+
+### Languages of numbers
+
+Measuring and numbers.  Tower of Babel tower climbing conflict experiences.
+
+Language of time is 60 minutes is a full hour. Language of USA currency is that 25 cents is one quarter, one of four, to 100 cents, one full dollar. So mixing one quarter of an hour with one quater of a dollar exposes a mental junction of thnking. The measurement of time units vs. measurement of money.
+
+https://old.reddit.com/r/MemeVideos/comments/1o1bd2b/the_embarrassment/
