@@ -2101,3 +2101,24 @@ Exactly, what they are scared of is nonfiction learning, "too boring". They are 
 
 https://old.reddit.com/r/CringeTikToks/comments/1o1o5y1/kristi_noem_says_antifa_is_just_as_dangerous_as/nihzt0z/
 
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/nii9wdg/
+
+We are a country of brain-damaged people. We were fucked over by the most sophisticaed information warfare, CA and IRA. We had to have a weakness or two. Climate Change denial was a weakness, one Russia and Saudi Arabia both want to feed selling petrol. Not doing media ecology education, teaching the Great Seal was our weakness. ... ... ... 
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And **we have discarded it**. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that **we have simply forgotten about and thrown away**. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/niijf8q/
+
+The worst part is we are not facing up to The 1954 Equation. Is hate fun? Are we acting like the public library we have in modern times, that war is enjoyable? Wouldn't we rather be doing Woodstock 1969 even better (yes, I know of later ones)? Wouldn't we rather have authentic fun that behave like hate is something to prize? The way we be have about our "ex" lovers and "ex" spouses? The horrible horrific prizing of hate and wafare that we seem to teach and have not woken up, Finnegans Wake Woke, to?
+
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/niitx73/
+
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/niior6v/
+
+Society and the Pentagon can't defend against a Hybrid War of memes and doesn't even know they lost.  ... ... ...
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated. One of the main difficulties" - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/niijfrf/
+
+Reality. Abandonment of reality. War Against Reality. Is nonfiction learning really that terrible? The competittion to trick other people into fiction mythology storytelling is a game humanity has been playing for a very long time. Is learning and studying nonfiction really that bad? ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
