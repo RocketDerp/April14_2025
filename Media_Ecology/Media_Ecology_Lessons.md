@@ -777,3 +777,15 @@ Rick Roderick story about McDonald's advert.
 Earworms, Earwicker, mind-searing branding.
 
 https://old.reddit.com/r/UpliftingNews/comments/1o1kta5/gavin_newsom_signs_bill_that_restricts_loudness/
+
+&nbsp;
+
+### Sharing hardware
+
+Medium geneations, paper and pencil and eraser vs. touchscreen device.
+
+Most year 2025 smartphones have a "guest mode" that prevents access to private data.
+
+But the value of the device. Pencils did get stolen, not returned, frequently.
+
+https://old.reddit.com/r/anime_irl/comments/1o27qvd/anime_irl/
