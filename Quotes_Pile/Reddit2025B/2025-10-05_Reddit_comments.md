@@ -2550,3 +2550,11 @@ https://old.reddit.com/r/confidentlyincorrect/comments/1o2eywg/us_health_secreta
 https://old.reddit.com/r/confidentlyincorrect/comments/1o2eywg/us_health_secretary_rfk_jr_now_claims/ninaz4f/
 
 https://old.reddit.com/r/confidentlyincorrect/comments/1o2eywg/us_health_secretary_rfk_jr_now_claims/ninagzu/
+
+https://old.reddit.com/r/comics/comments/1o2c0k1/the_christian_party/ninw3mn/
+
+https://old.reddit.com/r/comics/comments/1o2c0k1/the_christian_party/nin2fde/
+
+Just like my own comment that got upvoted +1 and then later downvoted. This comment downvoted on front page of Reddit. There is active messasures agaisnt commenting about Bible verse "1 John 4:20" ideals about Christians who are liar. There is an "I Love Jesus" in the PizzaCakec comic, which is right in "1 John 4:20" and the "LOL" hate against the pastor / clergy member is also called out in "1 John 4:20". This comment should have gotten dozens of upvotes at least, now downvoted.
+
+
