@@ -85,3 +85,25 @@ https://mastodon.social/@RoundSparrow/114829390145529580
 ## Please Help
 
 "The trouble isn't so much that we don't know enough, but it's as if we aren't good enough. The trouble isn't so much that our scientific genius lags behind, but our moral genius lags behind. The great problem facing modern man is that, that the means by which we live have outdistanced the spiritual ends for which we live. So we find ourselves caught in a messed-up world." - Dr. Martin Luther King Jr
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+## Did Not A
+
+Reddit community    
+Front page /r/All    
+October 9, 2025     
+https://old.reddit.com/r/KitchenConfidential/comments/1o284n2/cutting_a_cup_of_chives_ever_day_until_this/
+
+People have NOT done this for:
+
+1. Make Jen Senko's 2015 film a household name. Could be doing that now in 2025.
+
+2. Plaese everyone make Bible verse "1 John 3:17" known to all Christians and non-Christians age 12 to age 120 in USA and how it applies about *love* to Murdoch, Musk, Trump, Putin, etc.
+
+3. Bible verse "1 John 4:20" and how "I Love Jesus" is wrong, and how to identify liars, how to judge liars.
+
