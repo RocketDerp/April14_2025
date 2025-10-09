@@ -2461,3 +2461,33 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1o240zo/i_thought_trump_woul
 
 Death-wishing American people. Reddit machine messages to dehumanize USA population. Anit-compassion anti-empahty messaging on computer message systems. Elon Musk media campaign. ... ... ...
 "Elon Musk is wrong. To spurn empathy is to spur evil. By Julia Baird. March 7, 2025" https://www.smh.com.au/lifestyle/life-and-relationships/elon-musk-is-wrong-to-spurn-empathy-is-to-spur-evil-20250307-p5lhpr.html
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/niltw6b/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/nima6ax/
+
+The IRA using CA techniques and methods mind-fucked the entire population, everyone, red and blue both, since year 2013. People are not facing up to how powerful Russian information warfare has been.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/nily1e8/
+
+We need to rescue people to REALITY REAL, actual science factual reality. We have to rescue people to the nonfiction section of the public library.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/nilo3m4/
+
+Extremely short-message thinking, Twitte-think mindsets. Very binary logic of ALL pure conservative vs. liberal one-bit programmend mindset in Otoboer 2025. Very popular message, upvoted by Reddit community. Simple-think to Russia defeating the USA in information warfare with 5,000 patterns of ARG. ... ... ...
+The Founding Fathers did not teach this conservative vs. liberal bi-polar logic mindset. We did not teach the population, We The People, were not educated on art symbolism and symbolic meanings of the founding fathers.
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that **all of this has been virtually totally forgotten by our days**. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that **we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible** this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/nilofkv/
+
+Denial of the reality of the Russia serving. Multiple NATO nations have reported the mind-altering Russian information war. Denial abounds.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/nilsjud/
+
+People who consume tiny short 3-second commenting messages, disposable comments, on meme sites are dumbing down their own mind. It is a horrible pattern of learning.  ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995 OPERA_A Keep repeating this track https://www.youtube.com/watch?v=wcY-x1VuWtE 5,297 views November 15, 2018
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/nim0d4h/
+
+Media cults. why aren't people on Reddit promoting Jen Senko's 2015 film? Nonfiction learning? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Why can't people stay focused and RESCUE instead of abandon American people?
+
