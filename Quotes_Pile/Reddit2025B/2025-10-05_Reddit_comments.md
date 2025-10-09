@@ -2364,3 +2364,22 @@ Elon Musk has the largest datacenter / machine training of Reddit and Twitter an
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1o25im4/fascism_is_here/nilmrri/
 
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nilvb0y/
+
+Tiny-short messaging fatihs, Twitter-thinking Tweet-length disposable commenting. Mocking away, Eating the Surkovian Onions and believing that the mind-fucking isn't happening to the Reddit audience and that everyone on Reddit has figured it out, more mocking to a total mockery is always the simple-thinking answer! More hate, more mocking, that's the response to hate and mocking signals around I.C.E. Reality TV performances. ... ... ... 
+Russia and the Menace of Unreality   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nilxkji/
+
+Low-effort short-length tiny-short messaging high-speed reactionary media systems love the content addicts flocking to mock and mock and mock at President Tony Clifton antics politics.
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/niltius/
+
+The Power of Mythology. The dynamics of the Power of Mythology. Fiction outsells nonfiction. Monomyth story patterns appeal more than nonfiction to audiences who abandon reality / real world in favor of Mythology.  George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...
+JOSEPH CAMPBELL: The thing to do is learn to live in your period of history as a human being. That’s something else, and it can be done. BILL MOYERS By doing what? CAMPBELL: By holding to your own ideals for yourself and, like Luke Skywalker, rejecting the system’s impersonal claims upon you. BILL MOYERS: When I took our two sons to see Star Wars, they did the same thing the audience did at that moment when the voice of Ben Kenobi says to Skywalker in the climactic moment of the last fight, “Turn off your computer, turn off your machine and do it yourself, **follow your feelings, trust your feelings.”** And when he did, he achieved success, and the audience broke out into applause. CAMPBELL: Well, you see, that movie communicates. It is in a language that talks to young people, and that’s what counts. It asks, Are you going to be a person of heart and humanity—because that’s where the life is, from the heart—or are you going to do whatever seems to be required of you by what might be called “intentional power”? When Ben Kenobi says, “May the Force be with you,” he’s speaking of the power and energy of life, **not of programmed political** intentions.
