@@ -2214,5 +2214,14 @@ https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house
 
 Educated on what? Marshall McLuhan University of Toronto, Neil Postman New York University - media ecology. Putin is running circles around the ENTIRE 100%, TOTAL population. Not just MAGA, but Democrts / left / liberals / Reddit all / Bluesky all too.
 
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/nijb2hr/
+
+Why do cult members like Allah / Yaweh who sends people to Hell? We are dealing with cults of science fiction mythology here. Magical thinking. People like Trump because he can put out forest firs in California, he can move hurricanes by drawing on a map. He prints his own Bible and uses langauge like Bible poetry monomyth patterns. And, of course, Cambridge Analytica created 5,000 monomyth explloit mind patterns since the November 7, 2012 agreement. ... ... ...
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.facebook.com/konstantin.rykov/posts/10210621124674610
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/niik6yk/
+
+Steve Bannon, Cambridge Analytica. Reddit mocks Trump constantly, poop dipers, orange skin, fat, etc. The mocking is all part of Surkov Governing, a Total Mockery media enviornment for people avoidant of nonfiction learning of media ecology. Avoid Neil Postman, avoid Marshall McLuhan, live inside mindsets of media enviornments. Living inside a Total Mockery. People craete comment after comment mocking away at how dumb stupid idiot Putin and the Kremlin are, Trump.
+
 
 
