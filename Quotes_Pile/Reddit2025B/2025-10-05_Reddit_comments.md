@@ -2122,3 +2122,21 @@ https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_tru
 Reality. Abandonment of reality. War Against Reality. Is nonfiction learning really that terrible? The competittion to trick other people into fiction mythology storytelling is a game humanity has been playing for a very long time. Is learning and studying nonfiction really that bad? ... ... ... 
 "unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/niie10h/
+
+Such as halting all entertainment. Be serious. Show you are serious about nonfiction. Like we should have been during the pandemic. "We are all in this together, learn science!" [STOP ALL ENTERTAINMENT](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/niigyrm/
+
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/niicrqg/
+
+Hey, someone standing up to the sarcasm-washng! 
+
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/niihjtb/
+
+Kremlin technique of rewriting reality. Surkovin govenring. Really origination.
+
+https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_trump_directs_doj/niimmsp/
+
+Putin. And we keep acting like that Alaska visit recently didn't happen, along with all the other pro-Putin anti-NATO shit like attacking Canada with mind-fuck.
+
