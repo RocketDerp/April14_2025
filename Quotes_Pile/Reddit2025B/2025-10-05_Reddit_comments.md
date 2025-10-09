@@ -2435,3 +2435,18 @@ https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_
 
 Anit-compassion anti-empahty messaging on computer message systems. Elon Musk media campaign. ... ... ...
 "Elon Musk is wrong. To spurn empathy is to spur evil. By Julia Baird. March 7, 2025" https://www.smh.com.au/lifestyle/life-and-relationships/elon-musk-is-wrong-to-spurn-empathy-is-to-spur-evil-20250307-p5lhpr.html
+
+https://old.reddit.com/r/WorkReform/comments/1o26hik/if_you_hate_communism_its_likely_due_to/nilkijv/
+
+Anything to get people to comment short-simple messages and not confront the literacy problems in USA. It is a Levant idea described most famousing in USA at the Church in a book called "The Bible", turn to page "1 John 3:17" - which is a verse nobody since year 2013 seems to be able to find in crticizing Putin, Murdoch, Musk, Trump, etc. Our clergy has gone Toxic and blind to the need to make the entire population age 12 to age 120 know how to judge and criticize **love** with "1 John 3:17" - which speaks of love itself.
+
+https://old.reddit.com/r/funnyvideos/comments/1o24x8x/caught_in_the_act/nim0vif/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o240zo/i_thought_trump_would_save_the_day_but_in_fact/nil0f0w/
+
+Tiny-length short-message, most upvoted comment on the posting, Twitter-think. Did people on Reddit that Russia invaded ( see March 6, 2018 https://www.bbc.com/news/technology-43301643 disclosure) not think Surkov students were doing what Putin directed them to do to the "Reddit HiveMind" to avoid sustained focus on Russian information warfare on Reddit? As Surkov said February 12, 2019 to Reddit community / United States of America We The People directly: https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793 - did you think Putin was not going to manipulate your mind with Cambridge Analytica messages to be conditioend to react and flock to every Trump move and shake, and to mock upon American people instead of defend against Reddit?
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o240zo/i_thought_trump_would_save_the_day_but_in_fact/nikzvel/
+
+Tiny-short messaging games, ARG, of the 5,000 patterns conditioend by the IRA on Reddit since year 2013. Russia won the mind-fucking game to make people prize low-effort comments and be avoidant of nonfiction learning. USA didn't stand a fucking chance. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
