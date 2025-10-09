@@ -38,3 +38,28 @@ Creating this page, even with no audience, just putting the Finnegans Wake prism
 
 Simon Baron-Cohen; July 1, 2003; "The Essential Difference: Male And Female Brains And The Truth About Autism", page 146. Quote ::: Another man with AS described his life in a very graphic way: 'Every day is like climbing Mount Everest in lead boots, covered in molasses. Every step in every part of my life is a struggle.' :::
 
+&nbsp;
+
+&nbsp;
+
+# Abandonment of Reality
+
+Defending Reality
+
+1. Rick Rodierck, battle lines of the 1993 future "the struggle in the future may be to maintain the real against the unreal or the hyperreal or the irreal." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+2. September 9, 2014 announcement / alert to public of ongoing active "War Agaisnt Reality" https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+3. 2019 book title Peter Pomerantsev 
+
+4. https://old.reddit.com/r/CuratedTumblr/comments/1o1sl76/right/niis67o/ comment on Reddit
+
+&nbsp;
+
+<img width="1056" height="774" alt="image" src="https://github.com/user-attachments/assets/0b157cdb-f514-43c1-81ef-18ab20184039" />
+
+&nbsp;
+
+&nbsp;
+
+* "The battlelines may be between anonymous forces that have been unleashed by technology that grew out of capital, that will be controlled in the hands of not many people" - Rick Roderick, Duke University, year 1993
