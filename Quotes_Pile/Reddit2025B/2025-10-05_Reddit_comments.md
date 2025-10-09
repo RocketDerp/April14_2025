@@ -2383,3 +2383,42 @@ https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissi
 
 The Power of Mythology. The dynamics of the Power of Mythology. Fiction outsells nonfiction. Monomyth story patterns appeal more than nonfiction to audiences who abandon reality / real world in favor of Mythology.  George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...
 JOSEPH CAMPBELL: The thing to do is learn to live in your period of history as a human being. That’s something else, and it can be done. BILL MOYERS By doing what? CAMPBELL: By holding to your own ideals for yourself and, like Luke Skywalker, rejecting the system’s impersonal claims upon you. BILL MOYERS: When I took our two sons to see Star Wars, they did the same thing the audience did at that moment when the voice of Ben Kenobi says to Skywalker in the climactic moment of the last fight, “Turn off your computer, turn off your machine and do it yourself, **follow your feelings, trust your feelings.”** And when he did, he achieved success, and the audience broke out into applause. CAMPBELL: Well, you see, that movie communicates. It is in a language that talks to young people, and that’s what counts. It asks, Are you going to be a person of heart and humanity—because that’s where the life is, from the heart—or are you going to do whatever seems to be required of you by what might be called “intentional power”? When Ben Kenobi says, “May the Force be with you,” he’s speaking of the power and energy of life, **not of programmed political** intentions.
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nim11yh/
+
+5,000 patterns of mental division, deployed since year 2013. Arrangent made to mind-fuck Reddit and other media venues with Putin's Kremlin... to deploy Cambridge Analytica crafted 5,000 monomyth explloit mind patterns since the November 7, 2012 agreement. ... ... ...
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.facebook.com/konstantin.rykov/posts/10210621124674610
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nimauae/
+
+Pushing the addiction to fiction low-effort commenting at high speeds. Avoiding the nonfiction learning of media ecology and how Russian IRA and CA tactics work on Reddit community.
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nim00kx/
+
+The language isn't good enough for low-effort commenting messages that are disposed of / abandoned by Reddit consumers. Word-choice in a world driven by Trump languages. Tiny-think langauge models, anti-diverse mind patterns. ... ... ... 
+"Do You Speak Fox? How Donald Trump’s favorite news source became a language. By Megan Garber. September 16, 2020", "You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions consider a loss that Americans don’t have good language for, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox." https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nilwzkk/
+
+No, everyone does not think that way. Some climb the Tower of Babel and look around the world of Finnegans Wake iterations. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): 
+JOSEPH CAMPBELL: I think of mythology as the homeland of the muses, the inspirers of art, the inspirers of poetry. To see life as a poem and yourself participating in a poem is what the myth does for you.
+BILL MOYERS: A poem?
+CAMPBELL: I mean a **vocabulary in the form not of words but of acts and adventures, which connotes something transcendent** of the action here, so that you always feel in accord with the universal being.
+MOYERS: When I read these myths, I am simply in awe of the mystery of it all. We can presume, but we cannot penetrate.
+CAMPBELL: **That is the point. The person who thinks he has found the ultimate truth is wrong. There is an often-quoted verse in Sanskrit**, which appears in the Chinese Tao-te Ching as well: “He who thinks he knows, doesn’t know. He who knows that he doesn’t know, knows. For in this context, to know is not to know. And not to know is to know.”
+MOYERS: Far from undermining my faith, your work in mythology has **liberated my faith from the cultural prisons** to which it had been sentenced.
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nim6mkg/
+
+Shocked. Mind blown. It isn't just Trump that Russia manipulated, it isn't just Elon Musk, it isn't just RFK Jr, the IRA since year 2013 with CA payloads had mind-fucked EVEYRONE in to alternate realities to avoid nonficiton learning and sustained repeating focus on Russian information warfare methods. ... ... ...
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nimgsjd/
+
+Reddit messaging to provide a mockery-track for the audience. An avoidance of reality and the seriousness of the sitaution. Amusement-washing the situaiton, entertainment-washing the destruciton of goodness in USA in October 2025. ... ... ...
+"Anyway, that’s rationalisation, and then the third – and this is sort of one of my own if you will forgive me – is what I’ll call banalization. And it’s always a danger when you do lectures like the ones I am doing now, and that’s to take these fundamentally important things like what does my life mean, and surely there must be a better way to organise the world than the way it is organised now, surely my life could have more meaning in a different situation. Maybe my life’s meaning might be to change it or whatever, but to take any one of these criticisms and treat them as banalities. This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Rock Roderick, Duke University https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nilwta8/
+
+"Humm..." tiny-short mockey messages. to hyper-banalize the audience into low-effort mindsets. Conditioning serious problems into rubble. ... ... ...
+"Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." - https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
