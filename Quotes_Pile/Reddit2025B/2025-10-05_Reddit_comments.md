@@ -2326,3 +2326,19 @@ https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trum
 
 Why not use Reddit Front Page and Bluesky top Hashtags to make Jen Senko a household name and USA hero with her year 2015 film? nonfiction! https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
 
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nil5pm0/
+
+Backfilling in 2025 for the people who upgraded from Fox News to White House EveryMedia MultiMedia. "The pipeline from Fox News to the Donald Trump administrations has included a variety of hosts, executives, and commentators, particularly with the transition for the second term. Prominent examples include hosts like Pete Hegseth, who became Secretary of Defense in 2025, and Sean Duffy, who was appointed Secretary of Transportation. Other names include Tulsi Gabbard, a former contributor who was confirmed as Director of National Intelligence in February 2025, and Kimberly Guilfoyle, a former host who became Ambassador to Greece. Kayleigh McEnany, a former producer for the network, served as Press Secretary from 2020 to 2021. Additionally, former co-president Bill Shine was named Deputy Chief of Staff for Communications during the first term, while producer Sergio Gor leads the Presidential Personnel Office.. Other appointees in the Trump administrations include Dan Bongino, Tammy Bruce, Sebastian Gorka, and Anthony Scaramucci...." - Google AI after I told it to excluse Bush and only Trump in a single paragraph.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nilhrlp/
+
+Yes, and hug each other, adults. Adults are wrecking the nation for children, wrecking the future, in media addictions.
+
+https://old.reddit.com/r/minnesota/comments/1o275j5/governor_tim_walz_cant_believe_i_have_to_say_this/nilnfna/
+
+Hate, as conditioned by Cambridge Analytica. CA and IRA bombarded the population with mind-fuck to spread measles and COIVD-19 **since year 2014 as documented by Johns Hopkins University information systems experts*. Putin fucked-over the USA hearts and minds and nobody cares to blame Russia. August 24, 2018 it was disclosed, again **evidence back to year 2014** https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/minnesota/comments/1o275j5/governor_tim_walz_cant_believe_i_have_to_say_this/nilx17t/
+
+A nation that prizes low-effort commenting messages at high speeds and welcomed the IRA invasion of social media systems since year 2013.
+
