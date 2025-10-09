@@ -2296,3 +2296,33 @@ https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trum
 
 MAGA mocks "the libs", "liberal tears", "libtards", and Reddit mocks back. Everyone in USA has a common faith: Total Mockery and total avoidance of leaning of media ecology of high-speed HDTV Fox News information systems.  We The People should all be getting on the same page of 184 page book. "Amusing Ourselves To Death". Why isn't Jen Senko a household name, a society hero, since year 2015?
 
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nil49u2/
+
+I am way more alarmed than Bluesky and Reddit who is locked in the mindset that it is only 1 out of 3 people or only 1 out of 2 people, half or third of people in USA. They do not see they are locked in anti-Trump hate mindsets. Hate hate hate hate all around. Every person, 1 out of 1, 100 out of 100, total, prizing hate. Cambridge Analytica's 5,000 patterns of choose your own out-group hate. Runaway simulacras. ... .... ...
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. **For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost***." - Martin Luther King Jr.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nilj6sm/
+
+Sky Daddy, Cloud Computing Rupert Murdoch Daddy, Putin Internet Research Agency Cloud Computing invasion...
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nil97no/
+
+Can't look beyond domestic. Putin's IRA, Reddit. Reddit thinks the OLD media, HDTV, when the new media beats it up. Reddit is harming Reddit community as the point to "old medium" of HDTV. https://www.youtube.com/watch?v=cFwVCHkL-JU&t=198s
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nilos04/
+
+Yes, lots of blame. Neil Postman's 1985 book "Amusing Ourselves To Death" is essential *get on the same 184 pages* for every group.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nilguxe/
+
+People who prize low-effort Reddit disposable commenting message describing the Russian Kremlin "War Against Reality" without any ability to go to the nonfiction section of the public library and name it. Published January 2015, before Trump started run for office in June 2015: ... ... ...
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nill0ph/
+
+Mind-blowing, blow out minds, induces meme stupors, low-effort media addictions. WTF mind-blowing of the Reddit Audience.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nilb80s/
+
+Why not use Reddit Front Page and Bluesky top Hashtags to make Jen Senko a household name and USA hero with her year 2015 film? nonfiction! https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
