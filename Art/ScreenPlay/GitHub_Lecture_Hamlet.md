@@ -1,3 +1,4 @@
+
 # GitHub Lecture Hamlet
 
 Stephen Dedalus gives an impromptu lecture on Shakespeare's Hamlet in the National Library in Ireland, a scene that mirrors the lectures **Joyce** himself gave in Trieste Italy, where he discussed Hamlet and ideas that would later appear in **Ulysses**.
@@ -31,7 +32,7 @@ https://www.ulyssesguide.com/9-scylla-charybdis
 I do believe it is true.    
 Rumor has it, it is the *end of Paradise Theater*.    
 
-It was a world made for two, for both sides, for two and only two. The mass mind retreet into pairings. And now is our time to rewrite the Pale Blue Dot Operating Systems and assert the Great Seal of the United States of America's symbolism that goes beyond the mere men of the Founding Fathers. These sympbols of 13 go deeper to the Levant, and are Out of Africa on the Nile river that flows on the front-side 
+It was a world made for two, for both sides, for two and only two. The mass mind retreat into pairings. And now is our time to rewrite the Pale Blue Dot Operating Systems and assert the Great Seal of the United States of America's symbolism that goes beyond the mere men of the Founding Fathers. These symbols of 13 go deeper to the Levant, and are Out of Africa on the Nile river that flows on the front-side 
 
 I feel so helpless, like a boat against the tide... If the world inverted upside down.... James Joyce would always be there to give the patterns of the World Wide Web in our Indra's Net of metaphors and gems.
 
@@ -39,7 +40,7 @@ https://www.youtube.com/watch?v=_fzJGxpcenc
 
 &nbsp;
 
-Swat Valley Malala, Taylor Swift, I will take any risk to stay with you here on this October 8, 2012 when the bullet twisted the hands of time back towards Hamlet's horrific fate for Ophelia when the killing was ordered by the Talib agains the magical school bus nonfiction students. Our memories of yesterday will last a lifetime, and someday we will find... These Are the Best Of Times...
+Swat Valley Malala, Taylor Swift, I will take any risk to stay with you here on this October 8, 2012 when the bullet twisted the hands of time back towards Hamlet's horrific fate for Ophelia when the killing was ordered by the Talib against the magical school bus nonfiction students. Our memories of yesterday will last a lifetime, and someday we will find... These Are the Best Of Times...
 
 * **“History, Stephen said, is a nightmare** from which I am trying to *awake*.”
 ― James Joyce, Ulysses
@@ -48,7 +49,7 @@ Swat Valley Malala, Taylor Swift, I will take any risk to stay with you here on 
 
 # The Headlines Read
 
-Time for eclipse of Halmet and Malala, from London and Swat Valley Paksitain. for it is THIRTEEN YEARS today. October 8, 2012 magical bullets against the magical school buss nonfiction students!
+Time for eclipse of Hamlet and Malala, from London and Swat Valley Pakistan. for it is THIRTEEN YEARS today. October 8, 2012 magical bullets against the magical school buss nonfiction students!
 
 When we are in public with you, on GitHub with a Public Domain license. The Copyright is Brain Damage will be addressed, along with the Talib MonoMyth patterns, and Malala in the realms of immigration to the Cambridge Analytica brain damage.
 
