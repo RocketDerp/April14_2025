@@ -67,3 +67,33 @@ The media machines bring more headlines every day....
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m2r7dadee223    
 https://autistics.life/@RoundSparrow/115344311545666354
+
+&nbsp;
+
+&nbsp;
+
+# Greatest Research Tool
+
+&nbsp;
+
+![science_learning_nosey_research_nature](https://github.com/user-attachments/assets/bbb5d0f4-d664-40d8-a056-6163ea4ad47b)
+
+&nbsp;
+
+* “The poet, the artist, the sleuth—whoever sharpens our perception tends to be antisocial; rarely “well adjusted,” he cannot go along with currents and trends.”
+— Marshall McLuhan. “The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in March 1967 https://www.TheMediumIsTheMassAge.com/the-book/
+
+&nbsp;
+
+https://autistics.life/@RoundSparrow/115344452915849370    
+https://bsky.app/profile/roundsparrow.bsky.social/post/3m2rbcu4tms2g   
+
+13 years ago today, 13 steps up the Pyramid of the Great Seal of the United States of America to the Eye, the metaphors understanding and comprehending who is the originator, where the source of language and learning comes, the Tree of Knowledge, the 13 steps to the John 1:1 Eye of originationg idioms / poetry / art / langauge / words / memes.
+
+https://youtu.be/gjGL6YY6oMs?t=165
+
+Assert Malala, Malala Yousafzai climbing the 13 steps of the Pyramid to the Eye in the Sky metaphors.
+
+"You spoke out publicly against the Taliban"
+
+"Why should I wait for someone else?" "Speak up for our rights!"
