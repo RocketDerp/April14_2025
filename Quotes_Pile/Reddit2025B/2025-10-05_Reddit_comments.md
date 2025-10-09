@@ -2491,3 +2491,10 @@ https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_
 
 Media cults. why aren't people on Reddit promoting Jen Senko's 2015 film? Nonfiction learning? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad Why can't people stay focused and RESCUE instead of abandon American people?
 
+https://old.reddit.com/r/MurderedByWords/comments/1o28rtc/president_falsifies_crisis/nilzlh6/
+
+<img width="1738" height="320" alt="image" src="https://github.com/user-attachments/assets/1761baaf-5508-4c6d-a2c9-ef4908ec301a" /> We are livin the year 2013 onward timeline where Putin's information warfare defeated the USA. The Internet Research Agency formation agreement by Donald Trump on Twitter. **5,000 TIMELINES, not just a single Timeline** in the minds of everyday people (and leaders too, everyone everyone). Abandonment of nonfiction, abadonment of factaul reality. John 1:1 monomyth warfare against We The People, everyone mind-fucked. ... .... ... 
+"Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446 ... ... ...
+“This need to interface, to confront environments with a certain antisocial power, is manifest in the famous story, “The Emperor’s New Clothes.” “Well-adjusted” courtiers, having vested interests, saw the Emperor as beautifully appointed. The “antisocial” brat, unaccustomed to the old environment, clearly saw that the Emperor “ain’t got nothin’ on.” The new environment was clearly visible to him.”
+— Marshall McLuhan, University of Toronto, March 1967. https://www.themediumisthemassage.com/the-book/
+
