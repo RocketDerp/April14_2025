@@ -2240,3 +2240,25 @@ https://old.reddit.com/r/CuratedTumblr/comments/1o1sl76/right/niis67o/
 
 <img width="1056" height="774" alt="image" src="https://github.com/user-attachments/assets/97224e23-bd06-4527-9ab3-9a611e630dcf" /> This is an importnt message to silloute why abandoning reality, the "War Against Reality" since year 2013, the IRA and CA, is a core focus of this GitHub. Why nonfiction vs. fiction and joke-washing / mind-resetting via humor exploits of the brian / surreal-washing absurd-washing comedy needs to be addressed. 2014 book title "Surreal Heart" of Russia and how that ties to 1985 Neil Postman's "Amusing Ourselves To Death".
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o24u4x/peter_why_he_is_shocking_the_dog/nil6nl9/
+
+Only pets, the gun gets pointed at mother nature, the dog serves as a slave tool for those with the guns who hate and dehumanize. The gun to control others and dominate with machines. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...
+"when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and hence the tension, the anxiety, the cutting down of forests, the annihilation of native people. And the accent here separates us from nature." - Summer 1987, age 83
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o24u4x/peter_why_he_is_shocking_the_dog/nil6pb7/
+
+"when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and hence the tension, the anxiety" - Summer 1987, age 83
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o24u4x/peter_why_he_is_shocking_the_dog/nilikwf/
+
+Attraction to high-speed low-effort commenting. Choose your own anti-Reality ARG, alternate reality game of avoiding nonfiction *get on the same page please* learning in favor of short-tiny commenting patterns that reprogram the mind. The IRA won, Russia won, Surkov won, USA lost since year 2013. People are avoiding the nonfiction leaerning of "Amusing Ourselves To Death" by Neil Postman.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o24u4x/peter_why_he_is_shocking_the_dog/nilbxyo/
+
+Hate, rage, out-groups, dehumanizing, controlling others with block-button like a dog shock collar. We can't even discuss the problems on Unicode messaging systems without going in to block-happy reactionary Cambridge Analytica mindsets on Reddit and Bluesky.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o24u4x/peter_why_he_is_shocking_the_dog/nilgtoy/
+
+Afraid of nonfiction teching and nonfiction books.  Malala's October 8, 2013 book describes this. Fiction vs. nonfiction. ... ... ... 
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
