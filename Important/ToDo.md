@@ -1696,3 +1696,8 @@ https://old.reddit.com/r/interestingasfuck/comments/1nyegf8/we_can_no_longer_tru
 
 Pussy Riot posted a video and then removed it. POLICE STATE day 1. Mocha LA.   
 https://www.youtube.com/watch?v=uqw-60b5K5I
+
+&nbsp;
+
+Choice marriage honesty, honesty to public about choice marriage.   
+https://old.reddit.com/r/stories/comments/1o2c97u/i_scammed_my_husband_into_liking_me_and_i/
