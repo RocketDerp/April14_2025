@@ -12,3 +12,9 @@ https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3m2r5qxiqyk23
 Shakespeare's Hamlet    
 https://youtube.com/watch?v=ko70cExuzZM
 
+&nbsp;
+
+# Off-putting
+
+"The ninth episode of the novel, “Scylla & Charybdis,” takes place in the National Library, where Stephen Dedalus will deliver his much-anticipated (though sparsely attended) lecture on Shakespeare and Hamlet.  Excepting the second half of “Aeolus,” we have largely been in Bloom’s mind since “Proteus,” so the return to the intellectual density, social tension, and discursive loftiness of Stephen’s thoughts in “Scylla & Charybdis” can be somewhat jarring…perhaps even off-putting.  Some readers may be tempted to quit.  Don’t!"     
+https://www.ulyssesguide.com/9-scylla-charybdis
