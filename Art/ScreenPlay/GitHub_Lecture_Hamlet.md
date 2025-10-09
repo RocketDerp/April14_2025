@@ -52,7 +52,7 @@ Time for eclipse of Halmet and Malala, from London and Swat Valley Paksitain. fo
 
 When we are in public with you, on GitHub with a Public Domain license. The Copyright is Brain Damage will be addressed, along with the Talib MonoMyth patterns, and Malala in the realms of immigration to the Cambridge Analytica brain damage.
 
-THIRTEEN YEARS AGO THIS DAY, the 13 steppings up the Pyramid of the Revival of the Great Seal of the United States Mythology lensing tool, the prism of light and electromagnetic spectrusm of media ecology.
+THIRTEEN YEARS AGO THIS DAY, the 13 steppings up the Pyramid of the Revival of the Great Seal of the United States Mythology **lensing** tool, the prism of light and electromagnetic spectrum of media ecology and gravity bending.
 
 **yyP8tew0OUQ**   
 https://www.youtube.com/watch?v=yyP8tew0OUQ
