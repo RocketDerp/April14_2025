@@ -2538,3 +2538,15 @@ But not Reddit, not Bluesky, not *hate upon American MAGA*, only Fox News media 
 https://old.reddit.com/r/Music/comments/1o2a2ce/republicans_super_bowl_performance_pick_lee/nimaq2e/
 
 So amused at the Super Bowl sports mentality of low-efforting LOL laugh-trach for Reddit audience. The wrecking of the USA by Russia information warfare is so LOL amusing to people.
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1o2eywg/us_health_secretary_rfk_jr_now_claims/ninnodr/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1o2eywg/us_health_secretary_rfk_jr_now_claims/ninklno/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1o2eywg/us_health_secretary_rfk_jr_now_claims/ninc1e9/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1o2eywg/us_health_secretary_rfk_jr_now_claims/nindfyq/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1o2eywg/us_health_secretary_rfk_jr_now_claims/ninaz4f/
+
+https://old.reddit.com/r/confidentlyincorrect/comments/1o2eywg/us_health_secretary_rfk_jr_now_claims/ninagzu/
