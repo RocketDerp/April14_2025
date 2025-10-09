@@ -42,6 +42,6 @@ Unpacking the title and linked video and references
 
 &nbsp;
 
-The greatest entertainer in all human history. Surkov student screenplays blended with Tony Clifton screenplays. Tony Clifton acts also often have Clifton getting off the stage and interacting / improv with the audience members. Which Trump does regularly, improv added to the scripted / written Reality TV shows. Also worth a brain tickle that Saturday Night Live does "fake news" as ["Weekend Update" NYC](https://www.youtube.com/watch?v=GMcOI24WsYA), on how to blow minds with absurd surreal news antics. All part of the NYC media techniques of min-blowing audiences.
+The greatest entertainer in all human history. Surkov student screenplays blended with Tony Clifton screenplays. Tony Clifton acts also often have Clifton getting off the stage and interacting / improv with the audience members. Which Trump does regularly, improv added to the scripted / written Reality TV shows. Also worth a brain tickle that Saturday Night Live does "fake news" as ["Weekend Update" NYC](https://www.youtube.com/watch?v=GMcOI24WsYA), on how to blow minds with absurd surreal news antics. All part of the NYC media techniques of mind-blowing audiences.
 
 This government is like a [memory of a White House, and the memory is fading](https://youtu.be/z113cALjgl0?t=20).
