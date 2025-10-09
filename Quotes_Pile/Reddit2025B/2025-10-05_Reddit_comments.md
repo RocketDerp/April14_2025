@@ -2342,3 +2342,25 @@ https://old.reddit.com/r/minnesota/comments/1o275j5/governor_tim_walz_cant_belie
 
 A nation that prizes low-effort commenting messages at high speeds and welcomed the IRA invasion of social media systems since year 2013.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o25im4/fascism_is_here/nilaxm4/
+
+Reddit community does not grasp the Internet Research Agency since year 2013, the meme wars.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o25im4/fascism_is_here/nilf2f9/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o25im4/fascism_is_here/nilfcy0/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o25im4/fascism_is_here/nillo57/
+
+Yes. All media systems are owned. Putin won, Surkov won, since year 2013. There was no defense. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o25im4/fascism_is_here/nim13px/
+
+No-identity no public records of secret moderation and secret censorship. A secret policing system that does not disclose to public the content removal and let people audit it. I've logged several of the recent censorship / removal of my comments here on this GitHub. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o25im4/fascism_is_here/nim1i1g/
+
+Elon Musk has the largest datacenter / machine training of Reddit and Twitter and other messages in Memphis. https://medium.com/@lotussavy/the-colossus-of-memphis-inside-elon-musks-billion-dollar-ai-power-play-in-america-s-deep-south-1e4b3e6348c4
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o25im4/fascism_is_here/nilmrri/
+
