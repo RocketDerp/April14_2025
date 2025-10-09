@@ -2493,8 +2493,17 @@ Media cults. why aren't people on Reddit promoting Jen Senko's 2015 film? Nonfic
 
 https://old.reddit.com/r/MurderedByWords/comments/1o28rtc/president_falsifies_crisis/nilzlh6/
 
-<img width="1738" height="320" alt="image" src="https://github.com/user-attachments/assets/1761baaf-5508-4c6d-a2c9-ef4908ec301a" /> We are livin the year 2013 onward timeline where Putin's information warfare defeated the USA. The Internet Research Agency formation agreement by Donald Trump on Twitter. **5,000 TIMELINES, not just a single Timeline** in the minds of everyday people (and leaders too, everyone everyone). Abandonment of nonfiction, abadonment of factaul reality. John 1:1 monomyth warfare against We The People, everyone mind-fucked. ... .... ... 
+<img width="1738" height="320" alt="image" src="https://github.com/user-attachments/assets/1761baaf-5508-4c6d-a2c9-ef4908ec301a" /> We are all living the year 2013 onward timeline where Putin's information warfare defeated the USA. The Internet Research Agency formation agreement by Donald Trump on Twitter. **5,000 TIMELINES, not just a single Timeline** in the minds of everyday people (and leaders too, everyone everyone). Abandonment of nonfiction, abadonment of factaul reality. John 1:1 monomyth warfare against We The People, everyone mind-fucked. ... .... ... 
 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446 ... ... ...
 “This need to interface, to confront environments with a certain antisocial power, is manifest in the famous story, “The Emperor’s New Clothes.” “Well-adjusted” courtiers, having vested interests, saw the Emperor as beautifully appointed. The “antisocial” brat, unaccustomed to the old environment, clearly saw that the Emperor “ain’t got nothin’ on.” The new environment was clearly visible to him.”
 — Marshall McLuhan, University of Toronto, March 1967. https://www.themediumisthemassage.com/the-book/
+
+https://old.reddit.com/r/MurderedByWords/comments/1o28rtc/president_falsifies_crisis/nim00l4/
+
+Tiny-short disposable commenting message with no links, no author names, no book titles, no quotes. The fantasy that it is only half. A hates B, B hates A, C hates both A and B, and many variations. Nonfiction learning of media ecology (Neil Postman, Marshall McLuhan) has been abandoned. Media addictions have taken over society, fiction addiction. Putin won, Surkov won, the TOTAL FULL, not HALF since year 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o28rtc/president_falsifies_crisis/nim2j9o/
+
+Alternate REALITIES, Alternate Reality social media screen games! More than 5,000 different anti-reality ARG touch device patterns on every media platform. Since Q2 2013.  Abandonment of nonfiction, abadonment of factaul reality. John 1:1 monomyth warfare against We The People, everyone mind-fucked. ... .... ... 
+"Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
