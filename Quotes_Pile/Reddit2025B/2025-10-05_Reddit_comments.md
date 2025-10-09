@@ -2448,5 +2448,16 @@ Tiny-length short-message, most upvoted comment on the posting, Twitter-think. D
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1o240zo/i_thought_trump_would_save_the_day_but_in_fact/nikzvel/
 
-Tiny-short messaging games, ARG, of the 5,000 patterns conditioend by the IRA on Reddit since year 2013. Russia won the mind-fucking game to make people prize low-effort comments and be avoidant of nonfiction learning. USA didn't stand a fucking chance. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+Tiny-short messaging games on computer machines / touch devices, ARG, of the 5,000 patterns of alterate-reality screen games deployed by the IRA on Reddit since year 2013. Russia won the mind-fucking game to make people prize low-effort comments and be avoidant of nonfiction learning. USA didn't stand a fucking chance. ... ... ...
+"Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o240zo/i_thought_trump_would_save_the_day_but_in_fact/nil0w9t/
+
+The rest of the world of 8 billion people is saying that to 0.34 billion people in North America on the history stage. FOR TEN YEARS AND THREE MONTHS people flock to low-effort insulting comments calling each other stupid in conditoned patterns. Russia won, Surkov won, USA lost an information warfare it can't even name.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o240zo/i_thought_trump_would_save_the_day_but_in_fact/nil063f/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o240zo/i_thought_trump_would_save_the_day_but_in_fact/nil0pyp/
+
+Death-wishing American people. Reddit machine messages to dehumanize USA population. Anit-compassion anti-empahty messaging on computer message systems. Elon Musk media campaign. ... ... ...
+"Elon Musk is wrong. To spurn empathy is to spur evil. By Julia Baird. March 7, 2025" https://www.smh.com.au/lifestyle/life-and-relationships/elon-musk-is-wrong-to-spurn-empathy-is-to-spur-evil-20250307-p5lhpr.html
