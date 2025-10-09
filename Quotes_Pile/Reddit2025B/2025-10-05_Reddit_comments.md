@@ -2555,6 +2555,46 @@ https://old.reddit.com/r/comics/comments/1o2c0k1/the_christian_party/ninw3mn/
 
 https://old.reddit.com/r/comics/comments/1o2c0k1/the_christian_party/nin2fde/
 
-Just like my own comment that got upvoted +1 and then later downvoted. This comment downvoted on front page of Reddit. There is active messasures agaisnt commenting about Bible verse "1 John 4:20" ideals about Christians who are liar. There is an "I Love Jesus" in the PizzaCakec comic, which is right in "1 John 4:20" and the "LOL" hate against the pastor / clergy member is also called out in "1 John 4:20". This comment should have gotten dozens of upvotes at least, now downvoted.
+Just like my own comment that got upvoted +1 and then later downvoted. ~~This comment downvoted on front page of Reddit~~. There are active messasures agaisnt commenting about Bible verse "1 John 4:20" ideals about Christians who are liars. There is an "I Love Jesus" in the PizzaCakec comic, which is right in "1 John 4:20" and the "LOL" hate against the pastor / clergy member is also called out in "1 John 4:20". This comment should have gotten dozens of upvotes at least~~, now downvoted~~.
 
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/nio6qre/
 
+Trump coins hos own John 1:1, and it is not only 35%, people do not realize Satan is a metaphor, and those on Bluesky and Reddit and elsewhere who *hate trump* and *mock Trump* are compusively behaving as conditioned by the IRA. Entertainment-washing LOL-washing amusement-washing. People can not resist the 1005 all-inclusive Total Mockery on high-speed media networksof every kind. This has been going on FOR OVER TEN YEARS AND THREE MONTHS. The endless flocking to *hate harder* signals as leadership. Mocking Trump is not resisting Trump, in Surkov govenring systems, mocking is the intended outcome for resistance captured by simulacra.
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/ninz1lh/
+
+The denial of January 6, 2021 abounds on Reddit. QAnon flags, anti-reality Q media cults. A monomyth fiction pattern, there is no "Q" leader, just messages. "The Capitol siege's QAnon roots" https://www.axios.com/2021/01/07/capitol-sieges-qanon-roots
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/ninxa9j/
+
+Anything but Wake up to Finnegans Wake media ecology and learn nonfiction from Marshall McLuhan on how minds can be bewidlered with monomyth message patterns, storytelling patterns. Russia won an information war that goes far beyond Donald Trump age 79, and these Reddit low-effort comment messages serve people to think sitting around in an audiencea avoiding using nonfiction education and learning is going to fox the Fox News HDTV cult problem, the Reddit disposable commenting cult problems,Elon Musk Twitter cult problems, Facebook cults of unreality that Russia originated with the IRA, etc.
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/ninpw09/
+
+People are doing something. Mocking and insulting and adopting Truth Social beahviors. People are making popucorn and LOL at everything Donald Trump does. People have decided "Death by LOL", "Amusing Ourselves To Death" as defined by year 1985 book is how they want to go out. Abandonment of nonfiction leaning in favor of doing something, commetning all on different pages at different times on 24 hour meme mills like Bluesky and Reddit and not educating and teaching and asserting goodness and "please get on the same nonfiction pages" / halt entertainment to take this as non-amusing non-enterterianing threat.
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/ninrvn2/
+
+Trump is the master of television media, White House media, Truth Social media, all media. Social media society of Reddit has had no organized sustained protest. [Social Media DID NOT STAND UP andget on same page and sustain calls for goodness and cult deprogramming](/June19_2025/Social_Media_Did_Not_Stand_Up.md)
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/ninwzuc/
+
+Yes, commenting on Reddit with disposable comments, waiting. Entertained at watching the "plot" unfold to an Entertaining comment. IT IS TIME, BEYOND TIME, for social media users to stop commenting on thousands of independent pages with disposable content. Halt all etertainmet, halt all joking and mocking, and behave as if serious stiuations are serious! [/Grim_Blunt/Stop_All_Entertainment.md](/Grim_Blunt/Stop_All_Entertainment.md) Let the WHOLE WORLD WIDE WEB know that USA is self-harm and stand up and use our voices to edcuate and teach the world that We The People do not want badness and self harm or wish MAGA to continue to go further and furher into abandonmen of reality and abandonment of goodness.
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/nio3hpi/
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/nio8fw8/
+
+Denial that this is a Russian information war loss, that Putin has won a Internet war. People on Reddit can't even name the "Internet Research Agency" and "Cambridge Analytica" and won't call out that everyone needs to help and join in with massive focus on cults deprogramming.
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/nio9ups/
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/ninxw77/
+
+A recent Reddit account that profile says "you are my story", like it is a mind manipulation messaging account.
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/niohlvy/
+
+https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/ninxj1d/
+
+Also a ecently created account with similar messages.
