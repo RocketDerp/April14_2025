@@ -2422,3 +2422,16 @@ https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissi
 
 "Humm..." tiny-short mockey messages. to hyper-banalize the audience into low-effort mindsets. Conditioning serious problems into rubble. ... ... ...
 "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." - https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/nimfbrk/
+
+Short-length message thinking, Twitter-think, that everyitng is about party A vs. party B, and not a Russian media invasion since year 2013. Locked in classic A vs. B logic patterns in the mind, tribal thinking, unable to see the forest for the trees of the multiple NATO nations reporting mental manipuaton by Russia. Reddit was ground zero, many minds unable to turn to nonfiction learning about media ecology in the face of the obvious symptoms that the nation is having severe group issues / mob mentality thinking patterns.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/nimk176/
+
+Thinks that only one political party is not accountable. Simplistic high-volume disposable commenting thinkng, where speed of the media system is prized over the thought behind the concepts and ideas.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2765b/republican_cspan_caller_to_mike_johnson_i_have/nilw4f2/
+
+Anit-compassion anti-empahty messaging on computer message systems. Elon Musk media campaign. ... ... ...
+"Elon Musk is wrong. To spurn empathy is to spur evil. By Julia Baird. March 7, 2025" https://www.smh.com.au/lifestyle/life-and-relationships/elon-musk-is-wrong-to-spurn-empathy-is-to-spur-evil-20250307-p5lhpr.html
