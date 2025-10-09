@@ -2282,3 +2282,17 @@ I like love and compassion as the foundation of human relationships, I am attrac
 https://old.reddit.com/r/okbuddycinephile/comments/1o2477x/this_means_war_2012/niler0w/
 
 OPERA_A Suddenly your heart is pounding! Wishing secretly you were a super star ( who can grab any woman "By the pussy") man. But don't be fooled by the radio, the TV, or the magazines (or films). They show you photographs of how your life should be.. but they're just someone else's fantasy! So if you think your life is complete confusion (October 2025 USA) because you never win the game... Just remember that it's a grand illusion (Surkov won) and deep inside we're all the same.. We're all the same! https://www.youtube.com/watch?v=2GLXbzqJmvw 21 views March 7, 2017
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nil00wj/
+
+The entire nation is flocking to baddness, loss of everything goodness. Because people can not stop jamming as many low-effort high-speed comment reaction messages into their mind on media systems and seee that the entire society, everyone in USA, is flocking away from nonfiction learning of media ecology. Russia won, Surkov won. Neil Postmana and Marshall McLuhan nonfiction are being avoided... when We The People should all be getting on the same page of 184 page book. "Amusing Ourselves To Death". Why isn't Jen Senko a household name, a society hero, since year 2015?
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nil1lsv/
+
+Hate because of media messages, hate because of White House messages via Fox News HDTV content shared on Reddit media platform. Hate is self-harm. You fixate on the trees you hate and do not see the big picture, the forest for the trees of everyone flocking like sheep to hate signals. ... .... ...
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. **For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost***." - Martin Luther King Jr.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/nikzv71/
+
+MAGA mocks "the libs", "liberal tears", "libtards", and Reddit mocks back. Everyone in USA has a common faith: Total Mockery and total avoidance of leaning of media ecology of high-speed HDTV Fox News information systems.  We The People should all be getting on the same page of 184 page book. "Amusing Ourselves To Death". Why isn't Jen Senko a household name, a society hero, since year 2015?
+
