@@ -2231,3 +2231,12 @@ https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house
 
 Sheep of every color, fiction addicts of every color, fandom to every fiction storytelling pattern. It is nonfiction science thinking that's being avoided. That's what IRA and CA mind fucked everyone to avoid. Stable non-instrumental reason thinking. Instead, people want to argue if South Park is better than King of the Hill. Ficion vs. fiction, monomyth vs. monomyth, all avoiding cult deporgramming nonfiction learning. ... ... ...
 "unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is **the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable**.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o1sl76/right/niitviz/
+
+This entire post about "good Pesident" givng rights and "bad President" taking away rights in a cycle is what George Carlin called out. Swearing on the Bible, swear on mother's graave https://www.youtube.com/watch?v=gaa9iw85tW8 OPERA_A Temporary Privledges https://www.youtube.com/watch?v=3gkjWxCl6zE&t=211s
+
+https://old.reddit.com/r/CuratedTumblr/comments/1o1sl76/right/niis67o/
+
+<img width="1056" height="774" alt="image" src="https://github.com/user-attachments/assets/97224e23-bd06-4527-9ab3-9a611e630dcf" /> This is an importnt message to silloute why abandoning reality, the "War Against Reality" since year 2013, the IRA and CA, is a core focus of this GitHub. Why nonfiction vs. fiction and joke-washing / mind-resetting via humor exploits of the brian / surreal-washing absurd-washing comedy needs to be addressed. 2014 book title "Surreal Heart" of Russia and how that ties to 1985 Neil Postman's "Amusing Ourselves To Death".
+
