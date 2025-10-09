@@ -789,3 +789,14 @@ Most year 2025 smartphones have a "guest mode" that prevents access to private d
 But the value of the device. Pencils did get stolen, not returned, frequently.
 
 https://old.reddit.com/r/anime_irl/comments/1o27qvd/anime_irl/
+
+&nbsp;
+
+### Product Placement
+
+A new album this week from major musician, and they made the front page of Reddit for a product placement.
+
+How cynical should we be?
+
+https://old.reddit.com/r/MadeMeSmile/comments/1o2b9p7/small_business_discovering_a_celebrity_wore_their/
+
