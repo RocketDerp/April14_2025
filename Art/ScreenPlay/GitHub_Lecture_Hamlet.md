@@ -19,6 +19,12 @@ The Fate of Ophelia was horrific in Hamlet, the mass mind washed away, but Malal
 
 &nbsp;
 
+* **Taylor Swift** in October year 2025. "has learned to live and create herself on the curve of the postmodern by making it her goal to be more popular than popular; by having her popularity the topic of popularity. I mean, we have found out that she can’t particularly act or sing. She is not built well enough to be a true cybernetic sex symbol for this period, and yet she manages – because of her understanding of this situation that #Baudrillard calls the hyperreal – to stay on this curve of popularity." - Rick Roderick year 1993, on **Madonna** at Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
+
+&nbsp;
+
 # Off-putting
 
 "The ninth episode of the novel, “Scylla & Charybdis,” takes place in the National Library, where Stephen Dedalus will deliver his much-anticipated (though sparsely attended) lecture on Shakespeare and Hamlet.  Excepting the second half of “Aeolus,” we have largely been in Bloom’s mind since “Proteus,” so the return to the intellectual density, social tension, and discursive loftiness of Stephen’s thoughts in “Scylla & Charybdis” can be somewhat jarring… perhaps even off-putting.  Some readers may be tempted to quit.  Don’t!"     
