@@ -2186,3 +2186,33 @@ https://old.reddit.com/r/IASIP/comments/1o1sqx2/how_it_feels_listening_to_taylor
 Reddit users hide their real name and photo, but Taylor Swift is a real name and a real image. <img width="918" height="996" alt="image" src="https://github.com/user-attachments/assets/1fcd14c1-6f6e-4420-95b7-22e5d4bf8f0d" /> "a schizophrenic-in-crisis" - another ignorant person who never studied Comparative Mythology and learned about schizophrenia and why Taylor Swift songs are able to influence society like Mohammad and L Ron Hubbard. ... ... ...
 "Dr. Joseph Campbell - Inward Journey: Schizophrenia and Mythology. National Educational Radio presents the Cooper Union Forum, a program recorded at the Great Hall of the Cooper Union in New York City by station WNYC. This presentation, a lecture by Dr. Joseph Campbell entitled "Inward Journey: Schizophrenia and Mythology" is introduced by Dr. Johnson Fairchild." https://www.wnyc.org/story/dr-joseph-campbell-inward-journey-schizophrenia-and-mythology/
 
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/niicc3y/
+
+Eating the Surkov onions. Tony Clifton mocks the audience. Negging, it works. Daddy / Father. Allah / Jesus / Yaweh mocks people with cancer, airplane crashes, earthquakes, house fires, war, etc. Trump is Jesus / God to cults. People who hate Trump blow their minds out on hate and see him as mythological Satan figure, compusivleiy mocking him to give him more power. Trump mocks, Bluesky and Reddit audience predictably mocks back.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/niiexwi/
+
+Reddit satire-washes Trump, without Trump, life is so boring and meaningless. Media addicts need their hate Trump mock Trump insult Trump stimulation.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/niilrtg/
+
+The whole nation is. It isn't just "these people", it is low-effort short-length commenting and Trump content addictions.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/nijabr7/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/niji1rg/
+
+Similar to how Bluesky and Reddit communities entertainment-wash and comedy-wash Trump. People who can never get too many poopy diaper jokes and golf outing insulting. Sucked into the total mockery, Surkov govenring. The high-speed media systems makes it all so thrilling to people as they have the USA destroyed for children's future.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/niiizhn/
+
+And Bluesky and Reddit would coin dozens of memes and poetry and songs about the event. Entire society engagement. A hates B, B hates A, C hates A and B, every variaton you can imagine of out-group hate. Cambridge Analytica created 5,000 patterns for Russia's IRA. Conditioned reactionary mindsets that people will not stop flocking to. High-speed messaging / information sytems are "Amusing Ourseles To Death" as Neil Postman described in his year 1985 book.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/niio3tm/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o1q7rv/former_trump_white_house_press_secretary_says_he/niialq8/
+
+Educated on what? Marshall McLuhan University of Toronto, Neil Postman New York University - media ecology. Putin is running circles around the ENTIRE 100%, TOTAL population. Not just MAGA, but Democrts / left / liberals / Reddit all / Bluesky all too.
+
+
+
