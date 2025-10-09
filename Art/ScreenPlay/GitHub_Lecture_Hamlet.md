@@ -60,4 +60,9 @@ https://www.youtube.com/watch?v=yyP8tew0OUQ
 **“History, Stephen said, is a nightmare** from which I am trying to *awake*.”
 ― James Joyce, Ulysses
 
-The paper boy brings more headlines every day...
+The *paper boy* brings more headlines every day...
+
+The media machines bring more headlines every day....
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3m2r7dadee223    
+https://autistics.life/@RoundSparrow/115344311545666354
