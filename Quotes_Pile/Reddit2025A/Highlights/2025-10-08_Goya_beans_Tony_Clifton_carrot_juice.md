@@ -24,7 +24,7 @@ Unpacking the title and linked video and references
 
 2. Andy Kaufman was on SNL, New York City, Taxi TV show, etc
 
-3. Donald Trump from New York City is a television addict and watches and comments on SNL NYC. He knows the performers. Trurmp owned casinos, he knows the comedy entertainers (their techniques and the how audiences have minds blown by Kaufman methods).
+3. Donald Trump from New York City is a television addict and watches and comments on SNL NYC. He knows the performers. Trurmp owned casinos, he knows the comedy entertainers (their comedy techniques and Trump has a keen eye on how audiences have minds blown out by Kaufman methods).
 
 4. Tony Clifton **carrot juice** act on stage and on television news. *Bizarre, surreal, absurd entertainment* / reality TV "fake news" coverage on REAL news. https://www.youtube.com/watch?v=JKTR8Yj5hg4&t=135s
 
