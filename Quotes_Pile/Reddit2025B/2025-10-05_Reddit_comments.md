@@ -2140,3 +2140,17 @@ https://old.reddit.com/r/law/comments/1o1q7xj/impeachable_for_abuse_of_power_tru
 
 Putin. And we keep acting like that Alaska visit recently didn't happen, along with all the other pro-Putin anti-NATO shit like attacking Canada with mind-fuck.
 
+https://old.reddit.com/r/LivestreamFail/comments/1o1r33t/labased_streamer_shows_off_his_canine_companions/niio7em/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o1r33t/labased_streamer_shows_off_his_canine_companions/niioinp/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o1r33t/labased_streamer_shows_off_his_canine_companions/niiqq0w/
+
+Reddit society attitude is that the "smart thing" is to avoid truth and facts and hide them inside your brain. Not admit mistakes, not grow, just run away from the problem through cold-shoulder and silence. Like corporations do when they make big blunders and errors, deny it with silence / stonewalling. That is considered "smart".
+
+https://old.reddit.com/r/LivestreamFail/comments/1o1r33t/labased_streamer_shows_off_his_canine_companions/niijumq/
+
+So many in cults, so little Reddit front page media cult deprogramming. Fox News is a media cult, but nobody wants to promote Jen Senko's 2015 film and make her a household name for standing up to cults.
+
+
+
