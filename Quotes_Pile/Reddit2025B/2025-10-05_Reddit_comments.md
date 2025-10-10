@@ -2890,5 +2890,46 @@ https://old.reddit.com/r/popculturechat/comments/1o2yocu/billie_eilish_was_grabb
 
 Donald Trump fans are wrecking the world, media mania, entertainment mania. Trump fans on Reddit who adore gathering in mobs of comment sections to mock and insult: poop diapers, orange skin, golf outings, making fun of Trump speech. It has fandom of hate flocking to a hate leader FOR OVER TEN YEARS AND THREE MONTHS with faith in hate itself. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nirse55/
 
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nirpg6m/
+
+Absurd comedy, surreal jokes. How Surkov governing works, and Reddit community eats The Surkovian Onions every time declaring how "joke" and "unreal" the Onion tastes as it goes into their mouth and is chewed. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nirrftm/
+
+Moscow. Published 11 years ago in NONFICTION: ... ... ...
+"The Kremlin’s idea is to own all forms of political discourse, to not let any independent movements develop outside of its walls. Its Moscow can feel like an oligarchy in the morning and a democracy in the afternoon, a monarchy for dinner and a totalitarian state by bedtime.”
+― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia. year 2014
+
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nis20jf/
+
+Don't speak up, comment on Reddit, stay inside the low-effort different pages simualcras.
+
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nis4u62/
+
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nis7mri/
+
+Reddit community can not name timelines, geographic locations, names of organizations, people invovled. ... ... ...
+"Russia’s ‘troll factory’ is alive and well in Africa" By Mary Ilyushina, CNN Updated 7:31 AM EDT, Friday November 1, 2019. "The pages were linked to Russian businessman Yevgeny Prigozhin, dubbed by the Russian media as “Putin’s chef,” who was sanctioned by the US for funding the Internet Research Agency that US prosecutors allege meddled in the 2016 presidential election." - https://www.cnn.com/2019/10/31/europe/russia-africa-propaganda-intl
+
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nis46u7/
+
+"dampen moral", is exactly the opposite. The simualcra message patterns are about high-energy mocking and insulting and avoidance of nonfiction. Celebration of Ingorance in agressive repetitive low-effort reactionary mindsets. To be more attracted to junk noise inforamtion than anything else with spare time and free time. It is POWERFUL ENGAGEMENT, addiction, not "dampen" but amplify banal desires and nofiction avoidance. *Hate harder, hate faster, mock harder, mock faster, insult harder, call everyone else dumb, while consuming trash dispsable commenting*. Reddit community will declare all other USA community groups dumb, and all other groups callling everyone else dumb, and everyone in dumb and dumber feedback loops FOR OVER TEN YEARS AND THREE MONTHS ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nis1kcx/
+
+Tiny-short messages to praise gun worship, praise MAGA values of male agressioin with weapon systems and guns. **INSTEAD: buy nonficiton books about media ecology from Marshall McLuhan and Neil Postman and learn how to use nonfiction and educate. Learn about cult deprogramming from nonfiction. Promote Jen Senko's 2015 film and buy it**.
+
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nis9spv/
+
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nirtcqm/
+
+It started in June 2015, has been going on for OVER TEN YEARS AND THREE MONTHS, in an dout of White House. And this one thing. Recency bias abounds. January 6, 2021 wasn't, injecting bleech for COVID-19 wasn't, "eating the cats and dogs in Springfield Ohio" wasn't. People fixated on low-effort commenting at high speedsd can not see the forest for the trees. Part of the Recency Bias of Surkovian Onion Eating. 
+
+https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_trump_loses_nobel/nirqnuw/
+
+When is Reddit commenting not reactionary and calling out that this is Surkovian governing methods? Constant stimulation as leadership signals for TV and meme mill consumers. Published January 2015, before Trump started run for office in June 2015: ... ... ... 
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But **we still have to give our viewers the sense something is happening**. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
 
