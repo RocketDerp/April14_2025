@@ -3039,4 +3039,28 @@ https://old.reddit.com/r/pics/comments/1o35jfc/the_feds_assembling_to_confront_t
 
 Year 2007. Now this is what Reddit commenting allows, specific dates, links, citations, etc. But people prize high-speed reactionary thinking as conditioned by Putin / IRA / CA since year 2013.
 
+https://old.reddit.com/r/nottheonion/comments/1o31wvr/white_house_aide_nobel_committee_put_politics/niry882/
+
+This is what passes for public discource, entertainment, in October 2025 with the USA audiences cheering on an entertainment leader from Reality TV. Shallow superficial visual concerns, popular comment upvoted on meme mills. Has been ongong on Reddit society for over 10 full years. Addicts to mockery who can never be satisfied in their cravings for more mockery and mocking as leadership. Donald Trump / White House / Kremlin provides that leadership to fiction addits that others could not provide. High speed message addicts flock to banal and superficail commenting for hate stimuation. ... ... ... 
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/nottheonion/comments/1o31wvr/white_house_aide_nobel_committee_put_politics/nis05h2/
+
+And Reddit audiences are thrilled to see fiction monomyth story of Austin Powers be applied to the White House. The Tony Clifton acting performance that the audience mocks, as conditioned, insulting and mocking endlessly FOR OVER TEN YEARS AND THREE MONTHS, endlessly eating out of the hands of the Russian Surkovian media techniques and methods.
+
+https://old.reddit.com/r/nottheonion/comments/1o31wvr/white_house_aide_nobel_committee_put_politics/nisbdzb/
+
+No link, no date, no quote, no author name, no title. Just constantly streaming low-effort commenting that is abandoned after hours so new low-effort comments can be craeted on the next new Reddit posting.
+
+https://old.reddit.com/r/nottheonion/comments/1o31wvr/white_house_aide_nobel_committee_put_politics/nirycef/
+
+Because people prize entertainment. Audiences prize entertainment. Nonfiction learning has been abandoned. Putin won, Surkov won, since March 2013.
+
+https://old.reddit.com/r/nottheonion/comments/1o31wvr/white_house_aide_nobel_committee_put_politics/nis1qg2/
+
+Predictable mind-fuck patterns, exploiting the audience minds. Mocking, shallow, superficial, banal desires in mindsets.
+
+https://old.reddit.com/r/nottheonion/comments/1o31wvr/white_house_aide_nobel_committee_put_politics/nirxrhc/
+
+A society that prizes low-effort insulting Truth Social shit-talking over nonfiction serious learning of media ecology and Kremlin information warfare methods.
 
