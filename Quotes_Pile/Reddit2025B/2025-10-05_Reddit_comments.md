@@ -2933,3 +2933,29 @@ https://old.reddit.com/r/politics/comments/1o30t9g/white_house_flips_out_after_t
 When is Reddit commenting not reactionary and calling out that this is Surkovian governing methods? Constant stimulation as leadership signals for TV and meme mill consumers. Published January 2015, before Trump started run for office in June 2015: ... ... ... 
 https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But **we still have to give our viewers the sense something is happening**. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
 
+https://old.reddit.com/r/law/comments/1o335ik/trump_is_openly_committing_treason_he_must_be/nisagdw/
+
+All people in USA age 12 to age 120 need to step up and face Neil Postamn's 1985 book "Amusing Ourselves To Death" and apply it to Facebook, Twitter, Reddit, TikTok, Instagram, YouTube, etc. 
+
+https://old.reddit.com/r/law/comments/1o335ik/trump_is_openly_committing_treason_he_must_be/nishw9z/
+
+Drive-by shooting. Drive by, fire comment addiciton egagement topics, but no interest in actually organizing and getting *on the same page* of serious and important topics. An environment of constantly streamign disposable commenting addiction. Wrecked the USA with avoidance of paper printed books at the same time, same page, focused and repeating what is important and holding what is important and goodness.
+
+https://old.reddit.com/r/law/comments/1o335ik/trump_is_openly_committing_treason_he_must_be/nisg8cq/
+
+We are all swiming in a sea of tiny-short fragemented ideas in a comment section, soup of no-identity authors changing mental context every 1 to 1.5 seconds in the mind with no desire to escape the ocean of recency-washing serious long-term vents and trends... just "riding the waves" of "surfing" comments even when they have been crashing into rocks and wrecking goodness for OVER TEN YEARS AND THREE MONTHS. ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/law/comments/1o335ik/trump_is_openly_committing_treason_he_must_be/nisgo2a/
+
+December 31, 2014 - more than a decade ago: "But **the key thing** was, that Surkov then **let it be known** that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - BBC, Adam Curtis
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o310j0/lmao_get_rekt_trump/nirssus/
+
+Funny-washing, amusement-washing, everyting is entertainment to Reddit audiences, flocking to every information turd with Trump stamping.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o310j0/lmao_get_rekt_trump/nirw9tu/
+
+"The Press", yha, the Reddit commenting section "press" of disposable fish-wrap commenting. It should be about the *techniques of mythology, mind-fucking of humanity via media* - such as naming "Surkov techniques" and "Kremlin techniques" and "Surkovian methods". L Ron Hubbard is dead, died, but the techniques of cult programming and fiction addiction, monomyth fiction storytelling addiction, is still here. Mohamamd long dead but Mecca science fiction theme park of outer-space broadcasting messages still lives on. It is a PATTERN of media ecology. "The Press", yha. The *printing press*, yha, on paper. Truth Social, Twitter, "The Press". ... ... ...
+“they will be hearers of many things and will have learned nothing; they will appear to be omniscient and will generally know nothing;” ― **The Gutenberg Galaxy: The Making of Typographic Man** is a 1962 book by Canadian media theorist Marshall McLuhan
+
