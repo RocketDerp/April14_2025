@@ -3217,3 +3217,41 @@ https://old.reddit.com/r/PublicFreakout/comments/1o3akew/streamer_asmongold_zack
 
 Donald Trump goes out golfing, Trump goes to Alaska to meet Putin, trump went to London to meet the King, all over. People listen to him because he avoids nonfiction. Fiction outsells nonfiction, even if you sit in one room on a camera or fly all around like Donald Trump does. Elon Musk, Rupert Murdoch, lots of people who travell over the world and even come from South Africa or Australia - and what matters to audience is fiction storytelling. Nonfiction serious learning of media ecology, nobody cares.
 
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/nituafr/
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/nitzext/
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/nits1ok/
+
+Dispoable commenting. Low-effort no-link no citation no quote no author no book title commenting. People think Russia ins't harming USA children? August 24, 2018 HARD EVICENCE of measles manipulation https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/nitws33/
+
+"Is everyone crazy?"  "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/niu5lng/
+
+Any time you bring up the IRA / Russa / Cambridge Analytica / Putin - people just move on, act like it isn't a serious topic. Meeting in Alaska with Putin, forgotten, Charlie Kirk washed all that away with all the people mocking Kirk. Recency bias abounds.
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/nitx6ji/
+
+The laughing is a symptom. IRA and CA mind-fucking. Amusement-washing LOL-washing. Anything to avoid engaging nonfiction learning on media ecology and Russian information warfare techniques and methods.
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/niue0vq/
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/niu44rq/
+
+No links, no author names, no book names, no quotes...
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/niucp3p/
+
+Entertainment to death, Sprots Games to death, Music at HALF Time to death, 1985 book by Neil Postman "Amusing Ourselves To Death"
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/niuovzu/
+
+No links, no author names, no book names, no quotes...
+
+https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/niulwz5/
+
+People comment create without even reading the other comments. It's a total mockery enviornment. Anti-learning anti-understanding, free time and spare time to disposable commenting. A chamber of anti-comprehension.
+
