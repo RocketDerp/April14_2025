@@ -2768,3 +2768,18 @@ https://old.reddit.com/r/PublicFreakout/comments/1o2jys3/you_better_start_follow
 
 Crazy everywhere. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/explainitpeter/comments/1o2dxe3/i_dont_get_it_explain_it_peter/ninwq37/
+
+https://old.reddit.com/r/explainitpeter/comments/1o2dxe3/i_dont_get_it_explain_it_peter/ninl3uf/
+
+https://old.reddit.com/r/explainitpeter/comments/1o2dxe3/i_dont_get_it_explain_it_peter/nindun9/
+
+https://old.reddit.com/r/explainitpeter/comments/1o2dxe3/i_dont_get_it_explain_it_peter/nin980i/
+
+https://old.reddit.com/r/AmIOverreacting/comments/1o2ec2l/aio_my_sons_teacher_came_across_very/ninicxs/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o2h9rf/petahh_what_does_this_mean/nio3ou2/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o2h9rf/petahh_what_does_this_mean/nio84kd/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o2h9rf/petahh_what_does_this_mean/niot8zg/
