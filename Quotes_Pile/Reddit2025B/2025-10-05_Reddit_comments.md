@@ -3092,3 +3092,31 @@ https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_
 
 <img width="870" height="362" alt="image" src="https://github.com/user-attachments/assets/ed58c24d-1818-4b38-b33d-0fc66c7824a2" /> "This is like", unable to turn to nonficiton serious learning of Russian information warfare since year 2014. Meme addicts unable to inagine their own compusive attract to Reddit trash media has been a warfare techique by Putin. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisei9z/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisfwnk/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisqakx/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisuccq/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nit6swn/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisaxc7/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisa2yf/
+
+Cuck everrything in USA to low-effort high-speed commenting as conditioned by the IRA and CA since year 2013. Abandon reality in favor of mocking and insulting "cucks" over and over and over for OVER TEN YEARS AND THREE MONTHS, anything to avoid **serious nonficiton learning** of media ecology and Russian information warfare methods.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/niscbkt/
+
+No links, no quotes, no author names, no book titles, no dates, no citations, just disposable commenting that is abandoned hours later for millions of more low-effort all on different pages commenting.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisymx9/
+
+Someone "Media Woke" at the James Joyce Finnegans Wake level of monomyth fiction storytelling. Alas, no links, no quotes, no author names, no book titles, no dates, no citations, just disposable commenting that is abandoned hours later for millions of more low-effort all on different pages commenting. New Reddit account mocking the mockery of Reddit itself.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nit18zb/
+
+<img width="1718" height="1324" alt="image" src="https://github.com/user-attachments/assets/777be86c-d1fa-4aad-8d9a-f6e7cb621a23" /> A description of mockery-washing amusement-washing LOL-waashing that Reddit is ground zero for, as is Bluesky. Constantly entertainment-washing the serious problems away with disposable low-effort commetning.
+
