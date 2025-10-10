@@ -2984,3 +2984,16 @@ https://old.reddit.com/r/nottheonion/comments/1o33u98/hegseth_announced_friday_t
 https://old.reddit.com/r/nottheonion/comments/1o33u98/hegseth_announced_friday_that_the_pentagon_has/nisijay/
 
 <img width="872" height="556" alt="image" src="https://github.com/user-attachments/assets/6563c834-7291-4b0d-8bcf-b2c9a5708ef3" /> What some, here me Stephen Alfred Gutknecht on GitHub, call "Surkov Govenring", "Surkov students", "Surkovian", "Kremlin media techniques", "What Adam Curtis described December 31, 2014", "Menace of Unreality", "War Against Reality", "War Against Nonfiction"... brainrot behaviors, media cults, of Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/nottheonion/comments/1o33u98/hegseth_announced_friday_that_the_pentagon_has/nisdu5g/
+
+Tiny-short messages with no author names, no book title, no quotes, no links. ... ... ...
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/nottheonion/comments/1o33u98/hegseth_announced_friday_that_the_pentagon_has/nise4cj/
+
+If nobody stops the low-effort high-quantity commenting addictions, disposable messaging addictions...
+
+https://old.reddit.com/r/nottheonion/comments/1o33u98/hegseth_announced_friday_that_the_pentagon_has/niseoyw/
+
