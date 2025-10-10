@@ -2735,3 +2735,15 @@ https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_compa
 
 Tin Finnegan Ladder Fall. James Joyce's "The Fall" of "Wake" to "Sleep" year 1924 publication onward describes it. OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=42tj0hQuaFY  1,152,477 views February 16, 2023
 
+https://old.reddit.com/r/pcmasterrace/comments/1o2h8pc/recently_in_china_a_girl_gave_her_fianc%C3%A9_an_rtx/ninrl0i/
+
+Created a ritual, a puzzle to solve ritual and presentation ritual. The video gaming / alternate realities GPU myths. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): JOSEOPH CAMPBELL: I see the possibility of new metaphors, but I don’t see that they have become mythological yet.
+BILL MOYERS: What do you think will be the myths that will **incorporate the machine** into the new world?
+CAMPBELL: Well, automobiles have gotten into mythology. They have gotten into dreams. And airplanes are very much in the service of the imagination. The flight of the airplane, for example, is in the imagination as the release from earth. This is the same thing that birds symbolize, in a certain way. The bird is symbolic of the release of the spirit from bondage to the earth, just as the serpent is symbolic of the bondage to the earth. The airplane plays that role now.
+
+https://old.reddit.com/r/pcmasterrace/comments/1o2h8pc/recently_in_china_a_girl_gave_her_fianc%C3%A9_an_rtx/nio3hp7/
+
+https://old.reddit.com/r/pcmasterrace/comments/1o2h8pc/recently_in_china_a_girl_gave_her_fianc%C3%A9_an_rtx/niog5wy/
+
+There you go. JOSEOPH CAMPBELL: I see the possibility of new metaphors, but I don’t see that they have become mythological yet. OPERA_A https://www.youtube.com/watch?v=X9uk9IcoQ0w
+
