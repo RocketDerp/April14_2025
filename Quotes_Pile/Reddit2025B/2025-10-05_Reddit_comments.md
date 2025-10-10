@@ -2703,3 +2703,13 @@ https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_compa
 
 Beyond the recency bias. Putin realized this and jumped on. Published January 2015, before Trump started run for office in June 2015: ... ... ...
 https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninhikn/
+
+Yes. Published in year 2019: “Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that **“nonsense is a more effective organizing tool than the truth,”** and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, page 85. **year 2019**
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninil9g/
+
+It says the entire population can't go to the nonfiction section of the public library and study Russian information war since year 2014. This September 9, 2014 article explains it. Which is more than 2 full years befoe November 2016 electon day. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
