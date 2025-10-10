@@ -2813,3 +2813,31 @@ https://old.reddit.com/r/worldnews/comments/1o2vy2d/venezuelas_maria_corina_mach
 
 "Amusing Ourselves To Death" is a 1985 book by ... ... ...
 “What Huxley teaches is that in the age of advanced technology, spiritual devastation is more likely to come from an enemy with a smiling face than from one whose countenance exudes suspicion and hate. In the Huxleyan prophecy, Big Brother does not watch us, by his choice. **We watch him, by ours.**" ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirogok/
+
+The whole world adopted USA and Japanese computer technology from the 1970's to 1998 (Windows 98, Windows NT)... and then some Google and social media and Wikipedia from USA after 1998 and of course Apple and...YouTube (GOogle again) and ... you get the idea, maybe. And Russia used it since November 7, 2012 to combine with doctors of psycchology and psyciatry to manipulat the USA technology addicts inti furthering their shit-talk dehumanize on Internet, "just a prank, bro" values, including well known Internet meme addicts Donald Trump and Elon Musk and others... into contest of being the most agressive man / domestic agressive predator possible in USA ... and .... Neil Postman was correct in year 1985 and year1992 and September 1995 books. Carl Sagan was correct in year 19885 book... and nonfiction books? And now the USA leadership out of the technology bubble and Hollywood music and film and TV bubble since all that recording of media and distribution of media systems technology growth is... this could be framed from thousands of other diferent perspectives....
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirknhv/
+
+This is labeled as fiction, as sarcasm, with "/s" but seems it isn't. It is short-length and reactionary. High-speed reactionary no-citation, lo link, eating out of the Trump and Putin simulacra of thougtless reactionary flocking...
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirl6u1/
+
+Insulting and mocking a total mockery only adds to a Tony Clifton performance / Surkov Students screenplay...
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirjq4h/
+
+Yes. Which is the latest "new media" methods of overwriting Reality. And USA society has been eating this up using meme-techniques and Reddit methods and Twitter methods and Facebook methods of "governing" and thinking Tweet-think OVER TEN YEARS AND THREE MONTHS and the self-harm done to the nation mental mass mind / mass man is NOT A FUCKING JOKE OR MINOR ERROR. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirnx2s/
+
+Surkov and Putin ran Russia for over 25 years this way and an export military weaponzied version was created to targeet USA "meme LIFE!" entertainment culture in 2012 and deployed since Q2 2013... Operation Matthew 4:19 ... [Operaion Matthew 4:19 since November 7, 2012](/Operation_Matthew_4_19_on_monday_2024-03-31.md).. and Trump fell for it, the USA population fell for it, *hook and line and sinker and pole and fisherman Putin in self-harm to Russia* and Russia and USA with nuclear weapons and allother kinds of self-harm technology to the Pale Blue Dot have adopted *hate as fatih, hate as religion, hate harder* feedback loops in a *mock reality, mock harder, mock science learning and thinking* ... blah, how does one write this? ... ... ... 
+"how do I **deal with a world like this**? Can you offer any advice? On a regular basis now **I wake in the morning convinced I am Alice with big black hair and a big red dress; I’ve fallen down the rabbit hole; and it’s the mad hatter over there and the smiling cat over there and talking furniture over there …. you get the point. All our political candidates are characters out of a South Park cartoon**. How does one find some kind of engagement yet also some kind of detached concern? I am experimenting with imagery work and mythologies just to sort of get through the day … but it occurred to me to ask you. He really was extraordinary." - mark hanawalt.  June 7th, 2016 at 1:46 am - https://rickroderick.org/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirm2qx/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/niryphx/
+
+He speaks for all the hate of the internet socity, social media society, that people deny is actually hate. THe denial of the IRA and CA since year 2013. The denial of Twitter-think trashing of goodness that Reddit consumes every day and doesn't want to admit is self-harm. The avoidance of using MLK Jr's teaching in the face of hate for hate, hate as faith. THE DENIAL SINCE October 8, 2013 of all the things Malala has been saying are true progress that is another Nobel winner that gets gre-rocked on Bluesky and Reddit in yeaar 2025. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
