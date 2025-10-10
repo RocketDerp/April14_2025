@@ -3209,3 +3209,7 @@ https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_r
 
 Nullifying reality. New this year account on Reddit.
 
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/niuc6b0/
+
+So entertaining  to have bullshit-driven society lead by no-identity disposable commenting. So amusing and funny to have entwrtainer Rality TV star running the nation. It gives comedy addicts and media addicts their constant LOL / LAMO at the USA being mind-fucked by Russia since year 2013.
+
