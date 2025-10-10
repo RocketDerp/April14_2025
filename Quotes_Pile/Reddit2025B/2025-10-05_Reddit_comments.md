@@ -2997,3 +2997,7 @@ If nobody stops the low-effort high-quantity commenting addictions, disposable m
 
 https://old.reddit.com/r/nottheonion/comments/1o33u98/hegseth_announced_friday_that_the_pentagon_has/niseoyw/
 
+https://old.reddit.com/r/illinois/comments/1o31wnq/illinois_state_troopers_arrest_ice_protesters/nislltb/
+
+<img width="1366" height="594" alt="image" src="https://github.com/user-attachments/assets/0e3e86e0-0957-4edc-9c22-431880008948" /> We should all be watching Sudan, watching Ukraine, watching domestic Russia, watching every conflict and being serious about  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). We are all parenting the next generations. We have known since year 1954. ... ... ...
+"The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - Marshall McLuhan
