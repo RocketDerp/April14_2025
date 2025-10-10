@@ -3150,3 +3150,58 @@ But don't blame fiction addictions, monomyth meme patterns, Russiain information
 https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisb8zj/
 
 Describing the anti-reality, raelity killing weapons hitting the minds of the Reddit audience, but unable to link, cite, name author, name book title, describe the War Against Reality / War Against Nonfiction. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nit6rzf/
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nitat5l/
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/niteefc/
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/niu276q/
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nitdv3k/
+
+Fiction outsells nonfiction. The audience, the population of all people, voters and nonvoters, flock to entertainment and amusement. The Reddit commenting of disposable low-quality high-speed messaging shows this attraction to trash information.
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/niu9r7l/
+
+This is public discourse on Reddit, banality-washing, mind-fucking of Reddit audience.
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nituwsc/
+
+Nonfiction does not sell, truth does not sell. The IRA and CA mindfucked the entire population since yeaer 2013 and by June 2015 it was becoming very clear that fiction (non truth) outsells nonfiction. Predoatry Reddit media commenting for amusrement has taken over, predatory humor-washing fiction-washing is what people prize now. People refuse to face up that Neil Postman was correct in year 1985. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nitgi32/
+
+He is a constant entertainment source, star of mockery, star of mocking, star of insulting, on Reddit for OVER TEN YEARS AND THREE MONTHS. The attraction to banal mocking has ruined this nation. People blow their minds out with LOL / LMAO. There is no serious discourse, disposable high speed reactionery comments that LOL-wash and humor-wash and joke-wash everything. ... ... ...
+"Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." - https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nite0ng/
+
+The Church, The Bible? That's a science fiction venue Church selling science fiction storytelling of magaical outer-space angels and magical burning bush messaging systems. People on Reddit can't eeven declare it is science fiction and equal to Hamlet's Ghost storytelling, Star Wars 1977 "Force Ghosts" storytelling. People can't be serius about addictions to fiction. It should be seperaiton of FICTION from NONFICTION in governing. As people can't understand 1950's L Ron Hubbard because they don't wnat to face Torah / Quran / Bible are best selling science fiction trillogy in human history. Oh, you study the Harritage Foundation, why can't you link this story from BEFORE January 6, 2021 while QAnon monomyth ficiton was raging in USA? ... ... ...
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nitp3wu/
+
+It's the Reddit commenting amuseement-washing banality-washing high-speed disposable commenting society that does everyting it can to avoid calling for people to get on the same page as everyone is commenting at different pointsin comment thread trees and nobody even notices the forest is cathing on fire since year 2013. People can't egnage nonfiction and call out the LOL mindsets and the LMAO mindsets that turn every serious topic into a battle of joke-washing reality away into HiveMind blown out into recency bias.
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nit689i/
+
+"The media". Trump is the master of television media, White House media, Truth Social media, Twitter media, all media. Social media society of Reddit has had no organized sustained protest. [Social Media DID NOT STAND UP and get on same page and sustain calls for goodness and cult deprogramming](/June19_2025/Social_Media_Did_Not_Stand_Up.md)
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nitco14/
+
+Reddit the amusement mill wrecks all serious in the nation. Bluesky, Reddit, TikTok, Instagram, everything is washed away in consstant anti-serious trash creation. [SOCIAL MEDIA SOCIETY DID NOT STAND UP AND SUSTAIN FOCUS, PEOPLE KEEP ENTERTAINMENT-WASHING, WE THE PEOPLE ARE "Amusing Ourselves To Death" as described by Neil Postman in year 1985](/Grim_Blunt/Pop/Social_Media_Society_did_not.md) ... ... ...
+"All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” Big Brother turns out to be Howdy Doody."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nitm53y/
+
+<img width="1490" height="468" alt="image" src="https://github.com/user-attachments/assets/d2acae23-0d7d-4d6d-bf27-6c671c243878" /> Yes, mind-fucking reality. Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/niu6970/
+
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/nitytch/
+
+What changed? Social media. Reddit 20 years ago came online. The Apple iPhone in middle of year 2007. The Internet Research Agency military invasion of social media since Q2 2013. Cambridge Analytica. The denial is boundless on Reddit. Surkov won, Russia won, people can't even describe the "War Against Reality". Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
