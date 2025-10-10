@@ -2129,7 +2129,7 @@ Note the absence of links, author names, book titles, etc.
 
 https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhd8q84/
 
-IT IS TIME, BEYOND TIME, for social media users to stop commenting on thousands of independent pages with disposable content. Halt all etertainmet, halt all joking and mocking, and behave as if serious stiuations are serious! [/Grim_Blunt/Stop_All_Entertainment.md](/Grim_Blunt/Stop_All_Entertainment.md)
+IT IS TIME, BEYOND TIME, for social media users to stop commenting on thousands of independent pages with disposable content. Halt all entertainmet, halt all joking and mocking, and behave as if serious stiuations are serious! [/Grim_Blunt/Stop_All_Entertainment.md](/Grim_Blunt/Stop_All_Entertainment.md)
 
 https://old.reddit.com/r/politics/comments/1nw355h/donald_trump_meeting_project_2025_author_to_cut/nhda0o3/
 
