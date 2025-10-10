@@ -2863,3 +2863,32 @@ https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_
 Reddit community will declare all other USA community groups dumb, and all other groups callling everyone else dumb, and everyone in dumb and dumber feedback loops FOR OVER TEN YEARS AND THREE MONTHS ... ... ... 
 "unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
+https://old.reddit.com/r/popculturechat/comments/1o2yocu/billie_eilish_was_grabbed_and_pulled_by_a_man/nirbu45/
+
+Media ecology literacy and self-awareness of compusive media behavrios is not optional. Flordia, the nation leader of values. Mar-A-Lago HQ for role models. 
+
+https://old.reddit.com/r/popculturechat/comments/1o2yocu/billie_eilish_was_grabbed_and_pulled_by_a_man/nis0jm3/
+
+The way people use crowds to harm people. Predatory. Disconnected from goodness.
+
+https://old.reddit.com/r/popculturechat/comments/1o2yocu/billie_eilish_was_grabbed_and_pulled_by_a_man/nirfybu/
+
+We do not teach in our shools and to adults "fire drills" for mob mentality and Twitter Elon Musk and Truth Social Fox News Donald Trump represent leadership signals of mob mentaliy that educationa and self-awaren=ess of the signs of such mob mentality mindset should have avoided. Cults breaking out, mob mental thinking states, we should recognize them. September 11, 2001 was a mob mentality terrorism mind state and we have avoided mass mind / mass man learning from Marshall McLuhan and Neil Postman and Bill Moyers.
+
+https://old.reddit.com/r/popculturechat/comments/1o2yocu/billie_eilish_was_grabbed_and_pulled_by_a_man/nirdrom/
+
+https://old.reddit.com/r/popculturechat/comments/1o2yocu/billie_eilish_was_grabbed_and_pulled_by_a_man/nirhqni/
+
+We need to be teaching every person age 12 to age 120 aboout cult behaviors, media cults, predatory mindsets. Making nonfiction learning of compassion and nonfiction love important. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/popculturechat/comments/1o2yocu/billie_eilish_was_grabbed_and_pulled_by_a_man/nirgmbo/
+
+Mob mentality abounds. High-speed reactioanry thinking training camps, terrorism training camps, of mindsets that prize speed over anything else. Popularity in Florida itself has become toxic since year 2013. Agressive males are seen as role models. Mar-A-Lago seen as goodness, ass-backwards morality and race to the bottom. Attraction to "bad ass" male agression. ... ... ... 
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/popculturechat/comments/1o2yocu/billie_eilish_was_grabbed_and_pulled_by_a_man/nirdnpl/
+
+Donald Trump fans are wrecking the world, media mania, entertainment mania. Trump fans on Reddit who adore gathering in mobs of comment sections to mock and insult: poop diapers, orange skin, golf outings, making fun of Trump speech. It has fandom of hate flocking to a hate leader FOR OVER TEN YEARS AND THREE MONTHS with faith in hate itself. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+
+
