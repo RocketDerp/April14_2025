@@ -2575,7 +2575,7 @@ People are doing something. Mocking and insulting and adopting Truth Social beah
 
 https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/ninrvn2/
 
-Trump is the master of television media, White House media, Truth Social media, all media. Social media society of Reddit has had no organized sustained protest. [Social Media DID NOT STAND UP andget on same page and sustain calls for goodness and cult deprogramming](/June19_2025/Social_Media_Did_Not_Stand_Up.md)
+Trump is the master of television media, White House media, Truth Social media, all media. Social media society of Reddit has had no organized sustained protest. [Social Media DID NOT STAND UP and get on same page and sustain calls for goodness and cult deprogramming](/June19_2025/Social_Media_Did_Not_Stand_Up.md)
 
 https://old.reddit.com/r/law/comments/1o2gydz/letitia_james_the_new_york_attorney_general_who/ninwzuc/
 
@@ -3001,3 +3001,8 @@ https://old.reddit.com/r/illinois/comments/1o31wnq/illinois_state_troopers_arres
 
 <img width="1366" height="594" alt="image" src="https://github.com/user-attachments/assets/0e3e86e0-0957-4edc-9c22-431880008948" /> We should all be watching Sudan, watching Ukraine, watching domestic Russia, watching every conflict and being serious about  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). We are all parenting the next generations. We have known since year 1954. ... ... ...
 "The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - Marshall McLuhan
+
+https://old.reddit.com/r/illinois/comments/1o31wnq/illinois_state_troopers_arrest_ice_protesters/nis8ar9/
+
+World Wide Web, WWWW. We The People are react-commenting on social machiens with tiny-short messages. Why are WE not standing up on social media in unity, calling for goodness? Why aren't we making a list of goodness, a named list, and asserting it over and over? Trump is the master of television media, White House media, Truth Social media, all media. Social media society of Reddit has had no organized sustained protest. [Social Media DID NOT STAND UP and get on *same page and sustain calls* for goodness and cult deprogramming](/June19_2025/Social_Media_Did_Not_Stand_Up.md)
+
