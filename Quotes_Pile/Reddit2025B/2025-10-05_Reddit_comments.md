@@ -3213,3 +3213,7 @@ https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_r
 
 So entertaining  to have bullshit-driven society lead by no-identity disposable commenting. So amusing and funny to have entwrtainer Rality TV star running the nation. It gives comedy addicts and media addicts their constant LOL / LAMO at the USA being mind-fucked by Russia since year 2013.
 
+https://old.reddit.com/r/PublicFreakout/comments/1o3akew/streamer_asmongold_zackrawrr_on_twitch_doubles/niu9jsm/
+
+Donald Trump goes out golfing, Trump goes to Alaska to meet Putin, trump went to London to meet the King, all over. People listen to him because he avoids nonfiction. Fiction outsells nonfiction, even if you sit in one room on a camera or fly all around like Donald Trump does. Elon Musk, Rupert Murdoch, lots of people who travell over the world and even come from South Africa or Australia - and what matters to audience is fiction storytelling. Nonfiction serious learning of media ecology, nobody cares.
+
