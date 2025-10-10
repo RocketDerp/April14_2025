@@ -3205,3 +3205,7 @@ https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_r
 
 What changed? Social media. Reddit 20 years ago came online. The Apple iPhone in middle of year 2007. The Internet Research Agency military invasion of social media since Q2 2013. Cambridge Analytica. The denial is boundless on Reddit. Surkov won, Russia won, people can't even describe the "War Against Reality". Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/niucd3b/
+
+Nullifying reality. New this year account on Reddit.
+
