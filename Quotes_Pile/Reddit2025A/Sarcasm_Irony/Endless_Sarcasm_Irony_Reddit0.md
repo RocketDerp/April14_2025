@@ -708,3 +708,11 @@ https://old.reddit.com/r/fixedbytheduet/comments/1o1i7ig/the_way_theyre_laughing
 
 The paradox of the Fox News message will blow the minds of the Reddit audience, as expected, paradox mind blowing that it is spelled out. Reality is being rewritten in mindsets and Reddit won't call out that real names and real faces are used on Fox News where Reddit is the enviornment of media to self-dehumanize and hide real names.    
 https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trump_a_dictator_while/
+
+&nbsp;
+
+
+Paradox messages. Reddit society eats it up "MURDERED! by words!!!". No Trump is not mudered by words. This endless banaltiy-washing of the serious sitaution. People entertainment-washing every paradox and Surkov Kremlin media technaiuqe of absurd and surreal media content. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised...     
+https://old.reddit.com/r/MurderedByWords/comments/1o2cyne/not_even_close_to_peaceful/
+
+
