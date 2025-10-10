@@ -3064,3 +3064,27 @@ https://old.reddit.com/r/nottheonion/comments/1o31wvr/white_house_aide_nobel_com
 
 A society that prizes low-effort insulting Truth Social shit-talking over nonfiction serious learning of media ecology and Kremlin information warfare methods.
 
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nise3kq/
+
+Trump provides endless ha ha ha ha entertainment and stimulation to the Reddit audience. Endlessly amused and thrilled that the USA has been mind-fucked by Russia into self-harm since Q2 2013. Cheering on, Celebration of Ignorance, crowd cheering in amusement at the ignorance on display as Carl Sagan described it in his 1995 book. ... ... ... 
+"All that has happened is that **the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nis9s7y/
+
+To amuse and entertain Reddit audiences, to serve Russian Surkov governing methods. As conditioned by the IRA using CA payloads since Q2 2013. Russia won the inforation war, hearts and minds to self-harm USA with total mockery and addiction to mocking.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/niscjk3/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisrtp5/
+
+Fresh Reddit accounts, new account, mockery-washing entertainment-washing amusement-washing the sitaution with disposable comments to make any serious sustained focus be avoided. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisy692/
+
+Fits with Kremlin information warfare methods, anti-reality, anti-goodness, self-harm USA mindsets. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisr5ia/
+
+People so thrilled at the comedy governing of the White House using Tony Clifton acts and Surkov student screenplays. Finding it all so amusing and entertaining. This is what passes for public discource, entertainment, in October 2025 with the USA audiences cheering on an entertainment leader from Reality TV. Shallow superficial visual concerns, popular comment upvoted on meme mills. Has been ongong on Reddit society for over 10 full years. Addicts to mockery who can never be satisfied in their cravings for more mockery and mocking as leadership. Donald Trump / White House / Kremlin provides that leadership to fiction addits that others could not provide. High speed message addicts flock to banal and superficail commenting for hate stimuation. ... ... ... 
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
