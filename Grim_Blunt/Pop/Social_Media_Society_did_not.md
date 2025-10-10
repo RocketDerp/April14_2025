@@ -80,3 +80,12 @@ Donald Trump has made dehumanization and hate "fun" for Americans on a national 
 Year 1792   
 Giving up sugar / entertainment   
 https://old.reddit.com/r/todayilearned/comments/1mucxyd/til_that_in_1792_400000_british_people_gave_up/
+
+&nbsp;
+
+&nbsp;
+
+### Consuming spare tine / free time
+
+Putting in the spare time and free time on social media, commenting millils and millions of low-effort no quotations, no author names, no links, no book titles, all on different pages with disposable lifetime... to avoid nonfiction learning and *getting on the same page* and standing up for important and critical goodness.   
+https://old.reddit.com/r/comics/comments/1o3717u/putting_in_the_time_gator_days/
