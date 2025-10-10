@@ -3066,7 +3066,7 @@ A society that prizes low-effort insulting Truth Social shit-talking over nonfic
 
 https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nise3kq/
 
-Trump provides endless ha ha ha ha entertainment and stimulation to the Reddit audience. Endlessly amused and thrilled that the USA has been mind-fucked by Russia into self-harm since Q2 2013. Cheering on, Celebration of Ignorance, crowd cheering in amusement at the ignorance on display as Carl Sagan described it in his 1995 book. ... ... ... 
+Trump provides endless ha ha ha ha entertainment and stimulation to the Reddit audience. Endlessly amused and thrilled that the USA has been mind-fucked by Russia into self-harm since Q2 2013. Cheering on, [Celebration of Ignorance, crowd cheering in amusement at the ignorance on display as Carl Sagan described it in his 1995 book](../Carl_Sagan_Quotes.md). ... ... ... 
 "All that has happened is that **the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
 
 https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nis9s7y/
@@ -3120,3 +3120,33 @@ https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_
 
 <img width="1718" height="1324" alt="image" src="https://github.com/user-attachments/assets/777be86c-d1fa-4aad-8d9a-f6e7cb621a23" /> A description of mockery-washing amusement-washing LOL-waashing that Reddit is ground zero for, as is Bluesky. Constantly entertainment-washing the serious problems away with disposable low-effort commetning.
 
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nitb42z/
+
+And We The People, Reddit society and beyond Reddit and Bluesky, are LOL at the "Liberal Tears HA HA HA, LOL LOL LOL" and "MAGA SUFFERING, LOL LOL, ENJOY YOUR SHIT HEALTH CARE USA, HA HA HA JA JA, RURAL FAMERS SUFFERING, LOL LOL LOL LOL" amusement. Trump provides endless ha ha ha ha entertainment and stimulation to the Reddit audience. Endlessly amused and thrilled that the USA has been mind-fucked by Russia into self-harm since Q2 2013. Cheering on, [Celebration of Ignorance, crowd cheering in amusement at the ignorance on display as Carl Sagan described it in his 1995 book](../Carl_Sagan_Quotes.md). ... ... ... 
+"All that has happened is that **the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nitedyf/
+
+New Reddit account with mockery vs. mockery, team sports mentalty, instead of ponting the finger at Russia or We The People amusement-mill of Reddit low-effort simple-think that avoids mutliple NATO nations describing Reddit media invasion since year 2013. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nit896x/
+
+True, people can HALT all ENTERTAINMENT and low-effort commenting, use silence and only repeat the most important and serious messages on Social Media systems. Quote nonfiction books. IT IS TIME, BEYOND TIME, for social media users to stop commenting on thousands of independent pages with disposable content. Halt all entertainmet, halt all joking and mocking, and behave as if serious stiuations are serious! [/Grim_Blunt/Stop_All_Entertainment.md](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nis9xpg/
+
+Do the media addicts who flock to dispsable commenting messages of tiny-length Twitter-thing realize at all that nonfiction has been abandoned in favor of high-speed reactionary information systems, never-ending streaming disposable commenting... ? The free time and spare time spent in service to total mockery that Russia seeded with the IRA and CA since Q2 2013? That Russia won an information warfare of 5,000 simualcra patterns of messaging mockery back and forth in feedback loops?
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisbk4n/
+
+Yes, joke is on We The People in the Reddit audience who compusively mock back at Tony Clifton acts and Surkov student screenplays.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisk9me/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisckk5/
+
+But don't blame fiction addictions, monomyth meme patterns, Russiain information warfare invading Reddit since Q2 2013, don't blame absence of media ecology. Because MULITPLE NATO NATIONS are reporting media invasion, not just USA! https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisb8zj/
+
+Describing the anti-reality, raelity killing weapons hitting the minds of the Reddit audience, but unable to link, cite, name author, name book title, describe the War Against Reality / War Against Nonfiction. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
