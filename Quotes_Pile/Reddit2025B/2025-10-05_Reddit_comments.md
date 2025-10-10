@@ -2745,5 +2745,26 @@ https://old.reddit.com/r/pcmasterrace/comments/1o2h8pc/recently_in_china_a_girl_
 
 https://old.reddit.com/r/pcmasterrace/comments/1o2h8pc/recently_in_china_a_girl_gave_her_fianc%C3%A9_an_rtx/niog5wy/
 
-There you go. JOSEOPH CAMPBELL: I see the possibility of new metaphors, but I don’t see that they have become mythological yet. OPERA_A https://www.youtube.com/watch?v=X9uk9IcoQ0w
+There you go. JOSEOPH CAMPBELL: I see the possibility of new metaphors, but I don’t see that they have become mythological yet. OPERA_A https://www.youtube.com/watch?v=X9uk9IcoQ0w 47,297,338 views June 16, 2009 
+
+https://old.reddit.com/r/PublicFreakout/comments/1o2jys3/you_better_start_following_the_constitution_like/niodd0q/
+
+Russia invaded media systems since March 2013 and has mind-fucke people into favoring self-harm entertainment addictions, anti-reality, over goodness itself. 
+
+https://old.reddit.com/r/PublicFreakout/comments/1o2jys3/you_better_start_following_the_constitution_like/nioi0gf/
+
+"The Media" cares and people are flocking ot media event after media event coveing it. It is nonstop "The media" situation. Reality TV / Reality Truth Social media world.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o2jys3/you_better_start_following_the_constitution_like/nioker9/
+
+Yes. Hell is a metaphor. And I am living in Hell, the abandonment of goodness. Hell is not a place underground, it is mindsets of people prizing hate and prizing mocking of goodness.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o2jys3/you_better_start_following_the_constitution_like/nioitrj/
+
+We won't face our addiciton to low-effort high-speed commenting messages on every media platform. We won't face that we have abandoned nonfiction learning and "getting on the same page" in favor of egoism. ... ... ...
+"What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/PublicFreakout/comments/1o2jys3/you_better_start_following_the_constitution_like/nioeuwn/
+
+Crazy everywhere. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
