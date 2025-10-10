@@ -3015,3 +3015,18 @@ https://old.reddit.com/r/technology/comments/1o33luu/sean_duffy_threatens_to_fir
 
 <img width="1464" height="434" alt="image" src="https://github.com/user-attachments/assets/016e113a-085f-4f4d-8017-b6756b5b6177" /> 1:20 "ACCORDING TO THIS REPORT, IT IS AFTER A FAR BIGGER PRIZE: THE EXACERBATION OF AMERICANS' DISTRUST OF ONE ANOTHER AND, IN TURN, **THE EROSION OF THEIR CONFIDENCE IN SOCIETY**. RUSSIA, YOU DON'T HAVE TO ERODE OUR CONFIDENCE IN SOCIETY, TWITTER DOES THAT ALL ON ITS OWN. JUST LET IT RIDE. WE CAME UP WITH THE TIDE POD CHALLENGE ALL BY OURSELVES. 1:53 ( LAUGHTER ) NOW, OUTBREAKS -- MEASLES" - Stephen Colbert https://youtu.be/Ju7Yt0LMiVk?t=90
 
+https://old.reddit.com/r/Fauxmoi/comments/1o3576d/ms_rachel_calls_out_obama_for_using_israeli/nisp6e6/
+
+Tiny-short Twitter-think messages. Not that the entire human race needs reformation. Just one man needs to be "realzied", not that the entire world of over 8 billion people isn't an issue. Russia, Ukaine, Sudan, Trump 2025, just one man. This type of extremely simplsitic messaging, disposable commenting messages, are driving minds and are learning and thinking people have adopted since year 2013. Simple-think simple-message popularity. Toxic popularity. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md). Stop acting like hate is ejoyable, hate is not fun. Face the truth of hate. Have Pale Blue Dot pride, human species learning from errors pride.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o3576d/ms_rachel_calls_out_obama_for_using_israeli/nisqapw/
+
+No link, no author name, no book title, no quote. Just off-the-cuff low-effort commetning that drives the USA population now in October 2025. People who flock to disposable comments for learninga and informating their minds. Anything to avoid nonfiction learning from Wikipedia / public library. Anything to prize low-effort high-speed streaming comments that are abandoned only hours later to flock to a new /r/All post with low-effort commenting. Anti-comprehension, anti-understanding, just millions and millions and millions of trivalizing commenting that audiences can not resist. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1o3576d/ms_rachel_calls_out_obama_for_using_israeli/nisqvg9/
+
+Tiny-short simple-think short-messwaging Twitter-thinking. The World's most favorite junk information that consumes free time and spare time with dispoable comments that are abandoned hours later - and avoiding public library important topics of learning about media ecology. The world's favorite anti-learning context bewilderment brainrot messages.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o3576d/ms_rachel_calls_out_obama_for_using_israeli/nisqlad/
+
+But not We THe People "Dems", only the figureheads, not Reddit community for washing away the brainrot problems of disposable commenting serious and important issues with no-identity team sports of "The Dems" instead of *the entire human race* has a crisis around the Levant Torah vs. Quran vs. Bible science fiction trillogy addictions to shallow and superficial clergy venues. Simple-think simple-message popularity. Toxic popularity. We ALL need to be asserting and repeating The 1954 Equation. [../Martin_Luther_King_Jr_quotes0.md](../Martin_Luther_King_Jr_quotes0.md). Stop acting like hate is ejoyable, hate is not fun. Face the truth of hate. Have Pale Blue Dot pride, human species learning from errors pride.
