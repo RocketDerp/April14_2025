@@ -2636,3 +2636,32 @@ https://old.reddit.com/r/Fauxmoi/comments/1o2hzke/after_aziz_ansari_said_that_he
 
 How can anyone living under the mass mind / mass man assult of Elon Musk, Rupert Murdoch, Putin, Donald Trump White House, the self-harm messagings every single hour of every single day in USA of year 2025 be not? Only people in mindless states of meme stupors doing nothing but thinking what is happening with "the big picture", "the forest for the trees", the total of society can behave normal. People have amusement-washed LOL-washed away just how fucked-up the ENTIRE society is, not just Republicans, not just voters, not just nonvoters, not just adults, not just children, not just men, not just women, not just MAGA, EVERYONE in out-group hate vs. hate, *hate harder*, *mock harder* signaling in feedback loops. Putin won, Russia won, Surkov won, USA lost. And peole can't even NAME the IRA and CA and the timelines.
 
+https://old.reddit.com/r/videos/comments/1o2f1er/trump_declared_atheists_are_terrorists/nine09f/
+
+"Quant à moi, je ne vois pas dans la religion le mystère de l'incarnation, mais le mystère de l'ordre social; elle rattache au ciel une idée d'égalité qui empêche que le riche ne soit massacré par le pauvre." - Napoléon Bonaparte, March 4, 1806. As reported in Opinions de Napoléon sur divers sujets de politique et d'administration, recueillies par un membre de son conseil d'état as recalled by Baron Joseph Pelet de la Lozère (1833), page 223
+
+https://old.reddit.com/r/videos/comments/1o2f1er/trump_declared_atheists_are_terrorists/niogkok/
+
+Someone calling out the constant dementia-washing of Trump!
+
+https://old.reddit.com/r/videos/comments/1o2f1er/trump_declared_atheists_are_terrorists/ninebtk/
+
+Great Seal USA topic of the "American Dream" meaning and the John 1:1 rewriting of mass mind / public dream. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...
+BILL MOYERS: Why is a myth different from a dream?
+JOSEPH CAMPBELL: Oh, because a dream is a personal experience of that deep, dark ground that is the support of our conscious lives, and **a myth is the society’s dream. The myth is the public dream and the dream is the private myth**. If your private myth, your dream, happens to coincide with that of the society, you are in good accord with your group. If it isn’t, you’ve got an adventure in the dark forest ahead of you.
+MOYERS: So if my private dreams are in accord with **the public mythology**, I’m more likely to live healthily in that society. But if my private dreams are out of step with the public —
+CAMPBELL: — you’ll be in trouble. If you’re forced to live in that system, you’ll be a neurotic.
+MOYERS: But aren’t many visionaries and even leaders and heroes close to the edge of neuroticism?
+CAMPBELL: Yes, they are.
+MOYERS: How do you explain that?
+CAMPBELL: They’ve moved out of the society that would have protected them, and into the dark forest, into the world of fire, of original experience. Original experience has not been interpreted for you, and so you’ve got to work out your life for yourself. Either you can take it or you can’t. You don’t have to go far off the interpreted path to find yourself in very difficult situations. The courage to face the trials and to bring a whole new body of possibilities into the field of interpreted experience for other people to experience — that is the hero’s deed.
+MOYERS: You say dreams come up from the psyche.
+
+https://old.reddit.com/r/videos/comments/1o2f1er/trump_declared_atheists_are_terrorists/ninei7i/
+
+https://old.reddit.com/r/videos/comments/1o2f1er/trump_declared_atheists_are_terrorists/nindlkj/
+
+https://old.reddit.com/r/videos/comments/1o2f1er/trump_declared_atheists_are_terrorists/nininfa/
+
+If only social media users could halt entertainment and make sure every person age 12 to age 120 was educated on Bible verse "1 John 4:20" about hate and how to judge people as liars.
+
