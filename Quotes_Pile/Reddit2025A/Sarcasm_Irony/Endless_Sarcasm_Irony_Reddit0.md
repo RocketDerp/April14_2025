@@ -715,4 +715,7 @@ https://old.reddit.com/r/NoFilterNews/comments/1o23t2k/fox_news_host_labels_trum
 Paradox messages. Reddit society eats it up "MURDERED! by words!!!". No Trump is not mudered by words. This endless banaltiy-washing of the serious sitaution. People entertainment-washing every paradox and Surkov Kremlin media technaiuqe of absurd and surreal media content. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised...     
 https://old.reddit.com/r/MurderedByWords/comments/1o2cyne/not_even_close_to_peaceful/
 
+&nbsp;
+
+https://old.reddit.com/r/pics/comments/1o2m9v2/irony/
 
