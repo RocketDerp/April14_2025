@@ -123,6 +123,14 @@ https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
 &nbsp;
 
+## Touch screen game 
+
+Every media site commetning section is now interactive fiction, touch screen filter-bubble game. An alternate reality gaming enviornment where people crave fiction and mythology and have abandoned sustained focus "we all need to get on the same page" nonfiction serious important topics.
+
+“We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
+
+&nbsp;
+
 &nbsp;
 
 ## Bucket Further
