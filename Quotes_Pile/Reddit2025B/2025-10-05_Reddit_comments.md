@@ -2713,3 +2713,25 @@ https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_compa
 
 It says the entire population can't go to the nonfiction section of the public library and study Russian information war since year 2014. This September 9, 2014 article explains it. Which is more than 2 full years befoe November 2016 electon day. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/nin6xng/
+
+It took since the November 7, 2012 agreement to get all the minds programmed into their egoism / filter-bubbles of anti-reality, and now people are finally starting to see it is getting worse, but they really do not grasp when it started and how it isn't just USA domestic. Reddit users can't see the Forest of their own addiction to tech / content addictions. ... ... ...
+“One characteristic of those who live in a Technopoly is that they are largely unaware of both the origins and the effects of their technologies.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/nin9jz2/
+
+My short length message: Ficiton vs. nonfiction. If the society abandons real world reality in favor of amusement mills like Bluesky and Reddit, Facebook, etc - if society GIVES UP on science learning and nonfiction education... then it is back to the "old world order" before year 1776. Mecca and Quran year 635 being the most modern of the Levant religions. If the Republicans find popularity of fiction storytelling, Fox News HDTV fiction, Truth Social fiction, etc. Trying to "join in" with fiction content by the Democrats and everyone else is still fiction vs. fiction. Abandonment of reality, abandonment of climate change science, abandonment of medical science, adoption of popularity of graphics / images / style / fashion / storytelling / presentation / media ecology patterns.
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/nindx0k/
+
+Over a decade ago. Beyond the recency bias. Putin realized this and jumped on. Published January 2015, before Trump started run for office in June 2015: ... ... ...
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninxt6j/
+
+Science fiction monomyth stories, The Bible. Science fiction and mythology fiction outsellf nonfiction. Even on Reddit, people flock to low-effort high-quantity no-identity no-source commenting over serious nonfiction learning.
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninfaf4/
+
+Tin Finnegan Ladder Fall. James Joyce's "The Fall" of "Wake" to "Sleep" year 1924 publication onward describes it. OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=42tj0hQuaFY  1,152,477 views February 16, 2023
+
