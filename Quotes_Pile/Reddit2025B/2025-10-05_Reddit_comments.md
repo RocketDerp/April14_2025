@@ -2841,3 +2841,25 @@ https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_
 
 He speaks for all the hate of the internet socity, social media society, that people deny is actually hate. THe denial of the IRA and CA since year 2013. The denial of Twitter-think trashing of goodness that Reddit consumes every day and doesn't want to admit is self-harm. The avoidance of using MLK Jr's teaching in the face of hate for hate, hate as faith. THE DENIAL SINCE October 8, 2013 of all the things Malala has been saying are true progress that is another Nobel winner that gets gre-rocked on Bluesky and Reddit in yeaar 2025. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirtyua/
+
+"The front page of Reddit does not represent us!", "our dumb fiction Hollywood films doesn't represent us", "Facebook content doesn't represent us!", "our avoidance of nonfiction book learning doesn't represent us!", "our worship of the highest love in the world being s slave kitten or puppy on /r/All every day doesn't represent our hate and sabotage of other human beings and ex-lovers and avoidance of remedial Bible literacy in our never being able to find verse '1 John 4:20' and teach it on /r/All doesn't represent us!" ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirmehl/
+
+So entertaining to see a weaponized nation beahving mentally sick on the worl stage. So awesome that humanity is flocking to hate messages and anti-nonfiction. So great for peole to create reaction comments around Trump the clown leader of a population of self-harming clowns. So awesome that Russia has mind-fucked the USA into leading the world into self-destruction. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirkgqu/
+
+Social media laugh track to put people in meme stupor mind states. Unable to see an outsie nation tying to get a population to wake, as in Woke, as in Finnegans Wake year 1924 onward publication. Runaway reacitonary mindsets, "China Syndrome" self-harm nation in runaway fiction addictions and meme feedback loops.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirmk2c/
+
+Health care removal, ecological damage, people endlessly wasting spare time and free time reaction commenting, tiny-short thinking patterns, it's much more than this Reddit comment says.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o2zy63/trump_loses_nobel_peace_prize_we_only_give_the/nirn9hp/
+
+Reddit community will declare all other USA community groups dumb, and all other groups callling everyone else dumb, and everyone in dumb and dumber feedback loops FOR OVER TEN YEARS AND THREE MONTHS ... ... ... 
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but **especially a kind of celebration of ignorance**. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
