@@ -2528,7 +2528,7 @@ This is what the rest of the world, the planet of over 8 billion people, thinks 
 
 https://old.reddit.com/r/Music/comments/1o2a2ce/republicans_super_bowl_performance_pick_lee/nin3097/
 
-Low-effort commenting every hour of every day on /r/LeopardsAteMyFace "owning the conservatives" in this bi-poloar hate for hate, faith in mockery, faith in hate nation. 5,000 patterns of *fuck-you hate you* conditioned by IRA. bandonment of nonfiction, abadonment of factaul reality. John 1:1 monomyth warfare against We The People, everyone mind-fucked. ... .... ... 
+Low-effort commenting every hour of every day on /r/LeopardsAteMyFace "owning the conservatives" in this bi-poloar hate for hate, faith in mockery, faith in hate nation. 5,000 patterns of *fuck-you hate you* conditioned by IRA. Abandonment of nonfiction, abadonment of factaul reality. John 1:1 monomyth warfare against We The People, everyone mind-fucked. ... .... ... 
 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
 https://old.reddit.com/r/Music/comments/1o2a2ce/republicans_super_bowl_performance_pick_lee/nimu4ip/
@@ -2665,3 +2665,41 @@ https://old.reddit.com/r/videos/comments/1o2f1er/trump_declared_atheists_are_ter
 
 If only social media users could halt entertainment and make sure every person age 12 to age 120 was educated on Bible verse "1 John 4:20" about hate and how to judge people as liars.
 
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninfiou/
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/nin8rv4/
+
+People don't want to face the Russian mind-fucking and how much morality has been reprogrammed since year 2013. Russia won, Surkov won, the IRA and CA payloads are the most powerful *hate harder* out-group patterns in history. This is not just USA domestic.
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninchbu/
+
+New this year account. It isn't just a GOP problem. It isn't just 1 out of 3 people think that it is. It's everyone abandoning nonfiction. We have a fiction addiction problem, cults of fiction storytelling. We have a mythology problem, monomyth story problems. John 1:1 monomyth warfare against We The People, everyone mind-fucked. ... .... ... 
+"Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninmxcc/
+
+It is group thinking, mob mentality, to self-harm the USA, to *hate harder* at each problem, to *mock harder* inside a Total Mockery nation.
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/nin5asr/
+
+Exactly. LOL-washing, South Park absurd-washing the reality is conditioned in mindsets. People are not calling for new learning, nonfiction, it is all satire-washing surreal-washing South Park style and beyond.
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninqhnn/
+
+ <img width="1114" height="776" alt="image" src="https://github.com/user-attachments/assets/4972de73-304f-495a-9139-4eb4a2cd4a07" /> EXACTLY. Adults have been educated where adults learn... not in rectangle classrooms in rectangle schools. That is not where adults learn. Adults learn from television, Facebook, Reddit. Teaching is done on Reddit commenting, not nonfiction academic books. People AVOID and INSULT serious learning as Carl Sagan described in his 1995 nonfiction book.  And where does all that GOP / Republican money go? media events, media content, advertising, marketing, rallies, signs, brand, logo, Cambridge Analytica, Truth Social, Elon Musk purchasing Twitter. That is the teaching and learning for adults. Not school classrooms. This is all about fiction vs. fiction, monomyth vs. monomyth. A complete abandonment of nonfiction and science thinking. When the [Putin Media Invasion hit our media systems / hit "the media"](https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/) since March 2013... we were unprepared, we had a weak spot and Putin nailed us right up the subconsious of our undefended mass mind / mass man thinking. **What sells better, what is more popular! FICTION!** Mythology, monomyth stories of fiction. They outsellf nonfiction learning.  ... ... ...
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that **all of this has been virtually totally forgotten by our days**. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that **we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible** this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninf3do/
+
+People won't watch boring youtube people with "low production values" and average voices and visuals. They cringe at the slightest CGI mistake in a $200 billion movie made by Hollywood. People cringe at black and whtie films, cringe at anything that isn't to their visual taste / style / fashion. Putin has exploited all this and moved the media addiction windows to take far more seriously the conditioned patterns. Fiction outsells nonfiction. If people don't stand up for actual nonfiction reality, the REAL WORLD, of things like climate change and hate ove religion fiction vs. religion fiction... then Putin has done what he has wanted, wrecked goodness itself in USA. Harmed the future of the nation, harmed the children of the nation by parents who have made badness itself a leading signal, made role models of badness for parenting. People are not standing up for remedial morality, asserting goodness, people are jumping in the ocean of toxic self-harm mocking and insulting and *hate harder* values. As has been gong ON FOR OVER TEN YEARS AND THREE MONTHS. People prizing hate, prizing insutling and prizing dehumanization via meme machines, powerful machines to dehumanize people out of egoism.
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/nineuc8/
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/nin7jlk/
+
+<img width="1146" height="844" alt="image" src="https://github.com/user-attachments/assets/c16cdab1-69e4-45a0-953c-5cabdd0efab8" /> Says it all about the people who keep caling things "dumb", "stupid", "idiot" in conditioned responses. Ficiton outsells nonfiction. USA has decided that low-effort disposable commenting from no-identity accounts on Reddit and Bluesky are prized about nonfiction organized books at the public library. People have turned this all into ficiton vs. fiction with no resistance to Russia's "War Against Nonfiction" since year 2013.
+
+https://old.reddit.com/r/politics/comments/1o2e65n/dominion_voting_sold_to_company_run_by_exgop/ninb37m/
+
+Beyond the recency bias. Putin realized this and jumped on. Published January 2015, before Trump started run for office in June 2015: ... ... ...
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
