@@ -2612,3 +2612,27 @@ https://old.reddit.com/r/LivestreamFail/comments/1o2glto/la_streamer_is_pissed_t
 
 Reaction, driven by media addictions / rush to high-speed media events. This is not a left vs. right issue, this is a media ecology crisis. Favoring shallow thinking and conditioned mindsets Mockingng and insulting and adopting Truth Social beahviors. People are making popucorn and LOL at everything Donald Trump does. People have decided "Death by LOL", "Amusing Ourselves To Death" as defined by year 1985 book is how they want to go out. Abandonment of nonfiction leaning, commenting all on different pages at different times on 24 hour meme mills like Bluesky and Reddit and not educating and teaching and asserting goodness and "please get on the same nonfiction pages" / halt entertainment to take compusive flocking behaviors as non-amusing non-entertianing threat.
 
+https://old.reddit.com/r/Fauxmoi/comments/1o2hzke/after_aziz_ansari_said_that_hed_donate_to_human/ninzjdb/
+
+Don't even know where to begin in describing the White House / leadrship signals of the nation for the past TEN YEARS AND THREE MONTHS in realtion to this Reddit comment.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o2hzke/after_aziz_ansari_said_that_hed_donate_to_human/nio06sr/
+
+Enjoing that people did bad things and that bad things are happening.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o2hzke/after_aziz_ansari_said_that_hed_donate_to_human/nio7xs2/
+
+https://old.reddit.com/r/Fauxmoi/comments/1o2hzke/after_aziz_ansari_said_that_hed_donate_to_human/nioais4/
+
+<img width="1648" height="294" alt="image" src="https://github.com/user-attachments/assets/98869316-62f5-4dc8-836f-082033e0ac22" /> Yes, people do not see the media ecology of the change. Every person age 12 to age 120 needs to focus on the 1985 book by Neil Postman "Amusing Ourselves To Death" and how to apply the concerns and self-awareness from television to high-speed TCP/IP Internet culture. Charlie Kirk is the new fiction storyteller, the podcast culture. Joe Rogan Experience, Truth Social.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o2hzke/after_aziz_ansari_said_that_hed_donate_to_human/nio1jkz/
+
+I think it is more media mania than simply greed. Manic media behaviors are driving the entire USA society into self-harm. This is just one more example. It is not just the White House, it is the total population mind-fucked by Russia's IRA using CA payloads since year 2013 to condition media-centered anti-reality anti-goodness. And this is a situation of Azia Ansari is self-harm, anti-goodness programming.  Like RFK Jr, Trump, Elon Musk, coompusively self-harming. 
+
+https://old.reddit.com/r/Fauxmoi/comments/1o2hzke/after_aziz_ansari_said_that_hed_donate_to_human/nio5oyb/
+
+https://old.reddit.com/r/Fauxmoi/comments/1o2hzke/after_aziz_ansari_said_that_hed_donate_to_human/ninxxc7/
+
+How can anyone living under the mass mind / mass man assult of Elon Musk, Rupert Murdoch, Putin, Donald Trump White House, the self-harm messagings every single hour of every single day in USA of year 2025 be not? Only people in mindless states of meme stupors doing nothing but thinking what is happening with "the big picture", "the forest for the trees", the total of society can behave normal. People have amusement-washed LOL-washed away just how fucked-up the ENTIRE society is, not just Republicans, not just voters, not just nonvoters, not just adults, not just children, not just men, not just women, not just MAGA, EVERYONE in out-group hate vs. hate, *hate harder*, *mock harder* signaling in feedback loops. Putin won, Russia won, Surkov won, USA lost. And peole can't even NAME the IRA and CA and the timelines.
+
