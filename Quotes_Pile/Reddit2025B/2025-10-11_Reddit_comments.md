@@ -122,3 +122,31 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_f
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixy5jh/
 
 Banality-washing of Russia Reddit infiltration.
+
+https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixiujn/
+
+George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...
+JOSEPH CAMPBELL And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason.
+BILL MOYERS: The voice of reason—is that the philosophical way suggested by these mythological symbols?
+CAMPBELL: That’s right. Here you have the important transition that took place about 500 B.C. This is the date of the Buddha and of Pythagoras and Confucius and Lao-tzu, if there was a Lao-tzu. This is the awakening of man’s reason. No longer is he informed and governed by the animal powers. No longer is he guided by the analogy of the planted earth, no longer by the courses of the planets—but by reason.
+MOYERS: The way of —
+CAMPBELL: — the way of man. And of course what destroys reason is passion. The principal passion in politics is greed. That is what pulls you down. And that’s why we’re on this side instead of the top of the pyramid.
+MOYERS: That’s why our founders opposed religious intolerance —
+CAMPBELL: That was out entirely. And that’s why they rejected the idea of the Fall, too. All men are competent to know the mind of God. There is no revelation special to any people.
+
+https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixldau/
+
+... yep. Just like Canada 51st state. And that is not the ONLY mind-fuck pattern being fed into Reddit media / global media systems. There are many competing fiction / mythology systems (IRA and CA seeded 5,000 mindset monomyth patterns for example). Repeating Joseph Campbell, age 83: "we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason."
+
+https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixot1o/
+
+We need "We Are All Humans, Pale Blue Dot Pride, Earth Pride, Humanity Pride" athems too. OPERA_A https://www.youtube.com/watch?v=9AjkUyX0rVw
+
+https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixjiif/
+
+https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixmddt/
+
+https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixp0rv/
+
+When I was on staff analyzing media ecology for Paul Allen Group in Bellevue Washington HQ, owner of Starwave, studying ESPN and the NFL / NBA team owner roles was eye-opening and changed my future life to this GitHub today. And Paul Allen did not leave the Board of Directors role at Microsoft. ... ... ...
+"That would be Paul Allen, who founded a Seattle-based software company called Starwave back in the 90s about a decade after leaving Microsoft." https://www.geekwire.com/2015/heres-an-original-mock-up-of-espn-com-that-paul-allen-starwave-helped-create/\
