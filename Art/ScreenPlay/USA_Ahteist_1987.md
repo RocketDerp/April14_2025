@@ -76,3 +76,26 @@ CAMPBELL: That is the way it feels, but **this is it, this is Eden**. When you s
 If you don't believe there is an outer-space Allah / Levant God directing our ceation on Earth, this is what you conclude from sceintific observation:
 
 " **Life is a lot of protoplasm with an urge to reproduce and continue in being.** "
+
+&nbsp;
+
+# A pont to ponder
+
+&nbsp;
+
+Joseph Campbell focused his life on writing books, teaching at Sarah Lawrence College, giving public NYC lectures at Cooper Union, giving public lectures in Big Sur California, etc, etc, etc.
+
+He may not have believed life had a "purpose", but surely the metaphor of the Tree Of Knowledge mattered to him given how much he spoke, write, teaching. And that's how I view Jesus first and foremost, a teacher / a poet, a person who went around criticizing and educating people. In that sense, Campbell was a teacher, Jesus was a teacher. Faith in teaching / sharing.
+
+&nbsp;
+
+.
+
+CAMPBELL: There are some teachers who decide they won’t teach at all because of what society will do with what they’ve found.
+
+&nbsp;
+
+.
+
+CAMPBELL: At the very end of the Divine Comedy, Dante realizes that the love of God informs the whole universe down to the lowest pits of hell. That’s very much the same image. The bodhisattva represents the principle of compassion, which is the healing principle that makes life possible. Life is pain, but compassion is what gives it the possibility of continuing. **The bodhisattva is one who has achieved the realization of immortality yet voluntarily participates in the sorrows of the world**. Voluntary participation in the world is very different from just getting born into it. That’s exactly the theme of Paul’s statement about Christ in his Epistle to the Philippians: that Jesus “did not think God-hood something to be held to but took the form of a servant here on the earth, even to death on the cross.” That’s a voluntary participation in the fragmentation of life. (Philippians 2:6-8)
+
