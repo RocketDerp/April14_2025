@@ -50,3 +50,35 @@ https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_chur
 
 "Insanity has taken over...". Ok, so it did not used to be insane, but now it is insane. What's the cause? What's the information that we need to organize and share. Low-effort dispsoable commenting is a huge CAUSE of the insanity. People spending their free time and spare time COMMENTING about Donald Trump FOR OVER TEN YEARS AND THREE MONTHS every day, flocking to Donald Trump signals to react to. "Insnity", no lings, no quotes, no author names, no book titles, just high-speed dispsoable messages. Why are we not asking ever mental heatlh professional all over the world to use World Wide Web / Social Media to treat our insanity? "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixgtrw/
+
+Your friend promotes Russian trash ideas on Reddit and doesn't want you to see they live in a filter-bubble of fiction addictions and trash reality. The image of Donald Trump in this meme is telling.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixixc2/
+
+A terrorism training ground of tracking every other media system in the world and mockery-washing and amusement-washing it in service to Putin's War Against Reality since March 2013.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixkmrs/
+
+The IRA / CA mindsets are indeed on all media platforms now. It wasn't this way back before March 2013.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixn3j7/
+
+It's social in mockery-washing away nonfiction learning.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixhjqq/
+
+To seed the Internet with hate messages and dehumanization, on a self-dehumanizing platform where people hide real-wrold human life.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixo4u4/
+
+The John 1:1 God of new words and destruction of goodness words. Slang mill.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixhp5b/
+
+The goverment knows, the owners of Reddit know, your IP address and browser identifier and timing patterns are able to be matched up with other websites and advertisements on Reddit and it's not like USA TCP/IP networks aren't all in the hands of billionare media owners. FAMOUS people have their images and faces on Reddit all the time, and sellers of YouTube / Twistch / etc. it is only the poor people hiding away that peer to peer don't know each other. Elon Musk can easiliy use his technology networks to identify a Reddit account user / real identity. it is only the poor people who are fed the manipulation that it is hidden / secret identity. AT&T, Verizon, Comcast, etc - these TCP/IP network providers profit off your identity to anyone who pays enough. And with who is running the White House, there is a whole network of sharing such information to anyone who wants to use power and influence to know. It is only "everyday poor people" who think wasting time on low-effort commenting is resisting. A simualcra of resitance. Reddit is over 20 years old, every person of wealth and power can find "Fxiers" who know how to get an identity.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixp767/
+
+One thing Large Langauge Models can do for the rich and powerful is fingerprint your English writing and match it up, especially if a previous account halts activity in certain categories of topics and then another account appears active in those avoided topics. That kind of pattern in langauge is what current machine learning is great at.
+
