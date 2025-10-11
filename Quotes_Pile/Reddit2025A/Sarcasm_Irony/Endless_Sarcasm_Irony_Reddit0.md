@@ -719,3 +719,7 @@ https://old.reddit.com/r/MurderedByWords/comments/1o2cyne/not_even_close_to_peac
 
 https://old.reddit.com/r/pics/comments/1o2m9v2/irony/
 
+&nbsp;
+
+What a Twitter-logic Tweet-thinking mind-fuck. The military has rules different from non-government military. You can't just go murder someone with a weapon and come home unless you are military. The police have rules about being able to force people into police cars and into jail and prison. Normal everyday people can't force people into cars and prison. People do not see this is Russian Surkovian techniques of "War Against Reality" and call it as such.      
+https://old.reddit.com/r/MurderedByWords/comments/1o3d23g/call_for_epstein_transparency/
