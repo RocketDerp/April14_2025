@@ -27,3 +27,11 @@ https://old.reddit.com/r/CuratedTumblr/comments/1o1lue7/paper_scissors_rock/
 With the rumors of HCE, what's the point of divorce if you believe in forgiveness?
 Choice marriage honesty. Also I expect these numbers are not true for every time period of the past 250 years broken down by decade. Nor do I expect they are true in the current decade in all nation of the world. A film I STRONLGY recommend is "A Seperation", which I saw in the cine in downtown Austin year 2012 because of Roger Ebert's review https://www.rogerebert.com/reviews/a-separation-2012 .     
 https://old.reddit.com/r/todayilearned/comments/1o3zm4r/til_between_1015_of_married_couples_reconcile/
+
+&nbsp;
+
+Waking up from dreams earlier in the video, Finnegans Wake confrontation of reality from books.   
+Stranger Than Fiction style story. John Carpenter    
+Liiving inside a fiction book, people adopting John 1:1 from a science fiction storybook.    
+The change of Reality.  
+https://youtu.be/pNORRXPa7K0?t=1064
