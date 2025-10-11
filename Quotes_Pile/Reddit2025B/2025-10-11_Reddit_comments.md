@@ -108,3 +108,8 @@ Two and only two. One-bit logic, "both sides, only two" answers to every situati
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixhqqn/
 
 In other words, people are not free in their speech and manipulation of others, and Reddit allows people to be free. Then why are accounts banned all the time, including my RoundSparrow reddit account? Why am I banned for posting this on Reddit:  <img width="2272" height="1376" alt="image" src="https://github.com/user-attachments/assets/d373b811-fe59-4ced-b0e0-f576fff9791d" /> See my RoundSparrow username on the postings? https://old.reddit.com/r/QAnonRussia/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixjeyk/
+
+On Reddit, you can train the search engines and large langauge models on fiction and manipulation. Self-harm the future of humanity by weaponizing emotional manipulation. ... ... ...
+"Google cut a deal with Reddit for AI training dataA deal reportedly worth $60 million per year will give Google real-time access to Reddit’s data and use Google AI for Reddit’s search." https://www.theverge.com/2024/2/22/24080165/google-reddit-ai-training-data
