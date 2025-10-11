@@ -3090,7 +3090,7 @@ People so thrilled at the comedy governing of the White House using Tony Clifton
 
 https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nis8prq/
 
-<img width="870" height="362" alt="image" src="https://github.com/user-attachments/assets/ed58c24d-1818-4b38-b33d-0fc66c7824a2" /> "This is like", unable to turn to nonficiton serious learning of Russian information warfare since year 2014. Meme addicts unable to inagine their own compusive attract to Reddit trash media has been a warfare techique by Putin. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+<img width="870" height="362" alt="image" src="https://github.com/user-attachments/assets/ed58c24d-1818-4b38-b33d-0fc66c7824a2" /> "This is like", unable to turn to nonficiton serious learning of Russian information warfare since year 2014. Meme addicts unable to imagine their own compusive attraction to Reddit trash media has been a warfare technique by Putin. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
 https://old.reddit.com/r/CringeTikToks/comments/1o336ml/is_this_how_trump_got_a_jet_as_gift_and_ceasefire/nisei9z/
 
@@ -3264,4 +3264,30 @@ People will comment that it is crazy, mention reality, and then on to the next l
 https://old.reddit.com/r/news/comments/1o3hchi/houston_missing_teen_with_autism_reportedly_in/niv41a9/
 
 Rule by stress, stress lords.
+
+https://old.reddit.com/r/news/comments/1o3hchi/houston_missing_teen_with_autism_reportedly_in/niv4c49/
+
+https://old.reddit.com/r/news/comments/1o3hchi/houston_missing_teen_with_autism_reportedly_in/niv4uj2/
+
+https://old.reddit.com/r/news/comments/1o3hchi/houston_missing_teen_with_autism_reportedly_in/niv6d2n/
+
+https://old.reddit.com/r/stocks/comments/1o3d10v/breaking_trump_places_100_tariff_on_china/niu92rc/
+
+This is the most popular, liked / upvoted comment. Extremely tiny-short messaging of laugh track. To be amused at Donald Trump "Reality TV" entertainer. Surkoving governing is so engaging. Nothing has been found to resist this informtion warfare method. People flock to low-effort mockery, Trump mocks goodness, audience in USA mocks back, predictable feedback loops.
+
+https://old.reddit.com/r/stocks/comments/1o3d10v/breaking_trump_places_100_tariff_on_china/niu92rc/
+
+https://old.reddit.com/r/stocks/comments/1o3d10v/breaking_trump_places_100_tariff_on_china/niu9nog/
+
+This is self-harm. Putin meeting in Alaska. No matter how much people see anti-goodness, the mockery-wash it away with satire.
+
+https://old.reddit.com/r/stocks/comments/1o3d10v/breaking_trump_places_100_tariff_on_china/niud5yv/
+
+<img width="1440" height="428" alt="image" src="https://github.com/user-attachments/assets/6e1de653-6221-4cc9-baf1-5dcc9c6b9f3c" /> New account, mockery track for Reddit audience? or, Falling for the act? Meme addicts unable to imagine their own compusive attraction to Reddit trash media has been a warfare technique by Putin. This Reddit comment... [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/stocks/comments/1o3d10v/breaking_trump_places_100_tariff_on_china/niu9s78/
+
+https://old.reddit.com/r/stocks/comments/1o3d10v/breaking_trump_places_100_tariff_on_china/niuakhw/
+
+And that's the adults, the parents, children are being given this as a role model for business leadership. This is not just one single person, Donald Trump, this is an entire executive branch organizaton, thousands of people are involved in these decisions.
 
