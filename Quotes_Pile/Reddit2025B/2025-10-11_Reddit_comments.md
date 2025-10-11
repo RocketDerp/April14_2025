@@ -327,7 +327,13 @@ https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_chur
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nizcg38/
 
-<img width="946" height="330" alt="image" src="https://github.com/user-attachments/assets/863175a4-11e6-4fb2-9bc3-8307693c440e" /> ... Oblivious that this is a condtioned egoism mockery. Turning a topic of two entire nations, Russia and USA, over 400 million people, into a topic of two people. Reddit comment tree vs. Reddit comment trie, to defect topic away from the forest.
+<img width="946" height="330" alt="image" src="https://github.com/user-attachments/assets/863175a4-11e6-4fb2-9bc3-8307693c440e" /> ... Oblivious that this is a condtioned egoism mockery. Turning a topic of two entire nations, Russia and USA, over 400 million people, into a topic of two people and immediate Reddit messages. Reddit comment tree vs. Reddit comment tree, two trees, to defect topic away from the forest topic of the mass mind, society vs. society.
 
+https://old.reddit.com/r/illinois/comments/1o40fyr/northwest_chicago_suburb_ice_agents_rip_15yearold/niyrqea/
 
+<img width="1358" height="302" alt="image" src="https://github.com/user-attachments/assets/035b3f78-df9f-4153-8420-3910a9fd9b10" /> No, it isn't about the 15 year old girl. It's show of power, show of force. It's about the *symbolism* of a 15 year old girl. It's about entertaining the Reddit audience with a video recording of the arrest. Reddit users eat this up, flocking to every breaking new video to comment on with extremely low-effort messages, inside the audience, being fed the anti-reality warfare. ... ... ...
+"Russia and the Menace of Unreality"   
+"How Vladimir Putin is revolutionizing information warfare"   
+By Peter Pomerantsev. September 9 2014, 3:42 PM ET   
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
 
