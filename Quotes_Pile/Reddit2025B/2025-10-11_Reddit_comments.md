@@ -15,7 +15,7 @@ Charlie Kirk was a fiction storyteller, a creative mythology seller. Reddit ador
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixbi6l/
 
-Calling people insane, but what's also driving us crazy / insane is avoiding nonficiton learning. Attraction to all being on different pages creating low-effort commenting. It's a mass man / mass mind problem, seeing the forest for the trees of the scattered comprehension of common issues. People need to get on the same page of nonfiction. "insane"... "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+Calling people insane, but what's also driving us crazy / insane is avoiding nonfiction learning. Attraction to all being on different pages creating low-effort commenting. It's a mass man / mass mind problem, seeing the forest for the trees of the scattered comprehension of common issues. People need to get on the same page of nonfiction. "insane"... "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixcp6y/
 
@@ -173,3 +173,30 @@ https://old.reddit.com/r/MurderedByWords/comments/1o3tss3/remember_he_swore_twic
 https://old.reddit.com/r/MurderedByWords/comments/1o3tss3/remember_he_swore_twice/nixncvn/
 
 Repeating the mindset of reactionary commenting to spread to other timing patterns.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o3tss3/remember_he_swore_twice/nixurye/
+
+Jamming every topic into a 1-bit simple-think binary mindset of conservative vs. liberal. Fiction vs. nonfiction is the concern, nonfiction abandoned, science thinking abandoned, reality itself abandoned in favor of huge quanitties of high-speed low-effort no-identity commenting messages in October 2025.
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixv16i/
+
+No links, no quotes, no citations, no author names, no book titles, no article titles. Just extremely short reactionary commenting. People have abandoned nonfiction serious learninga about media ecology and Russian information warfare to win "hearts and minds" to follow Putin leadership signals (deception leadership signals).  ... ... ...
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixxdgx/
+
+Minds blown into meme stupors when presented with a video message on Reddit of delibately crafted Kremlin / White House contardictions / paradoxes. Tiny-short messaging outcomes from having mind blown by the encounter of symbolism paradox mind-fucking. ... ... ... 
+“When a population becomes distracted by trivia, when **cultural life is redefined** as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk;” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixsqmv/
+
+These "timelines" are alternate realities, monomyth weaponized warfare from doctors at Cambridge Analytica, deployed by the Internet Research Agency since March 2013. There were over 5,000 to start with, and large language models and meme enthusiasts have created many new monomyth forks and branches since that time. Even South Park creators Matt and Trey are creaing new monomyth patterns joing in with the original CA ones. The outcomes are people who prize *hate harder, mock harder, avoid nonfiction, avoid learning media ecology nonfiction, avoid learning Russian information warfare nonfiction, avoid calling to get on the most improtant topics smame pages, avoid facing what is most important in defending reality and defending nonfiction*. Russia won, Surkov won, USA has lost hearts and minds to self-harm and nonfiction avoidance. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixue80/
+
+Mind blown in to LOL-stupor, meme-stupor by the Tony Clifton acting, the acting of Surkov student screenplays. Loke shooting fish in a barrel in the Reddit audience. People flocking to the mockery, unable to escape the conditoned simulacra patterns in their mind since year 2013.
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixukkq/
+
+Calling people insane, but what's also driving us crazy / insane is avoiding nonfiction learning. Attraction to all being on different pages creating low-effort commenting. It's a mass man / mass mind problem, seeing the forest for the trees of the scattered comprehension of common issues. People need to get on the same page of nonfiction. "insane"... "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
