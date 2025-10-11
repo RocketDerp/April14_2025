@@ -268,3 +268,13 @@ https://old.reddit.com/r/CringeTikToks/comments/1o3utnm/young_ohio_racists_to_vi
 
 And what is Reddit fiction storytelling, what is Bluesky fiction storytelling, what is Fox News fiction storytelling, Truth Social fiction storytelling... Swat Valley Pakistan Taliban fiction storytelling. “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1o3yyu4/the_amount_of_chicken_tenders_wasted_for_not/niyh2ex/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1o3yyu4/the_amount_of_chicken_tenders_wasted_for_not/niyhhnn/
+
+MEDIA_ECOLOGY_LESSON People who see the forest for the trees!
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1o3yyu4/the_amount_of_chicken_tenders_wasted_for_not/niyn46a/
+
+Out-group dumb, out-group hate, out-group mocking. With all the entertainment we have in the world, video game systems for fiction, books for fiction, TV shows for fiction, people hate upon real living human beings who work in fast food.
+
