@@ -385,3 +385,32 @@ https://old.reddit.com/r/CringeTikToks/comments/1o3ydw5/donald_trump_on_his_son_
 
 <img width="1004" height="628" alt="image" src="https://github.com/user-attachments/assets/fc4e9f94-d684-4085-8583-b5367fd086ef" /> "Short form content", tiny-short disposable commenting and video clips. ANYTHING to avoid sustained focus on what is important and critical in nonfction.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/nixzcv7/
+
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/nixz2wy/
+
+The hate of goodness itself. Since March 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/niyan0c/
+
+Self-harm conditioend by IRA and CA.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/niy13ru/
+
+Cramming everything into left vs. right binary value is brainrot. Two and only two. One-bit logic, "both sides, only two" answers to every situation. "There are two types of websites on the web" logic. Humans are so easy to understand, two and only two answers, both wrong. Why not 3, or 13? ... ... ... 
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/niy5iv5/
+
+Too risky to go against the fiction propeganda that has won. Every area of life, not just eleciton days, is wrecked by the War Against Reality since March 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/niy1wet/
+
+As you *used to beleive*, because year 2013 Russia brainwshed the population and nobody wants to assert nonfiction reality in the face of War Against Reality, the War Aainst Nonfiction.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/niy53h5/
+
+Yha, since March 2013. "that last line u said about america not being as progressive as you used to believe, i feel that so much."
+
