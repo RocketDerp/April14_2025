@@ -200,3 +200,35 @@ https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_pla
 
 Calling people insane, but what's also driving us crazy / insane is avoiding nonfiction learning. Attraction to all being on different pages creating low-effort commenting. It's a mass man / mass mind problem, seeing the forest for the trees of the scattered comprehension of common issues. People need to get on the same page of nonfiction. "insane"... "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixw5vw/
+
+As soon as trah content is put on the Reddit cloud computing servers, audiences flock to their favorite seasoned trash and create low-effort commenting trash. THIS HAS BEEN GOING ON FOR OVER TEN YEARS AND THREE MONTHS, and peole do not see the forest of trash for the recency bias of individual trees. Russia won, Surkov won. Since year 2013. ... ... ...
+"Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixxfsa/
+
+No links, no citations, no quotes, no book titles, no author names. A society so addicted to trash media and creating commenting disposable trash. ... ... ...
+“With today’s regimes, which struggle to formulate a single ideology, the idea that one lives in a world full of conspiracies becomes the worldview itself. Conspiracy theory replaces ideology with a mix of self-pity, paranoia, self-importance, and entertainment.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixxwrp/
+
+The IRA and CA mind-fucked away the "regular version" of reality into 5,000 patterns of anti-reality that have been enhanced and expanded since year 2013. Nonfction is avoided, learning of media ecology avoided, learnign of Russian information warfare techniques and tctics avoided.
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixtfs3/
+
+South Park (fiction monomyth) satire-washing of serious real reality. Mockery-washing for the Reddit audience. Anything to avoid nonficiton serious sustained focus on critical topics of this media video / media ecology. ... ... ...
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixw8y1/
+
+Satire-washing of serious real reality. Mockery-washing for the Reddit audience. Anything to avoid nonficiton serious sustained focus on critical topics of this media video / media ecology. Attraction to low-effort mockery chambers to mock in reaction to the Total Mockery leadership messages of the Kremlin and White House.
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixwvkz/
+
+Reinforcement traing for the Reddit audience, comment consumers. No citation, no book author, no article title, no ling, no book title. Just normalizing more and more the extreme low-effort commenting addictions of people who flock to disposable commenting. Washing away nonfiction comrpehensions and understandings with high-speed media systems (Reddit, Bluesky, etc).
+
+https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixx06c/
+
+New Reddit account. Setting minds to fiction and avoidance of nonfiction. Promting the eating of the Surkovian onions. People who prize low-effort Reddit disposable commenting message describing the Russian Kremlin "War Against Reality" without any ability to go to the nonfiction section of the public library and name it. Published January 2015, before Trump started run for office in June 2015: ... ... ...
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
