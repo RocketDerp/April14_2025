@@ -3245,7 +3245,7 @@ No links, no author names, no book names, no quotes...
 
 https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/niucp3p/
 
-Entertainment to death, Sprots Games to death, Music at HALF Time to death, 1985 book by Neil Postman "Amusing Ourselves To Death"
+Entertainment to death, Sports Games to death, Music at HALF TIME entertainment to death, 1985 book by Neil Postman "Amusing Ourselves To Death"
 
 https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_working_with_putin_for/niuovzu/
 
@@ -3256,4 +3256,12 @@ https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_wor
 People comment create without even reading the other comments. It's a total mockery enviornment. Anti-learning anti-understanding, free time and spare time to disposable commenting. A chamber of anti-comprehension.
 
 https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/niv0yai/
+
+https://old.reddit.com/r/news/comments/1o3hchi/houston_missing_teen_with_autism_reportedly_in/niv5mfa/
+
+People will comment that it is crazy, mention reality, and then on to the next low-effort commenting. This has been going on for over a decade. 
+
+https://old.reddit.com/r/news/comments/1o3hchi/houston_missing_teen_with_autism_reportedly_in/niv41a9/
+
+Rule by stress, stress lords.
 
