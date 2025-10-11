@@ -423,5 +423,23 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_o
 
 Becaues American prizes low-effort tiny-short messages as information above nonfiction printed books and getting *on the same page* of important and critical topics about media ecology and Russian information warfare.
 
+https://old.reddit.com/r/HumorInPoorTaste/comments/1o3vzhd/trumps_america_is_not_what_they_fought_for/niyi7rb/
 
+No link, no title, no author, just dispsoable commenting messages to amuse.
+
+https://old.reddit.com/r/HumorInPoorTaste/comments/1o3vzhd/trumps_america_is_not_what_they_fought_for/niz9lkv/
+
+Mocking and insulting the injrued by the paradox warfare Agaisnt Reality that Russia has waged since March 2013. Instead of *we need to rescue the mentally wounded, the brain damaged* by Russia's war... just tiny-short messages of mockery-washing away the seriousness of the situation.
+
+https://old.reddit.com/r/HumorInPoorTaste/comments/1o3vzhd/trumps_america_is_not_what_they_fought_for/nixu7z2/
+
+1. Insane. 2 Reality abandoned. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/HumorInPoorTaste/comments/1o3vzhd/trumps_america_is_not_what_they_fought_for/nixwzdn/
+
+More hate, more killing worship. No, we found the equation in year 1954 that applies to October 11, 2025 sitaution just as well. The world abandoned the spirit of Woodstock 1969 pro-goodness pro-peace pro-Earth and has now machine-love (love Reddit machines, hate persons messaging platform of self-dehumanizing hide identity and location). Any person can click one link and find 1954 equation that everyone is avoiding as a brain problem in our educaiton, teaching, parenting, leadership values. People prize hate. People think hate upon Donald Trump and insulting Trump FOR OVER TEN YEARS AND THREE MONTHS is not the problem. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/HumorInPoorTaste/comments/1o3vzhd/trumps_america_is_not_what_they_fought_for/nixy7ug/
+
+The January 1944 Second Bill of Rights https://en.wikipedia.org/wiki/Second_Bill_of_Rights was abandoned, forgotten, ignored. Michael Moore tried to revive it September 6, 2009 https://en.wikipedia.org/wiki/Capitalism:_A_Love_Story - but people still avoid it. OPERA_A REPEAT_UNTIL_SECOND_BILL_RIGHTS_KNOWN_BY_ALL  "Well our fathers fought the Second World War. Spent their weekends on the Jersey Shore. Met our mothers in the USO... Asked them to dance... Danced with them slow! And we're living here in Allentown. **But the restlessness was handed down**... And it's getting very hard to stay" https://www.youtube.com/watch?v=hQIQv8BGtHs 134 views November 21, 2016
 
