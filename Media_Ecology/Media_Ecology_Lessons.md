@@ -800,3 +800,8 @@ How cynical should we be?
 
 https://old.reddit.com/r/MadeMeSmile/comments/1o2b9p7/small_business_discovering_a_celebrity_wore_their/
 
+### Medium change, Moving
+
+Moving houses, medium change.
+
+https://old.reddit.com/r/todayilearned/comments/1o3vj3q/til_that_a_hundred_years_ago_a_quarter_of_the/
