@@ -25,3 +25,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_chur
 
 Tiny-short messages that are so popular for thinking patterns. Russia has been waging a global manipulation war of hearts and minds, and only blaming "the leaders of the Dems"  in simple-think. The problem is that We The People adore fiction and antics politics and won't organize around nonfiction Wikipedia / Wiki style of organized progressive improvemnt of information to all get on *the same page* and stop drowning the nation with free time and spare time spent creating disposable comments that are abandoned hours after creation.
 
+https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixeak4/
+
+"it's impressive" how Russia has programmed self-harm and egomania into the USA population via meme mills. People are impressed how the USA is in a *race to the bottom* of out-group hate patterns, *hate harder* messaging and mindsets. Russia seeded 5,000 on Reddit, and people ate it up. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+
