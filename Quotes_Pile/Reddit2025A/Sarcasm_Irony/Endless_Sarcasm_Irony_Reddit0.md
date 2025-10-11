@@ -723,3 +723,8 @@ https://old.reddit.com/r/pics/comments/1o2m9v2/irony/
 
 What a Twitter-logic Tweet-thinking mind-fuck. The military has rules different from non-government military. You can't just go murder someone with a weapon and come home unless you are military. The police have rules about being able to force people into police cars and into jail and prison. Normal everyday people can't force people into cars and prison. People do not see this is Russian Surkovian techniques of "War Against Reality" and call it as such.      
 https://old.reddit.com/r/MurderedByWords/comments/1o3d23g/call_for_epstein_transparency/
+
+&nbsp;
+
+Recency bias is so horrific in USA society. People removed Donald Trump from office, voted him out and he was repalced with Joe Biden. The endless media stimulation, addiction to fiction storytelling, is driving Reddit and USA society in total. Enlessly mocking and insutling Tony Clifton acts / President Tonly Clifton. People have sold out the future and goodness of children in USA (and world) for mockery and name-calling trash-talk low-effort high-speed commenting. Surkov won.      
+https://old.reddit.com/r/fednews/comments/1o3t72y/remember_when_biden_was_president/
