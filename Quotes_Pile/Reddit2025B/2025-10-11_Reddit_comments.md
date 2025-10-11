@@ -45,3 +45,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_chur
 
 Tiny-short messages. No link, no citation, no quote, no author names, no book ttiles / article titles. Who is "they' that are terrorists? The Mormon church in the story? The GOP? The Michigan killer who terrorized the Church with guns? What should we do about terrorists / extremists? Create millions of disposable low-effort commenting messages on high-speed messaging systems seems to be the popular reaction and answer. Avoding nonficiton serious learning. ... ... ...
 "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixg56m/
+
+"Insanity has taken over...". Ok, so it did not used to be insane, but now it is insane. What's the cause? What's the information that we need to organize and share. Low-effort dispsoable commenting is a huge CAUSE of the insanity. People spending their free time and spare time COMMENTING about Donald Trump FOR OVER TEN YEARS AND THREE MONTHS every day, flocking to Donald Trump signals to react to. "Insnity", no lings, no quotes, no author names, no book titles, just high-speed dispsoable messages. Why are we not asking ever mental heatlh professional all over the world to use World Wide Web / Social Media to treat our insanity? "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
