@@ -443,3 +443,50 @@ https://old.reddit.com/r/HumorInPoorTaste/comments/1o3vzhd/trumps_america_is_not
 
 The January 1944 Second Bill of Rights https://en.wikipedia.org/wiki/Second_Bill_of_Rights was abandoned, forgotten, ignored. Michael Moore tried to revive it September 6, 2009 https://en.wikipedia.org/wiki/Capitalism:_A_Love_Story - but people still avoid it. OPERA_A REPEAT_UNTIL_SECOND_BILL_RIGHTS_KNOWN_BY_ALL  "Well our fathers fought the Second World War. Spent their weekends on the Jersey Shore. Met our mothers in the USO... Asked them to dance... Danced with them slow! And we're living here in Allentown. **But the restlessness was handed down**... And it's getting very hard to stay" https://www.youtube.com/watch?v=hQIQv8BGtHs 134 views November 21, 2016
 
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0kuso/
+
+Simulacra training ground for other simulacras.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0j8md/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0kh9k/
+
+Almost find it comical... describing the brain exploit in their own mind. Can't imagine that Russia never noticed this and has created 5,000 patterns to get EVERY PERSON on earth into this mind exploit / brain chemistry exploit of messages and memes / information exploit.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0aloo/
+
+Mind-fuck simulacra training ground, patterns of brain exploits that works on ALL people when seeing paradox / monomyth story conflicts / absurd / surreal.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0bjyu/
+
+Why does stupid have to be downvoted? Why is education such a bad thing? Why is teaching a bad thing? why is quoting a nonficiton book anger people so much on Reddit? Why is there such an anti-rescue attitude since year 2013... IRA and CA.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0dpvv/
+
+Simulacra training ground for other simulacras.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0nmft/
+
+That's the greater issue. If you put the right status symbol signature on a message, if the source appears to be a famous person (the Reddit comment references Trump, pussy grabbing)... then it accepted. Same with Bible / Quran / Torah / QAnon - all science fiction with no provable source identity. But that "source" changes entirely how people accept it. Think about cover songs of a famous artist. Millions of people can sing a Michael Jackson song, but how many will earn $100 million dollars for singing it? The identity of the singer even for the same words... makes a huge difference. And LLM / ChatGPT exploits all that too since year 2022.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nizrf2a/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nizrgyg/
+
+Cramming every topic into the 1-bit value of left vs. right is brainrot. Fiction addictions vs. nonfiction science learning is a better measure to see the War Against Reality on Reddit *non-identity* messaging problems.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nizpzwd/
+
+Egomania.
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0ejla/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj07hic/
+
+Fiction outsells nonfiction. Anti-reality, nonsense, avoidace of nonfiction when told. ... ... ...      
+“Chaos and disruption, I later learned, are central tenets of Bannon's animating ideology. Before catalyzing America's dharmic rebalancing, his movement would first need to instill chaos through society so that a new order could emerge. He was an avid reader of a computer scientist and armchair philosopher who goes by the name Mencius Moldbug, a hero of the alt-right who writes long-winded essays attacking democracy and virtually everything about how modern societies are ordered. Moldbug’s views on truth influenced Bannon, and what Cambridge Analytica would become. Moldbug has written that “nonsense is a more effective organizing tool than the truth,” and Bannon embraced this. “Anyone can believe in the truth,” Moldbug writes, “to believe in nonsense is an unforgettable demonstration of loyalty. It serves as a political uniform. And if you have a uniform, you have an army.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, page 85. **year 2019**
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0bexv/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0cnla/
