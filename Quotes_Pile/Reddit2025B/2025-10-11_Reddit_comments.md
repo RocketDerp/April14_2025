@@ -412,5 +412,16 @@ As you *used to beleive*, because year 2013 Russia brainwshed the population and
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/niy53h5/
 
-Yha, since March 2013. "that last line u said about america not being as progressive as you used to believe, i feel that so much."
+Yha, since March 2013. "that last line u said about america not being as progressive as you used to believe, i feel that so much." Twitter didn't have a block button "Twitter, now known as X, added the blocking feature in late 2013, but the exact date isn't specified. The feature was first announced in December 2013" I experienced the Arab Spring from December 16, 2009 onward... no block button. Met many people in North Africa and met my wife on social media in February 2010 and moved to Algeria December 2, 2010. ... ... ...
+"His essay, **written just after “The Arab Spring”,** pointed to the anarchy and violence that erupted in Libya and Syria (much of it fueled in the social media), “as proof that a combination of carefully planted stories, outside pressure and political interference can destroy an adversary’s ability, or even the will to fight.", "His essay, written just after “The Arab Spring”, pointed to the anarchy and violence that erupted in Libya and Syria (much of it fueled in the social media), “as proof that a combination of carefully planted stories, outside pressure and political interference can destroy an adversary’s ability, or even the will to fight." https://www.sltrib.com/opinion/commentary/2018/02/17/commentary-russian-general-plots-our-cyber-downfall/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/niygjlf/
+
+Calling for people on Reddit to normalize and accept the situation as it is. Give up undoing the Russian information warfare damage since year 2013. Surrender, poisoned by Putin since year 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o3wo83/why_are_people_so_opposed_to_aoc_running_for/niycxmj/
+
+Becaues American prizes low-effort tiny-short messages as information above nonfiction printed books and getting *on the same page* of important and critical topics about media ecology and Russian information warfare.
+
+
 
