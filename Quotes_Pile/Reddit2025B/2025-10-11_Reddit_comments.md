@@ -29,4 +29,15 @@ https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_chur
 
 "it's impressive" how Russia has programmed self-harm and egomania into the USA population via meme mills. People are impressed how the USA is in a *race to the bottom* of out-group hate patterns, *hate harder* messaging and mindsets. Russia seeded 5,000 on Reddit, and people ate it up. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
+https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixol3l/
+
+Low-effort, won't even context who "their" is as leaders. 
+
+https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixegkm/
+
+Note the absence of author names, book titles, links, article names, citations, quotes. Just heavy focus on disposable comments that are abandoned hours later.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixeb6q/
+
+Mob mentality abounds. Inlcuiding on Reddit. Russia has programmed self-harm and egomania into the USA population via meme mills. USA is in a *race to the bottom* of out-group hate patterns, *hate harder* messaging and mindsets. Russia seeded 5,000 on Reddit, and people ate it up. "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
