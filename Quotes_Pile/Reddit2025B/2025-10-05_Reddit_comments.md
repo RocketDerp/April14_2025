@@ -3291,3 +3291,35 @@ https://old.reddit.com/r/stocks/comments/1o3d10v/breaking_trump_places_100_tarif
 
 And that's the adults, the parents, children are being given this as a role model for business leadership. This is not just one single person, Donald Trump, this is an entire executive branch organizaton, thousands of people are involved in these decisions.
 
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/niupiji/
+
+Fiction, Twilight Zone is hyper-reality fiction. Dreams / Nightmares.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/niusquj/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/nivnrfv/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/nivdzct/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/nivtvwn/
+
+People are so proud to declare the humans they reject and abandon. Russia mind-fucked people into hate prizing and self-harm.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/niuziwy/
+
+Repeating the Trump / MAGA talking point that Joe Biden was killed and replaced by "bot".
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/nivnlqc/
+
+Minds are blown in Reddit audience by Surkovian govering methods.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/nivwjeu/
+
+Simulacra, 5000 deployed on Reddit by IRA since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/niv91mp/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_actually_got_the_nobel_prize/nivaavw/
+
+Been going on for ove a decade.
+
