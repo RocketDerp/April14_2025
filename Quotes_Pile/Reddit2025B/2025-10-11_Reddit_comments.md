@@ -327,4 +327,7 @@ https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_chur
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nizcg38/
 
+<img width="946" height="330" alt="image" src="https://github.com/user-attachments/assets/863175a4-11e6-4fb2-9bc3-8307693c440e" /> ... Oblivious that this is a condtioned egoism mockery. Turning a topic of two entire nations, Russia and USA, over 400 million people, into a topic of two people. Reddit comment tree vs. Reddit comment trie, to defect topic away from the forest.
+
+
 
