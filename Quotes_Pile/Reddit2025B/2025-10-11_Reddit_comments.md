@@ -278,3 +278,48 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1o3yyu4/the_amount_of_chicke
 
 Out-group dumb, out-group hate, out-group mocking. With all the entertainment we have in the world, video game systems for fiction, books for fiction, TV shows for fiction, people hate upon real living human beings who work in fast food.
 
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixrw0n/
+
+American made Android Apps / Games... 
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixx6h1/
+
+Sarcasm-washing? Recency Bais abounds in USA. People behaving as if this is year 1 of Infinite Trumpism. It started June 16, 2015. Bloomsday 2015.
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixt9rm/
+
+Comedy washing the seious situation of general population ignorance and Russian information warfare mindsets. Tiny-short messages to win virtual Reddit prizes ("awards"). ... ... ... "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." - https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixxsu7/
+
+Funny, endless joke comedy. The Kremlin Infinte Jest V spread-spectrum of 5,000 alternate-realities wrecking the nation since year 2013. "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/niyan50/
+
+Medical. Harvard Medical Teaching. February 23, 2017: **Harvard scientist worries we’re ‘reverting to a pre-Enlightenment form of thinking’** https://www.washingtonpost.com/news/wonk/wp/2017/02/23/harvard-scientist-worries-were-reverting-to-a-pre-enlightenment-form-of-thinking/
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixyxuc/
+
+Burning the engine out on fiction frenzy, media frenzy, high-speed social meme commenting and sharing frenzy. Media ecology crisis, race to the bottom of anti-goodness.
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixt35l/
+
+Tiny-short message, popular upvted / liked on Reddit comment. Twitter-think.  Meme addicts unable to imagine their own compusive attraction to Reddit trash media has been a warfare technique by Putin. This Reddit comment... people unable to imagine absurd surreal is a formal technique of Tony Clifton acting, Surkovian leadership. Calling Tony Clifton a bad performer is not resisting Tony Clifton acts. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixw4kj/
+
+People can't interpret inforamtion about reality correctly. We have an anti-reality crisis. We have a media ecology crisis. We have a learning disaiblity nation-wide induced by Russain IRA and CA information warfare since year 2013. People are flocking to high-speed fiction trash media, avoiding nonfiction learning and correct interprtation and understandings.
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/niyhisv/
+
+The things I saw working for Paul Allen Group as an analysist 8 to 10 doors down from Paul Allen and Vern Raburn and the Bloomberg Terminals trading... in Bellevue Riot House.
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixsg4k/
+
+<img width="1044" height="878" alt="image" src="https://github.com/user-attachments/assets/8685e5a1-c555-4eb8-80f1-5df4dc0898b9" /> The man has won President White House TWICE at fucking OLD AGE - running cicles around younger people, fucking TWO TIMES, he even managed to further the cult in the 4-years in between! Since June 2015 Donald Turmp has beening causing audiences on Reddit to flock to his every move and shake and comment from the audience how terrible Tony Clifton acts are, without a clue of Surkovian Andy Kaufman behind the scenes. What Donald Trump focused on with **casino acts** was Tony Clifton at Harrah's, what Donald Trump focused on was wresteling and boxing matches and entertainment machines, slot machine (Reddit message machines) that people flock to. He wasn't in it for the profits of the Casino, he was in it for the entertainment Miss Universe Moscow 2013 skills as Maste of Ceremony. The leading of a fiction show against Reddit and Bluesky audiences who eat up the Surkovian onions without one lick of Kremlin technique self-awareness! What Donald Trump learned at CASINOS was this: Every media site commenting section is now interactive fiction (IF), touch screen filter-bubble games. An alternate reality gaming environment where people crave fiction and mythology (monomyth chunks and patterns) and have abandoned sustained focus "we all need to get on the *same page together*" nonfiction serious important topics. WE ALL NEED TO BE ON PAGE 235 OF THIS BOOK! Not *Project 2025*, but a year 2019 book! Casinos are "gaming". ... ... ...
+“We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
+
+https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixsr48/
+
+Tiny-short message, popular upvted / liked on Reddit comment. Twitter-think.  Meme addicts unable to imagine their own compusive attraction to Reddit trash media (mocking Tony Clifton without self-awareness) has been a warfare technique by Putin. This Reddit comment... people unable to imagine absurd surreal is a formal technique of Tony Clifton acting, Surkovian leadership. Calling Tony Clifton a bad performer is not resisting Tony Clifton acts. I'm being as redudnant as possible in essential anti-patterns. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
