@@ -327,7 +327,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_chur
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nizcg38/
 
-<img width="946" height="330" alt="image" src="https://github.com/user-attachments/assets/863175a4-11e6-4fb2-9bc3-8307693c440e" /> ... Oblivious that this is a condtioned egoism mockery. Turning a topic of two entire nations, Russia and USA, over 400 million people, into a topic of two people and immediate Reddit messages. Reddit comment tree vs. Reddit comment tree, two trees, to defect topic away from the forest topic of the mass mind, society vs. society.
+<img width="946" height="330" alt="image" src="https://github.com/user-attachments/assets/863175a4-11e6-4fb2-9bc3-8307693c440e" /> ... Oblivious that this is a condtioned egoism mockery. Turning a topic of two entire nations, Russia and USA, over 400 million people, into a topic of two people and immediate Reddit messages. Reddit comment tree vs. Reddit comment tree, two trees, to defect topic away from the forest topic of the mass mind, society vs. society. Also counting that nobody is standing up and that only one person has the courage to stand up for the War Against Reality. ... ... ...       
+February 28, 1954: "Most people can't stand up for their convictions, because **the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation** of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
 
 https://old.reddit.com/r/illinois/comments/1o40fyr/northwest_chicago_suburb_ice_agents_rip_15yearold/niyrqea/
 
@@ -351,4 +352,36 @@ https://old.reddit.com/r/illinois/comments/1o40fyr/northwest_chicago_suburb_ice_
 https://old.reddit.com/r/illinois/comments/1o40fyr/northwest_chicago_suburb_ice_agents_rip_15yearold/niysnnw/
 
 How many have bene fucked-over in Ukraine since February 2014 that tiny-short comment messaging on Reddit has washed away. Over a decade. The Russin War Against Reality launched Q2 2013, the Internet Research Agency. Reddit community constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit society can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o409su/person_who_recently_received_significant/niyw2gg/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3ydw5/donald_trump_on_his_son_barron_he_can_look_at_a/niybwzj/
+
+Having his own unique language gets a Reddit audience reaction. Tony Clifton dress-up and speech style gets the Reddit community eating out of his hands. Mocking Tony Clifton acts is not resisting Tony Clifton performances. The perfect actor to hire for Surkovian screenplay, information warfare by Russia. See also: ... ... ...      
+"Do You Speak Fox? How Donald Trump’s favorite news source became a language. By Megan Garber. September 16, 2020", "You might have come across the articles (“I Lost My Dad to Fox News” / “Lost Someone to Fox News?” / “‘Fox News Brain’: Meet the Families Torn Apart by Toxic Cable News”), or the Reddit threads, or the support groups on Facebook, as people have sought ways to mourn loved ones who are still alive. The discussions consider a loss that Americans don’t have good language for, in part because the loss itself is a matter of language: They describe what it’s like to find yourself suddenly unable to speak with people you’ve known your whole life. They acknowledge how easily a national crisis can become a personal one. At this point, some Americans speak English; others speak Fox." https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3ydw5/donald_trump_on_his_son_barron_he_can_look_at_a/niyhh0t/
+
+I don't see people calling out Russia information warfare, and how predictable the Reddit flocking to the most superficial and shallow aspects of the crisis, ONE SINGLE 79 Year Old Man, instead of a massive cult and how it was created since year 2013 using Cambridge Analytica by the IRA. Those who hate Trump blow out their own minds, as explained by MLK Jr. ... ... ...      
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. **For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost***." - Martin Luther King Jr.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3ydw5/donald_trump_on_his_son_barron_he_can_look_at_a/niyjbpu/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3ydw5/donald_trump_on_his_son_barron_he_can_look_at_a/niylgmz/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3ydw5/donald_trump_on_his_son_barron_he_can_look_at_a/niyvbyn/
+
+Reddit messages promoting the Trump Total Mockery messaging of "low I.Q." to normalize and Reddit-wash Trump / promote Trump thinking systems. https://www.politico.com/story/2019/05/30/donald-trump-iq-intelligence-1347149
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3ydw5/donald_trump_on_his_son_barron_he_can_look_at_a/niydizw/
+
+What is like to live in a society where every person is trying to trick, manipulate, game, pull one over on everyone else. It's a constant competition to manipulate others. People trust Trump and people are so engaged in *mock harder, hate harder* around Turmp that people don't see the Russian War Against NonFiction, that fiction is running society. Trickery and manipulation values for all.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3ydw5/donald_trump_on_his_son_barron_he_can_look_at_a/niyi5ga/
+
+People prize hate. People think hate upon Donald Trump and insulting Trump FOR OVER TEN YEARS AND THREE MONTHS is not the problem. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3ydw5/donald_trump_on_his_son_barron_he_can_look_at_a/niykl0l/
+
+<img width="1004" height="628" alt="image" src="https://github.com/user-attachments/assets/fc4e9f94-d684-4085-8583-b5367fd086ef" /> "Short form content", tiny-short disposable commenting and video clips. ANYTHING to avoid sustained focus on what is important and critical in nonfction.
 
