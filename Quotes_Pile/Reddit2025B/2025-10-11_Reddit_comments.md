@@ -82,3 +82,16 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_f
 
 One thing Large Langauge Models can do for the rich and powerful is fingerprint your English writing and match it up, especially if a previous account halts activity in certain categories of topics and then another account appears active in those avoided topics. That kind of pattern in langauge is what current machine learning is great at.
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixjrme/
+
+Exactly the conditioned IRA / CA behavior. Abandon the human, and stick to the system of thinking (about home schooling in this context). ... ... ...
+"That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - November 17, 1957. MLK Jr.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixhske/
+
+Yha... "Your reddit posts say what you really are as a person. And some people arent really ready to show that to their friends." - the whole of over 8 billion people sees what the USA really prizes... out-group hate and self-harm addictions to fiction and falsehood signals.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o3u2hc/petah_why_is_it_forbiddens/nixmefn/
+
+Every Reddit account hides identity to flock to power of people who use real identity. Elon Musk real identity postings, Donald Trump real image and identity postings, rich people use their real identity while people on Reddit self-dehumanize the non-famous everyday people. It is a worship of heirchy of who compromises their human truth. ... ... ...
+"Now this is a **very serious affair. It is serious** because these symbolic worlds were the supports of the civilizations, of the moralities of the civilizations, of the self-confidence of the civilizations, of the vitality and creative power of the civilizations. And with the cutting down, the frustrating of the self-confidence that derives from images of this kind, **there is a disequilibrium within the society itself. And everyone is challenged in his loyalty** — are you going to be loyal to the tradition, to the form, to the morality and myth of your society, or are you going to be loyal to truth? They are two different things." - [November 16, 1961. Joseph Campbell on loyalty to fiction mythology, avoidance of truth](../Specific/Joseph_Campbell_Loyalty_Myth.md)
