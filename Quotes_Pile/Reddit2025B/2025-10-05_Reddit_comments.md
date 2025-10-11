@@ -2504,7 +2504,7 @@ Tiny-short disposable commenting message with no links, no author names, no book
 
 https://old.reddit.com/r/MurderedByWords/comments/1o28rtc/president_falsifies_crisis/nim2j9o/
 
-Alternate REALITIES, Alternate Reality social media screen games! More than 5,000 different anti-reality ARG touch device patterns on every media platform. Since Q2 2013.  Abandonment of nonfiction, abadonment of factaul reality. John 1:1 monomyth warfare against We The People, everyone mind-fucked. ... .... ... 
+Alternate REALITIES, Alternate Reality social media screen games! More than 5,000 different anti-reality ARG touch device patterns on every media platform. Since Q2 2013.  Abandonment of nonfiction, abadonment of factual reality. John 1:1 monomyth warfare against We The People, everyone mind-fucked. ... .... ... 
 "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
 
 https://old.reddit.com/r/TikTokCringe/comments/1o27bb9/were_so_dumb/nilokoq/
