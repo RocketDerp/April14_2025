@@ -236,3 +236,35 @@ https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_pla
 
 <img width="892" height="230" alt="Screenshot from 2025-10-11 08-58-31" src="https://github.com/user-attachments/assets/754dfaea-d91b-4b78-ad60-7ee32b59de55" /> Ok... pondering. 1. Imagine ironically supporting this. 2. Imagine onironically supporting this. Imagine seeing a forest of people all mocking and mocking and mocking, barking at trees, not seeing that the whole forest has been irony-exploited absurd-exploited surreal-exploited. Let's do the math here. The Republican party already "owns the conservatives" via Fox News HDTV, and now "owns the libs" via social media audiences, who is not owned? Owning EVERYONE. ... ... ...
 "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements**, exploiting and rendering them absurd. One moment Surkov would  ..." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014**
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3utnm/young_ohio_racists_to_vivek_r_why_are_you/nixpbx5/
+
+Levant myth inverted, ass-backwards Levant mythology. Yaweh / Jesus / God / Allah all taught backwards by toxic clergy. ... ... ...
+"there must now be added that of “social identification”: identification with Israel, with the Church as the Living Body of Christ, or with the Sunna of Islam — each body over-interpreted by its membership as the one and only holy thing in this world. And the focal center and source of all this holiness is concentrated in each case in a completely unique and special fetish — not a symbol, but a fetish: (1) the Ark of the Covenant in the Temple; (2) the Torah in the Synagogue; (3) the Bible of the Reformation; (5) the Koran, as well as (6) the Ka’aba, of Islam." - Joseph Campbell, https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3utnm/young_ohio_racists_to_vivek_r_why_are_you/nixrb2t/
+
+Ass-backwards again, inverting Satan and Jesus.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3utnm/young_ohio_racists_to_vivek_r_why_are_you/nixud5k/
+
+Yes, they are inverting Satan and God.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3utnm/young_ohio_racists_to_vivek_r_why_are_you/nixv0nf/
+
+Runaway monomyth patterns.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3utnm/young_ohio_racists_to_vivek_r_why_are_you/niylhlm/
+
+Wow, I'm one of 8 gnostic. The Great Seal of the United States of America gnostic! ... ... ... 
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3utnm/young_ohio_racists_to_vivek_r_why_are_you/nixvty8/
+
+Taxes are not going to fix Reddit and Bluesky users who can't tell science fiction story translations. Magical outer-space angels science fiction, burning bush science fiction, Hamlet's Ghost science fiction, Star Wars 1977 "Force Ghosts" sience ficiton. People can not tell fiction from nonfiction and that is a crisis in every area of modern life! People flock to Truth Social fiction, Fox News fiction, Reddit commenting fiction, etc. Can not tell fiction from nonfiction fact and reality itself! Living in alternate realtiies, altiernate media universes of fiction. ... ... ... 
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/CringeTikToks/comments/1o3utnm/young_ohio_racists_to_vivek_r_why_are_you/nixo5ry/
+
+And what is Reddit fiction storytelling, what is Bluesky fiction storytelling, what is Fox News fiction storytelling, Truth Social fiction storytelling... Swat Valley Pakistan Taliban fiction storytelling. “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
