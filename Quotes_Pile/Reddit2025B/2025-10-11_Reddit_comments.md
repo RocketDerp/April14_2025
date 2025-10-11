@@ -331,9 +331,24 @@ https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_chur
 
 https://old.reddit.com/r/illinois/comments/1o40fyr/northwest_chicago_suburb_ice_agents_rip_15yearold/niyrqea/
 
-<img width="1358" height="302" alt="image" src="https://github.com/user-attachments/assets/035b3f78-df9f-4153-8420-3910a9fd9b10" /> No, it isn't about the 15 year old girl. It's show of power, show of force. It's about the *symbolism* of a 15 year old girl. It's about entertaining the Reddit audience with a video recording of the arrest. Reddit users eat this up, flocking to every breaking new video to comment on with extremely low-effort messages, inside the audience, being fed the anti-reality warfare. ... ... ...
+<img width="1358" height="302" alt="image" src="https://github.com/user-attachments/assets/035b3f78-df9f-4153-8420-3910a9fd9b10" /> No, it isn't about the 15 year old girl. It's show of power, show of force. It's about the *symbolism* of a 15 year old girl. It's about entertaining the Reddit audience with a video recording of the arrest. Reddit users eat this up, flocking to every breaking new video to comment on with extremely low-effort messages, inside the audience, being fed the anti-reality warfare. ... ... ...    
 "Russia and the Menace of Unreality"   
 "How Vladimir Putin is revolutionizing information warfare"   
 By Peter Pomerantsev. September 9 2014, 3:42 PM ET   
 “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://old.reddit.com/r/illinois/comments/1o40fyr/northwest_chicago_suburb_ice_agents_rip_15yearold/niyv8nq/
+
+Somoene awoke to what is going on! It's education to the Reddit population of how Russia alrady won the information war and it isn't a joke to meme away. This is the real raelity now in October 2025, society has abandoned goodness in favor of high-speed video delivery and commenting. ... ... ...       
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://old.reddit.com/r/illinois/comments/1o40fyr/northwest_chicago_suburb_ice_agents_rip_15yearold/niyumw5/
+
+"This is absurd", yes, and that's how they are feeding the Reddit audience. Absurd surreal exploits of the mind. Humor-washing it all as LOL LOL LOL amusement / entertainment. Absurd comedy, surreal entertainment. It's been going on with Reddit since March 2013 when the IRA invaded, and it has not stopped or referenced since March 2013. Reddit commenity when given (fed by Kremlin and White House) absurd and sureal, adds NIRE surrealy every time. A predictible favoring of surreal absurd itself. Addicitons running audience on Reddit. ... ... ...      
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/illinois/comments/1o40fyr/northwest_chicago_suburb_ice_agents_rip_15yearold/niysnnw/
+
+How many have bene fucked-over in Ukraine since February 2014 that tiny-short comment messaging on Reddit has washed away. Over a decade. The Russin War Against Reality launched Q2 2013, the Internet Research Agency. Reddit community constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit society can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
