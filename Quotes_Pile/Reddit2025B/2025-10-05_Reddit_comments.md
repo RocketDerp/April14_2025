@@ -3255,3 +3255,5 @@ https://old.reddit.com/r/politics/comments/1o39yc2/melania_has_been_secretly_wor
 
 People comment create without even reading the other comments. It's a total mockery enviornment. Anti-learning anti-understanding, free time and spare time to disposable commenting. A chamber of anti-comprehension.
 
+https://old.reddit.com/r/fednews/comments/1o37ozo/if_you_are_a_reporter_please_read_this_first/niv0yai/
+
