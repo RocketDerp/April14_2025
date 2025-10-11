@@ -3323,3 +3323,55 @@ https://old.reddit.com/r/CringeTikToks/comments/1o3fazq/trump_the_person_who_act
 
 Been going on for ove a decade.
 
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwoqoo/
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwya6p/
+
+That's like thinking religions require bloodshed out of tradition of hate. The faith people have tht murder, killing and hat are "enjoyabe" and their "own reward". Living in a sewer of hate and dehumanization does not make your marriage and parenting magical. Having your arms cut off in dangerious workpalces does not make medical care magical. Having your children born with birth defects from toxic pollution does not make helath car magical. A few good marriages and romances in a toxic society does not redeem the hell of parenting and living in the society.
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwifep/
+
+THE IMPLICATION of this message is that pople learn from commenting messages on Reddit. Anonymous sources. Almost always without quotes, citations, author names, book titles, article titles, etc. Instaed of an organized Wiki style article with progressively refined information - it's huge quanitites of low-effort commenting that are disposble (those comments on "AdviceAnimals" are out of date, are abandoned in favor of this new posting that the comment was just made on "Pics")
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwipm6/
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwqgom/
+
+The Medium is The Candidate. Like people being attracted to low-effort commenting about media stars. Malala is known world wide, her event translated to langauges and she traveled all over, goodness for humanity and peace for humanity is unattractive to people. Educating and teaching our way out of conflicts with Wikipedia style sharing from every person in the world is considered boring and uninteresting like nonfiction has become in USA. The competition of being "smarter" than others and calling others stupid and dumb, including leaders - calling them dumb idiots - exeeds the actul desire for "pride Earth", "Pale Blue dot pride" of the whole world proud of the morality and progress of the human race on a plnatary scale. Like using mental health workers / teachers / edicators to convince Russia to abandon war and agression.
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwqw6v/
+
+No, the trck has been Rupert Murodch global media network, Putin's global media network, IRA. And there is so much faith in the 1-bit logic of conservative vs. liberal. How seating at a French King should be the meaasure. What I encourage everyone to see is taht the "right" seating was people who wee science fiction leadership fans of Bible in France. Mythology fiction storytelling. Which fits Fox News / Rupert Murdoch's global media network. Fiction vs. nonfiction learning. And all over the world fiction learning is more popular. And sports teams are not really nonfiction learning. They are entertainment. Even big music acts are more about m oney and fame than sharing a song we all sing together, it becomes a profit money source even after the songwriter / singer is dead. The whole "copyright is brain damage" of putting massive profit concentration in the hands of few instead of media being a shared communications experiencei (where the sharing is prized over the wealth concentation and profits made). 
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwrkeb/
+
+It's a ficton war. A self-harm aatraction to fiction. The wealthy are content creators and in Putin and Trump case, created 5,000 patterns of fiction with the November 7, 2012 agreement. And the dominationg people care about is calling out-groups stupid and dumb and hate upon them. This is a sports mentality, game mentality, where fiction vs. fiction, monomyth vs. monomyth, and humaity is not winning. Like Wuran vs. Torah vs. Bible fiction conflicts and love / compassion / world peace are trashed in favor of thousands of yers of one fiction story like the Bible trying to "win" over fiction story of the Wuran and authentic nonfiction is avoided. Fox News fiction vs. Reddit commenting fiction, everyone on different pages, all avoiding nonfiction same-page undersatnding. ... ... ...
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwoeov/
+
+Our fiction addiction to stoyrtelling from politicians and leaders and businessmen. We fall so much in love with the storytelling of fiction we don't love human people. The "1 John 4:20" problem - you can't "Love God" because that's a fiction character. Lovign REAL PEOPLE is a 2,000 year old identified problem in "1 John 4:20" Bible verse. Loving a story more than human persons.
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwurrd/
+
+Exactly. Same in religions. People are unaware that "I Love God" is wrong, as "1 John 4:20" says. They love only who they love and hate upon other religons wihtout even being educated on the problem with that. Science fiction fans of one film who feel compelled to hate upon fans of another science ficton film. Hate itself is toxic sludge that the whole world prizes. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwm5av/
+
+Yep. Even The Beatles wrote song about it "Tax Man" 1966... A 1995 story about the bands effort to avoid taxes. https://www.theguardian.com/thebeatles/story/0,,606549,00.html
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwj4r5/
+
+"hate everyone", hate as faith.  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) ... ... ...
+"People go “Well, how could we not have a belief in God?” This seems to be most American’s attitude, even those who are not Catholics, Jewish, Christian, whatever; they just answer those damn surveys that you get in USA Today where 98% of them go “I believe in God”, which of course just irritates the hell out of me. I mean I grew up around Baptists that hated… they loved God, loved their fellow man, but they just hated folks. You know what I mean? They loved God, but they hated everybody they knew, I mean… you get a lot of that from the like the Jesse Helms crowd, I mean they just loved God, but they hate everybody else badly. Sort of irritating given then great religious traditions." - 1993, Texan Rick Roderick https://rickroderick.org/301-paul-ricoeur-the-masters-of-suspicion-1993/
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwg6lt/
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwzdcp/
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwho1g/
+
+https://old.reddit.com/r/pics/comments/1o3njo1/maria_corina_dedicates_her_nobel_prize_for_peace/niwfrkd/
+
+Misunderstandings are so funny to people. It's it great that everyone is always flcoking to shit information so people cna be amused at other people. It's a perpetual feedback loop of LOL LOL LOL you were gamed and tricked by our terrible attraction to shit information and signals of hate and manipulation from leaders.
+
