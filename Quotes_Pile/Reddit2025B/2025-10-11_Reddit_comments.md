@@ -927,3 +927,11 @@ The Middle East, the Holy Lands, the Mosque, the Church, the Levant-based clergy
 
 https://old.reddit.com/r/BrandNewSentence/comments/1o4vitt/your_beatles_are_the_beatles/nj6f31o/
 
+https://old.reddit.com/r/ExplainTheJoke/comments/1o4yfa3/english_is_not_my_first_language/nj5pxm1/
+
+This comment is not about Trump. Yet, Trump English, Fox News English. We all need to focus on Marshall McLuhan media ecology of Irish author James Joyce... Finnegans Wake.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1o4yfa3/english_is_not_my_first_language/nj5lguu/
+
+ToDo: Finnegans Wake scene...
+
