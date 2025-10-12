@@ -569,3 +569,9 @@ https://old.reddit.com/r/politics/comments/1o41xmw/trumps_divorced_from_reality_
 
 Many people find the endless antics funny, amusing.
 
+https://old.reddit.com/r/Music/comments/1o4d96o/dhs_tells_chappell_roan_to_get_a_grip_after/nj1j4nx/
+
+https://old.reddit.com/r/Music/comments/1o4d96o/dhs_tells_chappell_roan_to_get_a_grip_after/nj1ibq2/
+
+We the people flocking to low-effort commenting... avoding nonfiction. On the world stage, the entire nation is a joke.
+
