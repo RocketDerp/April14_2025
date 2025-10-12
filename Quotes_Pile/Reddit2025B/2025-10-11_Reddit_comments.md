@@ -821,3 +821,11 @@ https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_t
 
 Reality rewritten and The ELIZA effect on top of the gullibility crisis. October 19, 2024. "America's gullibility crisis" by Zachary Basu  https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
 
+https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_the_size_of_the_dotcom/nj4ng3l/
+
+Auditing public statements. Why don't we build a Wiki style system and stop creating millions and millions of high-speed disposable commenting messages... organize all the relevant learning from mistakes into shared knowledge for over 8 billion people - for all to use on a Wiki free system? Instead, we are all fragemnted in filter-bubbles on different pages creating disposable commenting. There is no "common understanding" or "common realty" because everyne is consuming different learning and activley avoiding nonfiction serious writing as boring.
+
+https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_the_size_of_the_dotcom/nj57s0r/
+
+People read Reddit low-effort commenting messages without even knowing who the authors are. At least with televisoin and other media, you can name the person and show a picture of their face. On Reddit, the everyday user self-dehumanizes - but posts pictures of famous people on the front page. Showing Trump and Musk images over and over, while hiding and clowering We The People everyday identity.
+
