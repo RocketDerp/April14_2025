@@ -935,3 +935,5 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1o4yfa3/english_is_not_my_first
 
 ToDo: Finnegans Wake scene...
 
+https://old.reddit.com/r/BrandNewSentence/comments/1o4vitt/your_beatles_are_the_beatles/nj6j1o3/?context=3
+
