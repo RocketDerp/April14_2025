@@ -764,3 +764,8 @@ https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inabili
 https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj4v28r/
 
 Context blindness, context bewilderment
+
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj4wb3v/
+
+"The ELZIA effect", a Reddit user unable to tell ChatGPT from nonfiction book quotes. Because of copyright rules, ChatGPT can't even quote books like this. Ignorance and hate. Block-happy user who prevented further replies too.
+
