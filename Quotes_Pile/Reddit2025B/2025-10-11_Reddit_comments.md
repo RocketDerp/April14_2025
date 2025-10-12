@@ -596,3 +596,49 @@ https://old.reddit.com/r/law/comments/1o4fju1/starting_october_14th_the_trump_ad
 
 meaningfull action to gun worship USA is to continue to abandon nonfiction, to act like guns will fix Fox News cults. To do ANYTHING but avoid the nonstop amusmeent and entertainment mills called social media. Reality itself has been abandoned, goodness abandoned, and a gun and weapons will bring back goodness and deprogram cults. People want to stand up for murder, not stand up for humanism and compassion and love. Being kind to starngers is consdiered "icky" and "bad" in a fucked-up gun love (hardware love) society.
 
+https://old.reddit.com/r/law/comments/1o4fju1/starting_october_14th_the_trump_administration/nj22l6s/
+
+Whatever "smartness" problem we have is because every person from the billionares on down think it is fun suport to use information systems and society systems to trick and game and outsmart other people. When every road sign on the higway becomes a clever manipulation to make you favor fiction addictions, video games, sports stars. Star Wars Andor has a serious problem people will not face up to: it requires killing and murder and bombs and military devices to solve problems. People joke away world peace and people do not stand up for goodness and insted repeat Wars and Wars and "Star Wars" and Wars and killing as their desire, instead of creating a Wiki style system of sharing and demonstrating goodness is actually wanted. If people DESIRE war because they consider it more entertaining and thrilling, then we will get war. We manifest what we create. Some space alien is not directing us to create wwar with each other. We create "Star Wars Andor" terrorism training for our minds and we do not speak up that we are not offering a goodness path and showing our desires.
+
+https://old.reddit.com/r/law/comments/1o4fju1/starting_october_14th_the_trump_administration/nj29pr7/
+
+When you get cornerd on Reddit, I find people don't tolerate any sentence structure that originates meaning. But here someone tolerates mistakes. But I notice that the pro-banality agents try to use langauge mistakes at some kind of "gotcha" when they attack you in empty areas of the commenting section that aren't getting attention. Anything to hate upon divesity or immigrant langauge users.
+
+https://old.reddit.com/r/law/comments/1o4fju1/starting_october_14th_the_trump_administration/nj2i1vj/
+
+Putin is a self-harm nation. Russia domestic is not paradise. Our mental health workers and our artists have failed to truly stand up for Ukraine and declare war and hate as bad. People prize hate. People think hate upon Donald Trump and insulting Trump FOR OVER TEN YEARS AND THREE MONTHS is not the problem. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/law/comments/1o4fju1/starting_october_14th_the_trump_administration/nj2pyt8/
+
+Piling on downvotes and piling on neglect of the homeless and difficult is popular. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1o4n26u/answer_one_simple_question/nj39f6f/
+
+Self-harm to serve Putin. Trump doesn't even realize he is mind-fucked by Putin. People have not taken seriously the Cambridge Analytica doctors and what they dreamed up, everything the opposite of Woodstock 1969. All the bad shit in songs and messages and art, Cambridge Analytica unlocked. Badness itself is attracting people. Even Putin and Russia seems to not recognize the self-harm they have unleashed, for 25 years Putin has doubled-down on hate-breeding as the future, and the anti-love exported to Ukraine. It's all going to blow up in self-harm. People keep acting like World War Two is the worst humanity is capable of. An avoidance of love and compassion asserting, wishing for love, can get far worse with modern technology.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o4n26u/answer_one_simple_question/nj3e861/
+
+Yes. Ande egoism / egomania isn't fun or enjoyable. And people acting like it is a competition of one-upmanship in this world just odn't get what sharing goodness itself is like. We are not facing up to Carl Sagan's plantary perspective. OPERA_A https://www.youtube.com/watch?v=wupToqz1e2g
+
+https://old.reddit.com/r/MurderedByWords/comments/1o4n26u/answer_one_simple_question/nj3croh/
+
+Like how Reddit users when you share facts and timelines of Russia's mind-fucking with Cambridge Analtyica. ... ... ...      
+“One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**
+
+https://old.reddit.com/r/MurderedByWords/comments/1o4n26u/answer_one_simple_question/nj3aot0/
+
+Anyone who thinks Trump "benefits" from this has truly diluded themselves that having gold on your wall and the admiration of bling bling respect from a gold necklace is anything good. Greed inspires a mob mentality that seems to motivate, but it isn't a benefit or good for humanity and life. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1o4n26u/answer_one_simple_question/nj3bius/
+
+Reddit messages promoting the Trump Total Mockery messaging of "low I.Q." to normalize and Reddit-wash Trump / promote Trump thinking systems. https://www.politico.com/story/2019/05/30/donald-trump-iq-intelligence-1347149
+
+https://old.reddit.com/r/MurderedByWords/comments/1o4n26u/answer_one_simple_question/nj3bnkj/
+
+A boogie man is present. The Russian Internet Research Agency since year 2013 on Reddit. The denial of hate programming, the denial of dehumanization messaging. The denial that what people learn does eventually become adopted as behavior. Poltiics has been transformed since year 2013 into fiction-based hate patterns. 5,000 games of hate each other. ... ... ...     
+"Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа.", "Дальше оставалось только загрузить эти данные в информационные потоки и социальные сети." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446
+
+https://old.reddit.com/r/MurderedByWords/comments/1o4n26u/answer_one_simple_question/nj39zcg/
+
+On Reddit when I post nonficiton about Russian information waarfare and nonfiction from Neil Postman how amusement-washing joke-washing works, I get told to just go with the mass dehumanization flow of the past decade.
+
