@@ -3401,3 +3401,22 @@ Leadership by stress. Stress lords.
 https://old.reddit.com/r/politics/comments/1o3kaj7/trump_received_covid_vaccine_and_flu_shot_during/nivq6me/
 
 Endlessly repeating the Russian information warfare tactics about anti-vax on Reddit. People satire-washing authentic understanding problems, parroting popualr joke patterns - anything to avoid nonfiction teaching and learning (anti-Malala mindsets). Eating out of the hands of the Kremlin war against Reality. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/LivestreamFail/comments/1o4wy4e/hasan_reaches_over_and_suddenly_kaya_his_dog/nj5jahi/
+
+Always throwing aound the "cult" on the Reddit cult of low-effort no-identity message media cult. The recency bais disposable commenting cult. No book titles, no author names, no links. No desire to rescue audiences of Fox News, etc. Notice the absence of citing any nonfiction books about cults, how to address and rescue the USA from cult behaviors. Just millions and millions of comment messages that don't want to assert that some issues are more important than low-effort comment messages. ... ... ...      
+<img width="1102" height="787" alt="Hungry for Ecstasy: Trauma, the Brain, and the Influence of the Sixties. Sharon Klayman Farber. November 2012 · Bloomsbury Publishing USA. Chapter 6. Page 139" src="https://github.com/user-attachments/assets/da550018-f749-4eaa-9857-6452a7e2b283" /> ... ... ... 
+"The **'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021** — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o4wy4e/hasan_reaches_over_and_suddenly_kaya_his_dog/nj5w4br/
+
+Wish people would quote Sagan from 1995!
+
+https://old.reddit.com/r/LivestreamFail/comments/1o4wy4e/hasan_reaches_over_and_suddenly_kaya_his_dog/nj5vosk/
+
+Fiction outsells nonfiction.  People get cauhgt up in fiction storytelling.
+
+https://old.reddit.com/r/LivestreamFail/comments/1o4wy4e/hasan_reaches_over_and_suddenly_kaya_his_dog/nj5inu6/
+
+Group thinking, mob mentality.
+
