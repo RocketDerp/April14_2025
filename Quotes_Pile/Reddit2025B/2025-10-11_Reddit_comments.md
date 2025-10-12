@@ -10,8 +10,7 @@ Defending **Reality** means nothing to Reddit commenting community. People who p
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixcde3/
 
-Charlie Kirk was a fiction storyteller, a creative mythology seller. Reddit adores fiction over nonfiction just like Charlie Kirl fans do. People do not see the 1-bit logic of left vs. right has avoided media ecology learning. Alternate realities, alternate universes, information warfare from Russia has exploited all this. Fiction vs. nonfiction needs to be self-aware in the society.. Poeple addicted to fiction storytelling patterns do not realize they have avoided nonficiton learning - whcih they consider boring and unattractive. ... ... ...      
-"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+Charlie Kirk was a fiction storyteller, a creative mythology seller. Reddit adores fiction over nonfiction just like Charlie Kirl fans do. People do not see the 1-bit logic of left vs. right has avoided media ecology learning. Alternate realities, alternate universes, information warfare from Russia has exploited all this. Fiction vs. nonfiction needs to be self-aware in the society.. Poeple addicted to fiction storytelling patterns do not realize they have avoided nonficiton learning - whcih they consider boring and unattractive.
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixbi6l/
 
@@ -125,7 +124,7 @@ Banality-washing of Russia Reddit infiltration.
 
 https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixiujn/
 
-George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...
+George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
 JOSEPH CAMPBELL And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason.
 BILL MOYERS: The voice of reason—is that the philosophical way suggested by these mythological symbols?
 CAMPBELL: That’s right. Here you have the important transition that took place about 500 B.C. This is the date of the Buddha and of Pythagoras and Confucius and Lao-tzu, if there was a Lao-tzu. This is the awakening of man’s reason. No longer is he informed and governed by the animal powers. No longer is he guided by the analogy of the planted earth, no longer by the courses of the planets—but by reason.
@@ -699,3 +698,36 @@ https://old.reddit.com/r/politics/comments/1o4ndar/trump_falsely_claims_biden_fb
 
 The left vs. right brainrot. Nobody is consered with goodness itself, only that you self-declare your left or right. Nobody cares to address hate and world peace like Malala is diong on a global scale, because minds are locked into the magical stance of left vs. right thinking. ... ... ...    
 "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_were_injured_in/nj3u21e/
+
+Popular upvoted comment. No links, no dates, no quotes, no article titles, no author names. Just off-the-cuff low-effort didposable commenting. Everyone on different pages commenting their own shallow and superficial mindsets without any recogition of the forest oor the trees of everyone fragemented by low-effort commenting prizing. A nation drowning in dispoable messaging that prizes recency, in hours, these comments are abandoned for creating new low-effort comments on frest postings. Context changes in the mind constantly entertaining.
+
+https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_were_injured_in/nj3rfn5/
+
+Sunday, "God", the Eye in the Sky on the Great Seal Pyramid sees. But low-effort commenting is a huge part of the mindset pro-hate mess.
+
+https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_were_injured_in/nj3xv98/
+
+https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_were_injured_in/nj3zpmc/
+
+“History, Stephen said, is a nightmare from which I am trying to awake.” ― James Joyce, Ulysses. **PLEASE JOIN WITH ME IN OUR ALL FOCUSING ON JAMES JOYCE, AS MANY OF US THAT CAN, AND BUILDING A WEB OF COMPASSION EXPANSION AND EDUCATION!** George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+JOSEPH CAMPBELL: Yes, it is. And here also is the labyrinth motif. The trails are deliberately confused, but if you know the secret of the labyrinth, you can go and pay its inhabitant a visit.
+
+BILL MOYERS: And if you have faith, you can follow Jesus.
+
+CAMPBELL: You can. Very often one of the things that one learns as a member of the mystery religions is that the labyrinth, which blocks, is at the same time the way to eternal life. This is the final secret of myth—to teach you how to penetrate the labyrinth of life in such a way that its spiritual values come through.
+That is the problem of Dante’s Divine Comedy, too. The crisis comes in the “middle of the way of our life,” when the body is beginning to fade, and another whole constellation of themes comes breaking into your dream world. Dante says that, in the middle year of his life, he was lost in a dangerous wood. And he was threatened there by three animals, symbolizing pride, desire, and fear. Then Virgil, the personification of poetic insight, appeared and conducted him through the labyrinth of hell, which is the place of those fixed to their desires and fears, who can’t pass through to eternity. Dante was carried through to the beatific vision of God. On a smaller scale, in this Pima Indian story, we have the same mythological image. The Pima Indians were among the simplest Indian cultures in North America. And here they have, in their own way, made use of this highly sophisticated image, which matches Dante.
+
+MOYERS: You have written that “the sign of the cross has to be looked upon as a sign of an eternal affirmation of all that ever was or shall ever be. It symbolizes not only the one historic moment on Calvary but the mystery through all time and space of God’s presence and participation in the agony of all living things.”
+
+CAMPBELL: The **big moment** in the medieval myth is the **awakening of the heart to compassion, the transformation of passion into compassion**. That is the whole problem of the Grail stories, compassion for the wounded king. And out of that you also get the notion that Abelard offered as an explanation of the crucifixion: that the Son of God came down into this world to be crucified to awaken our hearts to compassion, and thus to turn our minds from the gross concerns of raw life in the world to the specifically human values of self-giving in shared suffering. In that sense the wounded king, the maimed king of the Grail legend, is a counterpart of the Christ. He is there to evoke compassion and thus bring a dead wasteland to life. There is a mystical notion there of the spiritual function of suffering in this world. The one who suffers is, as it were, the Christ, come before us to evoke the one thing that turns the human beast of prey into a valid human being. That one thing is compassion. **This is the theme that James Joyce takes over and develops in Ulysses...**
+
+https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_were_injured_in/nj3vul6/
+
+How stupid mindsets are created with high-speed 4-second short-tiny length messaging consumption. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_were_injured_in/nj404jd/
+
+Reddit machine messages to say that the military is good to be wrecking the USA. Satire-washing a serious and important situation, active normalization of the situation via Reddit messaging.
