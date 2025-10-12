@@ -10,7 +10,7 @@ Defending **Reality** means nothing to Reddit commenting community. People who p
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixcde3/
 
-Charlie Kirk was a fiction storyteller, a creative mythology seller. Reddit adores fiction over nonfiction just like Charlie Kirl fans do. People do not see the 1-bit logic of left vs. right has avoided media ecology learning. Alternate realities, alternate universes, information warfare from Russia has exploited all this. Fiction vs. nonfiction needs to be self-aware in the society.. Poeple addicted to fiction storytelling patterns do not realize they have avoided nonficiton learning - whcih they consider boring and unattractive. ... ... ...
+Charlie Kirk was a fiction storyteller, a creative mythology seller. Reddit adores fiction over nonfiction just like Charlie Kirl fans do. People do not see the 1-bit logic of left vs. right has avoided media ecology learning. Alternate realities, alternate universes, information warfare from Russia has exploited all this. Fiction vs. nonfiction needs to be self-aware in the society.. Poeple addicted to fiction storytelling patterns do not realize they have avoided nonficiton learning - whcih they consider boring and unattractive. ... ... ...      
 "unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixbi6l/
@@ -641,4 +641,41 @@ A boogie man is present. The Russian Internet Research Agency since year 2013 on
 https://old.reddit.com/r/MurderedByWords/comments/1o4n26u/answer_one_simple_question/nj39zcg/
 
 On Reddit when I post nonficiton about Russian information waarfare and nonfiction from Neil Postman how amusement-washing joke-washing works, I get told to just go with the mass dehumanization flow of the past decade.
+
+https://old.reddit.com/r/pics/comments/1o4mzp6/federal_agents_use_unnecessary_force_against/nj37pvn/
+
+"President DumDum" - so many nick-names and insults. Tiny-short messages are not educating the population, they are dumbing down the entire nation. Reddit messages like this are the very cause of our problems and people are in massive dneial that Twitter is the very power of Trump and Tweet-thinking mindsets to avoid teaching and educating serious matters with information systems has been one of the largest / macro scale changes in USA socity since year 2013. We The People flock to this shit commenting every time Trump image or Trump words appear on /r/All of Reddit and Bluesky. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/pics/comments/1o4mzp6/federal_agents_use_unnecessary_force_against/nj3d2i2/
+
+Putin controls the mindsets to flock to the media as entertainment. The denial of the audience behavior abounds. People are doing ANYTHING to avoid facing up to the repeating news to study and face Neil Postman's books. The mockery and mocking is the problem.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/pics/comments/1o4mzp6/federal_agents_use_unnecessary_force_against/nj3bfez/
+
+Those who say "peace" are bieng dishonest, and the rest are cynical and think it is all LOL LOL how the other are using words.
+
+https://old.reddit.com/r/pics/comments/1o4mzp6/federal_agents_use_unnecessary_force_against/nj396kg/
+
+No book titles, no author names, no links. Just low-effort commenting that drives the minsets of USA society in October 2025. This is the prize of people's day, this trash content messaging of disposable high-speed communications networks. ... ... ...     
+Russia and the Menace of Unreality   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://old.reddit.com/r/pics/comments/1o4mzp6/federal_agents_use_unnecessary_force_against/nj3at9d/
+
+The violence programming is being fed into Reddit Audiences, the minds. This is mental programming to wreck reality.
+
+https://old.reddit.com/r/pics/comments/1o4mzp6/federal_agents_use_unnecessary_force_against/nj3gols/
+
+Extremely low-effort comment messages. Banalize the sitation. No link, no author names, no book titles, no article titles, anything to avoid nonficiton learning about media ecology of Reddit itself and behaviors driven by high-speed information systems.
+
+https://old.reddit.com/r/pics/comments/1o4mzp6/federal_agents_use_unnecessary_force_against/nj3f35h/
+
+https://old.reddit.com/r/pics/comments/1o4mzp6/federal_agents_use_unnecessary_force_against/nj3j7i7/
+
+Reddit-Duh. Tiny short messages to drown out any serious nonficiton learning.
 
