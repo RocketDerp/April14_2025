@@ -815,3 +815,11 @@ https://old.reddit.com/r/todayilearned/comments/1o3vj3q/til_that_a_hundred_years
 Canadian tells his experience of personal computer graphics upgrades, storage options, sound options. When Japan was the technology leader for portable computers.
 
 https://www.youtube.com/watch?v=X5mVXHmZNnA
+
+&nbsp;
+
+### Same hardware brain
+
+Some genetic brain, different education / learning / input.
+
+https://old.reddit.com/r/science/comments/1o4afve/major_iq_differences_in_identical_twins_linked_to/
