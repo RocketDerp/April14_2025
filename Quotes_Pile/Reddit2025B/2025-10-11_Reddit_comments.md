@@ -736,3 +736,5 @@ https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_
 
 Satire-washing, the Sunday religion faith of more mocking, ALWAYS add more mocking to a Total Mockery nation lead by Truth Social mockery and Putin information warfare conditoning to mock humanism.
 
+https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nj42mlt/
+
