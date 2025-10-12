@@ -747,3 +747,11 @@ https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inabili
 
 No quotes, no article titles, no book titles, no author names, no link. Constant messages on Reddit that it is a "cult" but nobody offers cult deprograrmming from nonfiction / science learning.
 
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj3wfkd/
+
+The cult is a John 1:1 message cult. A message and word cult, John 1:1 Bible verse. People are unable to resist compusively saying "Dump", the "both sides" is fiction vs. nonfiction. And everyone is flocking to shit information, to trash knowledge, fiction addictions running society. The whole "both sides" of left vs. right is brainrot, anti-comprehension.
+
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj4ewwy/
+
+Fox news cult, Newsmax cult, Truth Social cult, Church fiction cult, Bible fiction cult, cult of low-effort high-speed reactionary messages. All avoiding nonfiction. The "War Against Reality", War Againt Nonfiction. Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. **Published September 9, 2014 ... one URL click away**, but somehow for ELEVEN FULL YEARS, Reddit end-users can't keep **eye on the ball** to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
