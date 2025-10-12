@@ -767,5 +767,8 @@ Context blindness, context bewilderment
 
 https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj4wb3v/
 
-"The ELZIA effect", a Reddit user unable to tell ChatGPT from nonfiction book quotes. Because of copyright rules, ChatGPT can't even quote books like this. Ignorance and hate. Block-happy user who prevented further replies too.
+"The ELZIA effect", a Reddit user unable to tell ChatGPT from nonfiction book quotes. Because of copyright rules and licensing issues, ChatGPT can't even quote books like this. Ignorance and hate. Block-happy user who prevented further replies too. Tiny-short messaging addict who wants people to "use their own words" and avoid well-researched and thoughtful nonfiction quotes on the context of the cult crisis in USA 2025. Anti-learning, anti-education, anti-goodness abounds in favor of extremely low-effort commenting about the cult sitautions in USA. Anti-citation, anti-quote.
 
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj413es/
+
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj41f5i/
