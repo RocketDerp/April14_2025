@@ -3404,7 +3404,7 @@ Endlessly repeating the Russian information warfare tactics about anti-vax on Re
 
 https://old.reddit.com/r/LivestreamFail/comments/1o4wy4e/hasan_reaches_over_and_suddenly_kaya_his_dog/nj5jahi/
 
-Always throwing aound the "cult" on the Reddit cult of low-effort no-identity message media cult. The recency bais disposable commenting cult. No book titles, no author names, no links. No desire to rescue audiences of Fox News, etc. Notice the absence of citing any nonfiction books about cults, how to address and rescue the USA from cult behaviors. Just millions and millions of comment messages that don't want to assert that some issues are more important than low-effort comment messages. ... ... ...      
+Always throwing aound the "cult" on the Reddit cult of low-effort no-identity message media cult. The recency bias induced by constantly seeking disposable commenting cult. No book titles, no author names, no links. No desire to rescue audiences of Fox News, etc. Notice the absence of citing any nonfiction books about cults, how to address and rescue the USA from cult behaviors. Just millions and millions of comment messages that don't want to assert that some issues are more important than low-effort comment messages. ... ... ...      
 <img width="1102" height="787" alt="Hungry for Ecstasy: Trauma, the Brain, and the Influence of the Sixties. Sharon Klayman Farber. November 2012 · Bloomsbury Publishing USA. Chapter 6. Page 139" src="https://github.com/user-attachments/assets/da550018-f749-4eaa-9857-6452a7e2b283" /> ... ... ... 
 "The **'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021** — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
 
@@ -3419,4 +3419,28 @@ Fiction outsells nonfiction.  People get cauhgt up in fiction storytelling.
 https://old.reddit.com/r/LivestreamFail/comments/1o4wy4e/hasan_reaches_over_and_suddenly_kaya_his_dog/nj5inu6/
 
 Group thinking, mob mentality.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o4xqpz/trump_riding_around_his_golf_club_telling_his/nj5hgot/
+
+No link, no author name, no book title / article title. Just low-effort commenting messages. Very popular in October 2025.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o4xqpz/trump_riding_around_his_golf_club_telling_his/nj5g24z/
+
+OPERA_A Looking up at the Russian information warfare, "Nothing Is True And Evertying Is Possible" album title year 2020, book title year 2014. https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s
+
+https://old.reddit.com/r/CringeTikToks/comments/1o4xqpz/trump_riding_around_his_golf_club_telling_his/nj5p7ps/
+
+Simulacra. ... ... ...     
+“Whenever I ask my Russian bosses, the older TV producers and media types who run the system, what it was like growing up in the late Soviet Union, whether they believed in the Communist ideology that surrounded them, they always laugh at me.    
+“Don’t be silly,” most answer.   
+“But you sang the songs? Were good members of the Komsomol?”    
+“Of course we did, and we felt good when we sang them. And then straight after we would listen to ‘Deep Purple’ and the BBC.”     
+“So you were dissidents? You believed in finishing the USSR?”    
+“No. It’s not like that. You just speak several languages at the same time, all the time. There’s like several ‘you’s.”     
+Seen from this perspective, the great drama of Russia is not the “transition” between communism and capitalism, between one fervently held set of beliefs and another, but that during the final decades of the USSR no one believed in communism and yet carried on living as if they did, and now they can only create a society of simulations. For this remains the common, everyday psychology: the Ostankino producers who make news worshiping the President in the day"” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, year 2014
+
+https://old.reddit.com/r/CringeTikToks/comments/1o4xqpz/trump_riding_around_his_golf_club_telling_his/nj5fq6h/
+
+Let's do the math here. The Republican party already "owns the conservatives" via Fox News HDTV, and now "owns the libs" via social media audiences, who is not owned? Owning EVERYONE. ... ... ...     
+"The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements**, exploiting and rendering them absurd. One moment Surkov would  ..." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014**
 
