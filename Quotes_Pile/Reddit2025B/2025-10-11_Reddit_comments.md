@@ -841,3 +841,6 @@ https://old.reddit.com/r/CuratedTumblr/comments/1o4rbip/in_this_house_we_stan_ma
 
 Malala made the front page of Reddit! Alas, I don't think her messages about media ecology and Radio Mullah will sink in and be applied to Fox News / Newsmax / Truth Social / Elon Musk Twitter / Facebook / etc, etc. Chapter 6, Radio Mullah: https://www.lhschools.org/Downloads/Malala%2038-65.pdf
 
+https://old.reddit.com/r/NoFilterNews/comments/1o4rxuk/trump_yells_do_something_at_supporters_in/nj4bw6c/
+
+Falling for it. Top poular comment on Reddit. Eating up the bullshit. Tiny-short message, popular upvted / liked on Reddit comment. Twitter-think.  Meme addicts unable to imagine their own compusive attraction to Reddit trash media has been a warfare technique by Putin. This Reddit comment... people unable to imagine absurd surreal is a formal technique of Tony Clifton acting, Surkovian leadership. Calling Tony Clifton a bad performer (unable to name who was POTUS in January 6) is not resisting Tony Clifton acts. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
