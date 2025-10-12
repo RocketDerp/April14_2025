@@ -772,3 +772,26 @@ https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inabili
 https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj413es/
 
 https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj41f5i/
+
+https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinuate_anything_i_asked/nj4xg3d/
+
+No, Vance is not being "played", he is diong Tony Clifton and Surkov Screenplay acts to create absurd and surreal anti-reality contradictions. We need to *rescue* JD Vance from Kremlin information warfare, the runaway IRA and CA mindsets since year 2013 that have been amplified by feedback loops of year 2022 large langauge models onward. People like JD Vance who are addicted to fiction think they have "played" others when it is self-harm to humanity as whole. Addictions to fiction are wrecking the USA. Popularity of fiction content creation has overtaken the society top to bottom, every person. Neil Postman's 1985 book "Amusing Ourselves To Death" is a starting point on grasping how media systems can induce such fiction addictions and mindsets repulsive to nonfiction serious undrestanding and comprehension.
+
+https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinuate_anything_i_asked/nj4llb5/
+
+<img width="822" height="342" alt="image" src="https://github.com/user-attachments/assets/e979f7b5-2b3f-4401-b7e6-584f71df22a2" /> THRILLED at the video clip, sitting in the audience, so THRILLED that a high-speed video delivery system gave the content of the White House and Kremlin as entertainment / amusement for Reddit. This is what Russia mastered in the past 25 years. An audience THRILLED at the endless mockery going on. So entertained on Reddit! The monomyth fiction story patterns delievered to the Reddit audience! Published January 2015, before Trump started run for office in June 2015: ... ... ...     https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers **the sense something is happening. They need to be kept entertained**.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinuate_anything_i_asked/nj4ji1b/
+
+Sex with couch, fetish of Trump poop diapers, Pizzagate, Epstein List, QAnon, anything to entertainment-wash this and sex it up. People can not be sober and serious about Russian information warfare methods and how the Kremlin has mind-fucked the White House into self-harm. No efforts to rescue from Putin's runaway simulacras / runaway Surkov monomyth patterns. People are so thrilled to imagine "couch fucking" in their mind.
+
+https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinuate_anything_i_asked/nj4umtg/
+
+https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinuate_anything_i_asked/nj4zvmg/
+
+<img width="1606" height="976" alt="image" src="https://github.com/user-attachments/assets/e27daab2-530c-4b51-9706-0e4ec6f7a5ed" /> Scares the SHIT OUT OF ME to see that absolute low-effort trash learning that people flock to constantly now in year 2025. Russia has mind-fucked people to avoid nonfiction at all cost. It is a race to the bottom of monomyth simualcra patterns.
+
+https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinuate_anything_i_asked/nj4upky/
+
+<img width="986" height="464" alt="image" src="https://github.com/user-attachments/assets/81f6b36c-5fa4-460a-860c-58559b2b7b26" /> A six-word phrase, a script line, triggers to make blood boil. Like shooting Reddit audience in a fish barrel. Exactly what Cambridge Analytica manipulated people into, conditioend IRA and CA mindsets, constant anger. Shallow reactionary programming. Brain exploits via anger. People keep coming back for more and more anger and hate message patterns. Trump is the leadership signal, Truth Social signaling anger and hate messages, and  Reddit community flocks. ... ... ...       
+"What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, **anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups**. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical trade war with China or Mexico meant the loss of American jobs and profits, **people primed with anger** would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
