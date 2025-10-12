@@ -733,3 +733,6 @@ https://old.reddit.com/r/fednews/comments/1o3t72y/remember_when_biden_was_presid
 
 Another contradiction and paradox on the front page of Reddit, people unable to call it out as Surkov governing, Russian Kremlin leadership and face up to the scope of the problem we are dealing with and how domestic Russian people are in our situation of constantly having  paradox messages.     
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1o4n3jt/whos_gonna_tell_him/
+
+Reddit community "self aware" that the programmed words are "NOTHING IN LIFE IS EVER MORE FUNNY" tha mocking and insulting others who do not grasp their own self-awareness. NOTHING MORE FUNNY than people misunderstanding and not comprehending!        
+https://old.reddit.com/r/SelfAwarewolves/comments/1o4nw4m/look_whos_talking_about_appearance/
