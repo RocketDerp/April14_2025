@@ -738,3 +738,12 @@ Satire-washing, the Sunday religion faith of more mocking, ALWAYS add more mocki
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nj42mlt/
 
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj3qzk0/
+
+<img width="1124" height="934" alt="image" src="https://github.com/user-attachments/assets/58e36fc9-f5cb-470e-9322-b27193d43fca" /> Yep. correct. SURKOVIAN_CHESS CHESS_1024D Exactly, they aren't dumb and stupid, they are following Putin's model that has worked for over 25 years. ... ... ...     
+"The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, exploiting and rendering them absurd. One moment Surkov would fund civic forums and human rights NGOs, the next he would quietly support nationalist movements that accuse the NGOs of being tools of the West. With a flourish he sponsored lavish arts festivals for the most provocative modern artists in Moscow, then supported Orthodox fundamentalists, dressed all in black and carrying crosses, who in turn attacked the modern art exhibitions. The Kremlin’s idea is to own all forms of political discourse, to not let any independent movements develop outside of its walls. Its Moscow can feel like an oligarchy in the morning and a democracy in the afternoon, a monarchy for dinner and a totalitarian state by bedtime.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, year 2014
+
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj3sam8/
+
+No quotes, no article titles, no book titles, no author names, no link. Constant messages on Reddit that it is a "cult" but nobody offers cult deprograrmming from nonfiction / science learning.
+
