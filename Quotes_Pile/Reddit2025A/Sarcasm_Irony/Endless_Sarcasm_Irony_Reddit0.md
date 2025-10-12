@@ -728,3 +728,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1o3d23g/call_for_epstein_trans
 
 Recency bias is so horrific in USA society. People removed Donald Trump from office, voted him out and he was repalced with Joe Biden. The endless media stimulation, addiction to fiction storytelling, is driving Reddit and USA society in total. Enlessly mocking and insutling Tony Clifton acts / President Tonly Clifton. People have sold out the future and goodness of children in USA (and world) for mockery and name-calling trash-talk low-effort high-speed commenting. Surkov won.      
 https://old.reddit.com/r/fednews/comments/1o3t72y/remember_when_biden_was_president/
+
+&nbsp;
+
+Another contradiction and paradox on the front page of Reddit, people unable to call it out as Surkov governing, Russian Kremlin leadership and face up to the scope of the problem we are dealing with and how domestic Russian people are in our situation of constantly having  paradox messages.     
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o4n3jt/whos_gonna_tell_him/
