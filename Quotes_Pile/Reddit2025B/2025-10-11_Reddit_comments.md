@@ -561,3 +561,11 @@ https://old.reddit.com/r/PublicFreakout/comments/1o4an72/country_artist_bryan_an
 
 https://old.reddit.com/r/PublicFreakout/comments/1o4an72/country_artist_bryan_andrews_calls_out_fake_maga/nj0zqmq/
 
+https://old.reddit.com/r/politics/comments/1o49jpx/us_moves_to_cancel_one_of_the_worlds_largest/nj0qffd/
+
+Self-harm USA. 
+
+https://old.reddit.com/r/politics/comments/1o41xmw/trumps_divorced_from_reality_depiction_of/nj04hs9/
+
+Many people find the endless antics funny, amusing.
+
