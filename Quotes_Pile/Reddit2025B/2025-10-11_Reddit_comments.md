@@ -536,3 +536,15 @@ https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_o
 https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj0zyz0/
 
 https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj11rjj/
+
+https://old.reddit.com/r/Music/comments/1o4bdbo/chappell_roan_yells_fk_ice_forever_during_packed/nj12b5a/
+
+https://old.reddit.com/r/Music/comments/1o4bdbo/chappell_roan_yells_fk_ice_forever_during_packed/nj155i1/
+
+https://old.reddit.com/r/Music/comments/1o4bdbo/chappell_roan_yells_fk_ice_forever_during_packed/nj15c7z/
+
+https://old.reddit.com/r/Music/comments/1o4bdbo/chappell_roan_yells_fk_ice_forever_during_packed/nj17py7/
+
+https://old.reddit.com/r/Music/comments/1o4bdbo/chappell_roan_yells_fk_ice_forever_during_packed/nj13hl4/
+
+https://old.reddit.com/r/Music/comments/1o4bdbo/chappell_roan_yells_fk_ice_forever_during_packed/nj12x7l/
