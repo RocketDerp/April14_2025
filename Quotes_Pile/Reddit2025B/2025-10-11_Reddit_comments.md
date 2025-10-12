@@ -755,3 +755,12 @@ https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inabili
 
 Fox news cult, Newsmax cult, Truth Social cult, Church fiction cult, Bible fiction cult, cult of low-effort high-speed reactionary messages. All avoiding nonfiction. The "War Against Reality", War Againt Nonfiction. Reddit society constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. **Published September 9, 2014 ... one URL click away**, but somehow for ELEVEN FULL YEARS, Reddit end-users can't keep **eye on the ball** to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj4nti5/
+
+Very popular message in October 2025 USA society. *Self-deprt, go away, shut up, immigrants are not welcome, deport yourself, deport people who don't fit in fiction echo chambers*.
+
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj4nous/
+
+https://old.reddit.com/r/complaints/comments/1o4pnpn/i_am_tired_of_magas_inability_to_understand/nj4v28r/
+
+Context blindness, context bewilderment
