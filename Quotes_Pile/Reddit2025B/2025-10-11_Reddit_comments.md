@@ -228,7 +228,7 @@ Reinforcement traing for the Reddit audience, comment consumers. No citation, no
 
 https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixx06c/
 
-New Reddit account. Setting minds to fiction and avoidance of nonfiction. Promting the eating of the Surkovian onions. People who prize low-effort Reddit disposable commenting message describing the Russian Kremlin "War Against Reality" without any ability to go to the nonfiction section of the public library and name it. Published January 2015, before Trump started run for office in June 2015: ... ... ...
+New Reddit account. Setting minds to fiction and avoidance of nonfiction. Prompting the eating of the Surkovian onions. People who prize low-effort Reddit disposable commenting message describing the Russian Kremlin "War Against Reality" without any ability to go to the nonfiction section of the public library and name it. Published January 2015, before Trump started run for office in June 2015: ... ... ...
 https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
 
 https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixwyi0/
@@ -795,3 +795,13 @@ https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinu
 
 <img width="986" height="464" alt="image" src="https://github.com/user-attachments/assets/81f6b36c-5fa4-460a-860c-58559b2b7b26" /> A six-word phrase, a script line, triggers to make blood boil. Like shooting Reddit audience in a fish barrel. Exactly what Cambridge Analytica manipulated people into, conditioend IRA and CA mindsets, constant anger. Shallow reactionary programming. Brain exploits via anger. People keep coming back for more and more anger and hate message patterns. Trump is the leadership signal, Truth Social signaling anger and hate messages, and  Reddit community flocks. ... ... ...       
 "What Cambridge Analytica observed was that when respondents were angry, their *need for complete and rational explanations was also significantly reduced*. In particular, **anger put people in a frame of mind in which they were more indiscriminately punitive, particularly to out-groups**. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical trade war with China or Mexico meant the loss of American jobs and profits, **people primed with anger** would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
+
+https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinuate_anything_i_asked/nj4p9gg/
+
+Recent Reddit account. Reddit audience eats up the total mockery media messages. The simualcras.
+
+https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinuate_anything_i_asked/nj4nbs9/
+
+Cheering on the media content! This is content creation. "This is Pod Racing!" https://www.youtube.com/watch?v=33q1dgkEszg echos of fiction Star Wars messages. Addicts to the Kremlin and White House "Reality TV The Apprentice" taken to 2025 media levels. People who prize low-effort Reddit disposable commenting message in the conditioned Russian Kremlin "War Against Reality". Reddit viewers love it! Published January 2015, before Trump started run for office in June 2015: ... ... ...
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give **our viewers** the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
