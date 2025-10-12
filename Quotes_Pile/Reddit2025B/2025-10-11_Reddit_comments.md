@@ -805,3 +805,19 @@ https://old.reddit.com/r/goodnews/comments/1o4tjic/stephanopoulos_i_didnt_insinu
 Cheering on the media content! This is content creation. "This is Pod Racing!" https://www.youtube.com/watch?v=33q1dgkEszg echos of fiction Star Wars messages. Addicts to the Kremlin and White House "Reality TV The Apprentice" taken to 2025 media levels. People who prize low-effort Reddit disposable commenting message in the conditioned Russian Kremlin "War Against Reality". Reddit viewers love it! Published January 2015, before Trump started run for office in June 2015: ... ... ...
 https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give **our viewers** the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
 
+https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_the_size_of_the_dotcom/nj4gwxy/
+
+Brainrotted in meme stupors, chasing harder and harder for fiction addictions to be satisifed. The egoism of having machines rewrite reality.
+
+https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_the_size_of_the_dotcom/nj4hmcx/
+
+I already can't communiate nonfiction to anyone. People have abandoned goodness in USA society in favor of low-effort commenting, free time and spare time, remarking on Donald Trump. I'm remarking on the whole society of meme addicts and ChatGPT consumers who have abandoned nonfiction learning and reality itself. Putin won, Surkov won, since March 2013.
+
+https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_the_size_of_the_dotcom/nj4ivwd/
+
+Yes. Reality has been abandoned in favor of fiction LLM storytelling and Putin's runaway simualcras since year 2013.
+
+https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_the_size_of_the_dotcom/nj4g4hz/
+
+Reality rewritten and The ELIZA effect on top of the gullibility crisis. October 19, 2024. "America's gullibility crisis" by Zachary Basu  https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
+
