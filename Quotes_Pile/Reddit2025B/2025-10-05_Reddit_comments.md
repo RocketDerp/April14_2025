@@ -2367,7 +2367,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1o25im4/fascism_is_here/nil
 
 https://old.reddit.com/r/clevercomebacks/comments/1o27y46/he_has_severe_narcissism/nilvb0y/
 
-Tiny-short messaging fatihs, Twitter-thinking Tweet-length disposable commenting. Mocking away, Eating the Surkovian Onions and believing that the mind-fucking isn't happening to the Reddit audience and that everyone on Reddit has figured it out, more mocking to a total mockery is always the simple-thinking answer! More hate, more mocking, that's the response to hate and mocking signals around I.C.E. Reality TV performances. ... ... ... 
+Tiny-short messaging fatihs, Twitter-thinking Tweet-length disposable commenting. Mocking away, Eating the Surkovian Onions and believing that the mind-fucking isn't happening to the Reddit audience and that everyone on Reddit has figured it out, more mocking to a total mockery is always the simple-thinking answer! More hate, more mocking, that's the response to hate and mocking signals around I.C.E. Reality TV performances. ... ... ...     
 Russia and the Menace of Unreality   
 How Vladimir Putin is revolutionizing information warfare   
 Peter Pomerantsev   
