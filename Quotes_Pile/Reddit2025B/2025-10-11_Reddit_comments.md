@@ -548,3 +548,16 @@ https://old.reddit.com/r/Music/comments/1o4bdbo/chappell_roan_yells_fk_ice_forev
 https://old.reddit.com/r/Music/comments/1o4bdbo/chappell_roan_yells_fk_ice_forever_during_packed/nj13hl4/
 
 https://old.reddit.com/r/Music/comments/1o4bdbo/chappell_roan_yells_fk_ice_forever_during_packed/nj12x7l/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o49os6/trump_is_building_a_federal_gun_owner_registry/nj0rc1j/
+
+So amused at every move and shake of Trump, the mocking thar Russia has wrecked minds in USA.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o49os6/trump_is_building_a_federal_gun_owner_registry/nj0u3cx/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o49os6/trump_is_building_a_federal_gun_owner_registry/nj0sx6x/
+
+https://old.reddit.com/r/PublicFreakout/comments/1o4an72/country_artist_bryan_andrews_calls_out_fake_maga/nj10edi/
+
+https://old.reddit.com/r/PublicFreakout/comments/1o4an72/country_artist_bryan_andrews_calls_out_fake_maga/nj0zqmq/
+
