@@ -53,3 +53,16 @@ Freedom: Alchemy for a Voluntary Society
 Stephan A. Hoeller      
 Quest Books, Jun 1, 1992 - Philosophy - 263 pages     
 Dr. Stephan Hoeller examines the philosophic basis for freedom as expressed in the writings of the Gnostics and Carl Jung. He relates this philosophy to that of America's founders and to such recent events as the collapse of Communist regimes throughout the world.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+### Misc A
+
+Reddit Front Page. Sunday, October 12, 2025
+
+https://old.reddit.com/r/Snorkblot/comments/1o4rb5a/im_a_martyr/
+
