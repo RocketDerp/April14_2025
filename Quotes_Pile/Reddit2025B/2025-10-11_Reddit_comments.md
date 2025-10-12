@@ -900,3 +900,28 @@ https://old.reddit.com/r/CringeTikToks/comments/1o4xqpz/trump_riding_around_his_
 
 Let's do the math here. The Republican party already "owns the conservatives" via Fox News HDTV, and now "owns the libs" via social media audiences, who is not owned? Owning EVERYONE. ... ... ...     
 "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements**, exploiting and rendering them absurd. One moment Surkov would  ..." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014**
+
+https://old.reddit.com/r/Fauxmoi/comments/1o4xqbz/beloved_palestinian_journalist_saleh_al_jafrawi/nj5kuio/
+
+<img width="1608" height="398" alt="image" src="https://github.com/user-attachments/assets/44242971-c8b7-4e9c-9300-b6945c90e8bb" /> People in the Reddit audience cheer on that a person smile-washed a situation for over 2 years. The nightmare of people using their self to smile and normalize horror real reality, real Earth behavior, with media systems broadcast all over the world. It's like my experience on Reddit since June 2015, people conestantly wanting you to feel good about the hate situation. Like hate is a drug, join our hate media team / hate club. Hate MAGA, hate this, hate that, hate Ukraine people. It is so sicking that people prize hate and being on any team that promotes hate. You aren't allowed to have any emotions but "rah rah", I'm on a team. Can't have an emotional breakdown or mental breadown because people are smile-washing hate. This isn't a natural disaster of an Earthquake nobody knew about. This is man-mande monomyth vs. monojmyth, Torah vs. Quran, fiction vs. fiction, hate over storybook. Hate over Arabic language storytelling vs. Hebrew language storytelling. Both fiction. ... ... ...      
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013. TEN FULL YEARS, a DECADE before October 7, 2023.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o4xqbz/beloved_palestinian_journalist_saleh_al_jafrawi/nj5oq8y/
+
+https://old.reddit.com/r/Fauxmoi/comments/1o4xqbz/beloved_palestinian_journalist_saleh_al_jafrawi/nj5r1s5/
+
+No links, no quotes, no author names, no book titles. Globally, society prizes monster teaching we have in this 2025 world. Ignoring our better teachers like Malala. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+JOSEPH CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. **It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future**.
+MOYERS: What kind of new myth do we need?
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+MOYERS: There is something about that on the Great Seal of the United States.
+CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o4xqbz/beloved_palestinian_journalist_saleh_al_jafrawi/nj5jn8k/
+
+https://old.reddit.com/r/Fauxmoi/comments/1o4xqbz/beloved_palestinian_journalist_saleh_al_jafrawi/nj5kxz1/
+
+The Middle East, the Holy Lands, the Mosque, the Church, the Levant-based clergy, the Torah / Bible / Quran trillogy. We teach them all ASS-BACKWARDS. ... ... ...        
+"God in this system is a kind of fact somewhere, an actual personality to whom prayers can be addressed with expectation of a result. He is apart from and different from the world: in no sense identical with it, but related, as cause to effect. I call this kind of religious thinking “mythic dissociation,” The sense of an experience of the sacred is dissociated from life, from nature, from the world, and transferred or projected somewhere else — an imagined somewhere else — while man, **mere man, is accursed**. The sacred is now not secular, of this world of mere dead dust, but canonical, supernaturally revealed and authoritatively preserved; that is to say: God, from “out there,” has condescended graciously to accord special revelations: (1) to the Hebrews, historically, on Sinai, via Moses; (2) to mankind, historically, via Jesus; but then also, apparently, (3) to mankind, once again, historically, in a cave near Mecca, via Mohammad. All, it will be noted, Semites! No other revelations of this desert god are admitted to exist, and Extra ecclesiam nulla salus (“outside the church there is no salvation”)." - Joseph Campbell https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
