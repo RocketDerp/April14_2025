@@ -679,3 +679,6 @@ https://old.reddit.com/r/pics/comments/1o4mzp6/federal_agents_use_unnecessary_fo
 
 Reddit-Duh. Tiny short messages to drown out any serious nonficiton learning.
 
+https://old.reddit.com/r/MurderedByWords/comments/1o4n26u/answer_one_simple_question/nj3jkva/
+
+Tiny-short message, popular upvted / liked on Reddit comment. Twitter-think.  Meme addicts unable to imagine their own compusive attraction to Reddit trash media (and X / Twitter media screen shot in this Reddit posting linked) has been a warfare technique by Putin. This Reddit comment... people unable to imagine absurd surreal is a formal technique of Tony Clifton acting, Surkovian leadership. Calling Tony Clifton a bad performer ("your leader dumb", Tony Clifton dumb idiot) is not resisting Tony Clifton acts. It's entertainment to the population who is yeilding power and wealth via entertainment amusement mill addictions. Addictions to X / Twitter (soruce of screen shot) and Reddit. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
