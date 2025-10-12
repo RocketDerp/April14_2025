@@ -288,7 +288,8 @@ Sarcasm-washing? Recency Bais abounds in USA. People behaving as if this is year
 
 https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixt9rm/
 
-Comedy washing the seious situation of general population ignorance and Russian information warfare mindsets. Tiny-short messages to win virtual Reddit prizes ("awards"). ... ... ... "Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." - https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+Comedy washing the seious situation of general population ignorance and Russian information warfare mindsets. Tiny-short messages to win virtual Reddit prizes ("awards"). ... ... ...      
+"Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." - https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
 
 https://old.reddit.com/r/news/comments/1o3vod9/trump_announces_extra_100_tariff_on_chinese_goods/nixxsu7/
 
@@ -490,3 +491,48 @@ Fiction outsells nonfiction. Anti-reality, nonsense, avoidace of nonfiction when
 https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0bexv/
 
 https://old.reddit.com/r/AdviceAnimals/comments/1o43wrh/its_a_cult/nj0cnla/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o47r5z/hasan_claims_haters_are_ruining_his_dogs_training/nj0dn93/
+
+Amusement-washing 101 courses on Reddit. ... ... ...      
+"Their life is shit, if you will pardon the expression, and this is a comedy. Because all the troubles that such a life involve are just reduced to banality, just the common rubble of little one line joke, you follow me? It’s made banal by it. It’s banalised that way." - https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o47r5z/hasan_claims_haters_are_ruining_his_dogs_training/nj0ivk7/
+
+And another. A breeder-reactor of making commenting jokes more important to a population than removing Donald Trump and dealing with cult deprogramming of MAGA / population.
+
+https://old.reddit.com/r/LivestreamFail/comments/1o47r5z/hasan_claims_haters_are_ruining_his_dogs_training/nj0b6rj/
+
+The stress of dealing with an audience like this is extremely high. People truly do not get how hard Donald Trump works. The stress of being in front of even a couple thousand people, unrecorded, is high. In a world of mockery prizing... with video recording...
+
+https://old.reddit.com/r/LivestreamFail/comments/1o47r5z/hasan_claims_haters_are_ruining_his_dogs_training/nj0bhu9/
+
+A lot of famous media artists go insane. They overdose on drugs trying to deal with all the attention they get. 1980 before social media became big: https://people.com/movies/richard-pryors-1980-fire-suicide-attempt/ Heath Ledger https://www.ukat.co.uk/blog/celebrity/heath-ledgers-joker-a-performance-coloured-by-turmoil/ on and on and on https://www.unsw.edu.au/research/ndarc/news-events/blogs/2014/06/how-the-death-of-philip-seymour-hoffman-was-reported
+
+https://old.reddit.com/r/news/comments/1o47s93/there_are_no_survivors_in_the_blast_at_a/nj0eehh/
+
+https://old.reddit.com/r/news/comments/1o47s93/there_are_no_survivors_in_the_blast_at_a/nj0fj6r/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj0xj66/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj11k7z/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj13l7n/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj138ba/
+
+August 24, 2018....
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj0wt95/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj13q13/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj10uil/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj11oik/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj110ck/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj0zyz0/
+
+https://old.reddit.com/r/politics/comments/1o4asv6/cdc_is_over_rfk_jr_lays_off_over_1000_employees/nj11rjj/
