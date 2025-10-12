@@ -730,4 +730,9 @@ How stupid mindsets are created with high-speed 4-second short-tiny length messa
 
 https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_were_injured_in/nj404jd/
 
-Reddit machine messages to say that the military is good to be wrecking the USA. Satire-washing a serious and important situation, active normalization of the situation via Reddit messaging.
+Reddit machine messages to say that the military is good to be wrecking the USA. Satire-washing a serious and important situation, active normalization of the situation via Reddit messaging. OPERA_A U.S.A. society since January 2024 is in a Total Mockery of endlessly *mock harder*, who can insult and mock and hate harder. A "race to the bottom" of abandoning goodness, abandoing reashin thinking in favor of reactionary mocking and satire-washing. Battle of who can mock hardest. Nonfiction considered boring. https://www.youtube.com/watch?v=0Y1wm7CFRCQ 1,185,964 views December 11, 2009
+
+https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_were_injured_in/nj3wjva/
+
+Satire-washing, the Sunday religion faith of more mocking, ALWAYS add more mocking to a Total Mockery nation lead by Truth Social mockery and Putin information warfare conditoning to mock humanism.
+
