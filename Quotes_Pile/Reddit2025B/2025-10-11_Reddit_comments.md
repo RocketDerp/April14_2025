@@ -837,3 +837,7 @@ https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_t
 
 With Trump, it's mythological. Fox News mythological, Reality Stock Market / Reality TV / gambling. Retirement fund gamble casino, so many retired people love casinos. The USA has gone "all in" in being an arrogant agressive "drunk on Fox News memes" *we are the greatest* to the whole world economy.
 
+https://old.reddit.com/r/CuratedTumblr/comments/1o4rbip/in_this_house_we_stan_malala/nj4agl6/
+
+Malala made the front page of Reddit! Alas, I don't think her messages about media ecology and Radio Mullah will sink in and be applied to Fox News / Newsmax / Truth Social / Elon Musk Twitter / Facebook / etc, etc. Chapter 6, Radio Mullah: https://www.lhschools.org/Downloads/Malala%2038-65.pdf
+
