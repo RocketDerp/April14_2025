@@ -829,3 +829,11 @@ https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_t
 
 People read Reddit low-effort commenting messages without even knowing who the authors are. At least with televisoin and other media, you can name the person and show a picture of their face. On Reddit, the everyday user self-dehumanizes - but posts pictures of famous people on the front page. Showing Trump and Musk images over and over, while hiding and clowering We The People everyday identity.
 
+https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_the_size_of_the_dotcom/nj4tqhx/
+
+The military has always dreamed of only killing the enemies and protecting domestic casulties as the highest form of warfare. Just wait until artificial intelligence / machines keep involving for "no risk" murder and death of out-groups. That technology keeps expanding, and so does the leadership signals of Putin and Truth Social egomania and egoism. 'We are the Gretest Nation on Earth" of Russia and USA mindsets, egomania values of dominating the planet.
+
+https://old.reddit.com/r/technology/comments/1o4t6o2/the_ai_bubble_is_17_times_the_size_of_the_dotcom/nj4uwqe/
+
+With Trump, it's mythological. Fox News mythological, Reality Stock Market / Reality TV / gambling. Retirement fund gamble casino, so many retired people love casinos. The USA has gone "all in" in being an arrogant agressive "drunk on Fox News memes" *we are the greatest* to the whole world economy.
+
