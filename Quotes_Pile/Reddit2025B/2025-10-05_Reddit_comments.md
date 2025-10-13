@@ -3401,17 +3401,3 @@ Leadership by stress. Stress lords.
 https://old.reddit.com/r/politics/comments/1o3kaj7/trump_received_covid_vaccine_and_flu_shot_during/nivq6me/
 
 Endlessly repeating the Russian information warfare tactics about anti-vax on Reddit. People satire-washing authentic understanding problems, parroting popualr joke patterns - anything to avoid nonfiction teaching and learning (anti-Malala mindsets). Eating out of the hands of the Kremlin war against Reality. August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
-
-[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Kremlin / etc.
-
-https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njbzrzz/
-
-A link. Yey!
-
-https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njc31au/
-
-Stories I could tell living for 3 months in Algeria.
-
-https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njc3jn1/
-
-<img width="1084" height="426" alt="image" src="https://github.com/user-attachments/assets/da41a0a5-31ba-4dea-8807-9eb118534669" /> Shit-talking the USA when promoting another nation Bashing health care and bashing the US government computer systems in USA while praising Putin and Moscow as better than Vegas. https://www.youtube.com/watch?v=Lc6KVKzrf1A 9,737 views November 9, 2013 - this is right before the February 2014 Ukraine invasion by Russia. We were in 2013 the world leaders in software and website technologies, and he is bashing the USA promoting Russia...
