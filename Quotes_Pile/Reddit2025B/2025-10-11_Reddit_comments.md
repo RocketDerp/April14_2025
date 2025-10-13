@@ -1452,6 +1452,9 @@ Media cults, fiction storytelling message cults, fiction storytelling informatio
 
 https://old.reddit.com/r/Fauxmoi/comments/1o5u41t/throwback_to_lady_gaga_refusing_to_respond_to/njbx067/
 
-In televison shows like "Lost" and "The Leftovers", this is called a *mystery box* ;) People in the audince like to be sold sexual fantasy with the media god. So many in October 2025 USA express their subconsious desire for Donald Trump poop diapers. Entertainment addicts, media addicts, Reality TV addicts behavior. And she is self-aware. "She attended an all-girls school, Convent of the Sacred Heart, in Manhattan before going on to study music at the Tisch School of the Arts at New York University." - I am sure she has heard of Manhattan professor Neil Postman's books in that area. OPERA_A "Pop Culture" on the screen of the sunglasses. Birth of coming out of water / womb. "Poke Her in Vagaina" face. https://www.youtube.com/watch?v=bESGLojNYSo
+In televison shows like "Lost" and "The Leftovers", this is called a *mystery box* ;) People in the audince like to be sold sexual fantasy with the media god. So many in October 2025 USA express their subconsious desire for Donald Trump poop diapers. Entertainment addicts, media addicts, Reality TV addicts behavior. And she is self-aware. "She attended an all-girls school, Convent of the Sacred Heart, in Manhattan before going on to study music at the Tisch School of the Arts at New York University." - I am sure she has heard of Manhattan professor Neil Postman's books in that area. OPERA_A "Pop Culture" on the screen of the sunglasses. Birth of coming out of water / womb. "Poke Her in Vagaina" face. Lyrics: "Show him what I've got" between the legs... https://www.youtube.com/watch?v=bESGLojNYSo
 
+https://old.reddit.com/r/Fauxmoi/comments/1o5u41t/throwback_to_lady_gaga_refusing_to_respond_to/njbygr5/
+
+OPERA_A Duet interview. Far from the Shallows, the Superficial, now... ;) https://www.youtube.com/watch?v=bo_efYhYU2A
 
