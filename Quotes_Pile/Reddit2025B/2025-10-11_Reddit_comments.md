@@ -1196,3 +1196,32 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1o5hovs/what/nj9lmdn/
 
 <img width="924" height="370" alt="image" src="https://github.com/user-attachments/assets/3c972b11-7b5f-4944-846c-4b8f2fde9d00" /> It's a halmark of Tony Clifton performances. For example, a 2000 retrospective in The Guardian describes an announcer introducing Clifton as "a man who has sold more records than Elvis and the Beatles combined". https://www.theguardian.com/film/2000/may/25/comment
 
+https://old.reddit.com/r/illinois/comments/1o5le8i/chicago_a_ring_camera_captured_immigration/nja3j3q/
+
+Reddit tiny-message afficnados live in a anti-reality world where they behave as if all over the world police treat home like a santuary. Like you can't be evicted from a home. "During the United States of America Great Depression, home evictions were widespread due to mass unemployment and falling incomes, with over 273,000 families evicted in year 1932 alone." As if there isn't films and TV shows and news reports depicting police going into a house or onto property of a house. This is a highly upvoted popular comment. It is denial of reality. People VOTE for this hyper reality, the drama of the arrest is to get coverage. This is all Putin / Kremlin techniques. People can not connect this with the Alaska meeting of Putin and Trump this year. Trump and White House need to be RESCUED from Putin mental manipulation. People are compusively following media patterns without any self-awareness at the media ecology level. Even Trump doesn't realize the self-harm he is doing with Tony Clifton performances, Trump just knows *it works*, and that's the compulisve drive is the feedback loops with the audience. We are, as a nation, leeting media addiciton drive us into patterns in our brain that are self-harm. Even Cambridge Analyutica doctors are not self-aware of the monomyth patterns they deployed and thier long-term impact. When CA did what they did in year 2013 with the IRA, there was no ChatGPT to train on that until year 2022. We are in a feedback of chasing our own tail, our own mental defects, of out-group hate patterns! This is runaway monomyth mind-fuck! The WHOLE THIS of society! People craving self-harm high-speed video and messaging.  ... ... ...    
+"Russia and the Menace of Unreality"   
+"How Vladimir Putin is revolutionizing information warfare"   
+By Peter Pomerantsev. September 9 2014, 3:42 PM ET   
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is virtually all propaganda and relatively little violence. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+https://old.reddit.com/r/illinois/comments/1o5le8i/chicago_a_ring_camera_captured_immigration/nja8ndh/
+
+https://old.reddit.com/r/illinois/comments/1o5le8i/chicago_a_ring_camera_captured_immigration/njada8g/
+
+Which is why you stand up for peace and goodness for their own sake. Send your message to the entire planet of over 8 billion people that peace and goodness is more important to your life than high-speed disposable commenting messages on meme mills.
+
+https://old.reddit.com/r/illinois/comments/1o5le8i/chicago_a_ring_camera_captured_immigration/nja4c1q/
+
+Reddit community has a choice, Reddit people using free time and spare time to comment and upvote and downvote. To get on the same page of goodness and halt all entertainment and mocking and be serious. If you are going to die, leave a message for the rest of the world of what you stand up for besides mocking and insulting like Truth Social and Reddit and Bluesky does.
+
+https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/njabklp/
+
+EVERY SINGLE MEDIA USER, REDDIT COMMUNITY INCLUSIVE, should be HALTING ALL ENTERTAINMENT and using all avaialble free time and spare time EVERY DAY, not just October 18, 2025. This has been ONGOING FOR OVER TEN YEARS AND THREE MONTHS. The media addictions have run the USA right into Russia's Internet Research Agency since and Cambridge Anlytica self-harm feedback loops and mental programming.
+
+https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/njac5ji/
+
+Where are all the MEDIA USERS on touch devices who are using free time and spare time for far less important matters, and not asking a world of over 8 billion people to all stand up with cult deprogramming and confronting Fox News by promoting 2015 film by Jen Senko and other SUSTIANED EVERY DAY, EVERY 6 HOURS, serious matters. And stop moking around, mocking, insulting, downplaying, satire-washing, amusement-washing what is going on. Read the January 1944 Second Bill of Rights and SEE what was predicted and PONDER why nobody can even cite the Second Bill of Rights when it is a single Wikipedia click away. How AVOIDANT people are of goodness and calls for more goodness, and preaching of goodness. https://en.wikipedia.org/wiki/Second_Bill_of_Rights
+
+https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/nja9ijf/
+
+People didn't take the pandemic serious, they did not take Bill Gates in April 2015 seriously - and can't even say "Bill Gates was correct in his April 2015 Ted Talk". https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/nja9ijf/ And we are NOT PREPARED for the NEXT disease outbreak! We are more hate-filled than before COVID-19! People are not TAKING GOODNESS AND NONFICTION LEARNING SERIOUSLY! People are flocking to the fiction storytelling of Fox News HDTV fiction, Reddit commenting fiction, bullshit fiction on Bluesky, Truth Social fiction. Fiction leadership has consumed the nation. Addiction to sports mentality, simple-think, and avoidance of Wikipedia / Wiki style "on the same page, refined knowledge*.
