@@ -1419,3 +1419,23 @@ Stories I could tell living for 3 months in Algeria.
 https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njc3jn1/
 
 <img width="1084" height="426" alt="image" src="https://github.com/user-attachments/assets/da41a0a5-31ba-4dea-8807-9eb118534669" /> Shit-talking the USA when promoting another nation Bashing health care and bashing the US government computer systems in USA while praising Putin and Moscow as better than Vegas. https://www.youtube.com/watch?v=Lc6KVKzrf1A 9,737 views November 9, 2013 - this is right before the February 2014 Ukraine invasion by Russia. We were in 2013 the world leaders in software and website technologies, and he is bashing the USA promoting Russia...
+
+https://old.reddit.com/r/Music/comments/1o5us8a/maga_falls_for_fake_tpusa_halftime_show_poster/njbzun2/
+
+Nonfiction: Compassion. Nonfiction: reason thinking. Nonfiction: science thinking. ... ... ...     
+“Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/Music/comments/1o5us8a/maga_falls_for_fake_tpusa_halftime_show_poster/njc4q2e/
+
+https://old.reddit.com/r/Music/comments/1o5us8a/maga_falls_for_fake_tpusa_halftime_show_poster/njc33xb/
+
+"Cult" of fiction. Monomyth fiction story patterns. Fiction vs. Fiction. Metaphors vs. Nonfictin. ... ... ...      
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/Music/comments/1o5us8a/maga_falls_for_fake_tpusa_halftime_show_poster/njc076f/
+
+Putin programmed self-harm, Russia won, Surkov won. Since year 2013.
+
+https://old.reddit.com/r/Music/comments/1o5us8a/maga_falls_for_fake_tpusa_halftime_show_poster/njc05ci/
+
+https://old.reddit.com/r/Music/comments/1o5us8a/maga_falls_for_fake_tpusa_halftime_show_poster/njc1ow2/
