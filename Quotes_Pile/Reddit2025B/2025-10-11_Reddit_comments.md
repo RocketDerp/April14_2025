@@ -1354,3 +1354,13 @@ https://old.reddit.com/r/theydidthemath/comments/1o5ny05/request_can_someone_exp
 
 Reddit comments avoid Wikipedia links... https://en.wikipedia.org/wiki/Wythe
 
+https://old.reddit.com/r/PoliticalHumor/comments/1o5s6we/nice_shot/njbi6wl/
+
+This is VERY real / this is how the USA values life. Images of Donald J. Trump, constantly consuming images and information from Trump. Truth Social world.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1o5s6we/nice_shot/njbim29/
+
+<img width="1434" height="646" alt="image" src="https://github.com/user-attachments/assets/a85bd2c2-754e-4aba-bc76-418fadbb9b99" /> The constant sexual messaging and images of Trump as a sex lord. Pizzagate sex fetish QAnon, Epstein List sex acts. Instead of giving voices to girl and name-drop of Malala https://en.wikipedia.org/wiki/Malala_Yousafzai at every chance, people flock to the sexual images of Trump over and over, so titialted and thrilled to have the USA defeated by Russian information warfare as entertainment, people dream of his penis and poop diapers and touching his orange skin. This is a very very sick society that has turned everything into anti-goodness simulacra to worship the Trickle Down Images of the rich and famous. The Status Synbol / Icon worship of rich old white men having sex is irresistable to media addicted population. Surkov won! Cambridge Analytica has mind-fucked people into this trash addictions. ... ... ...
+"All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
+
