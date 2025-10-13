@@ -1135,3 +1135,9 @@ https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_w
 
 No link, no author name, no quote, no article title, no book title. Just low-effort commenting about serious situations in a Reddit community that prizes disposable messages over organized Wikipedia / Wiki style refined information.
 
+https://old.reddit.com/r/pcmasterrace/comments/1o5hgul/if_only_kernel_level_anticheat_worked_on_linux/nj9jzr8/
+
+https://old.reddit.com/r/pcmasterrace/comments/1o5hgul/if_only_kernel_level_anticheat_worked_on_linux/nj9qkih/
+
+https://old.reddit.com/r/pcmasterrace/comments/1o5hgul/if_only_kernel_level_anticheat_worked_on_linux/nj9o6mj/
+
