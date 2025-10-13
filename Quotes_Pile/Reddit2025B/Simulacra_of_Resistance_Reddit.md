@@ -18,3 +18,11 @@ Front page of Reddit. Monday October 13, 2025
 https://old.reddit.com/r/clevercomebacks/comments/1o5mkaq/idiots_expossed/
 
 Again, dates are removed from posting. It is a "meme rerun" from July 8, 2022 https://x.com/realJennaEllis/status/1545215153716613120 - extremely low-effort comment to mock and insult, and people on Reddit audience are given mindset training / reinforement training to mock back "idiot!" in the Reddit Title. Simulacra of resistance, that his is "clever comebacks". Eats right out of the hands of Surkovian information warfare patterns. Constantly tiny-short reactions, high-speed thinking, amusement and entertainment as mocking Americans and not confronting the Russian mind-fucking problem of cults of anti-reality anti-goodness.
+
+&nbsp;
+
+Still Monday. Front page.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o5vlw4/trump_just_called_watergate_an_illegal_hoax/
+
+Trump throws out a symbolic gumbo of mind-fuck, and the audience flocks chasing it like a dog chasing a ball thrown by the owner. Trump is reprogramming minds in Vlad Surkov student techniques, Tony Clifton declaring the absurd and surreal, except nobody on Reddit can name Surkovian methods or Peter P's books and Cambridge Analytica mind patterns. How to blow audience minds: It's a halmark of Tony Clifton performances. For example, a 2000 retrospective in The Guardian describes an announcer introducing Clifton as "a man who has sold more records than Elvis and the Beatles combined". https://www.theguardian.com/film/2000/may/25/comment
