@@ -1232,3 +1232,19 @@ https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and
 
 Funny-washing, joke-washing, amusement-washing all because of media mania. Russia won, Surkov won, Putin won. Since year 2013. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / etc.
 
+https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/njalnj1/
+
+Russia won, Surkov won, Putin won. USA has lost hearts and minds to self-harm since IRA media invasion, year 2013. "Putin's Revenge, Part One (full documentary) | FRONTLINE" https://www.youtube.com/watch?v=o2L8qINZD3Q&t=2556s 2,647,247 views February 8, 2019. I PERSONALLY predicted the Arab Spring from media ecology / monomyth studies in Austin December 9, 2009 and was on the ground in Algiers December 3, 2010. And moved from Algeria to Amman, Jordan for media ecology study of the Syria war outbreak in March 2011.
+
+https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/njam1hh/
+
+No links, no quotes, no book titles, no article titles, no author names. Disposabel commenting that Reddit meme consumers take as factual gospel. 
+
+George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+
+JOSEPH CAMPBELL: The sense of this, it seemed to me, might be that from above or below, or from any point of the compass, the creative Word might be heard, which is the great thesis of democracy. Democracy assumes that anybody from any quarter can speak, and speak truth, because his mind is not cut off from the truth. All he has to do is clear out his passions and then speak.
+
+So what you have here on the dollar bill is the eagle representing this wonderful image of the way in which the transcendent manifests itself in the world. That’s what the United States is founded on. If you’re going to govern properly, you’ve got to govern from the apex of the triangle, in the sense of the world eye at the top.
+
+<img width="1010" height="680" alt="image" src="https://github.com/user-attachments/assets/af91c7e9-5da4-43d4-a62f-6d4434d0fb28" /> Now, when I was a boy, we were given George Washington’s farewell address and told to outline the whole thing, every single statement in relation to every other one. So I remember it absolutely. Washington said, “As a result of our revolution, we have disengaged ourselves from involvement in the chaos of Europe.” His last word was that we not engage in foreign alliances. Well, **we held on to his words until the First World War**. And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason.
+
