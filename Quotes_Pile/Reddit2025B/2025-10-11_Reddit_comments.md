@@ -1446,5 +1446,7 @@ Yes, as a prop for audience. Also consdier: Many people seem to enjoy the egoism
 
 https://old.reddit.com/r/LivestreamFail/comments/1o5sdaz/another_explanation_from_hasan_hes_pushing_the/njbjlgj/
 
+https://old.reddit.com/r/LivestreamFail/comments/1o5sdaz/another_explanation_from_hasan_hes_pushing_the/njblf7v/
+
 Media cults, fiction storytelling message cults, fiction storytelling information cults.
 
