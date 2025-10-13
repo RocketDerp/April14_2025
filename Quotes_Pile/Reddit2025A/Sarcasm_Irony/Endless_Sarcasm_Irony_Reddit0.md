@@ -736,3 +736,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1o4n3jt/whos_gonna_tell_him
 
 Reddit community "self aware" that the programmed words are "NOTHING IN LIFE IS EVER MORE FUNNY" tha mocking and insulting others who do not grasp their own self-awareness. NOTHING MORE FUNNY than people misunderstanding and not comprehending!        
 https://old.reddit.com/r/SelfAwarewolves/comments/1o4nw4m/look_whos_talking_about_appearance/
+
+&nbsp;
+
+Another paradox message / behavior pattern that the social media audiences mock at. Eating the Surkovin governing techniques, unable to name this as Russian methods.     
+https://old.reddit.com/r/ThisYouComebacks/comments/1o5nmw3/barron_trump_tiktok_role/
