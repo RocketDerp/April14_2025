@@ -125,7 +125,7 @@ Banality-washing of Russia Reddit infiltration.
 https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixiujn/
 
 George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
-JOSEPH CAMPBELL And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason.
+JOSEPH CAMPBELL: And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason.
 BILL MOYERS: The voice of reason—is that the philosophical way suggested by these mythological symbols?
 CAMPBELL: That’s right. Here you have the important transition that took place about 500 B.C. This is the date of the Buddha and of Pythagoras and Confucius and Lao-tzu, if there was a Lao-tzu. This is the awakening of man’s reason. No longer is he informed and governed by the animal powers. No longer is he guided by the analogy of the planted earth, no longer by the courses of the planets—but by reason.
 MOYERS: The way of —
@@ -1225,3 +1225,10 @@ Where are all the MEDIA USERS on touch devices who are using free time and spare
 https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/nja9ijf/
 
 People didn't take the pandemic serious, they did not take Bill Gates in April 2015 seriously - and can't even say "Bill Gates was correct in his April 2015 Ted Talk". https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/nja9ijf/ And we are NOT PREPARED for the NEXT disease outbreak! We are more hate-filled than before COVID-19! People are not TAKING GOODNESS AND NONFICTION LEARNING SERIOUSLY! People are flocking to the fiction storytelling of Fox News HDTV fiction, Reddit commenting fiction, bullshit fiction on Bluesky, Truth Social fiction. Fiction leadership has consumed the nation. Addiction to sports mentality, simple-think, and avoidance of Wikipedia / Wiki style "on the same page, refined knowledge*.
+
+https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/njaedf1/
+
+https://old.reddit.com/r/goodnews/comments/1o5m61i/robert_de_niro_weve_had_2_and_a_half_centuries_of/njaor29/
+
+Funny-washing, joke-washing, amusement-washing all because of media mania. Russia won, Surkov won, Putin won. Since year 2013. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / etc.
+
