@@ -935,5 +935,29 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1o4yfa3/english_is_not_my_first
 
 ToDo: Finnegans Wake scene...
 
-https://old.reddit.com/r/BrandNewSentence/comments/1o4vitt/your_beatles_are_the_beatles/nj6j1o3/?context=3
+https://old.reddit.com/r/BrandNewSentence/comments/1o4vitt/your_beatles_are_the_beatles/nj6j1o3/
+
+https://old.reddit.com/r/AskReddit/comments/1o4qwfl/if_the_epstein_files_are_released_and_trump_is/nj45pm9/
+
+https://old.reddit.com/r/AskReddit/comments/1o4qwfl/if_the_epstein_files_are_released_and_trump_is/nj6a06h/
+
+QAnon PizzaGate is after the "Lifestyes of the Wealthy Icons, Rich and Famous" chase. Not after actually giving voice to young girls / women to even know they are being exploited. Suport Malala from Pakistan form year 2013, on he global effort to raise morality values of women speaking up.
+
+https://old.reddit.com/r/AskReddit/comments/1o4qwfl/if_the_epstein_files_are_released_and_trump_is/nj4a2vh/
+
+War against nonfiction ongoing.
+
+https://old.reddit.com/r/AskReddit/comments/1o4qwfl/if_the_epstein_files_are_released_and_trump_is/nj4a1et/
+
+It is a strip-tease of information, information strip tease chase. 
+
+https://old.reddit.com/r/AskReddit/comments/1o4qwfl/if_the_epstein_files_are_released_and_trump_is/nj550z5/
+
+Mind-fuck QAnon Pizzagate, "Q Drops" teasing.
+
+https://old.reddit.com/r/AskReddit/comments/1o4qwfl/if_the_epstein_files_are_released_and_trump_is/nj5hzoy/
+
+https://old.reddit.com/r/AskReddit/comments/1o4qwfl/if_the_epstein_files_are_released_and_trump_is/nj3ykl9/
+
+CA and IRA outcomes of year 2013 onward seem to prize harm of women, self-harm of children future, pro-disease, self-destruction of USA. Attraction to badness, avoidance of goodness.
 
