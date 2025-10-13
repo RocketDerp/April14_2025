@@ -11,3 +11,11 @@ WORSE: this is mind-fuck. The Internet Research Agency on Twitter IS COMING for 
 
 Yes, the stripped date, this is a rerun programmind the Reddit audience message. The origianl Twitter messages are dated March 31, 2023 - that is 2.5 years ago. This removal of dates on Reddit "screen captures" and images is a very serious media ecology problem. Normalizing trash situational awareness. Original: https://x.com/ksorbs/status/1641812758764175360 - the context bewilderment of this message being in March 2023 when Donald Trump was not even President, Joe Biden was all year 2023, so how magically is Trump standing in the way of the magical "Left" coming for "us" (whoever us) is. The Russians have been coming for 100% of the poplulation to condition 5,000 patterns of addiction to fiction and hate of American people via memes and messages on Twitter and other media sytems. Is Russia and Putin "The Left" cming for the U.S.A.? Is that the subconsious metal pattern being exploited?
 
+&nbsp;
+
+Front page of Reddit. Monday October 13, 2025
+
+https://old.reddit.com/r/clevercomebacks/comments/1o5mkaq/idiots_expossed/
+
+Again, dates are removed from posting. It is a "meme rerun" from July 8, 2022 https://x.com/realJennaEllis/status/1545215153716613120 - extremely low-effort comment to mock and insult, and people on Reddit audience are given mindset training / reinforement training to mock back "idiot!" in the Reddit Title. Simulacra of resistance, that his is "clever comebacks". Eats right out of the hands of Surkovian information warfare patterns. Constantly tiny-short reactions, high-speed thinking, amusement and entertainment as mocking Americans and not confronting the Russian mind-fucking problem of cults of anti-reality anti-goodness.
+
