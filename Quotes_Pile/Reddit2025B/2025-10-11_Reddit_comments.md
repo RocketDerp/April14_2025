@@ -1499,5 +1499,12 @@ People should focus on splitting fiction from nonfiction and lecturing bad peopl
 
 https://old.reddit.com/r/NoFilterNews/comments/1o5vlw4/trump_just_called_watergate_an_illegal_hoax/njc4whw/
 
-Interstellar 2014 film timeline. Swat Valley Pakistain Taliban: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. OPERA_A Murph school problems wtih the moon landing reality. Confronting anti-reality schooling / education (Malala blogging January 2009, famous year 2012 for being shot on school bus)... the memepools of mass mind / mass media. Public dreams / private dreams clashing. https://www.youtube.com/watch?v=hBaiyzj5wdc
+Interstellar 2014 film timeline. Swat Valley Pakistan Taliban: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. OPERA_A Murph school problems wtih the moon landing reality. Confronting anti-reality schooling / education (Malala blogging January 2009, famous year 2012 for being shot on school bus)... the memepools of mass mind / mass media. Public dreams / private dreams clashing. https://www.youtube.com/watch?v=hBaiyzj5wdc
 
+https://old.reddit.com/r/NoFilterNews/comments/1o5vlw4/trump_just_called_watergate_an_illegal_hoax/njc861c/
+
+EXACTLY. The Pavlovian bell rings of Donald Trump playing Tony Clifton acts, and the Reddit audience and Blueskhy audience are lined up for the mock-back.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o5vlw4/trump_just_called_watergate_an_illegal_hoax/njcoaun/
+
+Shallow and superficial. Tony Clifton acts. The Pavlovian bell rings of Donald Trump playing Tony Clifton acts, and the Reddit audience and Blueskhy audience are lined up for the mock-back.
