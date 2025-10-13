@@ -1404,8 +1404,6 @@ Yes. I traveled to Africa to study the Arab Spring at the start of December 2010
 
 https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njbx9nm/
 
-
-
 [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Kremlin / etc.
 
 https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njbzrzz/
@@ -1456,5 +1454,28 @@ In televison shows like "Lost" and "The Leftovers", this is called a *mystery bo
 
 https://old.reddit.com/r/Fauxmoi/comments/1o5u41t/throwback_to_lady_gaga_refusing_to_respond_to/njbygr5/
 
-OPERA_A Duet interview. Far from the Shallows, the Superficial, now... ;) https://www.youtube.com/watch?v=bo_efYhYU2A
+OPERA_A Duet interview. Far from the Shallows, the Superficial, now... ;) https://www.youtube.com/watch?v=bo_efYhYU2A 1,804,174,569 views September 27, 2018
+
+https://old.reddit.com/r/politics/comments/1o5qsva/we_dont_know_where_trump_is_seeing_portland_on/njb7kg0/
+
+People do not get it. Monomyth patterns... Bible verse "1 John 4:20" about the Torah. People imagine these magical things! Cambridge Anlaytica and Surkov students induce "1 John 4:20" behaviors of "Seeing God" and "Seeing Jesus" as "1 John 4:20" describes. ... ... ...     
+*"At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare". It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare.* ***It reinvents reality, creating mass hallucinations*** *that then translate into political action."* - ["Russia and the Menace of Unreality", "How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev (currently working for Johns Hopkins University) September 9, 2014](https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/))
+
+https://old.reddit.com/r/politics/comments/1o5qsva/we_dont_know_where_trump_is_seeing_portland_on/njb75f4/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Kremlin / etc.
+
+https://old.reddit.com/r/politics/comments/1o5qsva/we_dont_know_where_trump_is_seeing_portland_on/njbgkdm/
+
+Group think. Mob mentality. All consuming similar media patterns. The Kremlin is manipulating them all into the same mindsets. We need to all stand up and RESCUE the White House, Maga, Fox News audience from the fiction addictions. Neil Postman, Marshall McLuhan teachings...
+
+https://old.reddit.com/r/politics/comments/1o5qsva/we_dont_know_where_trump_is_seeing_portland_on/njb7kso/
+
+https://old.reddit.com/r/politics/comments/1o5qsva/we_dont_know_where_trump_is_seeing_portland_on/njbgd5n/
+
+Doanld Trump believes Putin. THINK ABOUT THAT. Donald Trump trusts Vlad Putin. He says so year after year.
+
+https://old.reddit.com/r/politics/comments/1o5qsva/we_dont_know_where_trump_is_seeing_portland_on/njbrmkm/
+
+"Hyperreality of course affects us across many different, ah, spectrums. And it’s built on the real. It is not as though the hyperreal could get by without **injections of reality** in it. It requires – and this is not a principle from Baudrillard but one that I have realised from watching a lot of television – you have to have **injections of reality in order to keep the images afloat**, occasionally." - Texan Rick Roderick, Duke University, year 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
