@@ -1701,3 +1701,6 @@ https://www.youtube.com/watch?v=uqw-60b5K5I
 
 Choice marriage honesty, honesty to public about choice marriage.   
 https://old.reddit.com/r/stories/comments/1o2c97u/i_scammed_my_husband_into_liking_me_and_i/
+
+Another Choice Marriage Honesty    
+https://old.reddit.com/r/SipsTea/comments/1o51vda/turn_of_events/
