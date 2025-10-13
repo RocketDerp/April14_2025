@@ -1009,3 +1009,49 @@ https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cit
 
 Minds who think they are watching a film and that Trump is an actor.
 
+https://old.reddit.com/r/news/comments/1o5b25j/9_killed_in_separate_shootings_as_mississippi/nj884ff/
+
+Massive downvotes from Reddit for calling-out the society humor-washing and amusement-washing of the situation. The LOL-awshing joke-washing of homecoming murder society that has people killing each other and an audience of machine addicts on their touch-devices LOL at machine addicts of weapon machines who kill others in detachment from goodness.
+
+https://old.reddit.com/r/news/comments/1o5b25j/9_killed_in_separate_shootings_as_mississippi/nj85x81/
+
+People do, they come ot low-effort disposble messaging systems and create tiny-short comments and then go on to comment about some baseball player entertainer, or some video game entertaining. People amusement-wash it and joke-wash it and children shooting each other at high school events isn't the poduct of a gun worship society, machine-worship society. The touch devices get to meme about the problem.
+
+https://old.reddit.com/r/news/comments/1o5b25j/9_killed_in_separate_shootings_as_mississippi/nj863id/
+
+https://old.reddit.com/r/news/comments/1o5b25j/9_killed_in_separate_shootings_as_mississippi/nj87rf3/
+
+Satire-washing, comedy-washing everything gong on with society that is bad in year 2025. Mockery-track for Reddit audiences.
+
+https://old.reddit.com/r/worldnews/comments/1o56n58/planets_first_catastrophic_climate_tipping_point/nj7hzte/
+
+Bernies sanders isn't "good enough" of a leader. Just like Malala is not "good enough" for a leaders. Instead, everyone flocks to Donald Trump to mock orange skin, poop diapers, golf outings. Far more entertaining to have fiction leadership and popcorn audience than have a science-based nonfiction leader. Entertainment addiction run society, this is Hell.
+
+https://old.reddit.com/r/worldnews/comments/1o56n58/planets_first_catastrophic_climate_tipping_point/nj85y88/
+
+Yes. I'm a long-time fan of James Burke. 1989 depiction of year 2050. https://americanarchive.org/catalog/cpb-aacip_394-65h9wd4r
+
+https://old.reddit.com/r/worldnews/comments/1o56n58/planets_first_catastrophic_climate_tipping_point/nj7t8is/
+
+Hate Earth values, hate each other values. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/worldnews/comments/1o56n58/planets_first_catastrophic_climate_tipping_point/nj8p0kz/
+
+Using the most powerful media systems in the world in USA to broadcast self-harm and Putin Russia environmental values.
+
+https://old.reddit.com/r/videos/comments/1o55t6e/maga_meltdown_over_qatari_air_force_base_is/nj7rm7r/
+
+It is mockery entertainment, it is LOL-washing of serious situation. It is jokes and amusement and funny for people that Donald Trump White House provides constant sources of stimulation to LOL at.
+
+https://old.reddit.com/r/videos/comments/1o55t6e/maga_meltdown_over_qatari_air_force_base_is/nj7rqon/
+
+It is a laugh-track postin for Reddit audiences. LOL-washing serious sitautions, amusement-washing, funny-conent-washing of massive issues of anti-goodness prizing in USA.
+
+https://old.reddit.com/r/videos/comments/1o55t6e/maga_meltdown_over_qatari_air_force_base_is/nj7p5r9/
+
+No other leader in USA history has had the high-speed media systems like we do in year 2025. Endlessly entertained population finds nonfiction based leadership boring. Trump White House provides Fox News style and fiction storytelling all the time on every media system, including Reddit.
+
+https://old.reddit.com/r/videos/comments/1o55t6e/maga_meltdown_over_qatari_air_force_base_is/nj8a84f/
+
+Headline of posting says hilarious, this comment says how funny and amusing it is to have Donald Trump and MAGA wrecking the nation because hearts and minds lost to Russian information warfare since year 2013.
+
