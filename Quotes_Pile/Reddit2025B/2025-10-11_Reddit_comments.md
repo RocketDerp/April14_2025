@@ -125,12 +125,12 @@ Banality-washing of Russia Reddit infiltration.
 https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixiujn/
 
 George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
-JOSEPH CAMPBELL: And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason.
+JOSEPH CAMPBELL: And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason.     
 BILL MOYERS: The voice of reason—is that the philosophical way suggested by these mythological symbols?
 CAMPBELL: That’s right. Here you have the important transition that took place about 500 B.C. This is the date of the Buddha and of Pythagoras and Confucius and Lao-tzu, if there was a Lao-tzu. This is the awakening of man’s reason. No longer is he informed and governed by the animal powers. No longer is he guided by the analogy of the planted earth, no longer by the courses of the planets—but by reason.
-MOYERS: The way of —
-CAMPBELL: — the way of man. And of course what destroys reason is passion. The principal passion in politics is greed. That is what pulls you down. And that’s why we’re on this side instead of the top of the pyramid.
-MOYERS: That’s why our founders opposed religious intolerance —
+MOYERS: The way of —     
+CAMPBELL: — the way of man. And of course what destroys reason is passion. The principal passion in politics is greed. That is what pulls you down. And that’s why we’re on this side instead of the top of the pyramid.     
+MOYERS: That’s why our founders opposed religious intolerance —     
 CAMPBELL: That was out entirely. And that’s why they rejected the idea of the Fall, too. All men are competent to know the mind of God. There is no revelation special to any people.
 
 https://old.reddit.com/r/SquaredCircle/comments/1o3uep9/usa_anthem_getting_booed_by_perth_crowd_at_crown/nixldau/
@@ -1370,3 +1370,25 @@ https://old.reddit.com/r/whenthe/comments/1o5q9k0/what_the_hell_did_jacksfilms_e
 
 <img width="1008" height="296" alt="image" src="https://github.com/user-attachments/assets/85703493-5925-4af2-be23-fb456c435f31" /> When Cambridge Analytica created 5,000 mind-fucking monomyth patterns "Дональд решил пригласить для этой задачи - специальный научный отдел "Кембриджского университета". Британские учёные из Cambridge Analytica предложили сделать из 5 тысяч существующих человеческих психотипов - "идеальный образ" возможного сторонника Трампа." - https://www.facebook.com/konstantin.rykov/posts/10210643558675446 , this is the kind of aftermath we are dealing with. This is the agression and out-group hate patterns induced by IRA and CA since year 2013. It is a fucking nightmare as James Joyce described in the language and patterns of Finnegans Wake (and the exit paths, Romans 11:32, "1 John 4:20").
 
+https://old.reddit.com/r/whenthe/comments/1o5q9k0/what_the_hell_did_jacksfilms_even_do_to_warrant/njbd3h2/
+
+Left vs. Right mindset, one-bit logic, outcomes. Prizing hate, prizing deception leadership. KillJoy, "Joy Division". OPERA_A Compassion will burn out our hate. https://www.youtube.com/watch?v=zuuObGsB0No
+
+https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njbx3f0/
+
+Egypt, Great Seal of the United States of America pyramid, oh my is the eye of reason thinking blind blind blind.
+
+https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njc1fdb/
+
+Reddit comment doesn't have a link to back up this date. But at least it has a specific date.
+
+https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njbz2qb/
+
+Left vs. right is brainrot. Egypt.. Islamic nation. You can't be a "non-believer" in book supremacy of Torah / Quran / Bbile. If you are Navajo Pollen Path or Great Seal USA - you are fucked. I had to convert to Islam for marriage in north Africa during the Arab Spring. "Muslims are subject to Islamic law, while Christians and Jews are subject to their own religious laws, as Egypt only officially recognizes marriages for these three faiths. The most significant difference is in interfaith marriages: a Muslim man can marry a Christian or Jewish woman, but a Muslim woman cannot marry a non-Muslim man" - cramming everything in the world into this left vs. right brainrot is wrecking minds. Egypt is driven by fictions torytelling, Quran is science fiction, Torah is science fiction, Biblbe is science fiction. The USA 1776 Great Seal is "The Enlightment", non-instrumental reason thinking. Choice adult marriage, not dicated by year 635 science fiction story like Egypt.     George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+JOSEPH CAMPBELL: And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason.     
+BILL MOYERS: The voice of reason—is that the philosophical way suggested by these mythological symbols?
+CAMPBELL: That’s right. Here you have the important transition that took place about 500 B.C. This is the date of the Buddha and of Pythagoras and Confucius and Lao-tzu, if there was a Lao-tzu. This is the awakening of man’s reason. No longer is he informed and governed by the animal powers. No longer is he guided by the analogy of the planted earth, no longer by the courses of the planets—but by reason.
+MOYERS: The way of —     
+CAMPBELL: — the way of man. And of course what destroys reason is passion. The principal passion in politics is greed. That is what pulls you down. And that’s why we’re on this side instead of the top of the pyramid.     
+MOYERS: That’s why our founders opposed religious intolerance —     
+CAMPBELL: That was out entirely. And that’s why they rejected the idea of the Fall, too. All men are competent to know the mind of God. There is no revelation special to any people.
