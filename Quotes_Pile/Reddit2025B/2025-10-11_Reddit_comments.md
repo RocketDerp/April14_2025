@@ -1439,3 +1439,12 @@ Putin programmed self-harm, Russia won, Surkov won. Since year 2013.
 https://old.reddit.com/r/Music/comments/1o5us8a/maga_falls_for_fake_tpusa_halftime_show_poster/njc05ci/
 
 https://old.reddit.com/r/Music/comments/1o5us8a/maga_falls_for_fake_tpusa_halftime_show_poster/njc1ow2/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o5sdaz/another_explanation_from_hasan_hes_pushing_the/njbsp77/
+
+Yes, as a prop for audience. Also consdier: Many people seem to enjoy the egoism / egomania of having a slave and being smarter than others. I see a lot of pet owners who use their pets as props and claim love is so perfect with pets dependent on them. Because they hate human beings, hate dialog and langauge of writing that people create, and animals don't have complciated ideas to express about world peace and ICBM rockets pointed to wreck the earth. Animals don't build blueprints and ICBM's to threaten the world. So instead of crying out that the world needs to deal with hate and reach world peace, conflicts of humans to humans, people really praise the love and relationship with animals that are slaves / under control of community and technology.
+
+https://old.reddit.com/r/LivestreamFail/comments/1o5sdaz/another_explanation_from_hasan_hes_pushing_the/njbjlgj/
+
+Media cults, fiction storytelling message cults, fiction storytelling information cults.
+
