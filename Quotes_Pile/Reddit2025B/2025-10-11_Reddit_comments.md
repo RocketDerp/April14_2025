@@ -1391,4 +1391,31 @@ CAMPBELL: That’s right. Here you have the important transition that took place
 MOYERS: The way of —     
 CAMPBELL: — the way of man. And of course what destroys reason is passion. The principal passion in politics is greed. That is what pulls you down. And that’s why we’re on this side instead of the top of the pyramid.     
 MOYERS: That’s why our founders opposed religious intolerance —     
-CAMPBELL: That was out entirely. And that’s why they rejected the idea of the Fall, too. All men are competent to know the mind of God. There is no revelation special to any people.
+CAMPBELL: That was out entirely. And that’s why they **rejected the idea of the Fall**, too. All men are competent to know the mind of God. There is no **revelation special to any people**.
+
+https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njc51r3/
+
+Donald J. Trump, Trump family, and the entire population have been bamboozed by Russia infomation warfare since year 2013. IRA and CA mind-fucking of monoomyth patterns, mythological thinking. We need to RESCUE Donald J Trump and the nation from addictions to fiction. Nonfiction is being avoided.
+
+https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njbxopj/
+
+Yes. I traveled to Africa to study the Arab Spring at the start of December 2010 and lived there until March 2011 analyzing the social media and mainstream media systems, media ecology. People in USA have no fucking idea the way the clergy runs society like street gangs. If clergy claims you did something, you are in big trouble. Science fiction runs the socities still, people are completely out of touch that Donald Trump is a *fiction addict* who has been bamboolzed by Putin / Kremlin. Every person age 12 to age 120 needs to study media ecology and cult deprogramming, as fiction media cults, fiction addictions, are running society via high-speed messaging / media systems. ... ... ...
+“One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. **We’re no longer interested in finding out the truth. The bamboozle has captured us.** It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njbx9nm/
+
+
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Kremlin / etc.
+
+https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njbzrzz/
+
+A link. Yey!
+
+https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njc31au/
+
+Stories I could tell living for 3 months in Algeria.
+
+https://old.reddit.com/r/pics/comments/1o5u5n0/trump_praises_no_crime_in_egypt_today_at_gaza/njc3jn1/
+
+<img width="1084" height="426" alt="image" src="https://github.com/user-attachments/assets/da41a0a5-31ba-4dea-8807-9eb118534669" /> Shit-talking the USA when promoting another nation Bashing health care and bashing the US government computer systems in USA while praising Putin and Moscow as better than Vegas. https://www.youtube.com/watch?v=Lc6KVKzrf1A 9,737 views November 9, 2013 - this is right before the February 2014 Ukraine invasion by Russia. We were in 2013 the world leaders in software and website technologies, and he is bashing the USA promoting Russia...
