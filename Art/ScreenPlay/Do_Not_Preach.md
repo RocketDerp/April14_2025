@@ -8,7 +8,7 @@ https://old.reddit.com/r/BrandNewSentence/comments/1o4vitt/your_beatles_are_the_
 &nbsp;
 
 Keeping my wealth.   
-I'm Keeping My Wealth. Don't lay you fingers on my stack, jack!    
+I'm Keeping My Wealth. I'm alright Jack keep your hands off of my stack!   
 
 Papa Jesus JesusDoNotPreach     
 PapaDoNotPreach Bible verse "1 John 3:17"
