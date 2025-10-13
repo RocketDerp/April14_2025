@@ -1070,3 +1070,42 @@ https://old.reddit.com/r/pics/comments/1o5hiik/oc_red_cross_transports_13_hostag
 
 The constant messages of anti-intellectual on Reddit. These messages intend: avoid mental health workers, avoid reforming the clergy. And that terrorism starts with "strongly worded" Torah and Quran meme pattrens. Joke-washing the serious situaiton that the dehumanizing information people put into hteir minds is a huge basis for human conflict. That the "good way" to solve human problems is with high-powered military weapon systems like Israel does, and the "bad way" is lecturing / preaching / informaiton systems / letter / messages on Reddit. It isn't about using a letter, it is the content. Just like I'm not against all Reddit commenting messages, but the extremely low-effort ones that turn all serious topics into amusement and jokes have become a mind-programming crisis.
 
+https://old.reddit.com/r/law/comments/1o5inav/in_clear_violation_of_the_hatch_act_dhs_uses/nj9kdot/
+
+A nation full of fiction loving "clowns" who think more low-effort commenting, disposable comments that get abandoned hours latter, will get people on the same page about media cult problems and Russian information warfare since year 2013. Mocking and mocking away nonfiction serious learning on the subject of media ecology. "Amusing Ourselves To Death" as explained in the 184 pook by Neil Postman published in year 1985.
+
+https://old.reddit.com/r/law/comments/1o5inav/in_clear_violation_of_the_hatch_act_dhs_uses/nj9l5ey/
+
+this thought-terminating magical langauge phrase "both sides" eliminates that the United States of America is a UNITED population who has many of the same low-effort media ecology problems. People have bitched about the Fox News problem but don't take seriously a book printed in 1985 taht describes all these outcomes 11 years before Fox News went online in Octiber 7, 1996. Let alone the Russian IRA and CA. People are standing up for mocking a government that has been mentally manipulated by Russia without even caring to explain the mechncais or devise defenses. Mostly about begging people to get on the same page and be seriouis about the impact high-speed electric media has on behaviors and the crisis of fiction addiction.
+
+https://old.reddit.com/r/law/comments/1o5inav/in_clear_violation_of_the_hatch_act_dhs_uses/nj9kg2v/
+
+Profile for this reddit user says "gaming", messages of mockery to downplay the situation. To mockery-wash and entetanment-wash the serioueness of the problem.
+
+https://old.reddit.com/r/law/comments/1o5inav/in_clear_violation_of_the_hatch_act_dhs_uses/nj9kthr/
+
+Good. Someone is trying to clal out the media issues of audiobook vs. book, and how people are not self-aware of how much media is driving compusive behaviors. Alas, there are no links in this comment to read more on the subject, no rally call to a list of education and teaching material, no sense of cult deprogramming needed and that we all need to get on the same page of calling out to the whole world of 8 billion people in a organized sustained way. At least other nations should learn from USA oversight in teaching media ecology before we let runaway Russian simualcra / Runaway Surkov monomyth wreck other nations. Compusive addiiton behaviors in the human mind with monomyth fiction storytelling is incredibly dangerious and people will die for fiction concepts such as "Heaven after death", and not be willing to stand up for love / compassion / goodness. Love is real, compassion is real, education and teaching benefits are real, fantasy monomyth meme patterns of "Heaven after death and great rewards!" are a gross misunderstanding of mythology. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+MOYERS: Do you think there was such a place as the Garden of Eden?
+CAMPBELL: Of course not. The Garden of Eden is a metaphor for that innocence that is innocent of time, innocent of opposites, and that is the prime center out of which consciousness then becomes aware of the changes.
+
+https://old.reddit.com/r/law/comments/1o5inav/in_clear_violation_of_the_hatch_act_dhs_uses/nj9qsyv/
+
+"The media" just as addicted to the fiction storytelling as "The Media" users of Reddit media platform. People can not get others to face serious and sustained nonfiction learning. How many have bene fucked-over in Ukraine since February 2014 that tiny-short comment messaging on Reddit has washed away. Over a decade. The Russin War Against Reality launched Q2 2013, the Internet Research Agency. Reddit community constantly engages in humor-washing amusement-washing comedy-washing of Russia's War Against Reality. Published September 9, 2014 ... one URL click away, but somehow for ELEVEN FULL YEARS, Reddit society can't keep *eye on the ball* to learn about nonfiction and the War Against Nonfiction. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_while_us_president_trump/nj9ouvc/
+
+Constantly mockery-washing, satire-washing serious problems. Social media systems have become a place where all long-term poblems are met with satire and mockery. People consuming that jokes will be the best answer to all problems, turning warfare and hate into normal jokes.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_while_us_president_trump/nj9kcf1/
+
+Tiny-short MAGA talking points, repeated over and over.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_while_us_president_trump/nj9bd1h/
+
+Amusement-track / laugh-track "LOL" for Reddit audiences. That this is South Park level entertainment and how amusing it is to watch horrors in the world from touch-screen devices.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_while_us_president_trump/nj9xque/
+
+Mockery messages to mockery-wash the situation. Who else is going to solve humanity problems? ... ... ...      
+"The Earth is a very small stage in a vast cosmic arena. Think of the rivers of blood spilled by all those generals and emperors so that, in glory and triumph, they could become the momentary masters of a fraction of a dot. Think of the endless cruelties visited by the inhabitants of one corner of this pixel on the scarcely distinguishable inhabitants of some other corner, how frequent their misunderstandings, how eager they are to kill one another, how fervent their hatreds. Our posturings, our imagined self-importance, the delusion that we have some privileged position in the Universe, are challenged by this point of pale light. Our planet is a lonely speck in the great enveloping cosmic dark. In our obscurity, in all this vastness, there is no hint that help will come from elsewhere to save us from ourselves." - https://www.planetary.org/worlds/pale-blue-dot
+
