@@ -961,3 +961,51 @@ https://old.reddit.com/r/AskReddit/comments/1o4qwfl/if_the_epstein_files_are_rel
 
 CA and IRA outcomes of year 2013 onward seem to prize harm of women, self-harm of children future, pro-disease, self-destruction of USA. Attraction to badness, avoidance of goodness.
 
+https://old.reddit.com/r/law/comments/1o546qr/gavin_newsom_drops_an_ai_video_of_jd_vance/nj6vpja/
+
+MORE EATING OUT OF THE HANDS of The Russian War Against Realtiy. Instead of turning to Neil Postman's writings, people double down at every opportunty to dilute reality with more ficiton bullshit. People have embraced the anti-reality weapons. *They Are Eating The Cats And Dogs* JD Vance normalized. https://www.youtube.com/watch?v=uiXlHQdpP4o
+
+https://old.reddit.com/r/law/comments/1o546qr/gavin_newsom_drops_an_ai_video_of_jd_vance/nj6smqw/
+
+Fighting fiction with fiction. People cheering on the abandonment of nonfiction. Fighitng banal with banal, people cheering on the addictions to banality.
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj7ls7j/
+
+Most popular comment, describing the society-wide problem, but acting as if this just started. OVER TEN YEARS AND THREE MONTHS of a population treating one man as a mythological figure, as a super star who changes all the rules towards sle-fharm of the nation.
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj7mc0i/
+
+Simple-think Twitter-think as if this is one person and not Fox News, Elon Musk Twitter, RFK Jr, Pentagon, etc. How many soldiers have dramatically quit like during the Vietnam war, wheere are their names and protests?
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj7m3ye/
+
+The problem goes so far beyond the media ecology of Fox News, the avoidance of nonfiction in favor of anti-Reality. The Putin Media Invasion since year 2013, the Cambridge Analytica mental conditioning.
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj7mq9h/
+
+The USA population didn't flock to extremely low-effort commenting sections and take high-speed disposable sentences as gospel. The entire nation is seeking fiction stources, not just one man Trump with Fox News, but everyone. It is a culture that now constantly seeks out fiction sources and does everything it can to see the forest for the trees... a media ecology problem of an entire society. Authors like Neil Postman are not sustained focus on the subject. Why isn'tanyone in this Reddit comment section quoting books from Ted Kopol 2015? Neil Postman 1985? etc.
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj7sjqx/
+
+No, this "flood the zone" and point is entirely wrong. THis is a total abandonment of reality in favor of messages of "Trump lost", when he is not, he is thriving as noted, but nonfiction is not thriving for the entire populatio. People are glued to their touch device screens commenting OVER AND OVER and not taking the problem of their own family behaviors towards Russia (Putin) and Trump White Hosue / RFK Jr / etc seriously.
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj8mxq6/
+
+The consequences is everyone who looks sees how he can do anything he wishes, that he is untouchable. His power grows every time he "grabs a woman by the pussy" or breaks a law. People admire a God-figure Jesus who rwrites reality for the crowd.
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj7lry9/
+
+Media addict audience cries out for more hyper-reality entertainment, more circus, around White House. Always entertained and giving yells to Trump to provide even more to comment upon and have popcorn watching. No desire to stand up as We The People and remove the attraction to trash commenting and trash media, just eating the onions and mocking away at the Tony Clifton performances and dreaming up new icon andsymbolism crossovers.
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj7ufhm/
+
+Peppe have abandoned all gooddnes, tossed away everything good in the nation, for such enteratinment of symoblism and live commenting to every entertainment and thrill.
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj7prrw/
+
+Why can't We The People on Reddit and Bluesky make Jen Senko's 2015 film a household name by repeating it every 12 hours for 2 years or more - until EVERY SINGLE person in the USA knows Jen Senko's name and that she stood up to Fox News? Why can't she make an example of her family and we all reward her courage and leadership in the War Against Reality that started March 2013? 
+
+https://old.reddit.com/r/law/comments/1o5819z/trumps_fantasy_of_violent_blue_cities_collapses/nj7rcfu/
+
+Minds who think they are watching a film and that Trump is an actor.
+
