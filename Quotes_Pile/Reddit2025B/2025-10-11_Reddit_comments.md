@@ -1109,3 +1109,29 @@ https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_w
 Mockery messages to mockery-wash the situation. Who else is going to solve humanity problems? ... ... ...      
 "The Earth is a very small stage in a vast cosmic arena. Think of the rivers of blood spilled by all those generals and emperors so that, in glory and triumph, they could become the momentary masters of a fraction of a dot. Think of the endless cruelties visited by the inhabitants of one corner of this pixel on the scarcely distinguishable inhabitants of some other corner, how frequent their misunderstandings, how eager they are to kill one another, how fervent their hatreds. Our posturings, our imagined self-importance, the delusion that we have some privileged position in the Universe, are challenged by this point of pale light. Our planet is a lonely speck in the great enveloping cosmic dark. In our obscurity, in all this vastness, there is no hint that help will come from elsewhere to save us from ourselves." - https://www.planetary.org/worlds/pale-blue-dot
 
+https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_while_us_president_trump/nj9cog0/
+
+So many Reddit messages of feitsh and dreaming of Donald Trump sex, Donald Trump poop. So many sick people who are attracted to Donald Trump on Reddit systems every hour of every day to express their lust for poop and sex with children. Detached from humanism and dreaming away their fantasy in a anti-reality media platform of mass dehumanizaiton.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_while_us_president_trump/nj990b0/
+
+Laugh track for Reddit audiences to LOL-wash the situation of humanities struggle with freedom, goodness, democracy. 
+
+https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_while_us_president_trump/nj9aom2/
+
+Reddit community amusement-washing LOL-washing insult-washing entertainment-washing away. Anything to avoid that this is an inward brain issue, an education and values issue of what people prize and compete over. Competititon for hate, Quran vs. Torah media platforms. Reddit vs. Fox News, all addictions like Mosque venue vs. Synagogue venue addictions. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_while_us_president_trump/nj9hf4q/
+
+Single-media venues of Torah, Biblbe, Quran, the temples of wroship of ONE AND ONLY ONE PERFECT STORYBOOK is a humanity echo chamber for thousands of years. If people took learning of media ecology as a global concern, every person would recognize how much hate there from egomania echo chambers.  George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+JOSEPH CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. **It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future**.
+MOYERS: What kind of new myth do we need?
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+MOYERS: There is something about that on the Great Seal of the United States.
+CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o5h4av/there_was_an_incident_while_us_president_trump/nj9dwsj/
+
+No link, no author name, no quote, no article title, no book title. Just low-effort commenting about serious situations in a Reddit community that prizes disposable messages over organized Wikipedia / Wiki style refined information.
+
