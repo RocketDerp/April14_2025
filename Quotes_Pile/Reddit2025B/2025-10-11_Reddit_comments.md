@@ -1248,3 +1248,21 @@ So what you have here on the dollar bill is the eagle representing this wonderfu
 
 <img width="1010" height="680" alt="image" src="https://github.com/user-attachments/assets/af91c7e9-5da4-43d4-a62f-6d4434d0fb28" /> Now, when I was a boy, we were given George Washington’s farewell address and told to outline the whole thing, every single statement in relation to every other one. So I remember it absolutely. Washington said, “As a result of our revolution, we have disengaged ourselves from involvement in the chaos of Europe.” His last word was that we not engage in foreign alliances. Well, **we held on to his words until the First World War**. And then we canceled the Declaration of Independence and rejoined the British conquest of the planet. And so we are now on one side of the pyramid. We’ve moved from one to two. We are politically, historically, now a member of one side of an argument. We do not represent that principle of the eye up there. And all of our concerns have to do with economics and politics and not with the voice and sound of reason.
 
+https://old.reddit.com/r/Fauxmoi/comments/1o5p2oe/the_first_batch_of_palestinian_hostages_have_been/njaud7k/
+
+I don't see social media users all pledging "NEVER AGAIN", I see people prizing hate, flocking to hate leadership signals, flocking to deception leadership signals, people who think warfare and violence is cool and thrilling entertainment. People who can't even stop blocking each other on Reddit and Bluesky, let alone live next to each other and preach compassion and love lessons to each other. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/Fauxmoi/comments/1o5p2oe/the_first_batch_of_palestinian_hostages_have_been/njb1msz/
+
+Why can't people free Russians? Ukraine? ALL PEOPLE in THE ENTIRE WORLD. People who can't even stop blocking each other on Reddit and Bluesky, let alone live next to each other and preach compassion and love lessons to each other. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/Fauxmoi/comments/1o5p2oe/the_first_batch_of_palestinian_hostages_have_been/njau58m/
+
+"While some view it as a call for Palestinian freedom and equality, others interpret it as a call for the elimination of Israel and the ethnic cleansing of Jewish people." people on meme mills who think this is a team sport of Quran vs. Torah and want one to win. Unable to confront that ALL mythology in the Levant is a crisis. And people addicted to domination and "payback / revenge" killings and do not assert Malala's education reforms. ... ... ...      
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?”
+― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013.
+
+https://old.reddit.com/r/Fauxmoi/comments/1o5p2oe/the_first_batch_of_palestinian_hostages_have_been/njb3nxc/
+
+All hqte in ALL places in ALL nations in ALL time periods is bad. All murder all killing all is bad. Genocide or otherwise. I don't see social media users all pledging "NEVER AGAIN", I see people prizing hate, flocking to hate leadership signals, flocking to deception leadership signals, people who think warfare and violence is cool and thrilling entertainment. People who can't even stop blocking each other on Reddit and Bluesky, let alone live next to each other and preach compassion and love lessons to each other. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
