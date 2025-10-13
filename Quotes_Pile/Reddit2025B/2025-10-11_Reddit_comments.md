@@ -1055,3 +1055,7 @@ https://old.reddit.com/r/videos/comments/1o55t6e/maga_meltdown_over_qatari_air_f
 
 Headline of posting says hilarious, this comment says how funny and amusing it is to have Donald Trump and MAGA wrecking the nation because hearts and minds lost to Russian information warfare since year 2013.
 
+https://old.reddit.com/r/CringeTikToks/comments/1o560gs/trump_i_dont_think_theres_anything_thats_going_to/nj77ow1/
+
+That's the crisis. Trump can not tel Putin Kremlin information is fictin. Trump trusts Putin. Trump can't tell 2,000 year old Bible science fiction... is fiction. Trump has addictions to fiction that run so deep he believes Fox News ns nonfiction. And Donald Trump is far from the only one who is avoiding nonfiction learning at all costs, thinking ficiton films, fiction TV, fiction Internet, fiction ChatGPT are all factual nonfiction. The Russian War Agaist NonFiction has defeated the USA :(
+
