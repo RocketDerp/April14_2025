@@ -1163,3 +1163,36 @@ https://old.reddit.com/r/videos/comments/1o5ga6t/palestinians_returning_to_gaza_
 Tiny-short message addicts and out-group logic about Kamala Harris being responseible for Middle East terrorism. Anything to be anti-education anti-understanding anti-comprehension anti-teaching on the root problems of terror. Anything to avoid getting humanity on the same nonfiction pages. Create millions of disposable low-effort commenting messages on high-speed messaging systems seems to be the popular reaction and answer. Avoding nonfiction serious learning. ... ... ...
 "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
 
+https://old.reddit.com/r/NoFilterNews/comments/1o5j974/prince_andrew_urged_to_leave_the_country_after/nja3z98/
+
+<img width="996" height="498" alt="image" src="https://github.com/user-attachments/assets/62a7fb2a-dee8-4637-bbf0-300dbe82cfe6" /> If the World Wide Web / WWW users would put effort into refined knowledge of medicine, education, teaching, construction, electrical wiring, plumbing, manufacturing, psycology, science into a Wiki style systema isntead of constantly flocking since year 2013 to low-effort disposable commenting messages... Why not follow Malala's lead since October 8, 2013 book publication? Focus on educaiton and getting every person on the same pages instead of constantly generating commenting messages with free time and spare time. We ALL have common problems of out-group hate. Hate itself. Malala has been organizing giving young girls a voice with the Malala Fund and teaching / learning system reforms. So people, men and women both, understand predatory behavior and are able to all work together to peacefully and intelligently address this positive direciton and changes for society / future / future paths / current paths into the future.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o5hovs/what/nj9ia9g/
+
+<img width="1218" height="596" alt="image" src="https://github.com/user-attachments/assets/93390499-1b11-43ce-93de-2693986226f3" /> People are not sleepwaslking except in self-awareness. People are ["high energy" flocking / chasing / running to high-speed meme mills](https://www.politico.com/magazine/story/2016/09/2016-trump-clinton-rallies-debate-politics-214290/), subscribing and following to all the out-group hate patterns they have, and cheering on the abandonment of goodnes. The abandonment of reality, in favor of high-speed digital media coverage of Donald Trump leading the world of media addicts. People think mocking and hate upon Trump is resisting, it is not resisting. Mocking at a Tony Clifton act is the intention of the scripting, just like Surkov governing has worked in domestic Russia for over 25 years. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o5hovs/what/nj9csqn/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o5hovs/what/nja1udt/
+
+Surrounded by Reddit high-speed commenting addicts who flock to anti-reality, anti-goodness, pro-hate out-group messages for OVER TEN YEARS AND THREE MONTHOS. Who do not want to turn to nonfiction learning. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o5hovs/what/nj9eulo/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o5hovs/what/nj9f6ur/
+
+Since March 2013 ramp-up of the IRA. From the November 7, 2012 agreement. Cambridge Analytica doctors have mind-fucked humanity into hate feedback loops. ... ... ...     
+"Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. Всё началось ночью с 6 на 7 ноября 2012 года." https://www.facebook.com/konstantin.rykov/posts/10210621124674610
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o5hovs/what/nj9dcub/
+
+Extremely short-tiny audience member who sits down in front of Tony Clifton, sees Tony Clifton go off scripting into improv performances, and claims how terrible and bad Tony Clifton is. Compeltely uneducated on Audy Kaufman technqiues. Meme addicts unable to imagine their own compusive attraction to Reddit trash media has been a warfare technique by Putin. This Reddit comment... people unable to imagine absurd surreal is a formal technique of Tony Clifton acting, Surkovian leadership. Calling Tony Clifton a bad performer is not resisting Tony Clifton acts. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o5hovs/what/nj9h8wl/
+
+Hey, at least SOMEONE has caught on that Trump is not always 100% logic of ALWAYS WRONG, ALWAYS fiction. It is hate messages, Trump is chasing and mind-fucked by Putin. Trump needs to be rescued from Putin. At this point since year 2022 and LLM / ChatGPT rise, Putin needs to be rescued from Putin. We are in runaway simulacra, runaway Surkov monomyth that nobody is in control of!
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o5hovs/what/nj9lmdn/
+
+<img width="924" height="370" alt="image" src="https://github.com/user-attachments/assets/3c972b11-7b5f-4944-846c-4b8f2fde9d00" /> It's a halmark of Tony Clifton performances. For example, a 2000 retrospective in The Guardian describes an announcer introducing Clifton as "a man who has sold more records than Elvis and the Beatles combined". https://www.theguardian.com/film/2000/may/25/comment
+
