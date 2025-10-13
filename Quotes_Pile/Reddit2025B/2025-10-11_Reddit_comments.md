@@ -1345,3 +1345,12 @@ https://old.reddit.com/r/news/comments/1o5pwgf/firings_of_hundreds_of_cdc_employ
 
 ANYTHING to avoid blaming the Cambridge Analytica doctors for manipulting people. Compusive behaviors of doing EVERYTHING POSSIBLE to avoid NONFICTION LEARNING, and flcoking to no-identity extreme low-effort commenting with free time and spare time to LOL-wash and mockery-wash the ignorance of the USA population. ANYTHING to avoid reading books, quoting books, facing up to real reality of nonfiction. ... ... ...      
 “We like to think of ourselves as immune from influence or our cognitive biases, because we want to feel like we are in control, but industries like alcohol, tobacco, fast food, and gaming all know we are creatures that are subject to **cognitive and emotional vulnerabilities. And tech has caught on to this with its research into “user experience,” “gamification,” “growth hacking,” and “engagement” by activating ludic loops and reinforcement schedules in the same way slot machines do**. So far, this gamification has been contained to social media and digital platforms, but what will happen as we further integrate our lives with networked information architectures designed to **exploit evolutionary flaws in our cognition**? Do we really want to live in a “gamified” environment that engineers our obsessions and plays with our lives as if we are inside its game?” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America, chapter 12 "Revelations", page 235, year 2019
+
+https://old.reddit.com/r/theydidthemath/comments/1o5ny05/request_can_someone_explain/njbp5rx/
+
+Low-effort content draws people like flies to shit. As if this is the important topics in the world to spend spare time and free time.
+
+https://old.reddit.com/r/theydidthemath/comments/1o5ny05/request_can_someone_explain/njbjzxw/
+
+Reddit comments avoid Wikipedia links... https://en.wikipedia.org/wiki/Wythe
+
