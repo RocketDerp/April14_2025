@@ -42,7 +42,7 @@ Mob mentality abounds. Inlcuiding on Reddit. Russia has programmed self-harm and
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixeaeg/
 
-Tiny-short messages. No link, no citation, no quote, no author names, no book ttiles / article titles. Who is "they' that are terrorists? The Mormon church in the story? The GOP? The Michigan killer who terrorized the Church with guns? What should we do about terrorists / extremists? Create millions of disposable low-effort commenting messages on high-speed messaging systems seems to be the popular reaction and answer. Avoding nonficiton serious learning. ... ... ...
+Tiny-short messages. No link, no citation, no quote, no author names, no book ttiles / article titles. Who is "they' that are terrorists? The Mormon church in the story? The GOP? The Michigan killer who terrorized the Church with guns? What should we do about terrorists / extremists? Create millions of disposable low-effort commenting messages on high-speed messaging systems seems to be the popular reaction and answer. Avoding nonfiction serious learning. ... ... ...
 "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixg56m/
@@ -1140,4 +1140,26 @@ https://old.reddit.com/r/pcmasterrace/comments/1o5hgul/if_only_kernel_level_anti
 https://old.reddit.com/r/pcmasterrace/comments/1o5hgul/if_only_kernel_level_anticheat_worked_on_linux/nj9qkih/
 
 https://old.reddit.com/r/pcmasterrace/comments/1o5hgul/if_only_kernel_level_anticheat_worked_on_linux/nj9o6mj/
+
+https://old.reddit.com/r/videos/comments/1o5ga6t/palestinians_returning_to_gaza_city_find/nj9m1cy/
+
+Exactly. People live in such information filter-bubbles that they proclaim it isn't getting press coverage. Go look at the news systems that Islamic nations follow, not the Reddit front page. How often do you even seen Arabic langauge and Farsi language Unicode content on /r/All front page of Reddit? People have no sense of a world of 8 billion people and the ecology of media systems. During the Arab Spring December 2010 when I was in Oran, Algeria and Algiers - many Facebook people were covering content to their followers. Not everything gets posted to Reddit in the filter-bubbles people use. ... ... ...     
+"The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation." - https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/videos/comments/1o5ga6t/palestinians_returning_to_gaza_city_find/nja1bs7/
+
+People flock to these disposable commenting sections, anything to avoid getting on the same page of details and understandings of a Wiki system of refining knowledge and facts of the world. People are so addicted to this high-speed churning of trash comments, mindsets driven by the speed of the medium, the network TCP/IP and message... not seeking comprehension or understanding. The Tower of Babel nightmare!
+
+https://old.reddit.com/r/videos/comments/1o5ga6t/palestinians_returning_to_gaza_city_find/nj9ps43/
+
+Audiences adore the show. Constant stimulation and anything to avoid focusing on education and nonfiction learning. Anti-Malala values abound. 
+
+https://old.reddit.com/r/videos/comments/1o5ga6t/palestinians_returning_to_gaza_city_find/nj9lqmz/
+
+People can't even share messages on Reddit without going into hate and blocking each other. How do you expect people to live 15 meters apart physically when we can't even face the egomania people get with language and communications on cloud computer systems? The worship of blocking and dehumanization training grounds that are Bluesky, Reddit, etc.
+
+https://old.reddit.com/r/videos/comments/1o5ga6t/palestinians_returning_to_gaza_city_find/njab3va/
+
+Tiny-short message addicts and out-group logic about Kamala Harris being responseible for Middle East terrorism. Anything to be anti-education anti-understanding anti-comprehension anti-teaching on the root problems of terror. Anything to avoid getting humanity on the same nonfiction pages. Create millions of disposable low-effort commenting messages on high-speed messaging systems seems to be the popular reaction and answer. Avoding nonfiction serious learning. ... ... ...
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
 
