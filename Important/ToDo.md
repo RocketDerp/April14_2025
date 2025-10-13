@@ -1648,8 +1648,14 @@ https://old.reddit.com/r/todayilearned/comments/1nuad0d/til_an_african_parrot_na
 
 &nbsp;
 
+# Mandatory Hate
+
 The popular toxic clergy teachings that you MUST hate the non-believers, you must hate people who change from one religion to another. You MUST HATE, MANDATORY HATE, of ex-lovers.  Shocking to pepole to see that some people find hate to be toxic.   
 https://old.reddit.com/r/MadeMeSmile/comments/1nued45/they_both_got_divorced_but_they_cant_stop_vibing/
+
+Because of famous people, famous actors, who get voices to tell their story and have often automatic press coverage... we learn how common these things really are. People who worship hate, prize hate, teach hate, share hate, praise hate, program hate into their minds, are told by parents to seek out and practice hate. The MADATORY HATE of an ex-lover, how the person you love you must now hate!    
+https://old.reddit.com/r/todayilearned/comments/1o5jb3c/til_a_woman_who_slashed_leonardo_dicaprios_face/
+
 
 &nbsp;
 
