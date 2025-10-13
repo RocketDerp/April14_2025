@@ -1,6 +1,6 @@
 https://old.reddit.com/r/TwentiesIndia/comments/1o3m4ul/its_a_crime_to_be_honest_in_this_country/niw3u7c/
 
-India. We have the same brain issues globally and we arne't using Wikipedia style progress to get humanity all on the same page of common problems. Inlcuidng how everyday people can spot-check others work, even a spouse should be able to look at Wikipedia and leran a basic understanding othe other spouse's job in a different business. But we abandon all that for convesational fiction storytelling and avoidance of nonfiction.
+India. We have the same brain issues globally and we arne't using Wikipedia style progress to get humanity all on the same page of common problems. Including how everyday people can spot-check others work, even a spouse should be able to look at Wikipedia and leran a basic understanding othe other spouse's job in a different business. But we abandon all that for convesational fiction storytelling and avoidance of nonfiction.
 
 https://old.reddit.com/r/TwentiesIndia/comments/1o3m4ul/its_a_crime_to_be_honest_in_this_country/niwc1jy/
 
@@ -1496,3 +1496,8 @@ https://old.reddit.com/r/OldSchoolCool/comments/1o5scwn/if_morrissey_says_not_to
 
 People should focus on splitting fiction from nonfiction and lecturing bad people, preaching to people. Offer better lifestyles, changes. It is fucking PAINFUL to think in all the 5,000 simulacra patterns Russia and CA conjured up in year 2013. So many anti-goodness mindsets. It is constant torture to be doing this fucking GitHub :( I'm not against half-baked solutions, if we learn to work all together as 8 billion plus people on baking some of them into full-baked solutions. But we are poisoning the commons, dumping shit low-effort disposable comments and abandoning good solid nonfiction books. ... ... ...      
 "The tough mind is sharp and penetrating, breaking through the crust of legends and myths and sifting the true from the false. The tough-minded individual is astute and discerning. He has a strong austere quality that makes for firmness of purpose and solidness of commitment. Who doubts that this toughness is one of man's greatest needs? Rarely do we find men who willingly engage in hard, solid thinking. There is an almost universal quest for easy answers and half-baked solutions. Nothing pains some people more than having to think." - Strength to Love (1963), Chapter 1 : A tough mind and a tender heart
+
+https://old.reddit.com/r/NoFilterNews/comments/1o5vlw4/trump_just_called_watergate_an_illegal_hoax/njc4whw/
+
+Interstellar 2014 film timeline. Swat Valley Pakistain Taliban: “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013. OPERA_A Murph school problems wtih the moon landing reality. Confronting anti-reality schooling / education (Malala blogging January 2009, famous year 2012 for being shot on school bus)... the memepools of mass mind / mass media. Public dreams / private dreams clashing. https://www.youtube.com/watch?v=hBaiyzj5wdc
+
