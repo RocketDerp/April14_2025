@@ -44,3 +44,12 @@ https://www.youtube.com/watch?v=as5lE64J1hQ
 
 as5lE64J1hQ
 
+&nbsp;
+
+## Wake Indra Opera / John One One Opera
+
+/\ #John One One Opera /\ #Wake Indra Opera /\
+
+Bible verse "1 John 4:20" - you have never seen the science fiction character "God", you have never seen Hamlet's Ghost. You have seen science fiction storytelling and Church venue performances. We Create Fiction. We originate. You Originate John 1:1 - **ToU**:
+
+https://www.youtube.com/watch?v=OeVgcIFEh3I
