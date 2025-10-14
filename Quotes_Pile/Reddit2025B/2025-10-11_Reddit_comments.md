@@ -1760,7 +1760,41 @@ https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages
 But don't call it a nation of technology addicts. 340 million people who love technology and hate nonfiction. The Second Bill of Rights January 1944 is in the history, right on Wikipedia. But what does everyone flock to with health care, Luigi worship of a muruder / sneak attack / liar / deceiver / Real Estate landlord king like Trump when December 4, 2024 comes along. People who wnat $1 health care but fine with Luigi's family doing $12,500 a month rent prices... to cover that health care being $1 a month. Because nobody wants to talk about The Second Bill of Rights January 1944 because that is non-fiction serious learning off Wikipedia. Go look, on Reddit, everyone priaises murder of Luigi to "solve" health care, but nobody talks about needing lower rent and lower health care and monopoly billionares and all the other things in the Second Bill of Rights into a package. Plus the admitting that people have had that page on Wikipedia ALL ALONG and are avoiding it with low-effort complaint commenting about one issue like rent prices and health care in USA - and not looking at a well thought-out and well-written idea. https://en.wikipedia.org/wiki/Second_Bill_of_Rights Because the PROBLEM in year 2024 when Luigi the mruderer sneak liar manipuator does his sneak-attack killing in Manhattan - is people won't go to Manhattan professor Neil Postman's 1985 book "Amusing Ourselves To Death" and look in the egomania mirror of low-effort commenting with disposable fragmented ideas and messages. The problem is the venues, Reddit venue, television screen venue, Bluesky venue. Meme formatting "the news" and entertainment-wrapping it with candy-wrapper meme images. Note that this was published in 1985, BEFORE smartphones and before Bluesky and before Reddit and before Twitter, so it does not name the Apple iPhone like a televison set / television screen. ... ... ...    
 "What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a **coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show **entertains but does not inform**, I am saying something far more serious than that we are being deprived of authentic information. I am saying **we are losing our sense of what it means to be well informed**. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhmlv5/
 
+This is the aftermath of Cambrdige Analytica mind-fucking. Out-group hate patterns. Self-harm to the USA.
 
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhi379/
+
+"LMAO" on how jokes are used by Republicans / MAGA to dehumaize. Reddit audienc LMAO / LOL laugh track with tiny-short messages, low effort dispsoable comemnting to keep peopel from getting together on THE SAME PAGE of serious topics.
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhfyvb/
+
+No, waht is new is the machine-think of media machines. The Reddit-think, the worship of machines to dehumanize people. That's what new is the newest Apple iPhone running the messaging app. Media ecology would teach this, intead of low-effort dispsoable commetning messages on Reddit that don't teach about mob mentality induced by media systems.
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhc61w/
+
+The rest of the world is saying that to the USA: you stopped maturing at social media. Your nation stopped maturing at Facebook and Elon Musk purchaisng Twitter and Reddit non-identity messaging.
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhlg2u/
+
+Go look at all of Reddit.
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhm2y0/
+
+Since year 2013 the entire nation has been feating on Russian Internet Research Agency content. And when the pandemic came in December 2019, COVID-19, nobody can turn to nonfiction of April 2015 Bill Gates Ted talk - show me the messages on Reddit where people said "Bill Gates was right in April 2015, we should have listened!" when the pandemic came. YOu won't find people admitting mistakes on Reddit. And show me when December 2019 COVID-19 came when you share this BBC story from August 24, 2018 - how people go blank. Because I shared it over and over, and nobody wants to be serious about NONFICTION facts and evidence and escape the echo-chamber filter-bubble reactions to avoid nonfiction learning. https://www.bbc.com/news/world-us-canada-45294192 - I contacted the Pnetagon in year 2015 about this kind of shit I was seeing in out-group patterns on Reddit! It started in 2014 according to the ARTICLE!
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhqjgl/
+
+The abandonment of goodness. The prizing of hate. The prizing of machine and system dehumanization of people you don't like. The block button. The ban button. People can't even share Unicode messages on Bluesky without book-burning Block button. How do people think that kidn of anti-forgiveness, anti-compassion, anti-Malala, anti-MLK Jr, anti-empathy is going to play out when people can not even tolerate Reddit and Blueksy messages they disagree with in filter-bubble block-bubbles? The Tower of Babel langauge and metaphor and meme-addiction patterns, the Tower of Babel issue NOW in high-speed reactionary Reddit and Bluesky blocking form! Egomania unleashed.  ... ... ...        
+"The term filter bubble was coined by internet activist Eli Pariser circa 2010. In Pariser's influential book under the same name, The Filter Bubble (2011), it was predicted that individualized personalization by algorithmic filtering would lead to intellectual isolation and social fragmentation." https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhglf2/
+
+Reddit users will just blow off Neil Postamns' 1985 book "Amusing Ourselves To Death" and the stories about the Internet Research Agency and Cambridge Analytica as just a small group of super-dumpb people and not them. People wil deny the addiciton to low-effort didposable comments that are abandond hours after creation, the avoidance of using free time and spare time to read together nonfiction serious books and work on refining shared understanding with Wikipedia / Wiki style systems. The denial of the audience behavior abounds. People are doing ANYTHING to avoid facing up to the repeating news to study and face Neil Postman's books. The mockery and mocking is the problem.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhl894/
+
+You have to halt entertainment, you have to halt the self-harm and use social media to be SERIOUS and SUSTAINED about NONFICTION education and leraning. Not meme-washing amusement mills.  People are doing ANYTHING to avoid facing up to the repeating news to study and face Neil Postman's books. The mockery and mocking is the problem.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
 
