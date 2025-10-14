@@ -1640,5 +1640,32 @@ https://old.reddit.com/r/MurderedByWords/comments/1o6eyww/someone_should_tell_he
 
 No, people are not awake. Not Woke to Finnegans Wake year 1924 from James Joyce, WAKE is in the title of the book, Woke. People are not woke to the media ecology probelms of Bluesky and Reddit. Everyone creating disposable commenting on different pages and no sense of importance and priority other than entertainment / stimulation of excitement. Neil Postmans 1985 book "Amusing Ourselves To Death" is 184 pages of common mindset every person needs to face now.
 
+https://old.reddit.com/r/Damnthatsinteresting/comments/1o6k3uj/in_2003_a_massive_library_was_discovered_in_tibet/njh7kdn/
 
+Clergy "monasteries would do when word got around of this happening is they’d just brick up the entrance to the library and pretend they didn’t have one". ... ... ...      
+"Now this is a **very serious affair. It is serious** because these symbolic worlds were the supports of the civilizations, of the moralities of the civilizations, of the self-confidence of the civilizations, of the vitality and creative power of the civilizations. And with the cutting down, the frustrating of the self-confidence that derives from images of this kind, **there is a disequilibrium within the society itself. And everyone is challenged in his loyalty** — are you going to be loyal to the tradition, to the form, to the morality and myth of your society, or are you going to be loyal to truth? They are two different things." - [November 16, 1961. Joseph Campbell on loyalty to fiction mythology, avoidance of truth](../Specific/Joseph_Campbell_Loyalty_Myth.md)
+
+https://old.reddit.com/r/politics/comments/1o6gfhw/america_is_going_broke_slowly_says_jpmorgan_as/njg9xpu/
+
+Mexico, Panama, Greenland, Canada, Russia expansion. Even if none of these are good ideas and all self-harm, the addiction to fiction driving away nonfiction and driving away goodness.
+
+https://old.reddit.com/r/politics/comments/1o6gfhw/america_is_going_broke_slowly_says_jpmorgan_as/njgf4cu/
+
+Denial of Russian information warfare since March 2013, the winning of hearts and minds by Putin to self-harm USA. The Ukraine WWW war front.
+
+https://old.reddit.com/r/politics/comments/1o6gfhw/america_is_going_broke_slowly_says_jpmorgan_as/njgyqfe/
+
+Ready Player One, Columbus Ohion, year 1940. Interstellar 2014 film. Climate change isn't going away. The one-time gains of wealth in a world of 8 billion people have mostly dried up. The growth from 2 billion people to 8 billion people was not small. This is a global world Pale Blue Dot crisis and the USA has the most powerful information systems and learning experience... and it (information systems and knoweldge) has been trashed by Russia's IRA since year 2013 - and if people don't start prizing nonfiction and prizing compassion teaching....
+
+https://old.reddit.com/r/politics/comments/1o6gfhw/america_is_going_broke_slowly_says_jpmorgan_as/njgb9xa/
+
+Year 2025 all the kindeling has been set alight, the bonfire hangover of January 18 or so and the realizations of the hoidays. It can, of course, play out in other ways, but burning the engine on hate fuel into Christmas inverted mythology Jesus worship.... symbolism junctions.
+
+https://old.reddit.com/r/politics/comments/1o6gfhw/america_is_going_broke_slowly_says_jpmorgan_as/njgcpo5/
+
+Bingo. 401K. The USA sotck market booted to keep retirmenet Fox News HDTV audiences cheering on. The bailout of housing bubble so people could retire and sell thier house in the north and move to Florida like Trump. We really failed to study and take serious and benchmark against the thinking described in the January 1944 Second Bill of Rights.
+
+https://old.reddit.com/r/politics/comments/1o6gfhw/america_is_going_broke_slowly_says_jpmorgan_as/njghlep/
+
+And we all smell smoke, all the rescue boats are racing away, driven away by USAID and other world wide hate messaging. Attacking Canada is not going to be ignored by anyone studying world affairs and making lans. The world does not hate Canada. Bullying a smaller neighbor... and people not speaking up on social media.
 
