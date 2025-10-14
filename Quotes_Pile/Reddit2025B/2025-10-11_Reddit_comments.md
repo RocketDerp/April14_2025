@@ -1797,4 +1797,65 @@ https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages
 
 You have to halt entertainment, you have to halt the self-harm and use social media to be SERIOUS and SUSTAINED about NONFICTION education and leraning. Not meme-washing amusement mills.  People are doing ANYTHING to avoid facing up to the repeating news to study and face Neil Postman's books. The mockery and mocking is the problem.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
 
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhpck2/
+
+Satire-washing serious media ecology crisis with low-effort mockery-washing comments.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhp4uw/
+
+Highly upvoted / liked Reddit comment. 2-words. Calling Tony Clifton act terrible and bad. Unable to call for organization and deal with media ecology crisis. This is what Reddit society has been messsage-washing commenting-washing like this FOR OVER TEN YEARS AND THREE MONTHS of insulting and mocking Tony Clifton acts without ability to describe Surkov governing / Andy Kaufman. Eating the Onion.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhq09s/
+
+Audiece of Reddit crying out for more name-calling and insulting like Trump does. More profantiy worship and trash media. Not calling for nonfiction, not calling for goodness, but dreaming up what next season of bullshit society shit to swim in.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhprkj/
+
+This use of inforamtion system to do this kind of commenting FOR OVER TEN YEARS AND THREE MONTHS is a disgrace to information systems and sharing. An audience who can not stop insulting and mocking with reactions as they eat the Tony Clifton Onion Dance and Songs.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhqb6a/
+
+Constantly falling for the skin color superficial topic. Attracted to a skin color to comment upon. Fixataed on shallow and superficial, exactly why Trump dresses and behaves this Tony Clifton way.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhr05u/
+
+So enagged, so entertained at saying how Fat Tony Clifton is.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhqa3u/
+
+Abnndon nonfiction. Stop reporting reality of what sells. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhqv1l/
+
+Back when audiences wanted nonfiction. Now the addiction to low-effort trash comments and ficiton storytelling and addiciton to mocking in a nation of total mockery has taken over. High-speed touch devices is what changed.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhsp2d/
+
+Back when audiences gave a shit for nonfiction and comprehension and all getting on the same page of important and serious nonfiction topics. ... ... ...      
+“In America, everyone is entitled to an opinion, and it is certainly useful to have a few when a pollster shows up. But these are opinions of a quite different order from eighteenth- or nineteenth-century opinions. It is probably more accurate to call them emotions rather than opinions, which would account for the fact that they change from week to week, as the pollsters tell us. What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, **irrelevant, fragmented or superficial information -- information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhqvvr/
+
+Exactly as intended from audience. Hate, fixated on one person, status symbol fixation. "MAGA tears", "liberal tears", "Trump tears", "voter tears", prizing of suffering of Americans mind-fucked by Putin / Russia.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhpuz1/
+
+Hate, fixated on one person, status symbol fixation. "MAGA tears", "liberal tears", "Trump tears", "voter tears", prizing of suffering of Americans mind-fucked by Putin / Russia.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhqgej/
+
+People love that Russia mind-fucked the population into anti-reality since year 2013 using Cambridge Analytica doctors.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhrbyn/
+
+Trump's job is to entertain you on Reddit. He is seving Putin as Surkovin governing. The goal is to destroy the USA through media addiction and Reddit is promoting that mockery. Reddit is part of the Total Mockery nation. Avoidance of nonfiction drives Reddit and Trump White House.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhqxca/
+
+"LOL" entertained. Neil Postman wrote a book in 1985 called "LOL Ourselves To Death" about media ecology of reddit users, how they would rather LOL than turn to serious nonfiction learning.  ... ... ...      
+“In America, everyone is entitled to an opinion, and it is certainly useful to have a few when a pollster shows up. But these are opinions of a quite different order from eighteenth- or nineteenth-century opinions. It is probably more accurate to call them emotions rather than opinions, which would account for the fact that they change from week to week, as the pollsters tell us. What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, **irrelevant, fragmented or superficial information -- information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show entertains but does not inform, I am saying something far more serious than that we are being deprived of authentic information. I am saying we are losing our sense of what it means to be well informed. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/CringeTikToks/comments/1o6njql/trump_i_dont_take_questions_from_abc_fake_news/njhsnzv/
+
+Reddit commenting is dogshit. Nobody is standing up to the media addictions spelled out in Neil Postman's 1985 book "Amusing Ourselves To Death", instead shit wroship low-effort commenting about Trump for OVER TEN YEARS AND THREE MONTHS has destroyed and wrecked minds in society.
 
