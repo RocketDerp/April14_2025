@@ -1525,3 +1525,5 @@ You are given a two hour window, and complain after only 15 minutes. Dehumanizin
 https://old.reddit.com/r/walmart/comments/1o61uje/there_was_a_911_emergency_at_the_store_which/njdlijw/
 
 https://old.reddit.com/r/walmart/comments/1o61uje/there_was_a_911_emergency_at_the_store_which/njdi04j/
+
+https://old.reddit.com/r/walmart/comments/1o61uje/there_was_a_911_emergency_at_the_store_which/nje0bcm/
