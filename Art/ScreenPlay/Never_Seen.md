@@ -2,7 +2,7 @@
 
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m35oj37cxs2v      
 https://autistics.life/@RoundSparrow/115372404482049850   
-https://old.reddit.com/r/GotFullStock/comments/1o6e2sb/i_will_now_proceed_to_entangle_the_entire_area/?    
+https://old.reddit.com/r/GotFullStock/comments/1o6e2sb/i_will_now_proceed_to_entangle_the_entire_area/    
 
 &nbsp;
 
