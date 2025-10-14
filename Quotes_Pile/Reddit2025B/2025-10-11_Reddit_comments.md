@@ -1886,9 +1886,33 @@ The interpretation tool is the Great Seal of the United States of America. If yo
 
 https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/njihff3/
 
-Hence why you don't downvote and punch-dwon on people you find odd, unusual, out of tune, Jesus "The least of these" Bible verse Matthew 25:40 known for 2,000 years, unpopular, confused, bewildered, in distress, damaged. But machine lovers wee a person in weakness and punch with machines. Bullying, mocking, insulting.
+Hence why you don't downvote and punch-dwon on people you find odd, unusual, out of tune, Jesus "The least of these" Bible verse Matthew 25:40 known for 2,000 years, unpopular, confused, bewildered, in distress, damaged. But machine lovers wee a person in weakness and punch with machines. Bullying, mocking, insulting. And no, bullies don't "always' in pure logic obdience. That's Twitter-think short-message logic that things are incredibly simple and human persons follow logic rules. Over-simplification that comes from prizing disposable commenting.
 
 https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/njig280/
 
 A show of dehumanization. A show of weapon systems worship over human persons and education.  A show of international news press events creation.
+
+https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/nji9x03/
+
+Satire-washing Trump as great entertainment for Reddit audiences as Trump has been FOR OVER TEN YEARS AND THREE MONTHS. Constantly wasing Trump as a source of entertainment, putting a coat of satire-paint on Trump to keep the audience amused and entertained. Meme stupoer popululation. Conditioned mindsets say the same sort of phrase when Islamic terrorism comes up, "The Preace POTUS", "The Religion of Peace" to mockery-wash the problems of monomty warfare and education problems Malala addresses. Mockery of Malala's teachings and education focus with satire-washing and mockery-washing Reddit commenting.
+
+https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/njiayw4/
+
+Imagine if  Palestine were doing it to UK boats. Imagine if Israel were doing it to boats from Spain. Iagine if Ukraine were doing it to boats from Canada. etc. etc. 
+
+https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/njie1gf/
+
+For Reddit audience entertaiment "fun". People have been flocking to Trump antics and Trump behaviors for OVER TEN YEARS AND THREE MONTHS. Mocking and insuting Trump and Trump supporters as fun sport of mocking and hating out-groups. Faith in mocking messages, time invested in hate and mocking. That's the religion faith of Reddit culture: mock and hate. There are no supernatural religions, there are just media platforms like Biblbe / Torah / Quran and media veneus like Church and Mosque and Reddit and Elon Musk Twitter and Rupert Murdoch Fox News. It is all media.
+
+https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/njidnbr/
+
+Reddit audinences love avoiding nonfiction learning on media cult behaviors.
+
+https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/njigxbh/
+
+Why can't you link or cite the page of a 2,000 year old book? Anti-citation mockery low-effort commenting is prized on Reddit. Disposable commetning, no concern to get on the same page of Bible literacy problems.
+
+https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/njibvo5/
+
+Fiction is popular. QAnon monomyth fiction storytelling is popular. Bible fiction storytelling monomyth is popuar. Nonfiction is considered boring and udnesired and gets mocked as "off topic", not entertaining.
 
