@@ -1877,10 +1877,6 @@ This fusion of despotism and postmodernism, in which no truth is certain, is ref
 
 https://old.reddit.com/r/law/comments/1o6ocgl/trump_stating_he_is_going_after_democratic/njhxy6s/
 
-https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fv4q/apparently_insurrections_are_bad_for_business/njg6tac/
-
-A short-tiny Reddit comment message dehumanizng a person for "help stop hate". Machine touch-device lust lovers who hate and dehumanize people. 
-
 The deepest tragedy in USA is the abandonment of nonficiton in favor of disposable commenting messages that are bullshit entertainment to people. The abandonment of media ecology self-awareness and learning. The forgotten Marshall McLuhan.
 
 https://old.reddit.com/r/law/comments/1o6ocgl/trump_stating_he_is_going_after_democratic/njhy7zh/
@@ -1922,5 +1918,5 @@ Fiction is popular. QAnon monomyth fiction storytelling is popular. Bible fictio
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fv4q/apparently_insurrections_are_bad_for_business/njg6tac/
 
-<img width="1616" height="224" alt="image" src="https://github.com/user-attachments/assets/cc3c31c2-e9a6-4680-ba08-d7ed52b5680a" /> Dehumaizing a person for "Help Stop Hate" messages. Hate Harder values. People prize hate. People think hate upon Donald Trump and insulting Trump FOR OVER TEN YEARS AND THREE MONTHS is not the problem. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+<img width="1616" height="224" alt="image" src="https://github.com/user-attachments/assets/cc3c31c2-e9a6-4680-ba08-d7ed52b5680a" /> A short-tiny Reddit comment message dehumanizng a person for "help stop hate". Machine touch-device lust lovers who hate and dehumanize people. *Hate Harder* behavior and values. People prize hate. People think hate upon Donald Trump and insulting Trump FOR OVER TEN YEARS AND THREE MONTHS is not the problem. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
  
