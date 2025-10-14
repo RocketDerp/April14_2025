@@ -29,12 +29,19 @@ https://old.reddit.com/r/clevercomebacks/comments/1o5tdgt/the_problem_is_a_misun
 
 &nbsp;
 
-&nbsp;
+.
 
 &nbsp;
 
+.
+
 &nbsp;
 
+.
+
+&nbsp;
+
+.
 
 ### "love for the poor"
 
