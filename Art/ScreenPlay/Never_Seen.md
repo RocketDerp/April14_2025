@@ -10,7 +10,7 @@ https://old.reddit.com/r/GotFullStock/comments/1o6e2sb/i_will_now_proceed_to_ent
 
 &nbsp;
 
-We have known for 2,000 years, it was recorded in the Levant and it was networked and shared and written down and memorized and passed down. Bible verse  "1 John 4:20" - there is no God, you have never ***Seen God** - "1 John 4:20"
+We have known for 2,000 years, it was recorded in the Levant and it was networked and shared and written down and memorized and passed down. Bible verse  "1 John 4:20" - there is no God, you have never ***Seen God*** - "1 John 4:20"
 
 "1 John 4:20" /\ God is Fiction Story
 
