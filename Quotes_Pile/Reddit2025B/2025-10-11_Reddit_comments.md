@@ -1669,3 +1669,7 @@ https://old.reddit.com/r/politics/comments/1o6gfhw/america_is_going_broke_slowly
 
 And we all smell smoke, all the rescue boats are racing away, driven away by USAID and other world wide hate messaging. Attacking Canada is not going to be ignored by anyone studying world affairs and making lans. The world does not hate Canada. Bullying a smaller neighbor... and people not speaking up on social media.
 
+https://old.reddit.com/r/Damnthatsinteresting/comments/1o6k3uj/in_2003_a_massive_library_was_discovered_in_tibet/njhe75d/
+
+<img width="1614" height="624" alt="image" src="https://github.com/user-attachments/assets/411f918a-badf-4b23-b220-aa7373655f13" /> I got this reply, but as soon as this posting hit front page of Reddit at 1 hour, it was LOCKED from commenting furrther / deleted and purged.
+
