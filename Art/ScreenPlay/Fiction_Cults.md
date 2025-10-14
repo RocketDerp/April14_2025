@@ -28,3 +28,5 @@ Now We The Nation, United States of America, EVERYONE - not just MAGA, not just 
 &nbsp;
 
 "there are some things so dear, some things so precious, some things so eternally true that they're worth dying for. And if a man happens to be 36 years old, as I happen to be, and some great truth stands before the door of his life, some great opportunity to stand up for that which is right, he's afraid his home will get burned, or he's afraid that he will lose his job, or he's afraid that he will get shot or beat down by state troopers. He may go on and live until he's 80, but he's just as dead at 36 as he would be at 80. And the cessation of breathing in his life is merely the belated announcement of an earlier death of the spirit. He died... A man dies when he refuses to stand up for that which is right. A man dies when he refuses to stand up for justice. A man **dies when he refuses to take a stand for that which is true**." - Dr. Martin Luther King Jr.
+
+Fiction is not true. Fiction is fiction. Fox News is fiction. Truth Social is fiction. We have a fiction addiction problem.
