@@ -26,3 +26,15 @@ Still Monday. Front page.
 https://old.reddit.com/r/NoFilterNews/comments/1o5vlw4/trump_just_called_watergate_an_illegal_hoax/
 
 Trump throws out a symbolic gumbo of mind-fuck, and the audience flocks chasing it like a dog chasing a ball thrown by the owner. Trump is reprogramming minds in Vlad Surkov student techniques, Tony Clifton declaring the absurd and surreal, except nobody on Reddit can name Surkovian methods or Peter P's books and Cambridge Analytica mind patterns. How to blow audience minds: It's a halmark of Tony Clifton performances. For example, a 2000 retrospective in The Guardian describes an announcer introducing Clifton as "a man who has sold more records than Elvis and the Beatles combined". https://www.theguardian.com/film/2000/may/25/comment
+
+&nbsp;
+
+Tuesday October 14, 2025 morning - Front Page of Reddit
+
+https://old.reddit.com/r/clevercomebacks/comments/1o6cp7y/they_have_no_historical_memory/
+
+"they" write shallow non-menaingful Titles for posting. They prize low-effort disposable commenting. The dates of this screen shot have again been removed. It looks like a mockup, and not an actual screenshot, more simulacra. The blue checkarms next to both account names are to imply Twitter / X media platform? 
+
+It is simplistic, out-group programming, it is a simualcra of ressiting. It does not take sriously the media ecology crisis. It intends the audience to be banal and shallow and superficial on these topics and not face up to the world history of media ecology / Televison shows being covered on "the new media" of Twitter / Reddit / latest iPhone and Android app updates this month. ... ... ...      
+“The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan [Quotes from the film “This is Marshall McLuhan: The Medium is the Massage”, an experimental documentary produced by Ernest Pintoff and Guy Fraumeni, narrated by actor Edward Binnes and broadcasted on NBC TV (19 March 1967)](https://www.themediumisthemassage.com/the-film/)
+
