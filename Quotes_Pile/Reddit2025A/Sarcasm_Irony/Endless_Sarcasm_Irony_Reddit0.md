@@ -747,3 +747,7 @@ https://old.reddit.com/r/ThisYouComebacks/comments/1o5nmw3/barron_trump_tiktok_r
 Another paradox messaging on the front page. Reddit society eats this up. Unable to study nonfiction about Surkov govening methods / Putin and Surkov media systems of past 25 years.     
 https://old.reddit.com/r/agedlikemilk/comments/1o6caic/does_this_mean_antifa_has_an_airbase/
 
+&nbsp;
+
+Another paradox message on the front page. Reddit society can't identify this as Russian media techniques, Kremlin information warfare methods. People just eat it up and mock and insult how stupid and dumb the administration is while Kremlin and White House in 2025 rewrite language, reprogram minds, rewrite reality. War Against Reality / War Againt NonFiction is embraced by Reddit audience - as long as they can mock and insult and mockery-wash it as LOL content.       
+https://old.reddit.com/r/NoFilterNews/comments/1o6mqvc/none_of_the_last_31_political_attacks_was_by/
