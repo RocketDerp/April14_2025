@@ -1601,3 +1601,44 @@ https://old.reddit.com/r/news/comments/1o6g6dd/supreme_court_rejects_alex_jones_
 As Neil Postman predicted in year 1985 book "Amusing Ourselves To Death", the attraction to fiction entertainment and fiction storytelling outsells nonfiction and this will lead to a crisis in society. Note that this was published in 1985, BEFORE smartphones and before Bluesky and before Reddit and before Twitter, so it does not name the Apple iPhone like a televison set / television screen. ... ... ...    
 "What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a **coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show **entertains but does not inform**, I am saying something far more serious than that we are being deprived of authentic information. I am saying **we are losing our sense of what it means to be well informed**. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fhue/dr_phil_on_the_brink_of_total_collapse_after_maga/njg13to/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) Entertainment "news" shows don't get blamed. Entertainment "reddit" news, etc. Neil Postamn's 1985 book "Amusing Ourselves To death". 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fhue/dr_phil_on_the_brink_of_total_collapse_after_maga/njg3gny/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fhue/dr_phil_on_the_brink_of_total_collapse_after_maga/njgaqv1/
+
+Fiction "nonsense" outsells nonfiction. It is popular to create fiction storytelling and air it on television.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fhue/dr_phil_on_the_brink_of_total_collapse_after_maga/njg2mhb/
+
+Fiction "Satan character" outsells nonfiction. It is popular to create fiction storytelling and air it on television.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fhue/dr_phil_on_the_brink_of_total_collapse_after_maga/njg4qvs/
+
+Sadly, people are motivated to sell fiction storytelling and even give their life for fiction storytelling. Russian solders are not wealty, giving their lives for the fiction storytelling  the Kremlin has about Ukraine. Terrorists suck down fiction storytelling in Mosque and wage war against people who don't belive in Quran storybook supremacy over all other books in the public library, etc.  Fox News audiences....
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fhue/dr_phil_on_the_brink_of_total_collapse_after_maga/njgmfks/
+
+Like video game High School / Speedrunners. It's power over a maze. A Bloomberg Terminal is a number to chase on a screen. Right off of humanism into number addictions.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o6eyww/someone_should_tell_her/njg9m1k/
+
+<img width="1632" height="766" alt="image" src="https://github.com/user-attachments/assets/3f8f69ff-20e7-4313-b52d-d7a70177492b" /> "intentionally blind person", when fiction dominates all educaiton and teaching of adults, when Reddit culture and Reddit society prizes fiction over nonfiction, this is the result. "Murdered BY WORDS!" Entertainment framing of everything, Bluesky, Twitter, Facebook, Instagram, meme-wrapping every topic in candy entertainment. It overloads minds. It isn't intentional blind, it is the synptom of junk information wrapping. ... ... ...    
+"What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a **coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show **entertains but does not inform**, I am saying something far more serious than that we are being deprived of authentic information. I am saying **we are losing our sense of what it means to be well informed**. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/MurderedByWords/comments/1o6eyww/someone_should_tell_her/njgcm07/
+
+The paanic of my words, and me not hiding my identity / having quotes I use that people know it is me... triggers reactionary egomania in audiences to attack the messenger and NOT engage the nonfiction books and writings. People are anti-learning anti-comprehension on serious subject. And there are active measures at play.
+
+https://old.reddit.com/r/MurderedByWords/comments/1o6eyww/someone_should_tell_her/njghs1v/
+
+Climate change has not been the *temporary* event people have played my whole lifetime since age 10. Carl Sagan made this a topic in 1980 Cosmos https://gizmodo.com/heres-carl-sagans-original-essay-on-the-dangers-of-cl-1481304135 when comparing atmosphere in other planets. And in year 1985 Sagan directly as a topic. https://www.youtube.com/watch?v=Wp-WiNXH6hI
+
+https://old.reddit.com/r/MurderedByWords/comments/1o6eyww/someone_should_tell_her/njgtcy1/
+
+No, people are not awake. Not Woke to Finnegans Wake year 1924 from James Joyce, WAKE is in the title of the book, Woke. People are not woke to the media ecology probelms of Bluesky and Reddit. Everyone creating disposable commenting on different pages and no sense of importance and priority other than entertainment / stimulation of excitement. Neil Postmans 1985 book "Amusing Ourselves To Death" is 184 pages of common mindset every person needs to face now.
+
+
+
