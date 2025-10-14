@@ -1720,3 +1720,28 @@ https://old.reddit.com/r/technology/comments/1o6moi8/i_love_hitler_leaked_messag
 
 <img width="1546" height="744" alt="image" src="https://github.com/user-attachments/assets/482e825e-96db-45f0-be2e-1f9746995ee6" /> Reddit users since May 2008. **Reddit was ground zero for self-harm mental mind-virus (Musk term) spreading to entire USA population. The_Donald - IRA ground zero for deepest penetration of minds, Cambridge Analytica payloads ground zero. People ate it up and never ever undid the brain damage. 
 
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhaz1u/
+
+Prizing suicide, prizing your enemy self-harm, prizing self-harm.
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhlg2u/
+
+Amost a pride? Like subreddit /r/LeopardsAteMyFace hate trainin ground to cheer on Russia mind-fucking MAGA?
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhnf7k/
+
+Yes, Media Woke. Wake woke. Finnegans Wake Joyce. Pointing to Reddit and chat groups as ground zero for hate breeding with machiune lust and human hate.
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhicqd/
+
+Fox News childhood, parents feeding child. That's how education works. Classrooms and school are not how childrey learn morality. They learn from television and science fiction Church storytelling and video games. ... ... ...       
+"Well we are in a period now where I have already mentioned… And these are the phenomenon that Baudrillard examines with the most care. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how children used to learn morality from their parents and now I think that Super Mario Brothers. They spend much more time with Super Mario Brothers and are much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers." - Duke University, Texan Rick Roderick, 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhq78w/
+
+<img width="950" height="494" alt="image" src="https://github.com/user-attachments/assets/e16e120a-5239-464a-9280-39eba6524613" /> Media systems teach hate! Major story. Terrorist Mosques teach hate. Saudi Arabia did September 11, 2001 inspirational training in Mosques. Reddit teaches hate. Garbage into your minds media is prizing of garbage. Low-effort commenting creates low-effort thinking patterns and avoidance of nonfiction!
+
+https://old.reddit.com/r/politics/comments/1o6lppi/i_love_hitler_leaked_messages_expose_young/njhm2y0/
+
+<img width="974" height="448" alt="image" src="https://github.com/user-attachments/assets/aa8bc404-3d16-4eb5-a1e2-0e6b062d2c3f" /> Media Mania. Social media mania. Fox News mania. Reddit mania. Bluesky mania. Quran Mosque mania. Bible Church mania. Meme life anti-humanism mania, addiction to messages John 1:1 over humans - "1 John 4:20" mania.
+
