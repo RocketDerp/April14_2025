@@ -1582,3 +1582,22 @@ https://old.reddit.com/r/videos/comments/1o6dzhz/obama_theres_a_rising_wave_of_a
 
 We are post-conspiratorial world now, Russian information warfare destroyed irony, satire, conspiracy, absurd, surreal, mockery, etc.
 
+https://old.reddit.com/r/news/comments/1o6g6dd/supreme_court_rejects_alex_jones_appeal_of_14/njg83r1/
+
+The supreme court is throwing the fiction storyteller "under the bus". Like Charlie Kirk, Alex Jones is a replacalbe front-line fiction stroytelling venue / outlet / amplifier. Maybe Jones will have outlaw appeal / underground appeal for the cults of monomyth fiction arrangements.
+
+https://old.reddit.com/r/news/comments/1o6g6dd/supreme_court_rejects_alex_jones_appeal_of_14/njgd46y/
+
+But not Russian, not Palestine, not Israel, not Afghanistan, not Iran, not Pakistan, etc, etc, etc. Rupert Murdoch media empire alone spans the world. ... ... ...      
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Ocotber 8, 2013.
+
+https://old.reddit.com/r/news/comments/1o6g6dd/supreme_court_rejects_alex_jones_appeal_of_14/njgem14/
+
+And the people you call "trash", call you "trash" and dehumanize you back. Every person in USA calling out-groups trash, idiots, stupid, dumb, etc. Cambridge Analytica mind-fucked everyone into Americans hate Americans - nobody calling out Surkovian Putin governing.
+
+https://old.reddit.com/r/news/comments/1o6g6dd/supreme_court_rejects_alex_jones_appeal_of_14/njg6kqg/
+
+As Neil Postman predicted in year 1985 book "Amusing Ourselves To Death", the attraction to fiction entertainment and fiction storytelling outsells nonfiction and this will lead to a crisis in society. Note that this was published in 1985, BEFORE smartphones and before Bluesky and before Reddit and before Twitter, so it does not name the Apple iPhone like a televison set / television screen. ... ... ...    
+"What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a **coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show **entertains but does not inform**, I am saying something far more serious than that we are being deprived of authentic information. I am saying **we are losing our sense of what it means to be well informed**. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
