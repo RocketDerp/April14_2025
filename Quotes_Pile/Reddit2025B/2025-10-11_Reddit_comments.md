@@ -1864,3 +1864,13 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1o6n6pl/petah/njhmyzw/
 
 Describing the Reddit low-effort commenting "hive Mind" Mob Mentality experience of everyone rushing to create comments without any self-awareness of the mob mentality that abounds.
 
+https://old.reddit.com/r/law/comments/1o6ocgl/trump_stating_he_is_going_after_democratic/nji3ou2/
+
+Anyting that favors nonfiction, science learning, comprehension, understanding, anytihng that stands up to all the things Russia's "War Against Reality" since year 2013. Mhyhologicla takeover of society via media systems programming. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/law/comments/1o6ocgl/trump_stating_he_is_going_after_democratic/njhx52y/
+
+<img width="908" height="362" alt="image" src="https://github.com/user-attachments/assets/ca327e74-13b3-4e3a-b7a7-e3d26df938a0" /> I'm aware I repeat myself over and over. I'm aware WHY people repeat over and over.  I'm aware why Fox News HDTV repeats things over and over. ... ... ...     
+"the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. Surkov is at the centre of the show, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable.
+
+This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for neuro-linguistic programming and Eriksonian hypnosis: types of subliminal manipulation based largely on confusing your opponent, first developed in the US in the 1960s. There are countless NLP and Eriksonian training centres in Moscow, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator. Newly translated postmodernist texts give philosophical weight to the Surkovian power model. François Lyotard, the French theoretician of postmodernism, began to be translated in Russia only towards the end of the 1990s, at exactly the time Surkov joined the government. The author of Almost Zero loves to invoke such Lyotardian concepts as the breakdown of grand cultural narratives and the fragmentation of truth: ideas that still sound quite fresh in Russia." - October 20, 2011 - https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
