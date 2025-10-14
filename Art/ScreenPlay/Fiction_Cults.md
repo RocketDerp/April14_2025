@@ -31,3 +31,6 @@ Now We The Nation, United States of America, EVERYONE - not just MAGA, not just 
 
 Fiction is not true. Fiction is fiction. Fox News is fiction. Truth Social is fiction. We have a fiction addiction problem. "A man **dies when he refuses to take a stand for that which is true**." - Dr. Martin Luther King Jr. The fiction vs. nonfiction favoring of media content. The monomyth fiction crisis. Neil Postman, Marshall McLuhan, MLK Jr, James Joyce - https://youtu.be/rZoD8JEFjAE?t=165 **EVERYONE IS WATCHING** Donald Trump on the World Stage, look at the Fox News audience, look at Donald Trump the member of society who adores Fox News since year 1996.
  
+Screenplay, where next We The People, where next the Mass Man of USA. What are we going to teach the world of over 8 billion people, what do we have to share?
+
+Can we all sing Neil Postman's 184 pages and get on *the same page* and blame a 1985 book comprehension as our problem? Let a dead man's 1985 words speak for us and admit our media addiction issues and compusive attraction to Donald Trump playing President Tony Clifton the Entertainment POTUS? https://www.youtube.com/watch?v=OZGRW-T2Vgk
