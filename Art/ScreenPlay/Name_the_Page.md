@@ -48,3 +48,7 @@ Monday, October 13, 2025. Donald Trump sells a Bible for $59.99, and we can not 
 
 "1 John 3:17" - that is the identifier.
 
+
+&nbsp;
+
+Is it because of MS-DOS / PC-DOS and *colon* in the filename? Spaces in the filename?
