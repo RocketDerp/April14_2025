@@ -20,4 +20,4 @@ General timeline
 
 4. June 2, 2014 it is reported (in English) the Internet is a major front of the world war / conservatives attacking all liberals on the World Wide Web https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america
 
-5. 
+
