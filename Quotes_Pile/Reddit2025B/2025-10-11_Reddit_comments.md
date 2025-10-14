@@ -1692,4 +1692,31 @@ https://old.reddit.com/r/Fauxmoi/comments/1o6j81d/natalie_portman_reflects_on_th
 
 https://old.reddit.com/r/Fauxmoi/comments/1o6j81d/natalie_portman_reflects_on_the_release_of/njgweju/
 
+https://old.reddit.com/r/technology/comments/1o6moi8/i_love_hitler_leaked_messages_expose_young/njhizia/
+
+The dehumanizing all over every media platform in USA is not a joke. Super-tiny 3-word messages and avoidance of nonfiction is not joking. It is the abandonment of goodness in favor of SUPER HIGH SPEED messaging systems. Telegram, Reddit, Bluesky, Elon MUsk Twitter, Trump Truth Social, high-speed TCP/IP messaging is what people prize over goodness. The more you can rapidly react and manipulate others into self-harm USA... the more it is prized. A contest of racing ot faster and faster low-effort messsaging a race to the bottom, a race away from nonfiction and compassion teaching.
+
+https://old.reddit.com/r/technology/comments/1o6moi8/i_love_hitler_leaked_messages_expose_young/njhin9n/
+
+Yes, as each comment messages does on Reddit since year 2013.
+
+https://old.reddit.com/r/technology/comments/1o6moi8/i_love_hitler_leaked_messages_expose_young/njhjnai/
+
+Mocking that you don't need love and don't need compassion and that others standing up for truth and compassion are "weak" is popular. Toxic popularity is ruling the nation. Popularity itself has become toxic, mob mentality abounds.
+
+https://old.reddit.com/r/technology/comments/1o6moi8/i_love_hitler_leaked_messages_expose_young/njhkujz/
+
+Self-expliting the brain with jokes and humor. Surkovian governing has weaponized this. IRA from Russia weaponized this. Infinite Jest V runaway attitude and prizing of jokes above prizing of compassion and love.
+
+https://old.reddit.com/r/technology/comments/1o6moi8/i_love_hitler_leaked_messages_expose_young/njhl8z2/
+
+4Chan, Reddit, Bluesky, etc.
+
+https://old.reddit.com/r/technology/comments/1o6moi8/i_love_hitler_leaked_messages_expose_young/njhm2x4/
+
+"Amusing Ourselves To Death", "Joking Ourselves To Death" is a 1985 book by NYU Professor Neil Postman about high-speed media systems like Reddit, Bluesky, Fox News, Instagram, TikTok, YouTube, ...
+
+https://old.reddit.com/r/technology/comments/1o6moi8/i_love_hitler_leaked_messages_expose_young/njhnao3/
+
+<img width="1546" height="744" alt="image" src="https://github.com/user-attachments/assets/482e825e-96db-45f0-be2e-1f9746995ee6" /> Reddit users since May 2008. **Reddit was ground zero for self-harm mental mind-virus (Musk term) spreading to entire USA population. The_Donald - IRA ground zero for deepest penetration of minds, Cambridge Analytica payloads ground zero. People ate it up and never ever undid the brain damage. 
 
