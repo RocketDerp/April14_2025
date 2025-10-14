@@ -215,7 +215,7 @@ The IRA and CA mind-fucked away the "regular version" of reality into 5,000 patt
 
 https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixtfs3/
 
-South Park (fiction monomyth) satire-washing of serious real reality. Mockery-washing for the Reddit audience. Anything to avoid nonficiton serious sustained focus on critical topics of this media video / media ecology. ... ... ...
+South Park (fiction monomyth) satire-washing of serious real reality. Mockery-washing for the Reddit audience. Anything to avoid nonficiton serious sustained focus on critical topics of this media video / media ecology. ... ... ...      
 "unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
 https://old.reddit.com/r/illinois/comments/1o3vvse/a_new_noem_video_is_being_played_at_airports/nixw8y1/
@@ -1922,5 +1922,61 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fv4q/apparently_insurrect
 
 https://old.reddit.com/r/okbuddycinephile/comments/1o6reni/favorite_actress_that_unknowingly_caused_the/njj6ci7/
 
-Interesting observation. That mocking Trump gave Putin more power over USA. It maked Trump into Infinite Jest V, weaponzied joke. The population can not in any way resist mocking and insultint Trump, people yeild power and wealth over to service the mocking of Trump.
+<img width="962" height="364" alt="image" src="https://github.com/user-attachments/assets/3e9c8be8-643e-4fe5-b8db-0e8970eee86d" /> Interesting observation. That mocking Trump gave Putin more power over USA. It maked Trump into Infinite Jest V, weaponzied joke. The population can not in any way resist mocking and insultint Trump, people yeild power and wealth over to service the mocking of Trump.
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/nji3e9g/
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njh9p6z/
+
+<img width="1124" height="466" alt="image" src="https://github.com/user-attachments/assets/2ef2d375-2910-41b2-ae91-b65a614a2e0f" /> The media people create is a reflection of their focus and what they want to pass down to children as values. Being alone in my interest in nonfiction, scilence leadership, the world described by Carl Sagan's 1995 is horrific. People have no interest in facing their addiciton to the Total Mockery. It went on even when Trump was not in office year 2015, year 2021, year 2022, year 2023, year 2024 - it is endless cult of "orange man", "diaper poop", "golf outing", "his language", "his memes" constantly driving the mindsets of the population. Those who hate Trump do not see what hate does to their mind. And being satured in a 99.999% solution of hate in the USA is horrific and bad. ... ... ...      
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr. ... ... ...       
+"you see that everything, everything, has changed and changed completely under your nose. The world you live in—your nation, your people—is not the world you were born in at all. The forms are all there, all untouched, all reassuring, the houses, the shops, the jobs, the mealtimes, the visits, the concerts, the cinema, the holidays. But the spirit, which you never noticed because you made the lifelong mistake of identifying it with the forms, is changed. Now you live in a world of hate and fear, and the people who hate and fear do not even know it themselves; when everyone is transformed, no one is transformed. Now you live in a system which rules without responsibility even to God. The system itself could not have intended this in the beginning, but in order to sustain itself it was compelled to go all the way.”
+― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45. Published 1955
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njhdin3/
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/nji2dew/
+
+We have all experenced since 1996 encountering people in USA who take Fox News as nonfiction. We have experienced people who take The Bible as nonfiction. People created more and more no-identituy Reddit accounts that had cults and worship of low-effort anti-citation anti-science pro-fiction teaching.  Since year 2013, Reddit society prized hate and cleverness over authenticity and goodness. Flocking to Donald Trump since 2015 to worship the values of Trump mocking and Trump hate. Hate itself, mocking itself, trickery and cleverness and meme-think have taken over the nation. We all knew Fox News encounters with real living people in our community since year 1996 - and we did not stand up in year 2015 when Jen Senko stood up with her family. Social media did not make Jen Senko a household name in the past 10 years.. we all encountered the Fox News audience fiction addiction problem and have spread that same fiction addiction all over every media platform and every media system. 
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njh8ggd/
+
+Never enough wealth, never enough power, a role model of endless growth and wrecking of the Earth for badness prizing.
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njham3e/
+
+Donald Trump is an actor, he has found power in playing Tony Clifton to audience, and for OVER TEN YEARS AND THREE MONTHS, Reddit community flocks to their meme devices and touches out messages about how annoying Tony Clifton perfomances are. It concentrates power and wealth every time, Surkovian governing. And the nonfiction public library has been abandoned. Neil Postman's 1985 book avoided, learning about Surkov in Russia avoided.
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njhvvd3/
+
+Fiction content addicts flock to fill their entertainment addiction of declaring how "weak" Trump is. When he is one of the strongest media addiction leaders in all human history. People can not see Trump's strength in making people abandon nonfiction and abandon compasion in favor of faith in hate an mythology.
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/nji4eee/
+
+An entire population of peole wh prize having Donald Trump to declare they are better than over and over on low-effort disposable commenting systems. FOR OVER TEN YEARS AND THREE MONTHS, people have abandoned nonfiction learning and comprehension in favor of meme mill mocking how terrible and bad and ugly Donald Trump is. This is his power, making his haters slave to hate itself.
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njhdms6/
+
+I grew up in Fort Wayne Indiana. People who have a Reddit-like sports mentality, who like simualcra of rectangle basketball, NFL football, college sports, endlessly favoring rectangle devices. HDTV rectangel Fox News, rectangle smartphone Facebook. Donald Trump provides the media content of fiction. And peoople I grew up in were far more intersted in the fiction film Dumb and Dumber than they are learning serious nonfiction about how diseases spread or how advertising works, such as learning about Edward Bernays. Nonfiction was not attractive. Knowledge about entertainers was attractive. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njhfn1c/
+
+An image of Tony Clifton on stage / photograph of Tony Clifton act - is so funny and enertaining to meme addict audience of Reddit.
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njhw5fb/
+
+People are in denial of how outdated Hitler techniques of 1935 Germany are and how year 2011 Surkov techniques in Russia are for the color HDTV era.
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njhgglc/
+
+People flock to Reddit to see hundreds of photographsof Donald J Trump. Media addiction to Tony Clifton media shows.
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njic7x2/
+
+Surkovian governing exploits people who think they are clever. Drawing attention and flocking to baddness as leadership is the whole point of Surkovain methods. Mocking a Tony Clifton act as ugly is doing exactly what a Tony Cifton act intends of the audience. That's the brain exploit Russia defeated the USA with. The faith that mocking Barabara Streistan is the VERY TRAP people have jumped nto FOR OVER TEN YEARS AND THREE MONTHS endlessly mocking Donald J Trump.
+
+https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_cover_as_worst_of_all/njiptjl/
+
+That's the weapon. Endless media machines covering what people can not resist: mocking and insulting Trump playing Tony Clifton acts.
 
