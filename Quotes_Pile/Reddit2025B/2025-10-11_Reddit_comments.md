@@ -1682,6 +1682,14 @@ CAMPBELL: It’s power, it’s power. I think the power impulse is the fundament
 
 https://old.reddit.com/r/Fauxmoi/comments/1o6j81d/natalie_portman_reflects_on_the_release_of/njgy03d/
 
-Palestine is not a democracy. Terrorism ruled Palestine in September 2023 to do the attac October 7, 2023. Terrorists, sneaks, liars, manipulators. Here in USA, the world stage and world history will look about bragging of freedom bragging of free speech of social media, all the freedom to AVOID Malala as a topic, all the FREEDOM to avoid MLK Jr as a topic, all the FREEDOM to promote *hate harder* values as Trump, the *mock harder* nation. The nation that mocked and hated upon MLK Jr values, mocked and hated and gray-rocked Malala. The avoidance of goodness itself was every single person on touch devices using spare time and free time to do ANYTHING but stand up and teach MLK Jr's words against hate. They are one single click away on the World Wide Web. Preserved from February 28, 1954. Any person with free time and spare time to comment on social meme sites could have seen the message to repeat and keep repeating. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+Palestine is not a democracy. Terrorism ruled Palestine in September 2023 to do the sneak attack October 7, 2023. Terrorists, sneaks, liars, manipulators. Here in USA, the world stage and world history will look about bragging of freedom bragging of free speech of social media, all the freedom to AVOID Malala as a topic, all the FREEDOM to avoid MLK Jr as a topic, all the FREEDOM to promote *hate harder* values as Trump, the *mock harder* nation. The nation that mocked and hated upon MLK Jr values, mocked and hated and gray-rocked Malala. The avoidance of goodness itself was every single person on touch devices using spare time and free time to do ANYTHING but stand up and teach MLK Jr's words against hate. They are one single click away on the World Wide Web. Preserved from February 28, 1954. Any person with free time and spare time to comment on social meme sites could have seen the message to repeat and keep repeating. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/Fauxmoi/comments/1o6j81d/natalie_portman_reflects_on_the_release_of/njgw9dn/
+
+January 6, 2021 attackers were pardoned, etc. https://en.wikipedia.org/wiki/Pardon_of_January_6_United_States_Capitol_attack_defendants
+
+https://old.reddit.com/r/Fauxmoi/comments/1o6j81d/natalie_portman_reflects_on_the_release_of/njgzf4v/
+
+https://old.reddit.com/r/Fauxmoi/comments/1o6j81d/natalie_portman_reflects_on_the_release_of/njgweju/
 
 
