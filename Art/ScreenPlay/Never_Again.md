@@ -539,3 +539,4 @@ I did not cancel, this is inaccurate, I did NOT cancel the order!!!!
 
 <img width="858" height="902" alt="image" src="https://github.com/user-attachments/assets/cf7e0b22-ab92-4285-9f94-e20fca65ba0d" />
 
+"there was a 911 emergency at the store which caused cancellation of your order and all other orders at the store."
