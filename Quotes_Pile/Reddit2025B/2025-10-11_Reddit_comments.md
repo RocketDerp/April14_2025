@@ -1883,3 +1883,12 @@ https://old.reddit.com/r/law/comments/1o6ocgl/trump_stating_he_is_going_after_de
 
 The interpretation tool is the Great Seal of the United States of America. If you debase English language and turn everything into the "meme of the week" mindsets, people in LOL meme stupor all the time, you won't appreciate or grasp or understand or comrephend complex ideas. You will become angry that your LOL mental state and LMAO mindset isn't being stroked in egomania. This is the entire populaiton in October 2025. Russia won, Surkov won, IRA won since year 2013.  ... ... ...    
 "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/njihff3/
+
+Hence why you don't downvote and punch-dwon on people you find odd, unusual, out of tune, Jesus "The least of these" Bible verse Matthew 25:40 known for 2,000 years, unpopular, confused, bewildered, in distress, damaged. But machine lovers wee a person in weakness and punch with machines. Bullying, mocking, insulting.
+
+https://old.reddit.com/r/worldnews/comments/1o6q9ug/us_strikes_another_vessel_off_venezuela_coast/njig280/
+
+A show of dehumanization. A show of weapon systems worship over human persons and education.  A show of international news press events creation.
+
