@@ -42,7 +42,13 @@ The way we react to language, the ever-shifting meanings of words, and how that 
 
 Is the claim entirely bullshit?
 
-Константин Рыков. November 12, 2016. "
-Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. **Всё началось ночью с 6 на 7 ноября 2012 года.**"
+Константин Рыков. November 12, 2016. "Настало время замечательных историй. Расскажу вам о том (теперь уже можно), как мы с Дональдом Трампом приняли решение освободить Америку и сделать её снова великой. На это нам понадобилось целых 4 года и ещё 2 дня. **Всё началось ночью с 6 на 7 ноября 2012 года.**"
 
+What if Bullshit?
+
+1. Donald Trump never had this November 7, 2012 agreement. Then the Message of November 12, 2016 is itself a sign of information warfare. How Russia is using Trump as a symbolism MonoMyth "God" figure of "Dream Inception" level, incepting a God that could see that far ahead November 7, 2012. Before even the January 2013 creation of Cambridge Analytica
+
+2. There never was any Cambridge Analytica creating 5,000 patterns for the Internet Research Agency. The colaberation is a fiction story. That itself from November 12, 2016 is a origin story of super powers.
+
+That's the "Menace Of Unreality" described September 9, 2014 - the menace of blending of ficiton and nonficiton and people not caring except for the "Power Of Myth" / Power of Mythology monomyth meme patterns. 1988 book from Moyers / Campbell.
 
