@@ -38,7 +38,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1o6cp7y/they_have_no_historica
 It is simplistic, out-group programming, it is a simualcra of ressiting. It does not take sriously the media ecology crisis. It intends the audience to be banal and shallow and superficial on these topics and not face up to the world history of media ecology / Televison shows being covered on "the new media" of Twitter / Reddit / latest iPhone and Android app updates this month. ... ... ...      
 “The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan [Quotes from the film “This is Marshall McLuhan: The Medium is the Massage”, an experimental documentary produced by Ernest Pintoff and Guy Fraumeni, narrated by actor Edward Binnes and broadcasted on NBC TV (19 March 1967)](https://www.themediumisthemassage.com/the-film/)
 
-&nbdp;
+&nbsp;
 
 Tuesday October 14, 2025 mid-day front page
 
