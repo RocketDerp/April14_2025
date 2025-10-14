@@ -1919,4 +1919,8 @@ Fiction is popular. QAnon monomyth fiction storytelling is popular. Bible fictio
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1o6fv4q/apparently_insurrections_are_bad_for_business/njg6tac/
 
 <img width="1616" height="224" alt="image" src="https://github.com/user-attachments/assets/cc3c31c2-e9a6-4680-ba08-d7ed52b5680a" /> A short-tiny Reddit comment message dehumanizng a person for "help stop hate". Machine touch-device lust lovers who hate and dehumanize people. *Hate Harder* behavior and values. People prize hate. People think hate upon Donald Trump and insulting Trump FOR OVER TEN YEARS AND THREE MONTHS is not the problem. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
- 
+
+https://old.reddit.com/r/okbuddycinephile/comments/1o6reni/favorite_actress_that_unknowingly_caused_the/njj6ci7/
+
+Interesting observation. That mocking Trump gave Putin more power over USA. It maked Trump into Infinite Jest V, weaponzied joke. The population can not in any way resist mocking and insultint Trump, people yeild power and wealth over to service the mocking of Trump.
+
