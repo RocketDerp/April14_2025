@@ -18,3 +18,14 @@ We have known for 2,000 years, it was recorded in the Levant and it was networke
 John 1:1 / John One One
 
 "God" is a character in fiction story. "Hamlet's Ghost" is a character in fiction story. - Bible verse "1 John 4:20" - you have never seen Hamlet's Ghost, you have never seen God.  You have never seen the fiction character of Hamlet's Ghost, you have never seen the fiction character "God".
+
+&nbsp;
+
+## Seen Hamlet
+
+Seen *Book* Seen *Church* Seen *Mosque* Seen *Synagogue* 
+
+You have seen words, you have seen book, you have seen Church, you have seen Mosque, you have seen humans build Synagogue and Mosque and Church. Seen printing. - verse "1 John 4:20"
+
+You have seen people play Hamlet's Ghost character. Seen *Hamlet*
+
