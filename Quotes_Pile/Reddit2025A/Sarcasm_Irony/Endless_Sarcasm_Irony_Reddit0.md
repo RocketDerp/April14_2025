@@ -741,3 +741,9 @@ https://old.reddit.com/r/SelfAwarewolves/comments/1o4nw4m/look_whos_talking_abou
 
 Another paradox message / behavior pattern that the social media audiences mock at. Eating the Surkovin governing techniques, unable to name this as Russian methods.     
 https://old.reddit.com/r/ThisYouComebacks/comments/1o5nmw3/barron_trump_tiktok_role/
+
+&nbsp;
+
+Another paradox messaging on the front page. Reddit society eats this up. Unable to study nonfiction about Surkov govening methods / Putin and Surkov media systems of past 25 years.     
+https://old.reddit.com/r/agedlikemilk/comments/1o6caic/does_this_mean_antifa_has_an_airbase/
+
