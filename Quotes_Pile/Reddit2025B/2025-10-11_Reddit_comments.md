@@ -1576,3 +1576,9 @@ https://old.reddit.com/r/videos/comments/1o6dzhz/obama_theres_a_rising_wave_of_a
 Someone to economically punch down on, someone to Reddit message block and punch down on, someone to Bluesky message punch down on. People you can declare as stupid idiots. Everyone is *punching down* on Doanld Trump calling him a dumb idiot stupid orange skin poop diapers all day every day FOR OVER TEN YEARS AND THREE MONTHS. The perpetual mocking of Trump, the insutling of Trump, the attraction to the hate messages and Tony Clifton acting of Doanld Trump. Serious topics are washed away (Wake / Waves / Finnegans Waves / Wake) in the amsuement mill of Reddit commenting banality-track for the USA population. Any topic is reduced to tiny-think short-message memes and Trump keeps growing in power, Putin keeps winning the information war. Avoidance of nonfction at any price to the USA future is the society favoring, low-effort high-speed commenting diaper poop topics.  ... ... ... 
 “When a population becomes distracted by trivia, when **cultural life is redefined** as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk;” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
+https://old.reddit.com/r/videos/comments/1o6dzhz/obama_theres_a_rising_wave_of_authoritarianism/njfswx2/
+
+https://old.reddit.com/r/videos/comments/1o6dzhz/obama_theres_a_rising_wave_of_authoritarianism/njfux18/
+
+We are post-conspiratorial world now, Russian information warfare destroyed irony, satire, conspiracy, absurd, surreal, mockery, etc.
+
