@@ -823,3 +823,12 @@ https://www.youtube.com/watch?v=X5mVXHmZNnA
 Some genetic brain, different education / learning / input.
 
 https://old.reddit.com/r/science/comments/1o4afve/major_iq_differences_in_identical_twins_linked_to/
+
+&nbsp;
+
+### Media Ecology Pathways
+
+The path is the message, the walking path. The road ahead metaphors.
+
+https://old.reddit.com/r/woahdude/comments/1o6bcr7/a_security_guard_in_turkey_saved_a_woman_who_was/
+
