@@ -1531,3 +1531,5 @@ https://old.reddit.com/r/walmart/comments/1o61uje/there_was_a_911_emergency_at_t
 https://old.reddit.com/r/walmart/comments/1o61uje/there_was_a_911_emergency_at_the_store_which/njdxtyv/
 
 Home delivery customers seeking flexibility should  "absolutely not wait" like they are on the clock to micro-manage delivery. How dehumanizing / mechanistic in mindset.
+
+https://old.reddit.com/r/walmart/comments/1o61uje/there_was_a_911_emergency_at_the_store_which/nje8r6x/
