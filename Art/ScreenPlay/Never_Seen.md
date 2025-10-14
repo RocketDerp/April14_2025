@@ -23,9 +23,23 @@ John 1:1 / John One One
 
 ## Seen Hamlet
 
+&nbsp;
+
 Seen *Book* Seen *Church* Seen *Mosque* Seen *Synagogue* 
 
 You have seen words, you have seen book, you have seen Church, you have seen Mosque, you have seen humans build Synagogue and Mosque and Church. Seen printing. - verse "1 John 4:20"
 
 You have seen people play Hamlet's Ghost character. Seen *Hamlet*
+
+&nbsp;
+
+## verse "1 John 4:20": almost cut my hair
+
+&nbsp;
+
+"I will now proceed to entangle the entire area / Almost cut my hair / It happened just the other day / It was gettin' kinda long" - Bible verse "1 John 4:20"
+
+https://www.youtube.com/watch?v=as5lE64J1hQ
+
+as5lE64J1hQ
 
