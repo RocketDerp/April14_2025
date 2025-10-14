@@ -23,4 +23,4 @@ That is how we got where we are today in October 2025. That's the forest for the
 
 Now We The Nation, United States of America, EVERYONE - not just MAGA, not just White Housse, EVERYONE - even people too young to vote, even non-voters. We are now here, and we do not know why. 
 
-***Now you are here and you don't know why, we as a nation, don't know why** ... past the palces like Fox News year 1996, where you used to learn... https://www.youtube.com/watch?v=rZoD8JEFjAE
+***Now you are here and you don't know why, we as a nation, don't know why** ... past the palces like Fox News year 1996, where you used to learn... Neil Postman said all the right things in 1985, but he means nothing to you in October 2025, and you don't know why... https://www.youtube.com/watch?v=rZoD8JEFjAE
