@@ -46,3 +46,11 @@ https://old.reddit.com/r/technology/comments/1o6moi8/i_love_hitler_leaked_messag
 
 Joking, laughing, humor-washing, mockery-washing. Anything to avoid nonficiton learning. Just like Reddit, but this is a leak from Telegram. Where humor and jokes are the religion above all other religions. The God of self-exploiting the brain, bashing your brin into a LOL amusement stupor. Neil Postamns 1985 book "Amusing Ourselves To Death" described today October 14, 2025 on Reddit.
 
+&nbsp;
+
+Tuesday October 14, 2025 end of day front page
+
+https://old.reddit.com/r/inflation/comments/1o6rpaz/groceries_harder_to_afford/
+
+Simualcra of resistance. Trump creates a Total Mockery with his Tony Clifton antics politcs methods of acting for over TEN YARS AND THREE MONTHS. Then mocking back. It's entertaining to pople for TEN YEARS, but it does not remove. Surkovian governing is not removed by mocking, nor are Tony Clifton acts.
+
