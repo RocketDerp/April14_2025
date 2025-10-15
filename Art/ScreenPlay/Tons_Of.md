@@ -94,5 +94,19 @@ We Should be Inspired. For The World Needs...
 
 https://youtu.be/08R1kPdfrHA?t=4620
 
+1:16:40 
+
+"individuality for the presence of such people in our midst we ought to give a great deal of thanks and by their example we ought to be inspired within  the limits available to us both internal and external to do likewise.
+
+For the world needs people of this sort greatly and when indeed as all humans
+must... he also will take the great journey uh from the bounds of this world.
+
+There ought to be others Left Behind who in some way or the other will continue with
+what he has done and take up at least for a while or to some extent and degree
+1:17:40 the torch which he has carried and then perhaps perhaps this
+world will not be left in the darkness of Darkness but light will continue and Light will persevere and ultimately life and light and love will prevail."
+
+&nbsp;
+
 Who in some way or the other, will continue what he (Joseph Campbell) has done... at least take up for a while....
 
