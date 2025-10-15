@@ -20,10 +20,13 @@ It is blowing up in our faces. The fiction addiction to Fox News HDTV fiction, t
 
 I am EMPHASIZING it says Global. Ukraine, Russia, United States of America, Iran, Isreal, on and on and on.  
 
-“We've arranged a global civilization in which most crucial elements profoundly depend on science and technology. We have also arranged things so that almost no one understands science and technology. This is a prescription for disaster. We might get away with it for a while, but sooner or later this combustible mixture of ignorance and power is going to blow up in our faces.”
+“We've arranged a global civilization in which most crucial elements profoundly depend on science and technology. We have also arranged things so that almost no one understands science and technology. This is a prescription for disaster. We might get away with it for a while, but **sooner or later this combustible mixture of ignorance** and power is going to blow up in our faces.”
 ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
 Sooner, the March 2013 World Wide Web media systems, the Internet Research Agency, has erased fiction appreciation. The abandonment of media ecology, the abandonment of applying Marshall McLuhan to Donald Trump. McLuhan's NON FICTION understandings to the fiction storyteling of Putin and Trump.
 
 Sooner, blowing up in our face already.
 
+Sooner...
+
+* "I confess that I do not see what good it does to fulminate against the English tyranny while the Roman tyranny occupies the palace of the soul."  - Ireland, Island of Saints and Sages," lecture, Università Popolare, Trieste (27 April 1907). James Joyce.
