@@ -33,7 +33,7 @@ Reading a book is not the issue! Hate is the issue. We ahve KNOWN this since Feb
 
 Saying the book is the ONE AND ONLY ONE PERFECT SCIENCE FICTION STORY IN THE ENTIRE UNIVERSE is the problem.
 
-It is a MINDSETE that PREVENTS ME from making a science fiction story, say The Egg fro August 15, 2009 https://en.wikipedia.org/wiki/The_Egg_(Weir_short_story) - and saying that THIS STORY is EQUAL or BETTER than the 1,900 year old compilation of Matthew / Mark / Luke / John etc STORIES! 
+It is a **MINDSET** that PREVENTS ME OR SECOND-CLASS HUMAN ME from making a science fiction story, say The Egg story from August 15, 2009 https://en.wikipedia.org/wiki/The_Egg_(Weir_short_story) - and saying that THIS STORY is EQUAL or BETTER than the 1,900 year old compilation of Matthew / Mark / Luke / John etc STORIES in "The Bible" book! 
 
 Book supremacy, story supremacy, ONE AND ONLY ONE PERFECT BOOK EVER WRITTEN IN ALL THE PUBLIC LIBRARY. https://isbndb.com/blog/how-many-books-are-in-the-world/
 
