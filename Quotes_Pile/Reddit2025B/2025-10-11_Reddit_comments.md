@@ -1980,3 +1980,30 @@ https://old.reddit.com/r/politics/comments/1o6ldi3/trump_blasts_time_magazine_co
 
 That's the weapon. Endless media machines covering what people can not resist: mocking and insulting Trump playing Tony Clifton acts.
 
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjb79o/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjcd08/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjcrzw/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjd3us/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjj7nv/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjjqq3/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njji3pl/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjlukl/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjkb12/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjkdm2/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjotop/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjjr0e/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjokxq/
+
+https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjoqys/
