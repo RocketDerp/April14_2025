@@ -86,6 +86,10 @@ Now back to the Great Seal. When you count the number of ranges on this pyramid,
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m3asfv2mwc2i    
 https://autistics.life/@RoundSparrow/115379432937264545
 
+Will You *Help Him*? https://youtu.be/HjylD7esXDo?t=104
+
+.
+
 We Should be Inspired. For The World Needs...  
 
 https://youtu.be/08R1kPdfrHA?t=4620
