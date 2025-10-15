@@ -48,7 +48,7 @@ Sooner or later the origins of John 1:1 would come out...  the metaphro of John 
 Produced by Metro-Goldwyn-Mayer and released by United Artists on **Saturday** November 27, 1976      
 https://www.youtube.com/watch?v=XSU3QQvvYgE
 
-1776, Saturday 1976, Saturday July 4 2026 ...
+1776, Saturday 1976, Saturday July 4 2026 ... (27th Saturday of 2026)
 
 * "I confess that I do not see what good it does to fulminate against the English tyranny while the Roman tyranny occupies the palace of the soul." - "Ireland, Island of Saints and Sages," lecture, Università Popolare, Trieste (**Saturday** 27 April 1907)
 
