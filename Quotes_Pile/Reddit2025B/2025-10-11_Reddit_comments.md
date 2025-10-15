@@ -2113,3 +2113,8 @@ https://old.reddit.com/r/politics/comments/1o7abwa/full_list_of_young_republican
 https://old.reddit.com/r/politics/comments/1o7abwa/full_list_of_young_republicans_involved_in/njm8325/
 
 Satire-washing for the Reddit audience. By prasing this kind of bullshit Reddit comment message, we are prasing the way Trump communicates in Tony Clifton act satire. It's all normal now to trash any authenticity, nonfiction, and goodness in favor of wrecking the planet Earth with trash low-effort disposable commenting and satire / comedy / amusement-washing.
+
+https://old.reddit.com/r/todayilearned/comments/1o7faoy/til_that_five_us_presidents_thomas_jefferson_john/njnslxh/
+
+Look at the topic of my posting, about Jefforson not swearing on The Bible, and I made this on-topic comment WITH a citation link to Wikipedia. Downvoted, no replies. That's how hostile people are to nonfiction. Which that's the cut Thomas Jefferson did to the Bible, he removed the supernatural / fiction elements!
+
