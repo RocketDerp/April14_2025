@@ -2007,3 +2007,18 @@ https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_oha
 https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjokxq/
 
 https://old.reddit.com/r/technology/comments/1o6vl8x/reddit_cofounder_alexis_ohanian_says_much_of_the/njjoqys/
+
+Everything is fiction... what is everyone doing online? Flocking to the fiction. Do you see people using serious nonfiction and salvaging goodness? Do you see compassion lessons in the face of Donald Trump the past 10 years, or even this year? No matter how much hate and dehumanization people see in September 2025 and October 2025, people avoid asserting and sustaining repeating of goodness.  People do not call for hate, they just remark how "the other" group hates. Faith in hate has become normal, normalized. Fatih in mocking and insulting has become normal. Faith in calling for "Second Bill of Rights January 1944" - abandoned goodness.
+
+https://old.reddit.com/r/videos/comments/1o6wa9t/ice_fires_on_press_and_protestors/njjopue/
+
+Gun stroking worship. Guns don't fix Fox News cults. Guns don't fix low-effort disposable Reddit message cults.
+
+https://old.reddit.com/r/videos/comments/1o6wa9t/ice_fires_on_press_and_protestors/njjqpo1/
+
+Recency bias abounds. USA self-harming itself and addiction to touch device coneent trash that avois learning about te Internet Research Agency and Cambridge Analytica nonfiction.
+
+https://old.reddit.com/r/videos/comments/1o6wa9t/ice_fires_on_press_and_protestors/njjlspl/
+
+Entertainment-washing for Reddit audience. Mentally packaging this as fun. Satire-washing serious problems.
+
