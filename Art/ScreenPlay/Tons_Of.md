@@ -39,5 +39,11 @@ Looking up at Bible Verse John 1:1 - they ask, where do they lead? https://www.y
 
 Sooner or later... https://youtu.be/cfm4L0TGDrw?t=235
 
-Sooner or later the origins of John 1:1 would come out...  the metaphro of John 1:1 - the source - who is the author? Who is "Born Again", at age 21? https://youtu.be/QGJuMBdaqIw?t=41
+Sooner or later the origins of John 1:1 would come out...  the metaphro of John 1:1 - the source - who is the author? Who is "Born Again", at age 21? https://youtu.be/QGJuMBdaqIw?t=41 - spark it like the July 4th...
+
+... Saturday July 4, 2026 .... https://youtu.be/HjylD7esXDo?t=23 ... I've been WATING SUCH AS LONG TIME FOR SATURDAY! 
+
+
+
+
 
