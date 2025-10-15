@@ -14,14 +14,20 @@ Zero concern for:
 
 &nbsp;
 
-“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+* “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Publsihed October 8, 2013
 
-Does Malala say that Muslims don't "read The Quran", no they fucking read it, they memorize it, they re-read it OVER AND OVER AND OVER!
+Does Malala say that Muslims don't "read The Quran", no! They fucking read it, they memorize it, they re-read it OVER AND OVER AND OVER! Terorrists READ The Bible, terrorists READ the Quran, terrorists READ the Torah, terrorists read thier books!
 
 Clergy re-reads the Bible and Quran and Torah OVER AND OVER AND OVER.
 
-Reading a book is not the issue!
+&nbsp;
+
+Reading a book is not the issue! Hate is the issue. We ahve KNOWN this since February 28, 1954. It is now in every public library, the 1954 equation is on WikiQuotes! 
+
+* February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. **It's wrong to hate.** It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr. - https://en.wikiquote.org/wiki/Martin_Luther_King_Jr.
+
+&nbsp;
 
 Saying the book is the ONE AND ONLY ONE PERFECT SCIENCE FICTION STORY IN THE ENTIRE UNIVERSE is the problem.
 
