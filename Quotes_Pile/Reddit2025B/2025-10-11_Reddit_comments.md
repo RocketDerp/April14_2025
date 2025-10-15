@@ -2214,3 +2214,13 @@ https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_
 
 Russia doesn't even care about itself, it is a self-harm nation, and USA is following Russian monomyth, Surkov monomyth. It is self-harm. The abnadonment of goodness and the abadonment of Carl Sagan's teaching about science thinking is self-harm. Peole don't care about themselves, they care about fiction storytelling. It's a compusive monomyth fiction addiction, self-harm!
 
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njoyupx/
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njpho42/
+
+People on Reddit comment section can't even name "Cambridge Analytica" and "Internet Research Agency" - people on Reddit ACTIVELY meme-wash amusement-wash and entertainment-wash away every serious sustined focus in compusive media addiction. We The People are the problem, government and non-government inclusive. Neil Postman's 1985 book "Amusing Ourselves To Death" is ONE essential *get on the same 184 page book* to start facing THE REAL TRUE REALITY, of what Russia has done to this nation since year 2013.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njohxt6/
+
+Low-effort commenting works to put people into low-effort mindsets, constantly faoviring dispoable comment messages to amusement-wash and simple-think-wash the serious and complex Surkovian information warfare since year 2013 is the problem! Avodiance of serious nonfiction learning about proepganda and information warfare. People keep declaring there is a Fox News problem but in year 2015 when Jen Senko stands up on the Internet stage - crickets from Reddit community. Why isn't Jen senko repeated every 12 hours on the front-page of Reddit until she is a household name? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
