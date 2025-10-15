@@ -2119,4 +2119,12 @@ https://old.reddit.com/r/todayilearned/comments/1o7faoy/til_that_five_us_preside
 Look at the topic of the Reddit posting someone else did, about Jefferson not swearing on The Bible. I made this on-topic comment WITH a citation link to Wikipedia. Downvoted, no replies. That's how hostile people are to nonfiction. Which that's the cut Thomas Jefferson did to the King James Bible, he removed the supernatural / fiction elements! Expanding on the point of my Reddit comment: EVERY person should be cherry-picking from The Bible, every person should match up langauge and metaphors to their life. Sure, there is some common ground about hate being bad, about murder being bad. But on many of the elements free thinking and free will on matters like food rules / clothing fabric rules. It is an inspriational Science Fiction story, I don't gree with all the writing in Star Wars 1977 film! 
 
 
+https://old.reddit.com/r/therewasanattempt/comments/1o7fkn6/to_save_a_parking_spot_with_a_cone/njnadq6/
+
+The prizing of hate. One tiny video clip and mind in a hate state. 
+
+https://old.reddit.com/r/therewasanattempt/comments/1o7fkn6/to_save_a_parking_spot_with_a_cone/njnjc65/
+
+The more popualr Reddit comment was the prior one about hate.
+
 
