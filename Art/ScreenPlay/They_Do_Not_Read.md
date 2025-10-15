@@ -46,14 +46,14 @@ https://www.youtube.com/watch?v=h6fcK_fRYaI
 
 Book supremacy, story supremacy, ONE AND ONLY ONE PERFECT BOOK EVER WRITTEN IN ALL THE PUBLIC LIBRARY. https://isbndb.com/blog/how-many-books-are-in-the-world/
 
-And that's only couting books. Star Wars 1977 is a FILM. And there are TV shows. And there are "ORAL TRADITION" that is spoken, or danced, or sand paintings, or WHATEVER ELSE can be communicated in any media / medium / wahtever!
+And that's only counting some of the books. Star Wars 1977 is a FILM. And there are TV shows. And there are "ORAL TRADITION" that is spoken, or danced, or sand paintings, or WHATEVER ELSE can be communicated in any media / medium / wahtever!
 
-it is the SUPREMACY of a story or of an interpretation taken to terrroism and hate!
+It is the SUPREMACY of a story or of an interpretation taken to *terrroism and hate* prizing!
 
-People AFRAID of the overwhemlign number of human langauges, spoken and written, and newly coined words, newly invented languages (Pascal, C++, Ada, Python, Ruby, RISC V assembly langauge, JavaScript, etc, etc, etc, etc, etc, etc, etc, etc,)
+People AFRAID of the overwhelmign number of human langauges, spoken and written, symbols, and newly coined words, newly invented languages (Pascal, C++, Ada, Python, Ruby, RISC V assembly langauge, JavaScript, etc, etc, etc, etc, etc, etc, etc, etc,)
 
 The TOWER OF BABEL CRISIS PROBLEM of people AFRAID of MORE THAN ONE SINGLE BOOK. The supremaecy of ONE PERFECT book fo the Torah / Quran / Upanishads / Bible - or "oral tradition story" or one INTERPRETATION of a story.
 
 Mob mentality, street gangs, of books and stories and media venues (Mosque bombing Church, etc).
 
-"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+* "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
