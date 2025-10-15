@@ -2196,3 +2196,21 @@ https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_
 
 <img width="994" height="286" alt="image" src="https://github.com/user-attachments/assets/d03b94a6-4032-4987-9282-a84c0f267cb6" /> The world over. Out-group hate. We just can't face up to the 1954 equation and STAND UP for it. Hate itself is the problem. It is an EDUCATION and TEACHING issue of prasing this one-bit logic of conservative vs. liberal. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njo0q8l/
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njnz5c1/
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njp6x09/
+
+Liberal vs. conservative is brainrot. The Founding Fathers did not make it the thinking system for the USA. The Great Seal of the United States of America does not teach left vs. right, conservative vs. liberal. People need to focus on fiction vs. nonfiction. Sincierty vs. mythology. Science vs. science fiction.
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njob83s/
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njorz6y/
+
+Low-effort commenting messages. No quotes, no links, no citations, no author names, no article names, no book names. Just disposable messaging. No effort to assemble complex ideas together in the way the Founding Fathers did. Just tossing more low-effort information into an ocean. The abandonment of nonfiction learning and reason thinking in favor of meme-speak and street-gang symbols and messages.
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njo528e/
+
+Russia doesn't even care about itself, it is a self-harm nation, and USA is following Russian monomyth, Surkov monomyth. It is self-harm. The abnadonment of goodness and the abadonment of Carl Sagan's teaching about science thinking is self-harm. Peole don't care about themselves, they care about fiction storytelling. It's a compusive monomyth fiction addiction, self-harm!
+
