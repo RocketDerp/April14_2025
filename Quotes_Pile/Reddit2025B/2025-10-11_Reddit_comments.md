@@ -696,7 +696,7 @@ Just like low-effoet thinking on Reddit commenting. People who think every dumb 
 
 https://old.reddit.com/r/politics/comments/1o4ndar/trump_falsely_claims_biden_fbi_placed_agents_in/nj3ixyx/
 
-The left vs. right brainrot. Nobody is consered with goodness itself, only that you self-declare your left or right. Nobody cares to address hate and world peace like Malala is diong on a global scale, because minds are locked into the magical stance of left vs. right thinking. ... ... ...    
+The left vs. right brainrot. Nobody is concerned with goodness itself, only that you self-declare your left or right. Nobody cares to address hate and world peace like Malala is diong on a global scale, because minds are locked into the magical stance of left vs. right thinking. ... ... ...    
 "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
 
 https://old.reddit.com/r/news/comments/1o4pr1e/4_people_were_killed_and_20_more_were_injured_in/nj3u21e/
@@ -2143,3 +2143,21 @@ https://old.reddit.com/r/Music/comments/1o7c8zo/magas_fake_super_bowl_halftime_s
 https://old.reddit.com/r/Music/comments/1o7c8zo/magas_fake_super_bowl_halftime_show_reveals_their/njop9v0/
 
 https://old.reddit.com/r/Music/comments/1o7c8zo/magas_fake_super_bowl_halftime_show_reveals_their/njmo9gk/
+
+https://old.reddit.com/r/law/comments/1o7fqn9/supreme_court_signals_final_blow_to_voting_rights/njnsgmi/
+
+The Founding Fathers did not start with French King seating of Right vs. Left, the brainrot faith system that nobody questions. One-bit logic, Left vs. Right from 1789 with belief in Jesus Bible being the seating. Fiction leadership of Bible was not a valid option for the USA Founding Fathers. ... ... ...      
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/law/comments/1o7fqn9/supreme_court_signals_final_blow_to_voting_rights/njnll3d/
+
+People won't even escape the media ecology crisis that is on every media platform I encounter. The filter-bubble mindsets and addiction to fiction since year 2013.
+
+https://old.reddit.com/r/law/comments/1o7fqn9/supreme_court_signals_final_blow_to_voting_rights/njnp4pu/
+
+People who have out-group hate as faith and addiciton to fiction and nuclear weapons with hate in their parenting and hate as their religion faith... not going to go well.
+
+https://old.reddit.com/r/law/comments/1o7fqn9/supreme_court_signals_final_blow_to_voting_rights/njnqdzb/
+
+Sanity issues, why aren't people actually educating on sanity? "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
