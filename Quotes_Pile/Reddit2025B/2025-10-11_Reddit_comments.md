@@ -2116,5 +2116,7 @@ Satire-washing for the Reddit audience. By prasing this kind of bullshit Reddit 
 
 https://old.reddit.com/r/todayilearned/comments/1o7faoy/til_that_five_us_presidents_thomas_jefferson_john/njnslxh/
 
-Look at the topic of the Reddit posting someone else did, about Jefferson not swearing on The Bible. I made this on-topic comment WITH a citation link to Wikipedia. Downvoted, no replies. That's how hostile people are to nonfiction. Which that's the cut Thomas Jefferson did to the King James Bible, he removed the supernatural / fiction elements!
+Look at the topic of the Reddit posting someone else did, about Jefferson not swearing on The Bible. I made this on-topic comment WITH a citation link to Wikipedia. Downvoted, no replies. That's how hostile people are to nonfiction. Which that's the cut Thomas Jefferson did to the King James Bible, he removed the supernatural / fiction elements! Expanding on the point of my Reddit comment: EVERY person should be cherry-picking from The Bible, every person should match up langauge and metaphors to their life. Sure, there is some common ground about hate being bad, about murder being bad. But on many of the elements free thinking and free will on matters like food rules / clothing fabric rules. It is an inspriational Science Fiction story, I don't gree with all the writing in Star Wars 1977 film! 
+
+
 
