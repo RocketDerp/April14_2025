@@ -43,7 +43,9 @@ Sooner or later the origins of John 1:1 would come out...  the metaphro of John 
 
 ... Saturday July 4, 2026 .... https://youtu.be/HjylD7esXDo?t=23 ... I've been WATING SUCH AS LONG TIME FOR SATURDAY! 
 
+.... ... ... ....
 
+Produced by Metro-Goldwyn-Mayer and released by United Artists on November 27, 1976      
+https://www.youtube.com/watch?v=XSU3QQvvYgE
 
-
-
+1776, 1976, 2026 ...
