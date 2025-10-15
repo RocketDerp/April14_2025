@@ -35,6 +35,15 @@ Saying the book is the ONE AND ONLY ONE PERFECT SCIENCE FICTION STORY IN THE ENT
 
 It is a **MINDSET** that PREVENTS ME OR SECOND-CLASS HUMAN ME from making a science fiction story, say The Egg story from August 15, 2009 https://en.wikipedia.org/wiki/The_Egg_(Weir_short_story) - and saying that THIS STORY is EQUAL or BETTER than the 1,900 year old compilation of Matthew / Mark / Luke / John etc STORIES in "The Bible" book! 
 
+&nbsp;
+
+### The Egg
+
+https://www.youtube.com/watch?v=h6fcK_fRYaI     
+34,767,850 views September 1, 2019
+
+&nbsp;
+
 Book supremacy, story supremacy, ONE AND ONLY ONE PERFECT BOOK EVER WRITTEN IN ALL THE PUBLIC LIBRARY. https://isbndb.com/blog/how-many-books-are-in-the-world/
 
 And that's only couting books. Star Wars 1977 is a FILM. And there are TV shows. And there are "ORAL TRADITION" that is spoken, or danced, or sand paintings, or WHATEVER ELSE can be communicated in any media / medium / wahtever!
