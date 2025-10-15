@@ -35,3 +35,9 @@ Stranger Than Fiction style story. John Carpenter
 Liiving inside a fiction book, people adopting John 1:1 from a science fiction storybook.    
 The change of Reality.  
 https://youtu.be/pNORRXPa7K0?t=1064
+
+&nbsp;
+
+Ready Player One Climate Change, Columbus Ohio year 2045. Contest started on January 7th, 2040.     
+https://old.reddit.com/r/Xennials/comments/1o7g05s/i_get_it_now/
+
