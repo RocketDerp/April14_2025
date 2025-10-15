@@ -1710,3 +1710,8 @@ https://old.reddit.com/r/stories/comments/1o2c97u/i_scammed_my_husband_into_liki
 
 Another Choice Marriage Honesty    
 https://old.reddit.com/r/SipsTea/comments/1o51vda/turn_of_events/
+
+&nbsp;
+
+Faith in weapon systems and military saving the world, faith that killing machines will save humanity.    
+https://old.reddit.com/r/anime_irl/comments/1o6k55r/anime_irl/
