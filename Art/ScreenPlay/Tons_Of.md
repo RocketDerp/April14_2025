@@ -30,3 +30,8 @@ Sooner, blowing up in our face already.
 Sooner...
 
 * "I confess that I do not see what good it does to fulminate against the English tyranny while the Roman tyranny occupies the palace of the soul."  - Ireland, Island of Saints and Sages," lecture, Università Popolare, Trieste (27 April 1907). James Joyce.
+
+&nbsp;
+
+Looking up at Bible Verse John 1:1 - they ask, where do they lead? https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s
+
