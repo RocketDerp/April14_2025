@@ -2127,4 +2127,19 @@ https://old.reddit.com/r/therewasanattempt/comments/1o7fkn6/to_save_a_parking_sp
 
 The more popualr Reddit comment was the prior one about hate.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o7kvp8/new_maga_flag_revealed/njofknk/
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1o7kvp8/new_maga_flag_revealed/njop91t/
+
+Clinbing into Fiction.
+
+
+https://old.reddit.com/r/Music/comments/1o7c8zo/magas_fake_super_bowl_halftime_show_reveals_their/njnh5t8/
+
+https://old.reddit.com/r/Music/comments/1o7c8zo/magas_fake_super_bowl_halftime_show_reveals_their/njoc93h/
+
+https://old.reddit.com/r/Music/comments/1o7c8zo/magas_fake_super_bowl_halftime_show_reveals_their/njmttw7/
+
+https://old.reddit.com/r/Music/comments/1o7c8zo/magas_fake_super_bowl_halftime_show_reveals_their/njop9v0/
+
+https://old.reddit.com/r/Music/comments/1o7c8zo/magas_fake_super_bowl_halftime_show_reveals_their/njmo9gk/
