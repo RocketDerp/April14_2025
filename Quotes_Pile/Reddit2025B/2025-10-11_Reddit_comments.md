@@ -2095,3 +2095,12 @@ https://old.reddit.com/r/politics/comments/1o7abwa/full_list_of_young_republican
 <img width="1308" height="378" alt="image" src="https://github.com/user-attachments/assets/3152e57b-7fca-4026-9a53-579499c56e13" /> Satire-washing, cleve-washing, joke-washing, fiction-washing. Tactical cleverness. Published year 1951, NONFICTION: ... ... ...       
 “In an ever-changing, incomprehensible world the masses had reached the point where they would, at the same time, believe everything and nothing, think that everything was possible and that nothing was true. ... Mass propaganda discovered that its audience was ready at all times to believe the worst, no matter how absurd, and did not particularly object to being deceived because it held every statement to be a lie anyhow. The totalitarian mass leaders based their propaganda on the correct psychological assumption that, under such conditions, one could make people believe the most fantastic statements one day, and trust that if the next day they were given irrefutable proof of their falsehood, they would take refuge in cynicism; instead of deserting the leaders who had lied to them, they would protest that they had known all along that the statement was a lie and would admire the leaders for their superior tactical cleverness.”
 ― Hannah Arendt, The Origins of Totalitarianism. Year 1951
+
+https://old.reddit.com/r/politics/comments/1o7abwa/full_list_of_young_republicans_involved_in/njmh5wl/
+
+"They" are avoidant of nonfiction. They are fiction monomyth addicts. Just like Reddit is full of people who do everything they can to drown out nonfiction serious learning with low-effort disposable trash commenting.
+
+https://old.reddit.com/r/politics/comments/1o7abwa/full_list_of_young_republicans_involved_in/njmhtcl/
+
+"They" are sorry that their fiction addictions have been made nonfiction reporting. We The People of USA, EVERYONE government and nongovernment, EVERYONE voter or nonvoter, EVERYONE age 12 to age 120 - needs to face up to Neil Postman's 1985 book "Amusing Ourselves To Death" and apply it to Russian information warfare since year 2013!
+
