@@ -2161,3 +2161,6 @@ https://old.reddit.com/r/law/comments/1o7fqn9/supreme_court_signals_final_blow_t
 
 Sanity issues, why aren't people actually educating on sanity? "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/comedyheaven/comments/1o7lv4i/5_hs_too_much_buddy/njon53c/
+
+A society that votes Donald Trump content to the front page every hour of every day FOR OVER TEN YEARS AND THREE MONTHS out of a sarcasm-washing joke-washing addiction. Unable to comrephend that they are programming their own mind with Russian mind-fuck, Internet Research Agency and Cambridge Analytica methods. No clue how Edward Bernays techniques work, no clue about how mythology actually works. Walking around in a 2025 society where everthing thinks REAL HATE in the REAL WORLD is all a simulacara / not reality. So detached staring into their smartphones. Real climate change and real anti-NATO anti-trade anti-goodness issues washed away into amusement content. Oh, events in Chicago, more opportuntiy to call Kremlin and White House stupid-dumb when it is the ENTIRE NATION avoiding serious nonfiction study of world peace and mental conflicts, Tower of Babel behaviors.
