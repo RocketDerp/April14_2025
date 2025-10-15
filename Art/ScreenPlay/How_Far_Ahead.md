@@ -2,13 +2,28 @@
 
 Neil Postman was only 4 or 5 years ahead of Surkov.
 
-"Russia only towards the end of the 1990s, at exactly the time Surkov joined the government. The author of Almost Zero loves to invoke such Lyotardian concepts as the breakdown of grand cultural narratives and the fragmentation of truth: ideas that still sound quite fresh in Russia." - October 20, 2011 - https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+"Russia only towards the end of the 1990s, at exactly the time Surkov joined the government. The author of Almost Zero loves to invoke such Lyotardian concepts as the **breakdown of grand cultural narratives** and the fragmentation of truth: ideas that still sound quite fresh in Russia." - October 20, 2011 - https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+## Grand cultural naratives
 
 &nbsp;
 
 https://www.youtube.com/watch?v=vnypvUQl6TI
 
 September 1996 publication, Neil Postman's "End of Education" book
+
+The full video: https://www.youtube.com/watch?v=ErPcf_AAkFU   
+
+Interesting comment: "It sad to see that this conference was made in 1996, uploaded a year ago, and watched 2.1K times...    
+I am sure that few or none among those who need to hear these words have had a notice that they have been ever uttered.   
+Soon it will be 30 years since then. Not only the conference stands true, but the painful realities that describes are as true as they were then and perhaps even worse from the moment that no one seems to care."
+
 
 &nbsp;
 
@@ -63,6 +78,10 @@ provides a source of authority, and gives a sense of continuity and purpose.
 A god, in the sense I'm using the word, is the name of a great narrative,
 one that has sufficient credibility, complexity, and symbolic power,
 so that it's possible to organize one's life and one's learning around it.
+
+&nbsp;
+
+
 
 Without such a transcendent narrative, life has no meaning.    
 Without meaning, learning has no purpose.    
