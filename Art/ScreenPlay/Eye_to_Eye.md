@@ -14,4 +14,6 @@ No use changing, that's just what We Humans Are.
 5. Prizing secrecy of medical drugs, medical treatment is our tradition
 6. Feeding falsehoods and deception into public is our tradition
 
-7. 
+Sonething *older than Time* (older than Recorded History), the Tower of Babel metaphor....
+
+https://youtu.be/ArXL7uEQsEg?t=149
