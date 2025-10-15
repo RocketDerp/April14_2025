@@ -2233,3 +2233,35 @@ https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_t
 
 LOOK at the fucking length of this message! Just look at the left vs. right one-bit logic cramming going on. Every mental pathway programmed into simple-think short-meme patterns! The Founding Fathers did NOT teach this left vs. right bullshit. And this tiny-short messaging of calling everye else retards. If left is retarded, and right is retard, EVERYONE is retarded. Wake the Fuck Up tht the low-effort tiny-length "3 second sound bites" ARE THE CRISIS in USA. Reddit is the very crisis! Bluesky is the very crisis. The flocking to disposable rectionary thinking! ... ... ...         
 “Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njpce4t/
+
+Low-effort commenting writing, left vs. right brainrot. 
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njp7fua/
+
+Prepare to halt all entertainment, sports, games, amusement and start teaching nofiction. Rescue the USA from Putin Media Invasion since year 2013. Value goodness, stop prizing hate and prizing mocking.
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njovi2h/
+
+People prizing low-effort commenting. Left vs. right brainrot...
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njpb3sc/
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njojt72/
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njok49k/
+
+All crazy. YES. EVERYONE crazy. Cambridge Analytica doctors mind-fucked everyone into crazy logic mindsets. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njoov4o/
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njp2ai3/
+
+Lunatic... Cambridge Analytica doctors mind-fucked everyone into crazy logic mindsets. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njpgc88/
+
+https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njpgwpm/
+
+Disorted reality. No links, no author names, no book titles, no article titles, no quotes. Mocking "distorted reality"... Defending **Reality** means nothing to Reddit commenting community. People who prize disposable commenting, abandoned comment creation, over Wikipedia / Wiki system organization of progressive imporovement to comprehension and understanding. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
