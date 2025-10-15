@@ -35,3 +35,9 @@ Sooner...
 
 Looking up at Bible Verse John 1:1 - they ask, where do they lead? https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s
 
+... we set the light to John 1:1 TRUTH - to the source of JOHN 1:1 - to the dangeling stack pointer of John 1:1 Bible verse ...  "**sooner or later this combustible mixture of ignorance** and power is going to blow up in our faces.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+Sooner or later... https://youtu.be/cfm4L0TGDrw?t=235
+
+Sooner or later the origins of John 1:1 would come out...  the metaphro of John 1:1 - the source - who is the author? Who is "Born Again", at age 21? https://youtu.be/QGJuMBdaqIw?t=41
+
