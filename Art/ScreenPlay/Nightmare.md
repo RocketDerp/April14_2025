@@ -61,3 +61,4 @@ Anti-diversity of thinking. Tribal religions has been prized. Hate of out-groups
 * “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.”
 ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published year 1955
 
+ToDo: Babbet quote about toothpaste.
