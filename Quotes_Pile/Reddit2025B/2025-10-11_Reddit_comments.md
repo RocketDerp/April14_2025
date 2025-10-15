@@ -2112,4 +2112,4 @@ https://old.reddit.com/r/politics/comments/1o7abwa/full_list_of_young_republican
 
 https://old.reddit.com/r/politics/comments/1o7abwa/full_list_of_young_republicans_involved_in/njm8325/
 
-Satire-washing for the Reddit audience. By prasing this kind of bullshit Reddit comment message, you are prasing the way Trump communicates in Tony Clifton act satire. It's all normal now to trash any authenticity and goodness in favor of recking the planet Earth with trash low-effort commenting and satire / comedy / amusement-washing.
+Satire-washing for the Reddit audience. By prasing this kind of bullshit Reddit comment message, we are prasing the way Trump communicates in Tony Clifton act satire. It's all normal now to trash any authenticity, nonfiction, and goodness in favor of wrecking the planet Earth with trash low-effort disposable commenting and satire / comedy / amusement-washing.
