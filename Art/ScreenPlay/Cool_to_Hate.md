@@ -33,7 +33,7 @@ https://www.youtube.com/watch?v=GMMILbi3LOo
 
 ### Screenplay / script
 
-That story told in "Success Story" song by The Who April – 12 June 1975...
+That story told in "Success Story" song by The Who. Recorded April to 12 June 1975...
 
 Could be translated at the metaphor level to Charlie Kirk.
 
