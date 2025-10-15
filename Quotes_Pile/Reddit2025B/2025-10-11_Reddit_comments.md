@@ -2022,3 +2022,23 @@ https://old.reddit.com/r/videos/comments/1o6wa9t/ice_fires_on_press_and_protesto
 
 Entertainment-washing for Reddit audience. Mentally packaging this as fun. Satire-washing serious problems.
 
+https://old.reddit.com/r/PublicFreakout/comments/1o6w7kl/masked_cbp_and_ice_agents_raid_a_walgreens_in/njjiulu/
+
+Rule by stress, stress lords.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o6w7kl/masked_cbp_and_ice_agents_raid_a_walgreens_in/njjjbx7/
+
+https://old.reddit.com/r/PublicFreakout/comments/1o6w7kl/masked_cbp_and_ice_agents_raid_a_walgreens_in/njjijga/
+
+A nation united in Trump hate, one nation under Trump hate signaling, eveyone flocking to Hate Trump, mock Trump, one nation united in the deepest faiths: { Hate and Mocking and Dehuamnize thy Enemy }
+
+https://old.reddit.com/r/PublicFreakout/comments/1o6w7kl/masked_cbp_and_ice_agents_raid_a_walgreens_in/njjp0ui/
+
+The faith in HDTV news, meme news mills, Reddit for news, Russia media invasion.
+
+https://old.reddit.com/r/PublicFreakout/comments/1o6w7kl/masked_cbp_and_ice_agents_raid_a_walgreens_in/njjptk3/
+
+https://old.reddit.com/r/PublicFreakout/comments/1o6w7kl/masked_cbp_and_ice_agents_raid_a_walgreens_in/njji8en/
+
+The audience is complicit. Social medsia addicts who hide their real names and welcome Russian information warfare as entertainment acomplicity. Those who dehuamnize others with teleiviosn media and social device machines are all complicit. People who do everything they can to avoid nonfiction and compassion teaching. People prize hate. People think hate upon Donald Trump and insulting Trump FOR OVER TEN YEARS AND THREE MONTHS is not the problem. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
