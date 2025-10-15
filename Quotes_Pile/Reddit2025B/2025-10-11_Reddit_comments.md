@@ -2116,5 +2116,5 @@ Satire-washing for the Reddit audience. By prasing this kind of bullshit Reddit 
 
 https://old.reddit.com/r/todayilearned/comments/1o7faoy/til_that_five_us_presidents_thomas_jefferson_john/njnslxh/
 
-Look at the topic of my posting, about Jefforson not swearing on The Bible, and I made this on-topic comment WITH a citation link to Wikipedia. Downvoted, no replies. That's how hostile people are to nonfiction. Which that's the cut Thomas Jefferson did to the Bible, he removed the supernatural / fiction elements!
+Look at the topic of the Reddit posting someone else did, about Jefferson not swearing on The Bible. I made this on-topic comment WITH a citation link to Wikipedia. Downvoted, no replies. That's how hostile people are to nonfiction. Which that's the cut Thomas Jefferson did to the King James Bible, he removed the supernatural / fiction elements!
 
