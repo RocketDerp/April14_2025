@@ -39,8 +39,8 @@ Could be translated at the metaphor level to Charlie Kirk.
 
 1. Charlie Kirk was an entertainer / music rock star year 2020 like 1975 society
 2. Podcasting instead of traveling musican
-3. Charlie Kirk traveled around on tours like rock music media storytellers, he was on his first stop of his tour in Utah when he was murdered.
-4. Charie Kirk in year 2021 created "Turing Point Faith", "TP Faith", went into religion with over 6 million dollars for startup. https://www.exposedbycmd.org/2021/10/25/turning-point-usa-seeks-43-million-to-escalate-the-rights-culture-war-in-american-schools/
+3. Charlie Kirk traveled around on tours like rock music media storytellers, he was on his first stop of his "American Comeback Tour" in Utah when he was murdered. "with future tour dates set from Montana to Virginia, Mississippi to Minnesota."
+4. Charie Kirk in year 2021 created "Turning Point Faith", "TP Faith", went into religion with over 6 million dollars for startup. https://www.exposedbycmd.org/2021/10/25/turning-point-usa-seeks-43-million-to-escalate-the-rights-culture-war-in-american-schools/
 
 A podcaster star went to be a preacher. All fiction storytelling. The Bible is science fiction stories. A preacher is a fiction storyteller.
 
