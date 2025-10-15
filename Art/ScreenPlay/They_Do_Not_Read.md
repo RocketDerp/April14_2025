@@ -12,6 +12,8 @@ Zero concern for:
 
 4. Routine FORGETTING! I, Stephen Alfred Gutknecht, read The Bible cover to cover in 1982 at the age of 12. I had been attending Church my entire life, as an infant, and I sat down on my own and read the whole damn book. Book that does not mean my memory always recalls things exactly when I need. I did not memorize The Bible, I forget passages. I have witnessed OTHER PEOPLE forget things from books. That is in no way evidence you did not read the book or understand it in a way most people mean of understanding a book or having read a book. Perfect memory recall is rather rare. And i can't even guess any more how many books I've read in my lifetime now. I can't even remember the number of books I raed, let alone every single idea and concept / verse and ayah from every book I've read. There are too many آيات
 
+I could go *on and on* on this subject, and I do go on and on throughout this GitHub.
+
 &nbsp;
 
 * “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
