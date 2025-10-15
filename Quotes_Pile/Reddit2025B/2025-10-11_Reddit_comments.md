@@ -42,7 +42,7 @@ Mob mentality abounds. Inlcuiding on Reddit. Russia has programmed self-harm and
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixeaeg/
 
-Tiny-short messages. No link, no citation, no quote, no author names, no book ttiles / article titles. Who is "they' that are terrorists? The Mormon church in the story? The GOP? The Michigan killer who terrorized the Church with guns? What should we do about terrorists / extremists? Create millions of disposable low-effort commenting messages on high-speed messaging systems seems to be the popular reaction and answer. Avoding nonfiction serious learning. ... ... ...
+Tiny-short messages. No link, no citation, no quote, no author names, no book ttiles / article titles. Who is "they' that are terrorists? The Mormon church in the story? The GOP? The Michigan killer who terrorized the Church with guns? What should we do about terrorists / extremists? Create millions of disposable low-effort commenting messages on high-speed messaging systems seems to be the popular reaction and answer. Avoding nonfiction serious learning. ... ... ...    
 "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
 
 https://old.reddit.com/r/NoFilterNews/comments/1o3ta38/gop_silent_as_mormon_church_gunman_identified_as/nixg56m/
@@ -2164,3 +2164,35 @@ Sanity issues, why aren't people actually educating on sanity? "MASS PSYCHOSIS -
 https://old.reddit.com/r/comedyheaven/comments/1o7lv4i/5_hs_too_much_buddy/njon53c/
 
 A society that votes Donald Trump content to the front page every hour of every day FOR OVER TEN YEARS AND THREE MONTHS out of a sarcasm-washing joke-washing addiction. Unable to comrephend that they are programming their own mind with Russian mind-fuck, Internet Research Agency and Cambridge Analytica methods. No clue how Edward Bernays techniques work, no clue about how mythology actually works. Walking around in a 2025 society where everthing thinks REAL HATE in the REAL WORLD is all a simulacara / not reality. So detached staring into their smartphones. Real climate change and real anti-NATO anti-trade anti-goodness issues washed away into amusement content. Oh, events in Chicago, more opportuntiy to call Kremlin and White House stupid-dumb when it is the ENTIRE NATION avoiding serious nonfiction study of world peace and mental conflicts, Tower of Babel behaviors.
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njnuut4/
+
+No book titles, no article titles, no links, no author names. Just tinys-short insult messages to the top of the page, the most popular comment.
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njnxhib/
+
+I've not experienced that. Extreme extreme extreme pride in Donald Trump race of orange skin color and white skin color. Hate of people they don't think communicate in Fox News speak, hate of black people and asian people and arab people..., etc. I don't see people afraid of these ideas and messages at all. Afraid of nonfiction. ... ... ...    
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njnv8ut/
+
+Addiction to fiction isn't only a conservative issue. In fiction what people call 'assinine' is common. In sports, having 17 medical doctors take care of a sports player is considered 'normal'. Liberal vs. conservative is one-bit binary brain-rot. Worshiping of sports stars with 17 doctors (I used to work for NBA and NFL team owner / Paul Allen / Jody Allen) is redicuousl when people have no house or food or medical care. Why can't society go to Wikipedia and learn about the Januay 1944 Second Bill Of Rights? One sports star gets an injury and it's all over every social media platform. Addiction to sports, addiction to fiction, addiction to ANYTHING but compassion for our own fellow man drives the society. This isn't a conservative vs. liberal issue, it is a brain-rot anti-goodness issue. Addiction to entertainment. Addiction to sports. Addiction to video games. Addiction to low-effort commenting. The 1985 book by Neil Postman "Amusing Ourselves To Death" is a staring point on how far gone we are with high-speed media systems. We have entertained away goodness, we have abandoned nonfiction learning in favor of learning low-value flocking to wealthy icons and symbols. We have eaten the "star" synbolism. As Trump says, "when are a star, you can grab them by the pussy" - and the wallet, and the power. We have tossed away the 99% of people to worship and admire knowledge and concerns of the 1% - by amusing and entertaining ourselves.
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njo1hak/
+
+People have programmed low-effort dispsoable commenting into their minds over and over since year 2013 on every media platform they can lay their touch device on. We have abandoned the teaching of American Dr. Martin Luther King Jr. An upstart comes on scene in January 2009 and becomes world famous in year 2012 - and we flock to mockery of Donald Trump with non-stop insulting and mocking. Why isn't Malala good enough for teaching and repeating to each other? Where so we think learning and education comes from, magical sky angels? We prize low-effort commenting junk information on every media system. We put terrible low-value ideas into our brain and this is the behavior that comes out of our brain. OPERA_A REPEAT_TRACK Lyrics: "Can you maybe change the rule? And you stand and call me upstart. Ask what answer can I find." -for Malala - who is a god damn great reason thinking teacher, and her dad. https://www.youtube.com/watch?v=FtH5iepv4Sg
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njo5p7h/
+
+They peer to peer, tell each other, just like the extremely low-effort commenting section of Reddit tells each other low-effort messages and avoidance of nonfiction serious learning. Everyone putting the most reactionary disposable commenting into their minds.
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njo2ali/
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njnymho/
+
+Right vs. left is brainrot. Some French King seating is NOT what the Founding Fathers teach in The Great Seal of the United States of America.
+
+https://old.reddit.com/r/complaints/comments/1o7ikic/american_conservatives_are_blatantly_racist/njo401c/
+
+<img width="994" height="286" alt="image" src="https://github.com/user-attachments/assets/d03b94a6-4032-4987-9282-a84c0f267cb6" /> The world over. Out-group hate. We just can't face up to the 1954 equation and STAND UP for it. Hate itself is the problem. It is an EDUCATION and TEACHING issue of prasing this one-bit logic of conservative vs. liberal. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
