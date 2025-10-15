@@ -23,3 +23,11 @@ Only acceptable if you ape talking to yourself in a book words from Quran / Tora
 
 This is how much we hate words from everyday people. This is how much peer to peer hate there is in U.S.A. society in 2025. You are "crazy" if you are saying words to your own self and it isn't an Apple iPhone you are speaking into. If you are just compsing words of your own origignal ideas, you are crazy for speaking to your own self.  That's how dehuamnizing we arer around the origins of John 1:1 Bible verse, who gets to orginate the langauge of John 1:1 messages.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+Came up on front page of Reddit hours after I wrote this GitHub page    
+https://old.reddit.com/r/WorkReform/comments/1o7dpqy/in_america_whats_called_crazy_is_sane_and_whats/
