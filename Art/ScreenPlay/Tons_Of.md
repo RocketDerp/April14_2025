@@ -45,7 +45,7 @@ Sooner or later the origins of John 1:1 would come out...  the metaphro of John 
 
 .... ... ... ....
 
-Produced by Metro-Goldwyn-Mayer and released by United Artists on November 27, 1976      
+Produced by Metro-Goldwyn-Mayer and released by United Artists on **Saturday** November 27, 1976      
 https://www.youtube.com/watch?v=XSU3QQvvYgE
 
-1776, 1976, 2026 ...
+1776, Saturday 1976, Saturday July 4 2026 ...
