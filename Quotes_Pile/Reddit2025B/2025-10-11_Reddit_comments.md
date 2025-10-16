@@ -2265,3 +2265,24 @@ https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_t
 https://old.reddit.com/r/NoFilterNews/comments/1o7k26g/we_now_have_solid_proof_that_after_trump_and/njpgwpm/
 
 Disorted reality. No links, no author names, no book titles, no article titles, no quotes. Mocking "distorted reality"... Defending **Reality** means nothing to Reddit commenting community. People who prize disposable commenting, abandoned comment creation, over Wikipedia / Wiki system organization of progressive imporovement to comprehension and understanding. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njotgs6/
+
+Awaken to what? Awaken to MonoMyth Finnegans Wake 1924 onward.... OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s - Wake Up Into James Joyce's Stephen Nightmare...
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njovaw4/
+
+Age 14... OPERA_A REPEAT_TRACK Lyrics: "Wake up, kids! We got the dreamers disease! Age fourteen, they got you down on your knees" - https://www.youtube.com/watch?v=ynfCT0eCEWM
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njpl5qx/
+
+Everyone is an idiot messaging. People keep saying that there are idiots everywhere. But low-effort messaging and flocking to the amusement-washing mill. Avoding nonfiction serious learning. Attracted to Reddit commenting to stuff into the brain. People who prize hate, normalize hate. Won't stand up to hate. It not joyful and fun when people build messaging systems that hammer hate messages day and night, that never sleep. cloud computing meme mill sthat promote out-group hate. The new MonoMyt preachers, machines messaging hate. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njouk4d/
+
+December 4, 2024 and Luigi chanting was evil. Cheering on sneak-attack gun murders, gun worship. Why didn't pdople on Bluesky and Reddit December 4, 2024 all make the Wikipedia page about the Second Bill of Rights to the front page? Why not assert nonfiction learning intead of asserting cheers for murder and liars who manipuate and sneak-attack while their family are Real Estage Golf Course rich folks like Trump - which Luigi Family was? What good is $1 health care a month when Luigi golf course family wants $9,300 a month rent for a 1-bedroom? When food is $8,000 a week and health care is $1? Cheerign on Lugigi murder sneak attack is shallow and superficial meme-thinking Twitter-think ideas. The January 1944 Second Bill of Rights deals with HEALTH CARE and MUCH MORE. Why cant Reddit make ti front page topic every 12 hours for the next 3 years until EVERY PERSON in USA knows and can recite the Second Bill of Rights from January 1944? I keep repeating! https://en.wikipedia.org/wiki/Second_Bill_of_Rights OPERA_A REPEAT_TRACK Not just Health Care, EVERYTHING in the Second Bill of Rights, Everything At Once! https://www.youtube.com/watch?v=eE9tV1WGTgE
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njowf30/
+
+Levant God. The Navajo Pollen Path "God" of North America is not like Levant John 1:1 meme patterns that people will not translate to Hamlet's Ghost and Star Wars 1977 "Force Ghost". A burning bush Moses moutain radio shack to outer-space aleins is SCIENCE FICTION. Mohmamd's Cave Radio Shack of outer-space Angels is SCIENCE FICTION like Star Wars 1977 "Force Ghost" stories. But people will not face up to the equation of translating metaphor to metaphor between ALl science fiction stories, not just book suprmeacy of Bible / Quran / Torah. ... ... ...        
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
