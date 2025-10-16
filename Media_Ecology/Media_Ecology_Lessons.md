@@ -832,3 +832,16 @@ The path is the message, the walking path. The road ahead metaphors.
 
 https://old.reddit.com/r/woahdude/comments/1o6bcr7/a_security_guard_in_turkey_saved_a_woman_who_was/
 
+&nbsp;
+
+### How many years to get on YouTube?
+
+https://www.youtube.com/watch?v=1HEjeMBNcm8
+
+A business, The Eagles bussinessmen, that has a reputaiton for copyright abuse and in-fighting over wealth and royalty and credits and greed over publication. Which is the very topic of the song itself, "water into wine", no - turning songs into cash and keeping it off youtube for HOW MANY YEARS? Since year 1974, it took until year 2025 LATE, LATE YEAR 2025, to offically upload to YouTube?
+
+"39,130 views  August 29, 2025    
+Official Audio for "On the Border" performed by the Eagles. Original song from 'On the Border' (1974)."
+
+<img width="1726" height="536" alt="image" src="https://github.com/user-attachments/assets/14b5851a-ec1f-44d4-89fc-91676c4a3c28" />
+
