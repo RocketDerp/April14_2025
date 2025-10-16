@@ -2297,3 +2297,17 @@ https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/
 
 Tiny-short message. No books, no articles, no links, no quotes, just wild claims against USA.
 
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njpcc3c/
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njpcdcq/
+
+People only want freedom for tiny space and tiny number of people. People do not want to share the Eath as all one life. OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=gncyDkWWY_w
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njp37pf/
+
+Yes. And I recommend the 1940 *fiction* film Great Dictator speech for when the global perspective of World War was coming into focus: https://www.charliechaplin.com/en/articles/29-the-final-speech-from-the-great-dictator-
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njpa3nl/
+
+First we have to address the message on this user's profile. "Fuck Israel" messaging on machines and in hearts and minds. Support Malala from Swat Valley, the whole world, over 8 billion people need to end hate and start coming up with ideas for a post-hate world. Hate itself is the problem we have to start with. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
