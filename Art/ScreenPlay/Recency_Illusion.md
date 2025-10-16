@@ -66,4 +66,5 @@ The joke: A child responds to almost any question with "six seven," often accomp
 &nbsp;
 
 Warped sense of Bible / Christian      
+Recency Bias of morality-washing Bible verse "1 John 4:20" into toilet room.     
 https://youtube.com/clip/Ugkx20-kxDSgwO2H_EegIVuobQLvzexg-7Kr
