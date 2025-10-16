@@ -111,7 +111,7 @@ Reforming Bible literacy, "1 John 3:17" and "1 John 4:20" Bible verses. The PROB
 
 &nbsp;
 
-&nbps;
+&nbsp;
 
 &nbsp;
 
