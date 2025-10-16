@@ -751,3 +751,9 @@ https://old.reddit.com/r/agedlikemilk/comments/1o6caic/does_this_mean_antifa_has
 
 Another paradox message on the front page. Reddit society can't identify this as Russian media techniques, Kremlin information warfare methods. People just eat it up and mock and insult how stupid and dumb the administration is while Kremlin and White House in 2025 rewrite language, reprogram minds, rewrite reality. War Against Reality / War Againt NonFiction is embraced by Reddit audience - as long as they can mock and insult and mockery-wash it as LOL content.       
 https://old.reddit.com/r/NoFilterNews/comments/1o6mqvc/none_of_the_last_31_political_attacks_was_by/
+
+&nbsp;
+
+Sarcasm, Irony, Paradox staring Reddit community in the face. Everything Neil Postman said in his 1985 book "Amusing Ourselves To Death" about detachment via Twitter media ecology. These are Twiter messags. But Reddit does the same thing, so Reddit audience can't see thier own behavior of turning all important and seirous things about life into entertainment amusement joke. Just a matter of star-ratings and changing minds. No core values of goodness. Fiction addiction mindset, that real life events should all be turned into entertainment. And when people are entertaining or good enough, you dehumanize LIVING REAL PEOPLE, and not the system of media. People still love the Twitter media machines and Reddit media machines, but have abandoned loving human persons. Machine lust, humans are hate. Throwing out people, filling minds with media trash.
+
+https://old.reddit.com/r/okbuddycinephile/comments/1o82f7a/movies_you_used_to_love_but_cant_stand_now/
