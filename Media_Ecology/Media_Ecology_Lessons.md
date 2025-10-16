@@ -845,3 +845,9 @@ Official Audio for "On the Border" performed by the Eagles. Original song from '
 
 <img width="1726" height="536" alt="image" src="https://github.com/user-attachments/assets/14b5851a-ec1f-44d4-89fc-91676c4a3c28" />
 
+edited more...
+
+<img width="1726" height="472" alt="image" src="https://github.com/user-attachments/assets/0f7f214e-b21b-4274-adca-5144c380d490" />
+
+"All the royalty and copyright fighting - took you from 1974 to LATE August 2025 to finally upload to YouTube. How many lawyers argued and argued and argued and argued. Lyrics: "change this water into wine", sure turning your song into lawyer wealth. Corporate America businessmen at their worst.  Don't make music for fans, make music to argue and debate with your fellow businessmen over logic of sharing wealth and copyright fame. You are not turning water into wine with that egoism. Your lawyers copyright law and order, yha. Go read Bible verse "1 John 3:17", you old men."
+
