@@ -100,6 +100,22 @@ Nothing has prevented people from creating a non-clickbait subreddit / link aggr
 
 &nbsp;
 
+&nbsp;
+
+## This is the "High Road" use of social media
+
+Thursday, October 16, 2025         
+https://old.reddit.com/r/Music/comments/1o86rp4/bryan_andrews_goes_viral_criticizing_maga/
+
+Reforming Bible literacy, "1 John 3:17" and "1 John 4:20" Bible verses. The PROBLEM is social media users will not shut down less-important sports, less-important games / gaming, and focus on every 12 hours DAY AFTER DAY repeating these verses until Bible literacy in USA improves. People need to apply '1 John 3:17" in analyzing Rupert Murdoch, Elon Musk, Donald Trump, et.c
+
+&nbsp;
+
+&nbps;
+
+&nbsp;
+
+
 # Edits Yes
 
 This is very poorly written, I'm very sick and brain damaged this week, and the spell checker of browser isn't even getting first-pass fixes like I normally have on Lemmy and Mastodon when I compose on GitHub.
