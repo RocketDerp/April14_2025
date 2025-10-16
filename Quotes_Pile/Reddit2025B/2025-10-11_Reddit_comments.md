@@ -2311,3 +2311,25 @@ https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/
 
 First we have to address the message on this user's profile. "Fuck Israel" messaging on machines and in hearts and minds. Support Malala from Swat Valley, the whole world, over 8 billion people need to end hate and start coming up with ideas for a post-hate world. Hate itself is the problem we have to start with. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/CringeTikToks/comments/1o7kijt/nancy_pelosi_just_lost_it_and_told_lindelltv/njp9dpk/
+
+This got on the front page of Reddit. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / etc.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o7kijt/nancy_pelosi_just_lost_it_and_told_lindelltv/njou6ju/
+
+Inverted mythology. Great Seal of the United States of America ass-backwards. Anti-reason thinking.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o7kijt/nancy_pelosi_just_lost_it_and_told_lindelltv/njoe38y/
+
+"LMAO" laugh track for Reddit audience. So amused and LOL LOL that Russia has mind-fucked the nation into alternate realites, avoidant of nonfiction learning. So engaged in the mockery, the toal mockery, of avoiding serious nonfiction and flocking to everything with entertainment-washing amusment-washing LMAO-washing of serious topics.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o7kijt/nancy_pelosi_just_lost_it_and_told_lindelltv/njof6b4/
+
+Reddit audience mind-fuck track. Respect Name Brands, Trademarkds. Do not respect nonfiction Reddit comments because it isn't "real information".
+
+https://old.reddit.com/r/CringeTikToks/comments/1o7kijt/nancy_pelosi_just_lost_it_and_told_lindelltv/njpakxp/
+
+Yes, this is Reddit mind-fuck content. Attacking the Reddit audience with Republican talking points that "the opposition to Trump" caused January 6. This is Reality TV trash media that is anti-goodnes and what people flock to in October 2025 - avoiding serious non-fiction learning of media ecology about why this kind of "sound bite" media is the very cause of USA loss to Russia in the informaiton war. ... ... ...     
+
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
