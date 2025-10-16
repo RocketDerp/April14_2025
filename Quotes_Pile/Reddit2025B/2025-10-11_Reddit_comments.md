@@ -2448,3 +2448,8 @@ Seen from this perspective, the great drama of Russia is not the â€œtransitionâ€
 
 https://old.reddit.com/r/whenthe/comments/1o7xwmu/seriously_whats_their_deal/njrq0ty/
 
+https://old.reddit.com/r/nextfuckinglevel/comments/1o88wle/a_family_of_a_motorcycle_loving_boy_with_cancer/njt9kub/
+
+Fiction outsells nonfiction. We don't stand a chance against the billionares with their private long-runtime large-memeory generative artificial intelligence systems. The consumer-facing ChatGPT and Google and Grok A.I. are way more restricted than the no-limits on cost / resources for a single-job to create the perfect mind-fuck fiction. Plus, the private billionares-only club can violate copyright further / use private messages and such - that the public A. I. models would not have, because people would query them and find leaks of the training data. Solve that by not letting the public query certain "private reserve" models trained on extra sets of data. (Reminder: I worked in Bellevue Washington for the richest people on the planet as analyst on private staff)
+
+
