@@ -35,6 +35,6 @@ https://youtu.be/laZpTO7IFtA?t=728
 
 ## South Park on 6 7
 
-What do you know, I've been worried I'm out of touch with things and here you go, South Park jumped on the 6 7 just days after I created this GitHub page. I'm not lost in year 1924 Finnegans Wake, I'm [getting in tune](https://www.youtube.com/watch?v=ee0p_RtWPyU) to the mass mind front of brain damage (anti-goodness) billionare (Truth Social to South Park entertainment-washing) trickle-down to youth.
+What do you know, I've been worried I'm out of touch with things and here you go, South Park jumped on the 6 7 just days after I created this GitHub page. I'm not lost in year 1924 Finnegans Wake, I'm [getting in tune](https://www.youtube.com/watch?v=ee0p_RtWPyU) ... 176,725 views January 8, 2021  ... to the mass mind front of brain damage (anti-goodness) billionare (Truth Social to South Park entertainment-washing) trickle-down to youth.
 
 https://youtu.be/K1XWqp3Z-oY?t=85
