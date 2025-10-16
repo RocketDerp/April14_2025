@@ -2425,3 +2425,24 @@ https://old.reddit.com/r/Fauxmoi/comments/1o80rvo/jennifer_welch_on_msnbc_jd_van
 Yes. They work hard to self-harm. Our whole society values, our society operaitng system, is bad. Globally and USA, and Reddit. Look at the self-dehumanizaiton of people hiding real names and real locations that is prized, while commenting and insulting Real JD Vance and real Jennifer Welch. So concenred with competiing and defeating others that there is a hate of humanity. ... ... ...           
 "Somewhere somebody must have some sense. Men must see that force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe. And you do that by love."- MLK Jr
 
+https://old.reddit.com/r/whenthe/comments/1o7xwmu/seriously_whats_their_deal/njrcby7/
+
+Yes. You find it in the music industry, acting industry, etc. 
+
+https://old.reddit.com/r/whenthe/comments/1o7xwmu/seriously_whats_their_deal/njrrcli/
+
+People sell their souls for enteratinment. We do not face up to the reality of media ecology. Quran believes who love their science fiction storytelling so much they murder other people. Media fandom, media mania. War of media addicts attacking other media addicts. Speakers of languages / writen language, who attack speakers of other languages. We actively encourage this in parenting and society and will not face up to our prizing of badness. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+ ... ... ...         
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/whenthe/comments/1o7xwmu/seriously_whats_their_deal/njs7ce3/
+
+Daddy issues of Putin and Trump, people of all ages, even very elderly people, worship media "Daddy" figures. Torah / Quran / Bible / Russia Today / Fox News / Elon Musk Twitter / Facebook /etc. ... ... ...       
+“Whenever I ask my Russian bosses, the older TV producers and media types who run the system, what it was like growing up in the late Soviet Union, whether they believed in the Communist ideology that surrounded them, they always laugh at me.    
+“Don’t be silly,” most answer.   
+“But you sang the songs? Were good members of the Komsomol?”    
+“Of course we did, and we felt good when we sang them. And then straight after we would listen to ‘Deep Purple’ and the BBC.”     
+“So you were dissidents? You believed in finishing the USSR?”    
+“No. It’s not like that. You just speak several languages at the same time, all the time. There’s like several ‘you’s.”     
+Seen from this perspective, the great drama of Russia is not the “transition” between communism and capitalism, between one fervently held set of beliefs and another, but that during the final decades of the USSR no one believed in communism and yet carried on living as if they did, and now they can only create a society of simulations. For this remains the common, everyday psychology: the Ostankino producers who make news worshiping the President in the day"” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, year 2014
+
