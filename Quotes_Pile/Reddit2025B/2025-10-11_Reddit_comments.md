@@ -2293,3 +2293,7 @@ I am on the Pollen Path. I can translate science fiction stories of the Levant t
 
 https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njpe4xs/
 
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njp0o7l/
+
+Tiny-short message. No books, no articles, no links, no quotes, just wild claims against USA.
+
