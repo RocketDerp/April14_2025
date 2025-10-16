@@ -2286,3 +2286,10 @@ https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/
 
 Levant God. The Navajo Pollen Path "God" of North America is not like Levant John 1:1 meme patterns that people will not translate to Hamlet's Ghost and Star Wars 1977 "Force Ghost". A burning bush Moses moutain radio shack to outer-space aleins is SCIENCE FICTION. Mohmamd's Cave Radio Shack of outer-space Angels is SCIENCE FICTION like Star Wars 1977 "Force Ghost" stories. But people will not face up to the equation of translating metaphor to metaphor between ALl science fiction stories, not just book suprmeacy of Bible / Quran / Torah. ... ... ...        
 “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njp8e6v/
+
+I am on the Pollen Path. I can translate science fiction stories of the Levant to Hollywood films. I can cherry pick from any of the world symbol systems, I can cherry pick from the public library.
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o7n465/america_the_plantation/njpe4xs/
+
