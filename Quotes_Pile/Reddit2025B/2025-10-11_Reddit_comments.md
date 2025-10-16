@@ -2446,3 +2446,5 @@ Daddy issues of Putin and Trump, people of all ages, even very elderly people, w
 “No. It’s not like that. You just speak several languages at the same time, all the time. There’s like several ‘you’s.”     
 Seen from this perspective, the great drama of Russia is not the “transition” between communism and capitalism, between one fervently held set of beliefs and another, but that during the final decades of the USSR no one believed in communism and yet carried on living as if they did, and now they can only create a society of simulations. For this remains the common, everyday psychology: the Ostankino producers who make news worshiping the President in the day"” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, year 2014
 
+https://old.reddit.com/r/whenthe/comments/1o7xwmu/seriously_whats_their_deal/njrq0ty/
+
