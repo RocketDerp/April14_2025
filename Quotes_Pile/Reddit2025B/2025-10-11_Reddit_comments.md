@@ -2333,3 +2333,32 @@ Yes, this is Reddit mind-fuck content. Attacking the Reddit audience with Republ
 
 "unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
 
+https://old.reddit.com/r/worldnews/comments/1o7x82k/hundreds_call_for_putin_to_be_overthrown_in_st/njqycl1/
+
+<img width="1044" height="764" alt="image" src="https://github.com/user-attachments/assets/a7d261d8-374e-444c-95d6-7796f9076ec6" /> Goodness gets wrecked by joke-washing mockery-washing on Reddit since year 2013. Anti-goodness. Why isn't Jen Senko a household name? Why is it always on Reddit that people "Stand up for the Big Guy" unless it is a kitten or puppy? Why are unknown non-famous people shit upon and demoralized and few people see the problem of the hostility of cynical behaviors? ... ... ...         
+"In a world where even the most authoritarian regimes struggle to impose censorship, one has to **surround audiences with so much cynicism** about anybody’s motives, persuade them that behind every seemingly benign motivation is a nefarious, if impossible-to-prove, plot, that they **lose faith in the possibility of an alternative**, a tactic a renowned Russian media analyst called Vasily Gatov calls ‘white jamming’.
+And the end effect of this endless pile-up of conspiracies is that you, the little guy, can never change anything. For if you are living in a world where shadowy forces control everything, then what possible chance do you have of turning it around? In this murk it becomes best to rely on a strong hand to guide you.
+‘Trump is our last chance to save America,’ is the message of his media hounds. **Only Putin** can ‘raise Russia from its knees’. ‘The problem we are facing today is less oppression, more **lack of identity, apathy, division, no trust**,’ sighs Srdja. ‘There are more tools to change things than before, but there’s less will to do so.” ― Peter Pomerantsev, This Is Not Propaganda: Adventures in the War Against Reality, 2019
+
+https://old.reddit.com/r/worldnews/comments/1o7x82k/hundreds_call_for_putin_to_be_overthrown_in_st/njr7kdg/
+
+People are willing to die for nuclear war and guns and biological CDC / RFK Jr minds lost to Russia - but not for goodness itself. Not for education, not for teaching, not for nonfiction science world.
+
+https://old.reddit.com/r/worldnews/comments/1o7x82k/hundreds_call_for_putin_to_be_overthrown_in_st/njrgk6i/
+
+Amusement mill is what people live for.  People who want a serious romantic relationship to raise children into mosnter state.
+
+https://old.reddit.com/r/worldnews/comments/1o7x82k/hundreds_call_for_putin_to_be_overthrown_in_st/njrebma/
+
+Some of us do and don't amuse real world life away with constant low-effort commenting using all spare time and free time to drown away progress and goodness because billionares provide entertainment devices.
+
+https://old.reddit.com/r/worldnews/comments/1o7x82k/hundreds_call_for_putin_to_be_overthrown_in_st/njr7pz3/
+
+Trump's power os media, antics on TV, going golfing and having it filmed, Truth Social media, Twitter, on front page of Reddit constantly and always. Yet, social media can't imagine halting entertainment. [ACTION PLAN: Be serious, halt all sports and games entertainment, halt mocking. Teach nonfiction. Use the spare time and free time that goes into constantly mocking Trump and Putin and actually stand up for getting on the same page.](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/worldnews/comments/1o7x82k/hundreds_call_for_putin_to_be_overthrown_in_st/njr0lmc/
+
+https://old.reddit.com/r/worldnews/comments/1o7x82k/hundreds_call_for_putin_to_be_overthrown_in_st/njr6ia5/
+
+Song. Too bad I cant sing and I'm not popular in any way shape or form.
+
