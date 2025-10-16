@@ -2362,3 +2362,56 @@ https://old.reddit.com/r/worldnews/comments/1o7x82k/hundreds_call_for_putin_to_b
 
 Song. Too bad I cant sing and I'm not popular in any way shape or form.
 
+https://old.reddit.com/r/europe/comments/1o7yw1p/crowds_chant_outlawed_antiputin_songs_in_rare_st/njrsr5w/
+
+The entir World Wide Web mostly can access these messages on Reddit, they can be machine translated. Yet, there is no sense of mob mentality / entire nation mindsets needing rescued with mental health workers. There is only insulting and calling people: brain-dead, dumb, stupid, idiot low-IQ, worthless, skillless. There isn't any desire to use information systesm beyond mockery / hate / insulting / dehuamnization. To call oon all the mental health workers of the world, not military with guns, but standing up for actual progress and goodness and willing to suffer for goodness. People spend time instead in service to cynical gun workship and how children need to be handed down guns at age 7 incase they were born in Palestine in year 2016 and hate and anti-goodness breaks out.
+
+https://old.reddit.com/r/europe/comments/1o7yw1p/crowds_chant_outlawed_antiputin_songs_in_rare_st/njr7i7x/
+
+The entire worl needs to stand up to badness with goodness and cheer people on, make friends, and show support for pogress and goodness. Not just let the down and out people int he world, even down and out nations, be treated as if the lost a competittion of hate prizing.
+
+https://old.reddit.com/r/europe/comments/1o7yw1p/crowds_chant_outlawed_antiputin_songs_in_rare_st/njrbe5r/
+
+Most on Reddit support extremely low-effort disposable commenting and the avoidance of getting on important serious topics with a Wiki style sytem of refined knowledge. Instaed, the only motivation is disposable ommenting to mock-away cynical-wash insult-wash and show faith in anti-goodness.
+
+https://old.reddit.com/r/law/comments/1o7x1ih/jd_vance_because_we_have_such_a_big_problem_with/njqzam9/
+
+They are rewriting reality, and Reddit meme-life society can't name the techniques, when they started, etc. Nonfiction is boring to people who prize high-speed reactioanry commenting. Defending **Reality** means nothing to Reddit commenting community. People who prize disposable commenting, abandoned comment creation, over Wikipedia / Wiki system organization of progressive imporovement to comprehension and understanding. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/law/comments/1o7x1ih/jd_vance_because_we_have_such_a_big_problem_with/njquj1u/
+
+Extremely popular, upvoted/liked comment, that says nothing but Cambridge Analytica programmed emotion. As if October 15, 2025 this is all new situation, just started with surreal and absurd antics. Completely denial of the OVER TEN YEARS AND THREE MONTHS that Reddit social media has been in perpetual WTF-washing entertainment-washing of the situaitons.
+
+https://old.reddit.com/r/law/comments/1o7x1ih/jd_vance_because_we_have_such_a_big_problem_with/njr7ksz/
+
+The real-wold outcomes of us. vs. them logic, left vs. right brainrot. Where people do not defend goodness and assert what "good" even means. People who prize educating ther own minds with low-effort disposable commenting and hard aboidance of nonfiction learning.
+
+https://old.reddit.com/r/law/comments/1o7x1ih/jd_vance_because_we_have_such_a_big_problem_with/njqyg26/
+
+Reddit is a hate-training camp. Mockery-washing camp. Anti-reality camp. Prizing of jokes and memees, avoiding goodness learning center. Egoism of constatnly declaring how smart people are compared to Tony Clifton acts of Donald J. Trump. ... ... ...        
+“The underlying ideology within social media is not to enhance choice or agency, but rather to narrow, filter, and reduce choice to benefit creators and advertisers. Social media herds the citizenry into surveilled spaces where the architects can track and classify them and use this understanding to influence their behavior. If democracy and capitalism are based on accessible information and free choice, what we are witnessing is their subversion from the inside.” ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the Plot to Break America
+
+https://old.reddit.com/r/law/comments/1o7x1ih/jd_vance_because_we_have_such_a_big_problem_with/njr16bx/
+
+Reddit commenting repeats the same joke-washing mocking-washing of reality tiself over and over and over since year 2013 and it works.
+
+https://old.reddit.com/r/law/comments/1o7x1ih/jd_vance_because_we_have_such_a_big_problem_with/njqvk06/
+
+FOR OEVER TEN YEARS AND THREE MONTHS, this tiny-short messaging with huge upvotes / likes is the signal people prize. Anything to avoid sustained focus on important, critical, serious nonfiction of the situation.
+
+https://old.reddit.com/r/law/comments/1o7x1ih/jd_vance_because_we_have_such_a_big_problem_with/njrb6uk/
+
+Tax dollars? Blind that Reddit is paid for with advertising and marketing and product placement, not tax dollars. Media ecology literacy is avoided at all cost by media addicts.
+
+https://old.reddit.com/r/law/comments/1o7x1ih/jd_vance_because_we_have_such_a_big_problem_with/njr3yc1/
+
+No links, no quotes, no author names, no book titles, no article titltes. As if all this is new and for OVER TEN YEARS AND THREE MONTHS nothing of value was coleected except the ability to compose dispsoable commenting messages and wash away getting on the same page of how long this has been gong on. OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=Oy8n7IWg8yc
+
+https://old.reddit.com/r/law/comments/1o7x1ih/jd_vance_because_we_have_such_a_big_problem_with/njr2s64/
+
+Low-effort commenting addicts, putting into their mind more low-effort commenting every moment. Prizing the avoidance of serious and critical nonfiction on the topics at hand.
+
+https://old.reddit.com/r/politics/comments/1o7ul0n/no_one_in_the_gop_hitler_chat_was_a_kid/njqgyol/
+
+"LMFAO", minds blown out, Reddit audience laugh track. Constantly humor-washing and entertainment-washing how great it is to have this content to create reaction commenting about. Sickening society, teaching sick humor to reset minds away from serious sustained focus on dehuamnization via message systems, a chat room of Republicans using machine-logic of out-group hate patterns, Reddit users using high-speed jokes to do the same dehuamnization dance by blowing minds out with "LMFAO" wrapping / framing / mindsets. Anything to avoid learning of Telegram media ecology nonfiction / Reddit media ecology nonfiction. "Amusing Ourselves To Death" book from year 1985 by Neil Postman explains our crisis - but people will not get on the same page of important and critical nonfiction learning.
+
