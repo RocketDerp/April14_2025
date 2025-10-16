@@ -2453,3 +2453,33 @@ https://old.reddit.com/r/nextfuckinglevel/comments/1o88wle/a_family_of_a_motorcy
 Fiction outsells nonfiction. We don't stand a chance against the billionares with their private long-runtime large-memeory generative artificial intelligence systems. The consumer-facing ChatGPT and Google and Grok A.I. are way more restricted than the no-limits on cost / resources for a single-job to create the perfect mind-fuck fiction. Plus, the private billionares-only club can violate copyright further / use private messages and such - that the public A. I. models would not have, because people would query them and find leaks of the training data. Solve that by not letting the public query certain "private reserve" models trained on extra sets of data. (Reminder: I worked in Bellevue Washington for the richest people on the planet as analyst on private staff)
 
 
+https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_continues_there/nju1cng/
+
+Humor-washing, Reddit engages in that for OVER TEN YEARS AND THREE MONTHS. That Trumpism is entertainment, to hate Trump is a fun sports. to mock MAGA and mock Trump and mock anyone who calls out mocking itself... The deepest religion faith, the TRUE GOD, the TRUTH RELIGION of people in USA is mocking. There is no supernatural, there are no outer space alien "Gods" sending messages. The TRUE GOD of the USA society is mocking and hate, guns and killing, running people down with cars, using machines and weapons to silence. To intimidate, to hate, to mock, to do ANYTHING POSSIBLE to KEEP PEOPLE from being serious about nonfiction science. That's the religion, that's the deepest faith. Hate and mocking and insulting.
+
+https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_continues_there/njtvjtt/
+
+https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_continues_there/njtklm6/
+
+Low-effort messaging, the deep feaith in shit-talk mockery messages with a tone of "right?" insincerity.
+
+https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_continues_there/njtme1y/
+
+https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_continues_there/njtlud2/
+
+I wish social media uses, Reddit community, would stand up and assert goodness. Assert nonfiction. Assert lessons on media ecology. Assert how Putin and Surkov have run Russia for 25 years as teaching material. Assert Jen Senko's year 2015 film (nonfiction).
+
+https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_continues_there/njtscnj/
+
+https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_continues_there/njtpsj2/
+
+"dipshit", low-effort information systems addicts are 100% of the nation, not just the out-group, Everyone. Reactionary mindsets, out-group hate. Faith in hate, faith in insutling, faith in mocking, faith in avoiding nonfiction learning. Faith in low-effort disposable commenting all on different pages.
+
+https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_continues_there/njtp318/
+
+<img width="852" height="488" alt="image" src="https://github.com/user-attachments/assets/0fcea526-ae87-497a-8d2e-f84f70f0da04" /> YES! Avoding nonfiction learning about Russian information warfare since year 2014. Staying FOCUSED on that learning, repeating it, sharing it with others. People need to be reading books together, on the same page at the same time and develop a shared comrpehension and understanding far deeper than television news and Reddit commenting.
+
+https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_continues_there/njtnks9/
+
+Tony Clifton acting, Surkovian governing. They all need to be rescued from Putin's mind-fucking. EVERYONE is they, the entire nation needs to be rescued from the Cambridge Analytica mindsets.
+
