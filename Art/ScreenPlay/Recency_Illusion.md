@@ -58,4 +58,12 @@ The modern TikTok trend
 
 * This newer version of the "6 7" joke is a meme that has no real meaning, and that's the point. 
 The joke: A child responds to almost any question with "six seven," often accompanied by a specific up-and-down hand motion. It originated from a rap song and a viral TikTok featuring basketball player LaMelo Ball, who is 6'7".
-* A child's understanding: A child understands this as an inside joke and a way to be silly. They know that the phrase has become a widespread trend among peers because it confuses and annoys adults, which makes it even funnier. For them, it's a way of participating in a shared cultural moment and bonding with friends over shared, absurdist humor. "
+* A child's understanding: A child understands this as an inside joke and a way to be silly. They know that the phrase has become a widespread trend among peers because it confuses and annoys adults, which makes it even funnier. For them, it's a way of participating in a shared cultural moment and bonding with friends over shared, absurdist humor."
+
+
+&nbsp;
+
+&nbsp;
+
+Warped sense of Bible / Christian      
+https://youtube.com/clip/Ugkx20-kxDSgwO2H_EegIVuobQLvzexg-7Kr
