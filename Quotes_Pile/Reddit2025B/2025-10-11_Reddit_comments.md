@@ -2483,3 +2483,15 @@ https://old.reddit.com/r/law/comments/1o8axz0/homan_if_the_hateful_rhetoric_cont
 
 Tony Clifton acting, Surkovian governing. They all need to be rescued from Putin's mind-fucking. EVERYONE is they, the entire nation needs to be rescued from the Cambridge Analytica mindsets.
 
+https://old.reddit.com/r/news/comments/1o8cezr/man_who_moved_to_us_aged_four_dies_after_being/njtxckv/
+
+If only people would hear that message. Declaring Trump a "bad person", people make him into some kind of super-God. They don't apply effort to anything but hate, 100% faith in hate. Blow out their hearts and minds on hate. Let Trump have his credit for winning, he is the best Tony Clifton performner there is. He worked with Putin. Give Trump the credit he deserves and actually deal with his talents as the problems that they are. We do not need an entertainer actor, we need reason thinking. We need what the Great Seal of the United States of America describes. Not monomyth science fiction!
+
+https://old.reddit.com/r/news/comments/1o8cezr/man_who_moved_to_us_aged_four_dies_after_being/njtze93/
+
+Autism...
+
+https://old.reddit.com/r/charlixcx/comments/1o8cscf/the_onion_is_brat/njuplw5/
+
+https://old.reddit.com/r/charlixcx/comments/1o8cscf/the_onion_is_brat/nju8an6/
+
