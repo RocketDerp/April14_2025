@@ -789,3 +789,11 @@ https://old.reddit.com/r/popculturechat/comments/1o91hb2/actor_bradley_whitford_
 Paradox mind-fucks the Reddit audience. People uneducated in nonficiton learning of Kremlin methods, Surkovian.  
 https://old.reddit.com/r/AskReddit/comments/1o93hzl/how_do_you_feel_about_jd_vance_calling_the_young/nk104i4/    
 it is a mass media technique of child-washing serious problems and situations, because children are innocent in the minds of people. The same thing goes on here constantly by tools Putin who call Trump a "baby", "child", and call Elon Musk a "child" - it casts them as not responsible for their adult choices and actions. Cambridge Analytica level stuff, beyond Edward Bernays. You see these messages constantly about Telegram (the leak from Young Republicans) and Bluesky / Reddit. Morality-washing on a scale never seen before in information warfare. The IRA really did a number on the hearts and minds in USA. I also see constant signals of dementia-washing - that people are not responsible for their negative hate and dehumanization - because they have physical brain disorders.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1o98e7h/til_in_2013_the_president_of_turkmenistan_fell/
+
+On Reddit people will dunk on this, but on Bluesky and Reddit both people constantly rerport messages to the Reddit secret police for removal / censorship. I've logged censored messages of mine on this GitHub. People block each other. Can't even face realty of a horse fall, can't face reality of a Unicode message on a comment section. Egomania prized.   
