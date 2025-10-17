@@ -797,3 +797,10 @@ it is a mass media technique of child-washing serious problems and situations, b
 https://old.reddit.com/r/todayilearned/comments/1o98e7h/til_in_2013_the_president_of_turkmenistan_fell/
 
 On Reddit people will dunk on this, but on Bluesky and Reddit both people constantly rerport messages to the Reddit secret police for removal / censorship. I've logged censored messages of mine on this GitHub. People block each other. Can't even face realty of a horse fall, can't face reality of a Unicode message on a comment section. Egomania prized.   
+
+&nbsp;
+
+&nbsp;
+
+MAGA calling everyone "stupid, dumb, idiots" right here on the front page of Reddit. And that's exactly what reddit calls MAGA "stupid, dumb idiots", everyone using low-effort media addictions, TikTok video clips. Just like Carl Sagan said in 1995. A professional teacher and media content creator who KNEW that 10-second sound bites in 1995 were gong to wreck the future.      
+https://old.reddit.com/r/CringeTikToks/comments/1o9a2kj/democrats_are_stupid/
