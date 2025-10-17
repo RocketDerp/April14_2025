@@ -2495,3 +2495,35 @@ https://old.reddit.com/r/charlixcx/comments/1o8cscf/the_onion_is_brat/njuplw5/
 
 https://old.reddit.com/r/charlixcx/comments/1o8cscf/the_onion_is_brat/nju8an6/
 
+https://old.reddit.com/r/news/comments/1o8hiix/former_trump_national_security_adviser_john/njux8x9/
+
+<img width="968" height="708" alt="image" src="https://github.com/user-attachments/assets/72166d5f-6963-455f-b943-b431fd183a77" /> People cheer on entertainment. Amusedment addiction, sports mentality. Evertying Neil Postman wrote about in his 1985 book "Amusing Ourselves To Death".
+
+https://old.reddit.com/r/news/comments/1o8hiix/former_trump_national_security_adviser_john/njux8x9/
+
+Yes, because it is a media cult. Like the Middle East: Quran science fiction story cult vs. Torah science fiction story cult. Each feeding the other in competition of fiction vs. fiction. Monomyth vs. monomyth.
+
+https://old.reddit.com/r/news/comments/1o8hiix/former_trump_national_security_adviser_john/njuxq4o/
+
+Exactly. Fiction vs. Fiction. Reddit fiction vs. Fox News fiction. All avoiding nonfiction learning of media ecology and avoiding teaching and educating. Anti-Malala values.
+
+https://old.reddit.com/r/news/comments/1o8hiix/former_trump_national_security_adviser_john/njv1vnp/
+
+Denial of Russian media invasion of Reddit since year 2013. Denial of Putin and Trump meeting in Alaska just this summer.
+
+https://old.reddit.com/r/news/comments/1o8hiix/former_trump_national_security_adviser_john/njuzwfk/
+
+Give up on rescue messages on Reddit. Abandon humanism. Worship low-effort commenting messages instead. That's the Reddit mind-fuck here.
+
+https://old.reddit.com/r/news/comments/1o8hiix/former_trump_national_security_adviser_john/njv20pv/
+
+If people took Russian information warfare as seriously as they take QAnon Pizzagate "Esptein Q Drops" of information. A list is not jail. A list is just information chasion. People are not calling out for giving girls voices all over the world, supporting Malala since year 2013, but instead calling out for information alone. Like photographs and details. 
+
+https://old.reddit.com/r/news/comments/1o8hiix/former_trump_national_security_adviser_john/njv8bgj/
+
+<img width="976" height="626" alt="image" src="https://github.com/user-attachments/assets/8f168fe1-7e1a-42d9-bae5-6f226a37c708" /> Yes, Reddit community sure likes to fall for low-effort low-thinking meme patterns. It shuts down thinking, it is thought-terminating topic. And all the spare time and free time devoted to reacting to the White House instead of standing up for authentic goodnsss. Same with Luigi since December 4, 2024 killing in Manhattan. People don't stand up for health care needs, people stand up for memes about video game character and sneak-attack murders. Why isn't the Second Bill of Rights from January 1944 known by every person on Bluesky and Reddit? Becuase it isn't a low-effort meme. It isn't like PizzaGate an other information Q drops / QAnon.
+
+https://old.reddit.com/r/news/comments/1o8hiix/former_trump_national_security_adviser_john/njuzbtm/
+
+USA is a low-effort messaging prizing society now. Anything to avoid non-ficiton learning and getting on the same page of important and critical topics.
+
