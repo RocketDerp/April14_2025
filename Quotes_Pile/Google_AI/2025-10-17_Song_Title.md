@@ -16,5 +16,7 @@ Prompt: " song from 15 years or so ago, female singer, not a huge hit song. Talk
 
 ### The Song ...
 
-https://youtu.be/rBxmidwDy2Y?t=41
+https://youtu.be/rBxmidwDy2Y?t=41    
+7,630,857 views October 31, 2011
+
 
