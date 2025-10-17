@@ -41,3 +41,7 @@ https://youtu.be/pNORRXPa7K0?t=1064
 Ready Player One Climate Change, Columbus Ohio year 2045. Contest started on January 7th, 2040.     
 https://old.reddit.com/r/Xennials/comments/1o7g05s/i_get_it_now/
 
+&nbsp;
+
+Just imagine people imagine in their mind that "God caused that hurricane and forest fire to punish those people who dress as Drag Queens, men who put on women's clothing", and Taliban values. Tower of Babel in our minds.     
+https://old.reddit.com/r/comics/comments/1o974i6/up_to_something_gator_days/
