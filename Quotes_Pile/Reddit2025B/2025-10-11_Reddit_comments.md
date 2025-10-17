@@ -2613,3 +2613,6 @@ https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_s
 https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_system_are_death_cults/njytohv/
 
 https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_system_are_death_cults/njyuhub/
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_system_are_death_cults/njyz1sj/
+
