@@ -804,3 +804,11 @@ On Reddit people will dunk on this, but on Bluesky and Reddit both people consta
 
 MAGA calling everyone "stupid, dumb, idiots" right here on the front page of Reddit. And that's exactly what reddit calls MAGA "stupid, dumb idiots", everyone using low-effort media addictions, TikTok video clips. Just like Carl Sagan said in 1995. A professional teacher and media content creator who KNEW that 10-second sound bites in 1995 were gong to wreck the future.      
 https://old.reddit.com/r/CringeTikToks/comments/1o9a2kj/democrats_are_stupid/
+
+&nbsp;
+
+&nbsp;
+
+Right on the front page of Reddit: "Pete Hegseth with utter fucking disrespect sitting in front of Zelenskyy today with a Russian flag on his tie. He is not even TRYING to hide his allegiance. Fucking piece of shit." - paradox, Tony Clifton, surreal, absurd, Surkovian.      
+https://old.reddit.com/r/ukraine/comments/1o9ds4e/i_hate_this_asshole_so_bad/
+
