@@ -29,3 +29,8 @@ Also note.. ignoring my specific request to NOT give me a song with "Nebraska" i
 The Lucy Rose song was not released until year 2015. And the music videi March 15, 2016. Which does not fit with the "about 15 years" ago criteria of the query / promot to Google AI.
 
 This was the start of a new session with the promot, a fresh browser. There were no previous promots in that question.
+
+I just went to a fresh session with free ChatGPT and it got it instantly. Exact same prompt.
+
+<img width="1890" height="774" alt="image" src="https://github.com/user-attachments/assets/4349df8b-8126-4068-8053-4dbecda26bd8" />
+
