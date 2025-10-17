@@ -2633,5 +2633,8 @@ Declaring everyone as "stupid", with extremely-short length disposable commentin
 
 https://old.reddit.com/r/clevercomebacks/comments/1o90vxz/political_clash_over_census/njzfaho/
 
-And not give away thier mind to low-effort disposable commenting "learning", where people suffer from extreme Recency Bias on Twitter (the screen shot of this Reddit posting is off Twitter low-effort media venue).
+And not give away thier mind to low-effort disposable commenting "learning", where people suffer from extreme Recency Bias on Twitter (the screen shot of this Reddit posting is off Twitter low-effort media venue). [ACTION PLAN: Be serious, halt all sports and games entertainment, halt mocking. Teach nonfiction. Use the spare time and free time that goes into constantly mocking Trump and Putin and actually stand up for getting on the same page.](/Grim_Blunt/Stop_All_Entertainment.md)
 
+https://old.reddit.com/r/clevercomebacks/comments/1o90vxz/political_clash_over_census/njyvetg/
+
+People in USA in October 2025 seem to have forgotten all kinds of nonfiction learning. Especially about media ecology and Russian information warfare. We have a massive crisis of recency bias and ficiton addictions driving behaviors.
