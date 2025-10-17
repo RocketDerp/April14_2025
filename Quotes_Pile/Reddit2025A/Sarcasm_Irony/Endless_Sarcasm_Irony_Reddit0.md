@@ -781,3 +781,11 @@ https://old.reddit.com/r/LivestreamFail/comments/1o94a9n/hasans_failed_coverup_o
 
 There it is agian, "funny names" right in the posting quote. Amusement washing, funny washing, joke-wshing of Reality. Surkovian governing. Reddit society can not see that reddit comment sections are ground-zero for washing away serious nonfiction reality with funny names. "Agent Orange", etc.      
 https://old.reddit.com/r/popculturechat/comments/1o91hb2/actor_bradley_whitford_i_am_living_in_a_world/
+
+&nbsp;
+
+&nbsp;
+
+Paradox mind-fucks the Reddit audience. People uneducated in nonficiton learning of Kremlin methods, Surkovian.  
+https://old.reddit.com/r/AskReddit/comments/1o93hzl/how_do_you_feel_about_jd_vance_calling_the_young/nk104i4/    
+it is a mass media technique of child-washing serious problems and situations, because children are innocent in the minds of people. The same thing goes on here constantly by tools Putin who call Trump a "baby", "child", and call Elon Musk a "child" - it casts them as not responsible for their adult choices and actions. Cambridge Analytica level stuff, beyond Edward Bernays. You see these messages constantly about Telegram (the leak from Young Republicans) and Bluesky / Reddit. Morality-washing on a scale never seen before in information warfare. The IRA really did a number on the hearts and minds in USA. I also see constant signals of dementia-washing - that people are not responsible for their negative hate and dehumanization - because they have physical brain disorders.
