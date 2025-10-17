@@ -776,3 +776,8 @@ The community has no sense of how bad things are already and how long it has bee
 
 There you go, right on the front page. Joke-washing. The black tape. Using humor exploits, amusement exploits, to ceate alternate realties. Reddit community itself is ground zero for joke-wshing amusement-washing Putin and Trump, Surkovian governing for over 10 years. And here is a joke-washing they see, but there is no self-awareness on Reddit that the commentingh laugh-tracks / mockery-tracks are used to Joke-wash Trump with ibllionare scale patterns.     
 https://old.reddit.com/r/LivestreamFail/comments/1o94a9n/hasans_failed_coverup_of_shocking_kaya_is_a_big/
+
+&nbsp;
+
+There it is agian, "funny names" right in the posting quote. Amusement washing, funny washing, joke-wshing of Reality. Surkovian governing. Reddit society can not see that reddit comment sections are ground-zero for washing away serious nonfiction reality with funny names. "Agent Orange", etc.      
+https://old.reddit.com/r/popculturechat/comments/1o91hb2/actor_bradley_whitford_i_am_living_in_a_world/
