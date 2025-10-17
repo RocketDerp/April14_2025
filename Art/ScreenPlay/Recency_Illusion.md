@@ -88,3 +88,6 @@ https://old.reddit.com/r/teenagers/comments/1o9dx61/my_step_mom_has_the_right_id
 
 Lisztomania situation? https://en.wikipedia.org/wiki/Lisztomania
 
+&nbsp;
+
+I've seen so many people this past 10 years adopt "Trump-speak", anything meme consumers find odd or unusual, people repeat and repeat and adopt. With zero self-awareness what they are doing to their brains. Programming Trump into their minds. There is no escape from the people all around adopting Twitter-think Trump-thinking, Surkovian values.   
