@@ -45,3 +45,8 @@ https://old.reddit.com/r/Xennials/comments/1o7g05s/i_get_it_now/
 
 Just imagine people imagine in their mind that "God caused that hurricane and forest fire to punish those people who dress as Drag Queens, men who put on women's clothing", and Taliban values. Tower of Babel in our minds.     
 https://old.reddit.com/r/comics/comments/1o974i6/up_to_something_gator_days/
+
+&nbsp;
+
+Populating the public library, the bricks of the Tower of Babel climb of human to human understanding of our own brain interpretation of reality.     
+https://old.reddit.com/r/meme/comments/1o95fd4/real/
