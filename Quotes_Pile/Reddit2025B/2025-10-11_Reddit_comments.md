@@ -2622,3 +2622,16 @@ https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_s
 
 <img width="930" height="634" alt="image" src="https://github.com/user-attachments/assets/a7f6e2db-22a2-4f4f-a090-911317105666" /> Elon Musk Mind Virus topic... "My son Xavier is dead, killed by the woke mind virus" - Elon Musk https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
 
+https://old.reddit.com/r/clevercomebacks/comments/1o90vxz/political_clash_over_census/njyu1bi/
+
+Tiny-short Reddit commenting, the most popular comment upvoted / liked on the topic. No links, no book titles, no author names, no quotes. Defending **Reality** means nothing to Reddit commenting community. People who prize disposable commenting, abandoned comment creation, over Wikipedia / Wiki system organization of progressive imporovement to comprehension and understanding. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/clevercomebacks/comments/1o90vxz/political_clash_over_census/njyukkb/
+
+Declaring everyone as "stupid", with extremely-short length disposable commenting. Offering no links, no author names, no article names, no book titles, nothing on the subject of how tiny-short disposable sound-bite messaging has made the population stupid and dumb. "Clever comebacks" framing of serious problems. Anything to avoid nonficiton serious sustained focus on critical topics of this media video / media ecology. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/clevercomebacks/comments/1o90vxz/political_clash_over_census/njzfaho/
+
+And not give away thier mind to low-effort disposable commenting "learning", where people suffer from extreme Recency Bias on Twitter (the screen shot of this Reddit posting is off Twitter low-effort media venue).
+
