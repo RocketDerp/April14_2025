@@ -2660,3 +2660,16 @@ https://old.reddit.com/r/AskReddit/comments/1o93hzl/how_do_you_feel_about_jd_van
 
 No link, no citation, no quote, just tiny-short comment. Avoding of author names, avoiding of book titles, etc. "they". Wildcard meaning.
 
+https://old.reddit.com/r/politics/comments/1o980v6/yeah_we_like_hitler_gaines_defends_leaked_gop_chat/nk1a4yz/
+
+Tower of Babel, color skin guide, don't go out in the sunshine too much, you get tanned skin.
+
+https://old.reddit.com/r/politics/comments/1o980v6/yeah_we_like_hitler_gaines_defends_leaked_gop_chat/nk0yfrz/
+
+Cringle Nation, Cringe society. Cringe is Cringe. Superficial, shallow, prizing any of the tiniest differences to program minds with hate-patterns. This is the Cambridge Analytica aftermath. Out-group hate leadership obdience.
+
+https://old.reddit.com/r/politics/comments/1o980v6/yeah_we_like_hitler_gaines_defends_leaked_gop_chat/nk0cg3g/
+
+<img width="974" height="370" alt="image" src="https://github.com/user-attachments/assets/f4df2952-7ea4-4955-8fff-d820a0d7f87a" /> Because... we have known since February 28, 1954. Those who hate Trump blow out their own minds, as explained by MLK Jr. People can not engage nonfiction learning of the public library. Russia won, Surkov won. ... ... ...      
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. **For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost***." - Martin Luther King Jr.
+
