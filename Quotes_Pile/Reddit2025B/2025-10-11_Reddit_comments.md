@@ -2527,3 +2527,14 @@ https://old.reddit.com/r/news/comments/1o8hiix/former_trump_national_security_ad
 
 USA is a low-effort messaging prizing society now. Anything to avoid non-ficiton learning and getting on the same page of important and critical topics.
 
+https://old.reddit.com/r/law/comments/1o8kq0k/jimmy_kimmel_on_ag_pam_bondi_blaming_antifa_for/njw6lu4/
+
+There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/law/comments/1o8kq0k/jimmy_kimmel_on_ag_pam_bondi_blaming_antifa_for/njvpeqz/
+
+Looks, citations, names. The major problem is the lack of structure of repeating this in organied gathers, such as every 12 hours a nonfiction learning session on Russia's War Against Reality since year 2013. The prizing of commenting on different pages with disposable messages fragments everyone.
+
+https://old.reddit.com/r/MonsterHunter/comments/1o8bkkr/what_a_big_crown/njvczrx/
+
+Unable to tell if A. I.
