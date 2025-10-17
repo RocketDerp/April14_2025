@@ -1715,3 +1715,10 @@ https://old.reddit.com/r/SipsTea/comments/1o51vda/turn_of_events/
 
 Faith in weapon systems and military saving the world, faith that killing machines will save humanity.    
 https://old.reddit.com/r/anime_irl/comments/1o6k55r/anime_irl/
+
+&nbsp;
+
+&nbsp;
+
+Parenting in Palestine ....      
+https://old.reddit.com/r/CuratedTumblr/comments/1o9a4m3/consent/
