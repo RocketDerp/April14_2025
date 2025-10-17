@@ -34,3 +34,6 @@ I just went to a fresh session with free ChatGPT and it got it instantly. Exact 
 
 <img width="1890" height="774" alt="image" src="https://github.com/user-attachments/assets/4349df8b-8126-4068-8053-4dbecda26bd8" />
 
+&nbsp;
+
+For the recrod: This was a legit query for me. I could not remember any other lyrics, I could not remember the name of the artist, I could not rember the name of the song. I listened to the song at least 25 times back in year 2012 or 2013 - I think Amazon music gave me a free copy. But songs I like I tend not to memorize or recall well. But I was readinb about a medical clinic closing today in Nebraska and I recalled part of the tune in my mind and this was the promot I came up with. I tried other Google A. I. sessions with other promots and it always keep fixating on the song-title having "Nebraska" in it instead of in the lyrics about naming a child / calling a child.
