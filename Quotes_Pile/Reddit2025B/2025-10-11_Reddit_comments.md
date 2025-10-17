@@ -2620,4 +2620,5 @@ https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_s
 
 https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_system_are_death_cults/njx85vs/
 
-Elon Musk Mind Virus....
+<img width="930" height="634" alt="image" src="https://github.com/user-attachments/assets/a7f6e2db-22a2-4f4f-a090-911317105666" /> Elon Musk Mind Virus topic... "My son Xavier is dead, killed by the woke mind virus" - Elon Musk https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
