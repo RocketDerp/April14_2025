@@ -2646,3 +2646,17 @@ Russian information warfare using Cambridge Analytica payloads since year 2013 h
 https://old.reddit.com/r/interesting/comments/1o8zasz/budd_dwyer_moments_before_he_took_his_own_life_on/njzneuk/
 
 Mental health, honesty is very rare. OPERA_A REPEAT_TRACK Honesty... https://www.youtube.com/watch?v=SuFScoO4tb0
+
+https://old.reddit.com/r/AskReddit/comments/1o93hzl/how_do_you_feel_about_jd_vance_calling_the_young/njzfkuy/
+
+child-washing, amusement-washing, humor-washing. Casting as innoceent and harmless what is Russian information warfare / Cambridge Anlaytica outcomes / mindsets.
+
+https://old.reddit.com/r/AskReddit/comments/1o93hzl/how_do_you_feel_about_jd_vance_calling_the_young/nk05ks8/
+
+Reddit commenting avoids real names, so JD Vance has mastered what the Reddit audience prizes. No-identity dispsoable messaging. ANYTHING to avoid serous nonfiction learning of science. JD Vance, reddit community - all hiding real names and playing fiction stories. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/AskReddit/comments/1o93hzl/how_do_you_feel_about_jd_vance_calling_the_young/njziaea/
+
+No link, no citation, no quote, just tiny-short comment. Avoding of author names, avoiding of book titles, etc. "they". Wildcard meaning.
+
