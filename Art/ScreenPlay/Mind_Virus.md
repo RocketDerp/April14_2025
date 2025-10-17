@@ -1,4 +1,4 @@
-# Mnd Virus
+# Mind Virus
 
 The richest man in the world says there are "Mind Virus" and he is actively out to eliminate some of them. He runs a massive media platform: Twitter / X, and SpaceX has a huge media following with live rocket launches and explosions.
 
