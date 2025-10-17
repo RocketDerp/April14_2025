@@ -28,3 +28,15 @@ Attraction to Fiction
 Attraction to MonoMyth   
 MonoMyth Inputs   
 Addiciton to Fiction    
+
+&nbsp;
+
+&nbsp;
+
+Entertainment-washing    
+Fox News washing    
+Foxy Clever News Washing (FCNW)    
+Clever Fox Washing    
+Amusment Mills    
+Amusement Washing    
+Similar themes of Neil Postman was right in 1985    
