@@ -71,3 +71,20 @@ https://youtube.com/clip/Ugkx20-kxDSgwO2H_EegIVuobQLvzexg-7Kr
 
 The World is the character of Cartman now... so the Cartman character has changed since "Woke is Dead".     
 https://youtu.be/K1XWqp3Z-oY?t=762
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+Friday October 17, 2025 - front page of Reddit     
+
+<img width="756" height="767" alt="image" src="https://github.com/user-attachments/assets/2c28def0-e739-47c3-8dba-043349df039a" />
+
+&nbsp;
+
+https://old.reddit.com/r/teenagers/comments/1o9dx61/my_step_mom_has_the_right_idea_shes_a_elementary/
+
+Lisztomania situation? https://en.wikipedia.org/wiki/Lisztomania
+
