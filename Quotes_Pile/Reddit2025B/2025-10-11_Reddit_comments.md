@@ -2642,3 +2642,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1o90vxz/political_clash_over_c
 https://old.reddit.com/r/clevercomebacks/comments/1o90vxz/political_clash_over_census/njznt7y/
 
 Russian information warfare using Cambridge Analytica payloads since year 2013 has really done a number on minds. Fiction addictions, avoidance of nonfiction, abounds.
+
+https://old.reddit.com/r/interesting/comments/1o8zasz/budd_dwyer_moments_before_he_took_his_own_life_on/njzneuk/
+
+Mental health, honesty is very rare. OPERA_A REPEAT_TRACK Honesty... https://www.youtube.com/watch?v=SuFScoO4tb0
