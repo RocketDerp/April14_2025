@@ -20,3 +20,12 @@ https://youtu.be/rBxmidwDy2Y?t=41
 7,630,857 views October 31, 2011
 
 
+&nbsp;
+
+&nbsp;
+
+Also note.. ignoring my specific request to NOT give me a song with "Nebraska" in the title, since Google A.I. on previous search sessions seems to be shallow on the title vs. body / lyircs....
+
+The Lucy Rose song was not released until year 2015. And the music videi March 15, 2016. Which does not fit with the "about 15 years" ago criteria of the query / promot to Google AI.
+
+This was the start of a new session with the promot, a fresh browser. There were no previous promots in that question.
