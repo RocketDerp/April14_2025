@@ -2726,3 +2726,21 @@ Can't stand reality of: Palestine terrorism attacking Israel, Israel attacking p
 https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk13g64/
 
 <img width="1694" height="318" alt="image" src="https://github.com/user-attachments/assets/ca6cf974-72ea-4959-af1b-86b3916e5f75" /> Mass mind denial. Denial of information warfare and "mind virus" efforts by Elon Musk to create mob mentality in media audiences / populations. Then let Rupert Murdcoh gaslight an entire nation with Fox News and don't blame Rupert Murdoch. Don't blame Elon Musk for turning Twitter into a pro-nazi pro-hate training camp. Don't bame the Mosque for terrorism teaching. Don't blame any school systems for teaching the wrong technique with health care or food safety. Because nothing is evey anyone else's responsibility. Eat up the Russian IRA warfare and hide you real name on Reddit disposable messages. Let the billionares take over every media system in USA and don't blame the dozen billionares lined up January 20, 2025 at the front row of innguration. Because nobody should ever blame "the powers that be" for poblems. Don't blame Trump and Putin!
+
+https://old.reddit.com/r/politics/comments/1o990xb/trump_drops_f_bomb_live_on_air_during_zelensky/nk0vv6d/
+
+... Onion eating. All "accidental" that wild and zany behavior works in a society of mocking addicts, media addicts, hate addicts who can't stop prizing low-effort disposable commenting to avoid nonficiton serious learning about climate change and other aspects of real reality. Nonfiction science. Reddit fiction addicts can't grasp a White House full of fiction addicts. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/politics/comments/1o990xb/trump_drops_f_bomb_live_on_air_during_zelensky/nk14w2k/
+
+Reddit audience fantasy about future seasons of the Anti-Reality Kremlin and White House entertainment.
+
+https://old.reddit.com/r/politics/comments/1o990xb/trump_drops_f_bomb_live_on_air_during_zelensky/nk0zzac/
+
+It is indeed crazy. Drives me crazy. Putin information warfare has wrecked the USA mass mind. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1o990xb/trump_drops_f_bomb_live_on_air_during_zelensky/nk0j5o6/
+
+Social media society, brairot of no-identity disposable commenting addictions. Everything Neil Postman spelled out in his 1985 book "Amusing Ourselves To Death" in the nonfiction section everyone is avoiding. Media ecology learning.
+
