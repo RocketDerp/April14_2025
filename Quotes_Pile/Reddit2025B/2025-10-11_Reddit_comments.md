@@ -2586,5 +2586,15 @@ https://old.reddit.com/r/politics/comments/1o8jvmh/republican_governor_orders_na
 
 The Brainrot is from HDTV, social media commenting. The prizing of disposable content as the most important. High-speed media "breaking news" over getting on the same page. Neil Postman, not Neil Young.
 
+https://old.reddit.com/r/politics/comments/1o8jvmh/republican_governor_orders_national_guard/njwetn0/
 
+Correct. The whole "they are weak, they are afraid" is bullshit. Living in anti-reality.
+
+https://old.reddit.com/r/politics/comments/1o8jvmh/republican_governor_orders_national_guard/njwk6bp/
+
+Correct. Motivated by major misunderstandings and Russian information warfare motivations, fiction.
+
+https://old.reddit.com/r/politics/comments/1o8jvmh/republican_governor_orders_national_guard/njwne5u/
+
+People have no direction, low-effort commenting, disposable messaging is what sunk the nation. Hearts and minds lost to Russia. The addiction to fiction needs to be addressed.
 
