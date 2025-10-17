@@ -2744,3 +2744,11 @@ https://old.reddit.com/r/politics/comments/1o990xb/trump_drops_f_bomb_live_on_ai
 
 Social media society, brairot of no-identity disposable commenting addictions. Everything Neil Postman spelled out in his 1985 book "Amusing Ourselves To Death" in the nonfiction section everyone is avoiding. Media ecology learning.
 
+https://old.reddit.com/r/MadeMeSmile/comments/1o9eirk/a_woman_puts_a_giant_skeleton_in_her_jeep/nk20ese/
+
+This is what drives our nation now. tiny-think short commenting addictions.
+
+https://old.reddit.com/r/MadeMeSmile/comments/1o9eirk/a_woman_puts_a_giant_skeleton_in_her_jeep/nk1zabw/
+
+https://old.reddit.com/r/MadeMeSmile/comments/1o9eirk/a_woman_puts_a_giant_skeleton_in_her_jeep/nk1oylc/
+
