@@ -2637,4 +2637,8 @@ And not give away thier mind to low-effort disposable commenting "learning", whe
 
 https://old.reddit.com/r/clevercomebacks/comments/1o90vxz/political_clash_over_census/njyvetg/
 
-People in USA in October 2025 seem to have forgotten all kinds of nonfiction learning. Especially about media ecology and Russian information warfare. We have a massive crisis of recency bias and ficiton addictions driving behaviors.
+<img width="1438" height="248" alt="image" src="https://github.com/user-attachments/assets/fdec0e1f-4c2e-4a00-8445-2675cd1bf086" /> People in USA in October 2025 seem to have forgotten all kinds of nonfiction learning. Especially about media ecology and Russian information warfare. We have a massive crisis of recency bias and ficiton addictions driving behaviors.
+
+https://old.reddit.com/r/clevercomebacks/comments/1o90vxz/political_clash_over_census/njznt7y/
+
+Russian information warfare using Cambridge Analytica payloads since year 2013 has really done a number on minds. Fiction addictions, avoidance of nonfiction, abounds.
