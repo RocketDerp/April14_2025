@@ -757,3 +757,15 @@ https://old.reddit.com/r/NoFilterNews/comments/1o6mqvc/none_of_the_last_31_polit
 Sarcasm, Irony, Paradox staring Reddit community in the face. Everything Neil Postman said in his 1985 book "Amusing Ourselves To Death" about detachment via Twitter media ecology. These are Twiter messags. But Reddit does the same thing, so Reddit audience can't see thier own behavior of turning all important and seirous things about life into entertainment amusement joke. Just a matter of star-ratings and changing minds. No core values of goodness. Fiction addiction mindset, that real life events should all be turned into entertainment. And when people are entertaining or good enough, you dehumanize LIVING REAL PEOPLE, and not the system of media. People still love the Twitter media machines and Reddit media machines, but have abandoned loving human persons. Machine lust, humans are hate. Throwing out people, filling minds with media trash.
 
 https://old.reddit.com/r/okbuddycinephile/comments/1o82f7a/movies_you_used_to_love_but_cant_stand_now/
+
+&nbsp;
+
+&nbsp;
+
+Here is the paradox on the front page of Reddit:   
+
+https://old.reddit.com/r/Snorkblot/comments/1o92vvl/at_the_bottom/
+
+but Reddit users can't imagine that billionares like Rupert Murdoch and Elon Musk with media empires aren't manipulating popularity on Reddit itself. Elon Musk has his own ISP (Starlink), datacenters for X / SpaceX / Tesla autoomobiles / Grok AI training, tons of skilled people... and Reddit users that prize disposable accounts and banning think that real people speaking up against the monster state values (corporate and government in October 2025) aren't being targeted by mystery moderators on Reddit? That fake reports of comments and users aren't driving removal? And the anti-forgiveness policies of dehuamnization - secret police of admins and moderators who remove content. 
+
+The ocmmunity has no sense of how bad things are already and how long it has been gong on. I used to work for the richest people in the entire world in Bellevue Washington in media systems. NFL and NBA sports owners, I was there with all the inside Edward-Snowden level access to how media systems and apps are used by the wealthiest people in the world. I traveled to Algeria in Africa and to Jordan in the Middle East to study the media ecology / social media of the Arab Spring. I'm on the billionare shit list because I stood up to the Halloween documents and the Rupert Murdoch / Elon Musk / Putin media systems techniques / the Internet Research Agency and Cambridge Analytica. Yet Reddit users can not see how often nonfiction is avoided. Even links to Wikipedia are banned / removed / forbidden all over Reddit. The constant focus on low-effort disposable "sounds good" commenting that drives society in total / Truth Social values.
