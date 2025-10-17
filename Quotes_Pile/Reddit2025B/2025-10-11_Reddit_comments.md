@@ -2561,3 +2561,30 @@ https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_chan
 
 https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_channels_criticizing/njvqnkw/
 
+https://old.reddit.com/r/CringeTikToks/comments/1o8lc0o/rfk_jr_today_the_average_teenager_in_this_country/njw046v/
+
+The Internet Research Agency won.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o8lc0o/rfk_jr_today_the_average_teenager_in_this_country/njw0emc/
+
+Donald Trump Real Estate King / Landlord King. Luigi the Manhattan killer is also a society king coming from Real Estate / Landlords.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o8lc0o/rfk_jr_today_the_average_teenager_in_this_country/njw0q6m/
+
+It is NOT easy keeping your mind to mass mind / mass man / mob mentality. MLK Jr is a great teacher on this subject. It is very painful to choose authentic goodness and hold on to it. People have not stood up for goodness itself. ... ... ...       
+February 28, 1954: "**Most people can't stand up for their convictions, because the majority of people might not be doing it.** See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. It's wrong to hate. It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+https://old.reddit.com/r/CringeTikToks/comments/1o8lc0o/rfk_jr_today_the_average_teenager_in_this_country/njwmnin/
+
+Reddit has bots / code in place to PREVENT citations. Let that sink in. Low-effort commenting is encouraged, having actual links to citations and sources discouraged / forbidden.
+
+https://old.reddit.com/r/politics/comments/1o8jvmh/republican_governor_orders_national_guard/njvs3wx/
+
+We have a lyric and poetry interpretation crisis. Bible verse "1 John 3:17"
+
+https://old.reddit.com/r/politics/comments/1o8jvmh/republican_governor_orders_national_guard/njwfik6/
+
+The Brainrot is from HDTV, social media commenting. The prizing of disposable content as the most important. High-speed media "breaking news" over getting on the same page. Neil Postman, not Neil Young.
+
+
+
