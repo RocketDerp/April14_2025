@@ -2673,3 +2673,56 @@ https://old.reddit.com/r/politics/comments/1o980v6/yeah_we_like_hitler_gaines_de
 <img width="974" height="370" alt="image" src="https://github.com/user-attachments/assets/f4df2952-7ea4-4955-8fff-d820a0d7f87a" /> Because... we have known since February 28, 1954. Those who hate Trump blow out their own minds, as explained by MLK Jr. People can not engage nonfiction learning of the public library. Russia won, Surkov won. ... ... ...      
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. **For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost***." - Martin Luther King Jr.
 
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk13rop/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk18o2o/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk1dm7a/
+
+The most vile people on the entire planet of over 8 billion people. Left vs. right brainrot. Putin and Trump has been bombarding the entire world with mind-fuck since year 2013 - joined by Elon Musk since year 2022 - joined by other billionares with ChatGPT and other A.I. since year 2022. And this small group is the worst in the world. Billionares are manipulating every aspect of society, not just messaging systems / media systems, but people's ability to live / housing / visas / medical systems (CDC / RFK Jr) / health insurance. And people woh use words are the worst in the world. Tower of Babel egomania abounds.
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk19pc8/
+
+Faith in hate itself is the problem. This is a society that prizes hate. Every time Trump image appears on social media, flocking to hate. It's all conditioned, expected, and being used as a system of control. ... ... ...       
+"What this film is going to suggest is that that defeatist response **has become a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov**, who is a hero of our time. Surkov is one of President Putin's advisers, and has helped him maintain his power for 15 years, but **he has done it in a very new way**." - December 31, 2014 - more than a decade ago. BBC, Adam Curtis.
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk15b8x/
+
+Fiction addiciton, attraction to trash leaders, attraction to antics, attraction to Donald Trump is wrecking the whole fucking world wide web and real people! It isn't just media! Ukraine war since February 2014 isn't just media. People do not grasp the behavior of "mass man" (Marshall McLuhan term), "mass mind" (Howard Bloom terminology). Hundeds of millions of people who have put Trump the center of all USA language and dialog do not have dementia. People are in deep denial of the mass psychosis and ignorant of mass mind / mob mentality / group-thinking disorders / media cults. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk1fiar/
+
+Liberal vs. conservative 1-bit values is brainrot. The Founding Fathers of the USA did not create this bi-polar logic thinking. People use it to normalize fiction addictions. ... ... ...    
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk1hnad/
+
+To discuss Gaza year 2023 and not discuss Malala year 2013 book is to ride the violence and bombing and not call for massive reform of the clergy and morality. The toxic terrorism male attitudes in Islam need to be confronted directly. Malala has many great ideas and is articulate. Islam has not had the Germany Martin Luther reformation of clergy marriage (Martin Luther married a nun, Katharina von Bora) ... ... ...      
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. Published October 8, 2013. A decade before Palestine terrorism of October 7, 2023.
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk17oqm/
+
+The USA is hopeless on the world stage with that attitude. Twice electing Donald Trump. People aren't allowed to actually learn from mistakes. Humanity has this problem, like... 8,000 years. Prizing hate. Prizing dehumanization.  ... ... ...     
+"All of you guys out there in the Middle East are out of the same Melting Pot. And you're all as crazy as a butterfly on absenth. I don't know whether you're all Canaanites at the base or you're all Jews at the base or out of the land of Nod or whatever the hell you were at the get go. Semites or whatnot, but you've been fighting there now for something like 8,000 years. And you've never had 5 minutes of quiet and peace. You're forever killing each other and sticking knives at each other and burning babies and the world has had to suffer with this.
+
+Great things have come out of the Middle East. Great things like the rubat of Omar kayam but stupidity seems to be your chief export. Stupidity and violence are your cash crops all you. And this was before September 11th and I said my solution to the problem in the Middle East is this:" - [Harlon Ellison Interview](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk14a5g/
+
+Like on Bluesky and Reddit and everywhere in year 2025. We can't even trade Unicode messages on media systems. We have a massive humanity problem of prizing hate. Tower of Babel war waging.
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk13wo9/
+
+Donald Trump is a rolde model of this. President Tony Clifton, hate your audience, very very popular on Reddit communities. Reddit audience flocks to the hate signals and hates in predictable compusive behaviors. Hate itself is popular. Popularity is fucking toxic! Trump and Putin *hate your audience, hate people* values were in place since year 2013, July 2015 campaign. "In 2016, Piker created and hosted The Breakdown, a TYT Network video series which aired on Facebook" - so he is following the Donald Trump media success, role model. Hate harder. Reddit audience keeps front-paging this hate worship. 
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk13jp4/
+
+... Joseph Campbell ... Gaza / Palestine ...
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk1dhux/
+
+Can't stand reality of: Palestine terrorism attacking Israel, Israel attacking palestine. Donald Trump and Putin's war against nonfiction. Reddit community is in so much denial of what is actually happeing in the world in terms of "reality", and being able to cope with all the bullshit and deception leadership. Defending **Reality** means nothing to Reddit commenting community. People who prize disposable commenting, abandoned comment creation, over Wikipedia / Wiki system organization of progressive imporovement to comprehension and understanding. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9bp7w/hasan_is_crashing_out_saying_he_would_have_gone/nk13g64/
+
+<img width="1694" height="318" alt="image" src="https://github.com/user-attachments/assets/ca6cf974-72ea-4959-af1b-86b3916e5f75" /> Mass mind denial. Denial of information warfare and "mind virus" efforts by Elon Musk to create mob mentality in media audiences / populations. Then let Rupert Murdcoh gaslight an entire nation with Fox News and don't blame Rupert Murdoch. Don't blame Elon Musk for turning Twitter into a pro-nazi pro-hate training camp. Don't bame the Mosque for terrorism teaching. Don't blame any school systems for teaching the wrong technique with health care or food safety. Because nothing is evey anyone else's responsibility. Eat up the Russian IRA warfare and hide you real name on Reddit disposable messages. Let the billionares take over every media system in USA and don't blame the dozen billionares lined up January 20, 2025 at the front row of innguration. Because nobody should ever blame "the powers that be" for poblems. Don't blame Trump and Putin!
