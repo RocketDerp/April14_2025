@@ -1,6 +1,6 @@
 # Untrue
 
-&nbps;
+&nbsp;
 
 https://autistics.life/@RoundSparrow/115390901395794815       
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m3fvffb6s22i
