@@ -2598,3 +2598,9 @@ https://old.reddit.com/r/politics/comments/1o8jvmh/republican_governor_orders_na
 
 People have no direction, low-effort commenting, disposable messaging is what sunk the nation. Hearts and minds lost to Russia. The addiction to fiction needs to be addressed.
 
+https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_system_are_death_cults/njwm8ad/
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_system_are_death_cults/njxu959/
+
+https://old.reddit.com/r/Antimoneymemes/comments/1o8nra9/western_religionmoney_system_are_death_cults/njy02zd/
+
