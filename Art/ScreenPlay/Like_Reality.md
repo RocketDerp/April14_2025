@@ -25,7 +25,7 @@ https://news.cornellcollege.edu/dr-martin-luther-kings-visit-to-cornell-college.
 
 &nbsp;
 
-&npbs;
+&npsp;
 
 https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3m3frhpuyb22i         
 https://autistics.life/@RoundSparrow/115390622332672406        
