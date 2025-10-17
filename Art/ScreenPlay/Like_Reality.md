@@ -23,4 +23,11 @@ https://news.cornellcollege.edu/dr-martin-luther-kings-visit-to-cornell-college.
 
 <img width="586" height="767" alt="image" src="https://github.com/user-attachments/assets/357d5c52-23a4-4646-8ca1-81de04213d9d" />
 
+&nbsp;
+
+&npbs;
+
+https://bsky.app/profile/did:plc:rwyn2e7jpkbhgnmruwj5tqoq/post/3m3frhpuyb22i         
+https://autistics.life/@RoundSparrow/115390622332672406        
+https://midwest.social/post/37247668
 
