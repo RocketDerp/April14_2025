@@ -1,6 +1,6 @@
 # Book Title
 
-Focus on the "Must Be Soe Kind of Misunderstanding"
+Focus on the "Must Be Some Kind of Misunderstanding"
 
 1. Tower of Babel themes, even within the same religion and same English language
 
@@ -12,3 +12,10 @@ Focus on the "Must Be Soe Kind of Misunderstanding"
 
 # [Misunderstanding / Mistake](Misunderstanding_Mistake.md)
 
+&nbsp;
+
+&nbsp;
+
+Titles?    
+Our Mistake ("My Struggle" hitler)    
+We The People, Our Mistake     
