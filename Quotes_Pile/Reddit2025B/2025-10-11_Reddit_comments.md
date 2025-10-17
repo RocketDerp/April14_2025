@@ -2538,3 +2538,26 @@ Looks, citations, names. The major problem is the lack of structure of repeating
 https://old.reddit.com/r/MonsterHunter/comments/1o8bkkr/what_a_big_crown/njvczrx/
 
 Unable to tell if A. I.
+
+https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_channels_criticizing/njw2ooi/
+
+https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_channels_criticizing/njvtaa5/
+
+Denial abounds.
+
+https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_channels_criticizing/njvqewz/
+
+The filter bubbles abound and have since year 2013 become nonstop hard-core towards fiction.
+
+https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_channels_criticizing/njvpi2r/
+
+Drowing evryone in low-effort dispsoable commenting on different pages is the cause of problems.
+
+https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_channels_criticizing/njvs7bu/
+
+https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_channels_criticizing/njvymtb/
+
+https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_channels_criticizing/njvxefb/
+
+https://old.reddit.com/r/videos/comments/1o8kwgo/youtube_is_now_terminating_channels_criticizing/njvqnkw/
+
