@@ -34,3 +34,13 @@ https://youtu.be/C_L-S-0Gc4I?t=71 "Never dreamed I'd have this feeling"
 
 Not showing for the walk-on part in the War.    
 We had to have our weak-spot as a society, how can you not overlook something? Since then I've been running around for the USA Mass Mind, we all lost our mind, we had to overlook something, and from year 1993 onward, Earternal September, we made some kind of mistake - in Marshall McLuhan and Neil Postman not being made as important as math and English.    
+
+Didn't connect, waited for your call?   Woman in the video images.   
+Suite Madame Blue.    
+ERA act.    Malala Y.
+https://www.youtube.com/watch?v=CkkQPxoxJJY
+
+Equinox, 1975 ....
+March 22, 1979 was our missed deadline on ERA.       
+Recorded June 15, 1979, Misunderstandig   
+
