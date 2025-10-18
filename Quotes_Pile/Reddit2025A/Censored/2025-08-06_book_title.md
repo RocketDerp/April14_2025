@@ -1,5 +1,8 @@
 https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive_on_the_epstein_situation/n7bmy21/
 
+Forbidden disappeared secret-police removed message:     
+https://old.reddit.com/r/PublicFreakout/comments/1mjifke/trump_getting_defensive_on_the_epstein_situation/n7bvq0h/
+
 &nbsp;
 
 
