@@ -2925,3 +2925,57 @@ https://old.reddit.com/r/videos/comments/1o9v6mm/gop_frames_no_kings_protests_ac
 https://old.reddit.com/r/videos/comments/1o9v6mm/gop_frames_no_kings_protests_across_50_states_as/nk5092q/
 
 Minds-blown into comedy. Minds blown into meme stupors. LOL LOL LOL hillarious that this pattern of talking blows everyone in the audience into a stupor of attraction to trash low-effort information systems.
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4o7xc/
+
+Everyghing is media ecology. Garbage trash junk information prized, everyone on different pages, serious nonfiction being avoided.
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4p8xf/
+
+Fiction outsells nonfiction. Nonfiction is considered boring, tedius, unwanted. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4t6eo/
+
+"They" have found fiction outsells nonfiction. Look at reddit voting patterns. People do not want to sustain long-term focus on critical important nonfiction issues. Turning to fiction prediction of the future. Year 2027 USA. ... ... ...      \
+"I was born in 2027, after the corn syrup droughts, after the bandwidth riots, **after people stopped trying to fix problems and just tried to outlive them**. My parents, they didn't make it through those times, so I live here in Columbus, Ohio with my aunt Alice. In 2045, Columbus is the fastest growing city in the world." - https://en.wikiquote.org/wiki/Ready_Player_One_(film)
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4sjrs/
+
+++ Bluesky.
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4yds4/
+
+Tiny-short length. No link, no author name. https://en.wikipedia.org/wiki/Turn_on,_tune_in,_drop_out
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk5gse1/
+
+No links, no author names, no book titles, etc.
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4mr1k/
+
+No quotes, no links, no author names, no citations. Anything to avoid nonficiton serious **sustained focus** (getting on the same page) on critical topics of media ecology. Someone [in reply did provide the quote](https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4xcmo/), but there is no call for mass movement to address this. Why isn't Jen Senko a household name? Social media is not standing up. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4mvb3/
+
+The brains are not shit, it is the low-effort flocking to shit content on meme mills, messages like this. Why can't people get behind Malala's reformation of educaiton and teaching? Her father was a teacher. She was blogging about education and school since January 2009. Instead, pepople prize disposable commenting. Anti-malala anti-Wiki refinement of everyone on same page progressive education. ... ... ...    
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4s0tm/
+
+I'm not against the world of Ready Player One Columbus Ohio year 2045 if that is  what pepole choose in the face of climate change. A virtual world with a smaller footprint. Better than the war of Interstellar 2014 film story. But people have to stop flocking to different pages with disposable commenting and be serious about the world we are facing. Nonfiction education is very important right now, and Reddit and Bluesky could be promoting Malala's educaiton reforms and even teaching critical improtant topics of nonfiction learning. Instead of prizing hate, prizing low-effort reaction commenting that fragments comprehension and understanding. We have alraedy experienced what Fox News since year 1996 has done to our friends and neighbors, why did we not make Jen Senko a household name since year 2015? Why can't social emdia stand up for Jen Senko and Malala and assert the problems of media ecology / nonfiction learning? The brainwashing that comes from "entertainment news" Fox News and Reddit / Bluesky meme-wrapping entertainment?
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4uubx/
+
+Anti-goodness, anti-science, a population that flocks to trash inforamtion on meme mills.
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4pv5s/
+
+Abandonment of The Enlightenment. Abandonmnet of Founding Fathers thinking system. Abandonment of the Great Seal of the United States of America teaching tool / instruction tool. George Lucas tried to revive it filming "Power of Myth" in year 1986 and 1987. Alas, even Star Wars fans can't quote the Skywalker Ranch interviews. www.GreatSealUSA.com ... ... ...    
+"the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4urhv/
+
+It's the Russian War Against Reality. We lost an information war and people don't even realize post-truth came *after the 2013 war was lost*.   described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
