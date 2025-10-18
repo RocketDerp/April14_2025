@@ -91,3 +91,8 @@ Lisztomania situation? https://en.wikipedia.org/wiki/Lisztomania
 &nbsp;
 
 I've seen so many people this past 10 years adopt "Trump-speak", anything meme consumers find odd or unusual, people repeat and repeat and adopt. With zero self-awareness what they are doing to their brains. Programming Trump into their minds. There is no escape from the people all around adopting Twitter-think Trump-thinking, Surkovian values.   
+
+&nbsp;
+
+Adults can't understand "6 7", you gotta be kidding.     
+https://youtu.be/pe4R3nk1Lc4?t=124
