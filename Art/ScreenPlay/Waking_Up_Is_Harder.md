@@ -33,3 +33,10 @@ BEST_OF_YEAR_2025
 https://old.reddit.com/r/science/comments/1nwx7sr/simplistic_thinking_and_rejecting_democracy_have/     
 Friday, October 3, 2025. The nonfiction section of the public library.    
 "Simplistic thinking and rejecting democracy have a “strikingly” strong link. People who lacked “actively open-minded thinking” — a tendency to consider opposing viewpoints and revise beliefs based on evidence — were more likely to oppose core democratic principles, especially free elections."
+
+&nbsp;
+
+&nbsp;
+
+Now you see my world in flames...     
+https://youtu.be/mjg43nzSYck?t=119
