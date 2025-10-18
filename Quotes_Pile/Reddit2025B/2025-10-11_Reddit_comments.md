@@ -2758,3 +2758,14 @@ https://old.reddit.com/r/technology/comments/1o9c0tn/major_general_reveals_bonke
 
 https://old.reddit.com/r/technology/comments/1o9c0tn/major_general_reveals_bonkers_relationship_with/nk1hu1l/
 
+https://old.reddit.com/r/LivestreamFail/comments/1o9ligi/emiru_assaulted_at_twitchcon/nk34wce/
+
+Media mania. 10 years of world role model Donald Trump and Putin as success. 
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9ligi/emiru_assaulted_at_twitchcon/nk368bm/
+
+Media mania. Twitch. "Everybody  tends to merge his identity with other people at the speed of light. It’s called being mass man. It began quite a long time ago.", "it creates new situations to which people have very little time to adjust. They become alienated from themselves very quickly, and then they seek all sorts of bizarre outlets to **establish some sort of identity by put-ons**. Show business has become one way of establishing identity by just put-ons. And without the put-on, you’re a nobody. And so people are learning show business as an ordinary daily way of survival. It’s called role-playing. Role-playing has become the normal mode of survival in the business world. Jobs have disappeared, as it were, but role-playing has come in on a huge scale." - https://www.organism.earth/library/document/mcluhan-mcmanus
+
+https://old.reddit.com/r/LivestreamFail/comments/1o9ligi/emiru_assaulted_at_twitchcon/nk35i0p/
+
+Top streamer. Super symbol icon. Like POTUS.
