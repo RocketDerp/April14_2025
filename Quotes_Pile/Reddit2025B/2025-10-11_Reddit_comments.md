@@ -2861,3 +2861,33 @@ https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_a
 
 <img width="984" height="276" alt="image" src="https://github.com/user-attachments/assets/98fa5949-1b5d-426f-9ef8-964e89e7a8dd" /> I see amusement-washing extreme super low-effort commenting, avoiding of quotes, avoiding of nonfiction learning, disposable message worship behaviors. Addicts to trash learning and thinking systems. Abandonment of reason thinking in favor of high-speed TCP/IP disposable commenting media enviornments. Abandonment of nonfiction in favor of junk mind-washing disposable message rinse. Reddit works over minds completely into craving speed over comprehension. ... ... ...             
 "All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the massage. Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments. All media are extensions of some human faculty – psychic or physical." (page 26) - [“The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in March 1967](https://www.themediumisthemassage.com/the-book/)
+
+https://old.reddit.com/r/news/comments/1o9o5gt/us_antivax_stance_to_blame_for_continentwide/nk3n7dr/
+
+Tiny short message, no link, no citation, highly upvoted and popular. Nobody on Reddit, even during the pandemic, can seem to recall August 24, 2018 about measles and anti-vaccination. https://www.bbc.com/news/world-us-canada-45294192 - even Stephen Colbert can't seem to recall his own Star Wars Force day 2019 clip on Youtube: https://www.youtube.com/watch?v=Ju7Yt0LMiVk 1,082,569 views  May 4, 2019
+
+https://old.reddit.com/r/news/comments/1o9o5gt/us_antivax_stance_to_blame_for_continentwide/nk3rk56/
+
+Exactly. Recency bias abounds. Hard validated evidence goes back to year 2014. World news coverage August 24, 2018 about measles and anti-vaccination. https://www.bbc.com/news/world-us-canada-45294192 - even Stephen Colbert can't seem to recall his own Star Wars Force day 2019 clip on Youtube: https://www.youtube.com/watch?v=Ju7Yt0LMiVk 1,082,569 views  May 4, 2019
+
+https://old.reddit.com/r/news/comments/1o9o5gt/us_antivax_stance_to_blame_for_continentwide/nk4m8xe/
+
+Addiction to entertainemnt. Amusment-washing at "LOL cow" milking of using media systems to LOL LOL LOL LMAO people do for entertainment. People are doing ANYTHING to avoid facing up to the repeating news to study and face Neil Postman's books. The mockery and mocking is the problem.  September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/news/comments/1o9o5gt/us_antivax_stance_to_blame_for_continentwide/nk4kabw/
+
+Blaming funding. Instead of blaming HDTV and Apple iPhone and Reddit itself. Avoidance of nonfiction and attraction to low-effort disposable learnng of junk information. Prizing no-identity no-citation no-quottion garbage into minds. ... ... ...     
+"A conglomerate of self-indulgent consumers? Angry, soulless, directionless masses? Indifferent, confused citizens? Or a public imbued with confidence, a sense of purpose, **a respect for learning**, and tolerance? The answer to this question has **nothing whatever to do with computers, with testing, with teacher accountability, with class size, and with the other details of managing schools**. The right answer depends on two things, and two things alone: the existence of shared narratives and the capacity of such narratives to provide an inspired reason for schooling.” ― Neil Postman, The End of Education: Redefining the Value of School. September 1995
+
+https://old.reddit.com/r/news/comments/1o9o5gt/us_antivax_stance_to_blame_for_continentwide/nk4bphq/
+
+Internet Research Agency, Cambridge Analytic... Facebook. Not facing up to doctors mind-fucking people.
+
+https://old.reddit.com/r/news/comments/1o9o5gt/us_antivax_stance_to_blame_for_continentwide/nk3uou3/
+
+Twitter-think, Podcast-think, Reddit commenting think. Abandonment of nonfiction in favor of junk mind-washing disposable message rinse. Reddit works over minds completely into craving speed over comprehension. ... ... ...             
+"All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the massage. Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments. All media are extensions of some human faculty – psychic or physical." (page 26) - [“The Medium is the Massage: An Inventory of Effects” by media analyst Marshall McLuhan and graphic designer Quentin Fiore, and coordinated by Jerome Agel. It was published in March 1967](https://www.themediumisthemassage.com/the-book/)
+
+https://old.reddit.com/r/news/comments/1o9o5gt/us_antivax_stance_to_blame_for_continentwide/nk4wq5y/
+
+verything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Kremlin / Musk / etc.
