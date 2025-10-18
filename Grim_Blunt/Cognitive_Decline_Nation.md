@@ -261,3 +261,13 @@ https://old.reddit.com/r/politics/comments/1o9ao31/cognitive_decline_trump_whine
 "It seems to me that young Douglas is going to go to his mum and dad, and they’ll talk to him about it and explain how it fits and so on, and then will come that shattering night when you are about sixteen, and you find out mum and dad are afraid to die too… or maybe fourteen. And on a Freudian account, it’s not accidental that that’s the time you reach out for large and invisible fathers to protect you… and mothers. And you know what, that’s elegant suspicion. It is not an argument; it’s an elegant suspicion.
 
 In fact when you look at the iconic significance of churches, you know the Father, the Son, the Holy Ghost, the family values stuff, you know… I mean, I hate to sound cynical, but as Freud says, they whole thing is so patently infantile. So obviously infantile, that to anyone with the love of humanity it’s just sad to think that most people will never rise above this view of life. Well, when you have had a snotty German talk to you that way, you begin to suspect that he may be right, and this is one of the masters of suspicion." - Texan Rick Roderick, 1993, Duke University https://rickroderick.org/301-paul-ricoeur-the-masters-of-suspicion-1993/
+
+&nbsp;
+
+&nbsp;
+
+## October 18, 2025 Reddit front page
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/
+
+Technology-driven "golden age of stupidity" - Neil Postmans 1992 book, after Neil Postman's 1985 book. Amusement mills of artificial intelligence creating generative copyright-avoiding unique (RNG) answers to the same promot. Taking orders from tehcnology itsef.
