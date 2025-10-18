@@ -3072,4 +3072,12 @@ https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protes
 Especially if it causes the other party to have "liberal tears" and "piss". As it is all sports-think 1-bin logic. Out-group hate. Mocking begets total mockery. ... ... ...     
 "Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe. And you do that by love." - MLK Jr
 
+https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protests_sponsored_by/nk6drzj/
 
+Donald Trump learned that making a mockery, creating a Tony Clifton performance, sucks the audience in. Reddit audience compusively mockery-washes everything going on in USA for OVER TEN YEARS AND FOUR MOUTHS into a mockery. Absurd and surreal antics politics, Surkovian poltics, is addictive entertainment to Reddit audience that mocks back when the signals come from on-high on media sysstems.
+
+https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protests_sponsored_by/nk6d93i/
+
+MAGA-speak on Reddit since year 2015, "cucks". The world of over 8 billion living people need to stand up to the hate patterns clergy have programmed and Cambridge Analytica and the Internet Research agency have exploited. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) ... ... ...      
+"When did 'Cuck' and 'Cucked' suddenly become a popular word and why?", "I am seeing this word a lot on political subreddits, 4chan, Trump subreddits etc." - March 31, 2016 https://redd.it/4cpp42 ... ... ...  
+"Cuckold in present day, mainstream American culture is primarily used by certain conservative groups as a way to attack socially progressive or liberal groups." - June 28, 2016  https://redd.it/4q9owv
