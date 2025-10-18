@@ -26,3 +26,11 @@ Operas by RoundSparrow.
 Wake Indra.   
 Public Domain license, copyright Stephen Alfred Gutknecht.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+This is what Tony Clifton actors do to the population. Rupert Murdoch, Truth Social, Elon Musk Twitter, White House unde Trump. Provoke the audience into laughter of Tony Clifton antics. This is a brain exploit that Putin Kremlin Putin White House exploits. Surkov / Surkovian.      
+https://old.reddit.com/r/AnimalsBeingDerps/comments/1o9r5dd/perfect_execution/
