@@ -34,3 +34,5 @@ Public Domain license, copyright Stephen Alfred Gutknecht.
 
 This is what Tony Clifton actors do to the population. Rupert Murdoch, Truth Social, Elon Musk Twitter, White House unde Trump. Provoke the audience into laughter of Tony Clifton antics. This is a brain exploit that Putin Kremlin Putin White House exploits. Surkov / Surkovian.      
 https://old.reddit.com/r/AnimalsBeingDerps/comments/1o9r5dd/perfect_execution/
+
+Infinite Jest V, a Total Mockery back and forth, blowing-out the minds of audience members (We The People mind blown by Reality TV scripting of Surkov students).  "If I hit you and you hit me and I hit you back and you hit me back and go on, you see, that goes on ad infinitum. It just never ends. Somewhere somebody must have a little sense, and that's the strong person." - https://en.wikiquote.org/wiki/Martin_Luther_King_Jr.
