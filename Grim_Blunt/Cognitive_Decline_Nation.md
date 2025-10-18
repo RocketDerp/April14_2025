@@ -243,3 +243,21 @@ Donald Trump and the Kremlin (working with Cambridge Analytica) has mastered imp
 Febuary 23, 2016 "Donald Trump Has Transformed English"    
 https://www.businessinsider.com/donald-trump-has-transformed-english-2016-2
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+### Subconsious exploit, brain MonoMyth
+
+&nbsp;
+
+October 17, 2019 "Congnative Decline" headline
+
+Why do people obey orders that make non sense? Obdience to a Male Father Figure is exaclty the talent Trump has mastered. His sexual acts with family and women are all about that "Super Man" image. Yet, Social Media Society can't stand up to it. Mocking Trump for his domination is a form of worship. Allah / Yaweh / God is not a nice guy in Levant tradition. This is abrain exploit for thousands of years in the Levant, a nasty mean father figure.    
+https://old.reddit.com/r/politics/comments/1o9ao31/cognitive_decline_trump_whines_about_train_to/
+
+"It seems to me that young Douglas is going to go to his mum and dad, and they’ll talk to him about it and explain how it fits and so on, and then will come that shattering night when you are about sixteen, and you find out mum and dad are afraid to die too… or maybe fourteen. And on a Freudian account, it’s not accidental that that’s the time you reach out for large and invisible fathers to protect you… and mothers. And you know what, that’s elegant suspicion. It is not an argument; it’s an elegant suspicion.
+
+In fact when you look at the iconic significance of churches, you know the Father, the Son, the Holy Ghost, the family values stuff, you know… I mean, I hate to sound cynical, but as Freud says, they whole thing is so patently infantile. So obviously infantile, that to anyone with the love of humanity it’s just sad to think that most people will never rise above this view of life. Well, when you have had a snotty German talk to you that way, you begin to suspect that he may be right, and this is one of the masters of suspicion." - Texan Rick Roderick, 1993, Duke University https://rickroderick.org/301-paul-ricoeur-the-masters-of-suspicion-1993/
