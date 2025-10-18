@@ -813,4 +813,9 @@ Right on the front page of Reddit: "Pete Hegseth with utter fucking disrespect s
 https://old.reddit.com/r/ukraine/comments/1o9ds4e/i_hate_this_asshole_so_bad/     
 https://old.reddit.com/r/pics/comments/1o9fmh8/pete_hegseth_at_the_meeting_with_zelenskiy/      
 
+&nbsp;
 
+&nbsp;
+
+Hate clergy, hate prized, hate values. Everything MLK Jr' said about hate abandoned again and again. Donald Trump playing Tony Clifton has thrived off feedback loops of hate for hate. For over TEN YEARS AND FOUR MONTHS, always more hate. Hate of immigrants, hate of nonfiction book reading, hate of people who watch media other than Fox News, all met with more hate. Wrecking the USA by everyone advancing the technology systems and techniques of hate. Goodness itself abandoned. Nonfiction serious learnng in the face of pandemic, abandoned. Hate prized.    
+https://old.reddit.com/r/goodnews/comments/1oa36rp/2600_rallies_across_50_states_million_and/
