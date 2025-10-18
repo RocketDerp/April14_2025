@@ -3131,3 +3131,24 @@ https://old.reddit.com/r/explainitpeter/comments/1oa3neg/ive_never_understood_th
 
 When will we listen to Bible verse Romans 11:32 and stop having to expalin to each other that forgiveness, mercy, are intigral to love and compassion? When we we listen to people explaining the 2,000 year old criss of Bible verse "1 John 4:20" - and how *I love Jesus* is wrong if you hate ANY living person out of the over 8 billion on Earth? Why is a girl shot on her school bus for blogging words (John 1:1) in Swat Valley Pakistan in year 2012? When will we face up to fiction addiction behaviors?  Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7b8be/
+
+Top most popular upvted comment. Tiny-short message with no links, no citations, no quotes, no author names. Fox News is brought up but Jen Senko, the baby-boomer who stood up for goodness, is not mentioned and her year 2015 film. Avoidance of nonfiction learning on the subject. Disposable commenting is pized when using free time / spare time over same-page seiousness. ... ... ...      
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7euo0/
+
+talking about media addiction. But does not bring in history of ficiton addiction. Doesn't tie it to Ocotber 7, 2023 addiciton to Torah and addiciton to Quran science fiction that terrorism thrives off. Media addicts attacking other media addicts, monomyth fiction vs. monomyth fiction. 
+
+https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7v5oi/
+
+Someone in the comment name-drops Jen Senko's film... that is 10 years old. Why has Reddit community not made this film and Jen Senko a household name? There is no recogition within the Reddit community that massive focus on low-effort no-citation commenting is a huge part of the brainrot issue in USA. Media ecology topics need to be taken seriously. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7z60y/
+
+Are yuu going to block Newsmax? Elon Musk Twitter? Facebook? The addiciton to fiction storytelling runs deep. Bible, Church? We need to be EDUCATING people to understand that Fox News is year 1996, we are so far into Reddit now for over 20 years... no-identity low-effort Internet Research Agency infiltrated Reddit. That prizes high-speed meme entertainment wrapping of news over serious nonfiction learning. https://www.bbc.com/news/technology-43301643
+
+https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7zi4y/
+
+Lots to say on this one.
+
