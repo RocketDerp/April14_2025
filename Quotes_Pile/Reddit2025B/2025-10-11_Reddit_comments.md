@@ -2890,4 +2890,9 @@ Twitter-think, Podcast-think, Reddit commenting think. Abandonment of nonfiction
 
 https://old.reddit.com/r/news/comments/1o9o5gt/us_antivax_stance_to_blame_for_continentwide/nk4wq5y/
 
-verything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Kremlin / Musk / etc.
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Kremlin / Musk / etc.
+
+https://old.reddit.com/r/news/comments/1o9o5gt/us_antivax_stance_to_blame_for_continentwide/nk4fthv/
+
+Fiction addiction / entertainment has taken over. low-effort comments, no links, no quotes, no book ttiles, no author names. Instead, minds are stuffed with magical superheroes who save us from space aliens who come from other stars far away and use magical infinity stones, and krypton powers, and all kinds of wild fiction that drives people away from nonfiction. Beautful talented people with massive armies of cosmetics and clothing and artits who paint over every bad pixel... to teach fiction. Lavsih wealth spent on every frame of image. That's what people prize, anti-reality. Mecca science fiction theme park of the Quran, Disney science fiction theme park of Star Wars and Thanos. And when a real-world pandemic comes, nobody can recall real-world mind-fuck via low-effort Twitter messaging systems. Nobody on Reddit, even during the pandemic, can seem to recall August 24, 2018 about measles and anti-vaccination. https://www.bbc.com/news/world-us-canada-45294192 - even Stephen Colbert can't seem to recall his own Star Wars Force day 2019 clip on Youtube: https://www.youtube.com/watch?v=Ju7Yt0LMiVk 1,082,569 views May 4, 2019
+
