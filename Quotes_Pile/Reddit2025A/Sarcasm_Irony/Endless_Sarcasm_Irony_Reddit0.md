@@ -810,5 +810,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1o9a2kj/democrats_are_stupid/
 &nbsp;
 
 Right on the front page of Reddit: "Pete Hegseth with utter fucking disrespect sitting in front of Zelenskyy today with a Russian flag on his tie. He is not even TRYING to hide his allegiance. Fucking piece of shit." - paradox, Tony Clifton, surreal, absurd, Surkovian.      
-https://old.reddit.com/r/ukraine/comments/1o9ds4e/i_hate_this_asshole_so_bad/
+https://old.reddit.com/r/ukraine/comments/1o9ds4e/i_hate_this_asshole_so_bad/     
+https://old.reddit.com/r/pics/comments/1o9fmh8/pete_hegseth_at_the_meeting_with_zelenskiy/      
+
 
