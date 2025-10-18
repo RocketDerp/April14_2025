@@ -3081,3 +3081,27 @@ https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protes
 MAGA-speak on Reddit since year 2015, "cucks". The world of over 8 billion living people need to stand up to the hate patterns clergy have programmed and Cambridge Analytica and the Internet Research agency have exploited. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) ... ... ...      
 "When did 'Cuck' and 'Cucked' suddenly become a popular word and why?", "I am seeing this word a lot on political subreddits, 4chan, Trump subreddits etc." - March 31, 2016 https://redd.it/4cpp42 ... ... ...  
 "Cuckold in present day, mainstream American culture is primarily used by certain conservative groups as a way to attack socially progressive or liberal groups." - June 28, 2016  https://redd.it/4q9owv
+
+https://old.reddit.com/r/TikTokCringe/comments/1oa3f9u/i_feel_like_a_crime_was_committed_here/nk6kf62/
+
+Suicide terrorism in service to the Fox News fiction monomyth patterns / Truth Social ficiton monomyth patterns. War against Eart, self-harm behavior. Reddit users are unable to recognize this as mythology-drive self-harm like October 7, 2023. This nation, USA, was not founded in year 1776 on petrol, but since September 11, 2001 and other pro-Russia pro- Saudi Arabia modern oil mental manipulation - people think somehow in USA that burning oil is "American". Wrecking the envioronment. Levant anti-Earth values. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+JOSEPH CAMPBELL: Usually the socially oriented system is of a nomadic people who are moving around, so you learn that’s where your center is, in that group. The nature-oriented mythology would be of an earth-cultivating people.
+
+Now, **the biblical tradition is a socially oriented mythology. Nature is condemned**. In the nineteenth century, scholars thought of mythology and ritual as an attempt to control nature. But that is magic, not mythology or religion. Nature religions are not attempts to control nature but to help you put yourself in accord with it. But when nature is thought of as evil, you don’t put yourself in accord with it, you control it, or try to, and **hence the tension, the anxiety, the cutting down of forests**, the annihilation of native people. And the accent here separates us from nature.
+
+MOYERS: Is this why we so easily dominate Or subjugate nature—because we have contempt for it, because we see it only as something to serve us?
+
+https://old.reddit.com/r/TikTokCringe/comments/1oa3f9u/i_feel_like_a_crime_was_committed_here/nk6ojez/
+
+Minds blown, shocked, by Russian IRA on meme platforms. Surkov won, Putin won, since year 2013.
+
+https://old.reddit.com/r/TikTokCringe/comments/1oa3f9u/i_feel_like_a_crime_was_committed_here/nk6q07o/
+
+https://old.reddit.com/r/TikTokCringe/comments/1oa3f9u/i_feel_like_a_crime_was_committed_here/nk6p48r/
+
+Egomania values. Prizing of hate. Block-button machine addicts, truck machines over humans.
+
+https://old.reddit.com/r/TikTokCringe/comments/1oa3f9u/i_feel_like_a_crime_was_committed_here/nk6suz7/
+
+Same with reporting people to the secret police of Reddit mods. Block button on bluesky / block lists on BLuesky, banning pepole on Reddit. Instead of asking for understanding and comprehension, just lifetime censorship on subreddits when banned.
+
