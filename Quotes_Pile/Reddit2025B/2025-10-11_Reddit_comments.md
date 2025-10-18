@@ -2769,3 +2769,79 @@ Media mania. Twitch. "Everybody  tends to merge his identity with other people a
 https://old.reddit.com/r/LivestreamFail/comments/1o9ligi/emiru_assaulted_at_twitchcon/nk35i0p/
 
 Top streamer. Super symbol icon. Like POTUS.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3y41y/
+
+Ukraine is seeing the self-harm Russia is doing first hand. USA population somehow behaves as if badness itself is rewarding. Mental health professionals avoid mass man problems, normalize the individual people who are alarmed about the mob mentality self-harm.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk49uw4/
+
+Our mental health profession isn't dealing with history. Not pandemics, not wars, not terrorism, not religion conflicts.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3s3vu/
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3fl9c/
+
+These problems go way beyond Trump. The USA self-harm and war against Earth is alarming.The population cheering on badness itself. Prizing hate. Prizing dehumanization. Machine lust.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3gsiu/
+
+Cambridge Analytica hate vs. hate feedback loops. Socity is toxic. ... ... ...      
+"collapses it all at once, and **you see that everything, everything, has changed and changed completely under your nose**. The world you live in—your nation, your people — is not the world you were born in at all. The forms are all there, all untouched, all reassuring, the houses, the shops, the jobs, the mealtimes, the visits, the concerts, the cinema, the holidays. But the spirit, which you never noticed because you made the lifelong mistake of identifying it with the forms, is changed. **Now you live in a world of hate and fear, and the people who hate and fear do not even know it themselves; when everyone is transformed, no one is transformed**. Now you live in a system which rules without responsibility even to God. The system itself could not have intended this in the beginning, but in order to sustain itself it was compelled to go all the way.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans 1933-45. Published 1955
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3hru9/
+
+People are so anti-citation, anti-goodness. MLK Jr's teachings about hate itself forogotten and abandoned, unwelcome. People prize hate, people do not message premptive peace upon children's future, newborn future. Instead, *fuck you, you deserve hate* is the attitude. Anti-forgiveness, anti-reconciliation. Tower of Babel egomania abounds.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3fwuo/
+
+Reddit and Bluesky are ground zero for denial. All people want is more hate, hate harder, hate hate hate as religion. Hate as deepest fatih. Dehumanizing MAGA / Republicans, not rescuing. Like a far worse pandemic.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3noog/
+
+Yes, I've been documenting this thinking on this GitHub. The magical thinking that love and compassion teaching comes from outer space aliens who message to the Levant and that human beings themselves are not the programming teachers of our own minds. And that self-harm toxic cleery of machine messages aren't wrecking USA. Runaway Cambridge Analytica mind-fuck into "winner takes all" sports-think.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3p7tl/
+
+Reddit is a hate-traning ground. Truth Social values were welcomed and embraced. Machine learning and google search students trained on hate. Anti-goodness anti-citation secret police. Reddit users don't even call out the book-burning mindsets of peer to peer *I hate your messages, I'm buening the forever into the future*... or the secret police removing and why. People just bitch about it, not take it serious that unnamed admins and mods are a secret police state. And that right in front of us people are plucked. And always assuming they are "bad guys MAGA" is a huge mistake. There isn't a convention for escaping subreddit rules to a new thread under differnt rules, like GoTo: adult corner of the public libray here that doesn't have no-URL rules, doesn't have no real name rules (only rich and famous people get their real names used on Reddit conversations). Worship of machines, hate of human persons. Reddit is programming systemic hate into minds, dehuamnization via systems. Government systems, cloud computing systems, social systems. ... ... ...          
+"That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - Dr. Martin Luther King Jr.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3kghd/
+
+Prizing hate. No, you are not asserting love. You aren't making your last stand to the world that all our computer sytems USA invented, all the knowledge machines, we declared love as goodness and worth standing up for on the world stage. Violence superheroes who are super strong and powerful and fix things with power is the messsage that has been sent from USA society to the world, the audience flocking to such ultra-men super-humans. Not everyday nobody people, the least of humans, making the best of a global network of English language and information systems. Malala came to MLK's Church, but Reddit didn't come to MLK's Church. Malala had neve spoken in a Church anywhere in the world, and it was her first in the Deep South of the USA. And people don't stand up and say - we all should show the best of overcoming black slavery and death of his father and standing up for ALL people in ALL palces in ALL time periods that the chian of hate must be broken. The whole cosmos, we are the orignators of love, us - people here on Earth - have a lesson to teach about what joy, fun, goodness really means. ... ... ...     
+"I think the first reason that we should love our enemies, and I think this was at the very center of Jesus' thinking, is this: that hate for hate only intensifies the existence of hate and evil in the universe. If I hit you and you hit me and I hit you back and you hit me back and go on, you see, that goes on ad infinitum. It just never ends. Somewhere somebody must have a little sense, and that's the strong person. The strong person is the person who can cut off the chain of hate, the chain of evil. And that is the tragedy of hate, that it doesn't cut it off. It only intensifies the existence of hate and evil in the universe. Somebody must have religion enough and morality enough to cut it off and inject within the very structure of the universe that strong and powerful element of love." - MLK Jr
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3hpc9/
+
+Not magic. Stop fragmenting minds with extreme low-effort dispsoable commenting addiction. Learn what goodness itself means, you know the names, everyone knows MLK Jr's names. And any person using Reddit heeard of a little blogger girl shot on a school bus in yeaer 2012. But did you stand up for little girls, or only rich white m en with private jets chanting for Epstein List instead of chanting Malala's movement of ALL girls in ALL nations. She traveled to Mexico, do you know how far Mexico is from Pakistan? She traveled to Africa, the palce people all shit on in the world. She has built compannions / clergy around her of other young girls. Why is it never good enough for Reddit and Bluesky to supprot Malala and have her come for a Reddit AMA every 3 motnhs. Jane Goodall did a Reddit AMA! Why can't Reddit community front-page invites to Malala? Because people rpize no-identity self-dehumanization since year 2013 on Reddit. People prize hate and prize new blocking features. Reddit did not even have blocking fucking features. All the banning of goodness and hate breeding came with the IRA infiltration.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3ipmh/
+
+At minimum people should make a list. The only "movement" outside of government that people flocked to was December 4, 2024 Lugi killing sneak-attack gun worship murder. A real estate prince like Trump is a real estate prince of Fred Trump. Lugi plastered like Epstein List all over Reddit for months. Anti-goodness shit. Feeding right into the "left" is killers Fox News wants. Reddit can not see the massive avoidance of nonficiton learning. The avoidance of the "Second Bill of Rights", January 1944. That's your Luigi chanting! Rent prices, housing prices AND health care. https://en.wikipedia.org/wiki/Second_Bill_of_Rights
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3unc9/
+
+Beyond saving them. Give up. Give up on Fox News Jen Senko's film. Give up on cult deprogramming. It never even started.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3rqby/
+
+Note the absence of links, author names, book ttiles, article titles, quotes.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3li8f/
+
+Grim.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3e0hr/
+
+Laugh-washing, meme stupor, laugh stupor abounds. "Amusing Ourselves To Death" mind exploits that Neil Postman described in 1985. That was our society blind spot, the amusement mill of Reddit turning evertying into LOL LOL "LOL cow" Trump.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3j2io/
+
+Recency bias abounds. Attraction to badnesss itself from Cambridge Analytica. It all started to turn like the Titanic into landmines and short rock clifs in year 2013. People LOL LOL "Russia pee pee girls pee on Trump" ses fetish is all people cared about. Actually resisting the IRA and blaming Russia when the Wuhan China pandemic came? The evidence is THERE from August 24, 2018 https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3nsbm/
+
+Look at Bluesky and Reddit. 1 Avoiding Malala at ALL COST, extreme gray-rocking of Malala. Why isn't Malala good enough, Reddit and Bluesky? Because she doesn't satisy lust and hate. 2. Avoiding MLK Jr's teachings baout hate and preaching to MAGA. 3) Abouding Second Bill of Rights health care and rent when real estate Prince Luigi came on stage December 4, 2024. On and on and on. Anti-goodness. Avoiding nonfiction. Look at Bluesky and Reddit. People all think they are sports commentary cheerleaders for teams, not seieng the forest of NATO for the trees. Russia and Cambridge Analtyica mind-fucked MUTLIPLE nations. The evidence is fucking there. https://www.bbc.com/news/world-us-canada-45294192 -- and --- https://www.theguardian.com/technology/2020/mar/13/facebook-uncovers-russian-led-troll-network-based-in-west-africa the USA could have been the great defenders of Africa and the world on the Internet. Instead, prizing hate and attacking the injured MAGA that Russia mind-fucked over and over on Bluesky and Reddit.
+
+
+
