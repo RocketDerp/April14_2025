@@ -2752,3 +2752,9 @@ https://old.reddit.com/r/MadeMeSmile/comments/1o9eirk/a_woman_puts_a_giant_skele
 
 https://old.reddit.com/r/MadeMeSmile/comments/1o9eirk/a_woman_puts_a_giant_skeleton_in_her_jeep/nk1oylc/
 
+https://old.reddit.com/r/technology/comments/1o9c0tn/major_general_reveals_bonkers_relationship_with/nk15xch/
+
+https://old.reddit.com/r/technology/comments/1o9c0tn/major_general_reveals_bonkers_relationship_with/nk1apan/
+
+https://old.reddit.com/r/technology/comments/1o9c0tn/major_general_reveals_bonkers_relationship_with/nk1hu1l/
+
