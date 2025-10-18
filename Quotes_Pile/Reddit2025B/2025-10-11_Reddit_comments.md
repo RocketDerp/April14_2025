@@ -2979,3 +2979,22 @@ https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_a
 
 It's the Russian War Against Reality. We lost an information war and people don't even realize post-truth came *after the 2013 war was lost*.   described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4vnl7/
+
+People built technology. Jamming low-effort memes and comments at high speeds into your mind creates reactionary mindsets. Emotion-driven. This reddit comment is a complete failure to account for media ecology. Marshall McLuhan since 1951 onward publications, etc. In year 2025, it is pure celebraiton of ignorance to say a statement like this. Dumb and Dumb is fiction, fiction addictions over nonfiction learning. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+... ... ...      
+" In other words, in that sense, there were an array of things you could choose to be, and there were a wide array you could choose not to be. Like Chief, you didn’t exactly choose to be that. But among this array, the decision paths were relatively simple. Relatively simple. And the information load you received in – the load of information; the number of images and so on that you saw, the number of things that actually touched your skin, impinged upon your perceptual apparatus – was quite limited. Compare that situation to the 19th Century, and already we have human beings under considerably more pressure. Because from the late 19th and into the early 20th Century, many things come about that **we don’t think about philosophically, but which shape our reflection not only in philosophy, but in everyday life. I mean, we walk into a B. Daltons as though there were always cheap paperbacks available to everyone. But that’s actually a quite recent development in the history of the world**. We fill our universities with them as though they are some ancient treasure, and television is some degraded form of the present. And of course, that’s idiocy. Those cheap books have only been around very recently in the history of thinking. Television now has been around for about, you know, a third of that same time… So the point I am driving at here is the incredible increase in information; the amount and the tonnes of information." - 1993, Rick Roderick https://rickroderick.org/301-paul-ricoeur-the-masters-of-suspicion-1993/
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4otg1/
+
+There is no more a F.A.Q. and Wiki culture, it's scattered filter-bubble meme mania consumption.
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk4skwy/
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk5ems6/
+
+https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/nk5f1u8/
+
+The poisoning of nonfiction learning.
+
