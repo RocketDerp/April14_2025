@@ -72,3 +72,12 @@ Satuday October 18, 2025 - front page of Reddit
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1o9xkdi/but_we_owned_the_libs_so_we_got_that_going_for_us/
 
 Luigi "owned" Reddit with his Reddit account, no he didn't. Lugi couldn't get his Reddit account to get a book from a professor to the front page. He carved the title of the book into gun bullets, and that is what gets to the Reddit front page. Nonfiction book "got owned". Reddit and Bluesky *own the liberals" in simulara of image-based resitance, meme resistance, Fox News and Newsmax and Elon Musk Twitter "ownt he conservatives". Everything is simulacra. People can nto see the forest for the trees that A mocking B, a "owning" B, and B mocking A is the very mental programming that Cambridge Anlaytica and the IRA induced since year 2013. A Race to the bottom of who can mock harder, hate harder, Americans hate Americans while Putin runs circles around USA with meme warfare deployed by the IRA since year 2013.
+
+&nbsp;
+
+&nbsp;
+
+Saturday October 18, 2025
+
+Low-effort trivail interactio simulation. Dates stripped from the simulated? screen shots. This isn't even clever. The bar of tiny-short message and content is slow low, this is active measures to avoid the problems.         
+https://old.reddit.com/r/clevercomebacks/comments/1oa8giz/john_can_you_tell_the_meaning_of_democracy/
