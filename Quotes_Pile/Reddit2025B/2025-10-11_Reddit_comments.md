@@ -2843,5 +2843,13 @@ https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_a
 
 Look at Bluesky and Reddit. 1 Avoiding Malala at ALL COST, extreme gray-rocking of Malala. Why isn't Malala good enough, Reddit and Bluesky? Because she doesn't satisy lust and hate. 2. Avoiding MLK Jr's teachings baout hate and preaching to MAGA. 3) Abouding Second Bill of Rights health care and rent when real estate Prince Luigi came on stage December 4, 2024. On and on and on. Anti-goodness. Avoiding nonfiction. Look at Bluesky and Reddit. People all think they are sports commentary cheerleaders for teams, not seieng the forest of NATO for the trees. Russia and Cambridge Analtyica mind-fucked MUTLIPLE nations. The evidence is fucking there. https://www.bbc.com/news/world-us-canada-45294192 -- and --- https://www.theguardian.com/technology/2020/mar/13/facebook-uncovers-russian-led-troll-network-based-in-west-africa the USA could have been the great defenders of Africa and the world on the Internet. Instead, prizing hate and attacking the injured MAGA that Russia mind-fucked over and over on Bluesky and Reddit.
 
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3wo1m/
 
+Yes, but the "last person Trump talked to" stupid idea is recency-washing the long-term sustained pattern since year 2013. Simple-think. Trivia-washing the seirous sustained problem. Recency Bias mind-fuck messaging on Reddit.
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk41u0g/
+
+https://old.reddit.com/r/worldnews/comments/1o9mqpk/trump_says_putin_should_be_allowed_to_keep_the/nk3h0xj/
+
+Dementia-washing. It isn't just ONE PERSON. Elon Musk was anti-Ukraine. No quotes, no citations, no links, no author names, no book titles. Just endless "demetia did it, so Trump is not responsible because physical brain disorder of dementia" bullshit messaging on Reddit machines. The flip-flopping Surkov Shuffle isn't demetia, it's thousands of people in USA government cheering on these choices. It's mob mentality, group thinking, not one single brain Reddit society is pogrammed to fixate on. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
