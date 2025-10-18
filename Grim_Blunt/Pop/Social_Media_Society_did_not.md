@@ -92,3 +92,10 @@ https://old.reddit.com/r/comics/comments/1o3717u/putting_in_the_time_gator_days/
 
 Ahh, no-citation, no qutations, no evidence low-effort meme mills. Front page of Reddit Sunday October 12, 2025      
 https://old.reddit.com/r/CuratedTumblr/comments/1o4ww3t/sources/
+
+&nbsp;
+
+"Day 18" of amusement-washing with cartoon child entertainment.     
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1o9tcyu/connecting_a_chin_for_each_day/
+
+Sponge Bob... https://www.wendysueswanson.com/fast-paced-media-and-4-year-olds-cartoons-on-the-brain/
