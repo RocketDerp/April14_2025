@@ -85,7 +85,7 @@ https://old.reddit.com/r/todayilearned/comments/1mucxyd/til_that_in_1792_400000_
 
 &nbsp;
 
-### Consuming spare tine / free time
+### Consuming spare time / free time
 
 Putting in the spare time and free time on social media, commenting millions and millions of low-effort no quotations, no author names, no links, no book titles, all on different pages with disposable lifetime... to avoid nonfiction learning and *getting on the same page* and standing up for important and critical goodness.   
 https://old.reddit.com/r/comics/comments/1o3717u/putting_in_the_time_gator_days/
