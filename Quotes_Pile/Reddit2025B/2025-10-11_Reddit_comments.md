@@ -2998,3 +2998,49 @@ https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_a
 
 The poisoning of nonfiction learning.
 
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5qo3j/
+
+<img width="832" height="422" alt="image" src="https://github.com/user-attachments/assets/4d1ec8b5-a363-4692-8d98-e54bc4ef768b" /> I do not agree. It is a failure of media ecology learning, Finnegans Wake, not woke to John 1:1. Russia played itself with monomyth, Surkov played the Kremlin itself, into fiction addiciton. Mohammad is dead but the monoomyth John 1:1 still results in self-harm of humanity. The memes themselves are a flaw in the human brain when motivating people towards hate. Hate itself is the problem, the 1954 Equation. Mob mentality, abandonment of reason thinking, flocking to *badness itself* is the problem.
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5w1ej/
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk61qg2/
+
+I agree. And the Kremlin / KGB / FSB is clearly able to produce fake receipts and evidence from the November 8, 2013 Moscow visit that could have been "leaked" to fabricate almost anything. Trump would NOT be trusted in saying that Putin had faked the information and calling it "Russian fake news" since he calls all authentic news he does not like "Fake News". There is no information that dispalces truth, cult addiction / media addiction / "Entertaining Ourselves To Death" / "Amusing Ourselves To Death" and avoiding nonfiction learning of Cambridge Analytica and IRA on entire population (Trump included, Trump family inducded) needs to be the focus. Democracy is everyone, not one man. We are attacking Earth with poison / toxic behavior. This is a self-harm sitaution. Hate is self-harm.
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5qr0q/
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5rg2c/
+
+They aren't stupid. The problem is fiction vs. nonfiction. People need to escape the domestic recency bias. stop looking at fiction addiciton as a Fox News USA only issue. ... ... ...        
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5v67c/
+
+The last 10 years... The IRA went online in year 2013, ramping up Q2 2013. Takes time to build up the monomyth mind-fuck patterns in bains / programming of minds.
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk61vnc/
+
+Trump trusts Putin, and people trust Trump. Why would any American trust Russia? That's how deep the mind-fuck goes. ... ... ...        
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ He continued, "And **our job is to get, is to drop the bucket further down the well than anybody else** to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5rnyr/
+
+"MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5ou9j/
+
+Nation can't see their addiction to Reality TV entertainer man.
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5z32n/
+
+Audience can't tell who Andy Kaufman is in a Tony Clifton show, Surkov students abound.
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5oshv/
+
+Flock to low-effort disposable commenting, call you a meme addict on meme devices, Reddit. Look at how media addicts flock to low-effort tiny-short commenting with no links, no author names, no article titles, no book ttiles. Disposable commenting is where people "learn" and "study", anti-Wiki values of all scattering to different comment trees on different posting pages. Reddit is "entertainment news". And this book was published ELEVEN YEARS before Fox News went online October 7, 1996. The problem is the venues, Reddit venue, television screen venue, Bluesky venue. Meme formatting "the news" and entertainment-wrapping it with candy-wrapper meme images. Note that this was published in 1985, BEFORE smartphones and before Bluesky and before Reddit and before Twitter, so it does not name the Apple iPhone like a televison set / television screen. ... ... ...    
+"What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a **coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show **entertains but does not inform**, I am saying something far more serious than that we are being deprived of authentic information. I am saying **we are losing our sense of what it means to be well informed**. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5oqzy/
+
+<img width="910" height="298" alt="image" src="https://github.com/user-attachments/assets/8e88de54-8779-4e52-ae9a-5571b3712c2d" /> Reddit audience Onion Eaters, "inadvertently"... Surkovian. "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year (2014)." - BBC, Adam Curtis. **December 31, 2014. MORE THAN A DECADE AGO**, and people can't find these sentences and apply to October 2025 Ukraine and Trump.
