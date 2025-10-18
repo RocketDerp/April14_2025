@@ -62,3 +62,13 @@ Saturday No Kings Day October 18, 2025 - front page of Reddit
 
 There is no sustained depth. People could be repeating "1 John 3:17" Bible verse, name dropping that verse, and go after the Christian values of Musk and Trump audiences... (Musk claims to be pro-Christian). Dates removed from the images. Low-effort tiny-length title. Worse, it is "Eating the Onion" that musk only ACCIDENTLY is manipulating what he calls "Woke Mind Virus" of these films. Reddit society is eating this manipulation up. No comprehension of Surkovian information warfare.    
 https://old.reddit.com/r/MurderedByWords/comments/1o9w4qw/completely_devoid_of_self_awareness/
+
+&nbsp;
+
+&nbsp;
+
+Satuday October 18, 2025 - front page of Reddit
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1o9xkdi/but_we_owned_the_libs_so_we_got_that_going_for_us/
+
+Luigi "owned" Reddit with his Reddit account, no he didn't. Lugi couldn't get his Reddit account to get a book from a professor to the front page. He carved the title of the book into gun bullets, and that is what gets to the Reddit front page. Nonfiction book "got owned". Reddit and Bluesky *own the liberals" in simulara of image-based resitance, meme resistance, Fox News and Newsmax and Elon Musk Twitter "ownt he conservatives". Everything is simulacra. People can nto see the forest for the trees that A mocking B, a "owning" B, and B mocking A is the very mental programming that Cambridge Anlaytica and the IRA induced since year 2013. A Race to the bottom of who can mock harder, hate harder, Americans hate Americans while Putin runs circles around USA with meme warfare deployed by the IRA since year 2013.
