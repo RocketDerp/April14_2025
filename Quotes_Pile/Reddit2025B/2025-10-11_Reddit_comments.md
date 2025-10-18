@@ -3044,3 +3044,32 @@ Flock to low-effort disposable commenting, call you a meme addict on meme device
 https://old.reddit.com/r/worldnews/comments/1o9z8j3/donald_trump_admits_its_possible_hes_being_played/nk5oqzy/
 
 <img width="910" height="298" alt="image" src="https://github.com/user-attachments/assets/8e88de54-8779-4e52-ae9a-5571b3712c2d" /> Reddit audience Onion Eaters, "inadvertently"... Surkovian. "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year (2014)." - BBC, Adam Curtis. **December 31, 2014. MORE THAN A DECADE AGO**, and people can't find these sentences and apply to October 2025 Ukraine and Trump.
+
+https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protests_sponsored_by/nk69f03/
+
+The most upvoted / popular comment. A reality-washing of the situation, joke-washing the War Against Reality that Putin has won against USA since year 2013. Tiny-short mind patterns to meme-wash memorized-phrase-wash away the situation of unreality. Normalizng the situation. ... ... ...          
+"The **war zone**, in other words, may not be – in **defending the self** – may not be any of the classical ones. Like the working class versus the ruling class, the slaves against the masters, oppressed women against, ah, patriarchal society, blacks against whites. No, **the struggle in the future may be to maintain the real against the unreal or the hyperreal** or the irreal." - Texan Rick Roderick, 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protests_sponsored_by/nk69kar/
+
+Reddit react-comments to every "Rage" headline posting about Trump. Reddit flocks daily.
+
+https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protests_sponsored_by/nk6bfjt/
+
+Mockery-washing, amusement-washing, humor-washing this as a comedy situation.
+
+https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protests_sponsored_by/nk6e1dw/
+
+Conservative vs. libral is 1-bit logic brainrot thinking pattern. The Founding Fathers did not suggest or recommend 1-bit logic. Reason thinking goes far beyond 1-bit conservative vs. liberal mindsets. Ficiton vs. nonfiction is more the problem today. Fiction of reality, fiction of raging, fiction of protesting. People want to turn all the world into fiction, mockery, mocking always. Insutling, mocking, anything to avoid serious nonfiction learning of media ecology crisis and Levant mytnology problem of fiction vs. nonfiction (Bible verse "1 John 4:20" crisis of having never *seen* the fiction character).
+
+https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protests_sponsored_by/nk6aotq/
+
+No, they are children. They ahve been mind-fucked by Russia and muaturity for humanity is to move beyond hate and see the patterns of out-group hate formed around Fox News vs. Reddit news, etc. Subreddit vs. Subreddit filter-bubble patterns. All scattered on different storylines, not calling for people to all get on the same page of nonfiction serious learning of media ecology. Mocking begets total mockery. ... ... ...     
+"Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe. And you do that by love." - MLK Jr
+
+https://old.reddit.com/r/politics/comments/1oa227e/maga_rages_at_no_kings_protests_sponsored_by/nk6b3ap/
+
+Especially if it causes the other party to have "liberal tears" and "piss". As it is all sports-think 1-bin logic. Out-group hate. Mocking begets total mockery. ... ... ...     
+"Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe. And you do that by love." - MLK Jr
+
+
