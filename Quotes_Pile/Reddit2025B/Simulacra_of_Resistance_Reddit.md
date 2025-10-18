@@ -54,3 +54,11 @@ https://old.reddit.com/r/inflation/comments/1o6rpaz/groceries_harder_to_afford/
 
 Simualcra of resistance. Trump creates a Total Mockery with his Tony Clifton antics politcs methods of acting for over TEN YARS AND THREE MONTHS. Then mocking back. It's entertaining to pople for TEN YEARS, but it does not remove. Surkovian governing is not removed by mocking, nor are Tony Clifton acts.
 
+&nbsp;
+
+&nbsp;
+
+Saturday No Kings Day October 18, 2025 - front page of Reddit     
+
+There is no sustained depth. People could be repeating "1 John 3:17" Bible verse, name dropping that verse, and go after the Christian values of Musk and Trump audiences... (Musk claims to be pro-Christian). Dates removed from the images. Low-effort tiny-length title. Worse, it is "Eating the Onion" that musk only ACCIDENTLY is manipulating what he calls "Woke Mind Virus" of these films. Reddit society is eating this manipulation up. No comprehension of Surkovian information warfare.    
+https://old.reddit.com/r/MurderedByWords/comments/1o9w4qw/completely_devoid_of_self_awareness/
