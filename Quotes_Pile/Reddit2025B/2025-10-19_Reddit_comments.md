@@ -177,3 +177,34 @@ https://old.reddit.com/r/NoFilterNews/comments/1oamj1l/trump_is_preparing_a_coup
 
 Social media users avoid Jen Senko name dropping, her film about Fox News problem. Avoiding nonfiction rescue of media addicts.
 
+https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkanl56/
+
+Mass Man (Marshall McLuhan Toronto terminology) / Mass Mind (Howard Bloom NYC term) vs. personal mind. Public dream vs. private dream. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+
+BILL MOYERS: Why is a myth different from a dream?
+
+JOSEPH CAMPBELL: Oh, because a dream is a personal experience of that deep, dark ground that is the support of our conscious lives, and **a myth is the society’s dream. The myth is the public dream and the dream is the private myth.** If your private myth, your dream, happens to coincide with that of the society, you are in good accord with your group. If it isn’t, you’ve got an adventure in the dark forest ahead of you.
+
+MOYERS: So if my private dreams are in accord with the public mythology, I’m more likely to live healthily in that society. But if my private dreams are out of step with the public —
+
+CAMPBELL: — you’ll be in trouble. If you’re forced to live in that system, you’ll be a neurotic.
+
+MOYERS: But aren’t many visionaries and even leaders and heroes close to the edge of neuroticism?
+
+CAMPBELL: Yes, they are.
+
+MOYERS: How do you explain that?
+
+CAMPBELL: They’ve moved out of the society that would have protected them, and into the dark forest, into the world of fire, of original experience. Original experience has not been interpreted for you, and so you’ve got to work out your life for yourself. Either you can take it or you can’t. You don’t have to go far off the interpreted path to find yourself in very difficult situations. The courage to face the trials and to bring a whole new body of possibilities into the field of interpreted experience for other people to experience — that is the hero’s deed.
+
+MOYERS: You say dreams come up from the psyche.
+
+CAMPBELL: I don’t know where else they come from. They come from the imagination, don’t they? The imagination is grounded in the energy of the organs of the body, and these are the same in all human beings. Since imagination comes out of one biological ground, it is bound to produce certain themes. Dreams are dreams. There are certain characteristics of dreams that can be enumerated, no matter who is dreaming them.
+
+MOYERS: I think of a dream as something very private, while a myth is something very public.
+
+CAMPBELL: On some levels a private dream runs into truly mythic themes and can’t be interpreted except by an analogy with a myth. Jung speaks of two orders of dream, the personal dream and the archetypal dream, or the dream of mythic dimension. You can interpret a personal dream by association, figuring out what it is talking about in your own life, or in relation to your own personal problem. But every now and then a dream comes up that is pure myth, that carries a mythic theme, or that is said, for example, to come from the Christ within.
+
+MOYERS: From the archetypal person within us, the archetypal self we are.
+
+CAMPBELL: That’s right. 
