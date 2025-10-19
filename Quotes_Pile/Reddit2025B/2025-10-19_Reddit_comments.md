@@ -142,7 +142,7 @@ Reddit audiences flock to it and commen on it. FOR OVER TEN YEARS AND FOUR MONTH
 
 https://old.reddit.com/r/okbuddycinephile/comments/1oaki38/top_gun_3_2025/nkaab59/
 
-No hope to rescue anyone, no home to fight back against Russia win of hearts and minds to self-harm USA. Only hope is an extremely simple message in a short comment.
+No hope to rescue anyone, no hope to fight back against Russia win of hearts and minds to self-harm USA. Only hope is an extremely simple message in a short comment.
 
 https://old.reddit.com/r/okbuddycinephile/comments/1oaki38/top_gun_3_2025/nkaazhk/
 
