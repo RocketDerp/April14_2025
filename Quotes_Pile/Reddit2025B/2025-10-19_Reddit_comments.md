@@ -468,3 +468,37 @@ https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept
 People avoid nonfiction books on this subject. Published ELEVEN FULL YEARS AGO. ... ... ...     
 "The Kremlin’s idea is to own all forms of political discourse, to not let any independent movements develop outside of its walls. Its Moscow can feel like an oligarchy in the morning and a democracy in the afternoon, a monarchy for dinner and a totalitarian state by bedtime.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, year 2014.
 
+https://old.reddit.com/r/BlueskySocial/comments/1oazanh/white_house_invades_bluesky_to_troll_predictably/nkd3okg/
+
+No faith in dialog or communications, a anti-teaching anti-education attitude. Anything to avoid the assertion of nonfiction in the face of Russian information wafare. No desire to rescue Trump and White House from self harm, just machine-logic of dehumanizing with machines and book-burning out of egoism / shallow / superficial values. ... ... ...     
+“Maybe I’d take off my shoes and hit him, but then I’d think if I did that there would be no difference between me and a terrorist. It would be better to plead, ‘OK, shoot me, but first listen to me. What you are doing is wrong. I’m not against you personally, I just want every girl to go to school.”
+― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/BlueskySocial/comments/1oazanh/white_house_invades_bluesky_to_troll_predictably/nkdjfxk/
+
+Russian information warfare cracked the monomyth codes. Surkov won, Russia won, since year 2013. Out-group hate has been amplified beyond all recognition.
+
+https://old.reddit.com/r/BlueskySocial/comments/1oazanh/white_house_invades_bluesky_to_troll_predictably/nkdpluq/
+
+Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/BlueskySocial/comments/1oazanh/white_house_invades_bluesky_to_troll_predictably/nkda2lt/
+
+MAGA values: ignore "libtard" values, mock and block others, deport others you don't comprehend or understand. Don't address the trash commenting consumpton and avoidnace of nonfiction learning about mass pscyhosis and Russian information awarfare. People alraedy blocked that out of their brains since September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - the only "United" faith in USA now is faith in mocking, blocking, deporting, hate, badness itself.
+
+https://old.reddit.com/r/BlueskySocial/comments/1oazanh/white_house_invades_bluesky_to_troll_predictably/nkd6d32/
+
+Fiction will always be aloowed. Star Wars Andor was a huge popular media event in year 2025: teaches murder, killing, terrorism. You have to solve the monomyth brain exploits, people unable to translate fiction to fiction metaphors. Russian information warfare since year 2013 has wrecked USA minds and symbolic hearts. Cowardice and anti-bravery abounds. People unwilling to learn how mob mentaity works and encouraging deport-mobs and machine mob blocking groups. Anti-woke, anti-education, anti-goodness.  ... ... ...            
+“I started thinking about that, and I used to think that the Talib would come, and he would just kill me. But then I said, ‘If he comes, what would you do Malala?’ then I would reply to myself, ‘Malala, just take a shoe and hit him.’ But then I said, ‘If you hit a Talib with your shoe, then there would be no difference between you and the Talib. You must not treat others with cruelty and that much harshly, you must fight others but through peace and through dialogue and through education.’ Then I said I will tell him how important education is and that ‘I even want education for your children as well.’ And I will tell him, ‘That’s what I want to tell you, now do what you want.” ― Malala Yousafzai
+
+https://old.reddit.com/r/BlueskySocial/comments/1oazanh/white_house_invades_bluesky_to_troll_predictably/nkdgphg/
+
+free time and spare time for low-effort disposable commenting, but no desire to actaully educate goodness and teach goodness when nobody values goodness. Goodness and compassion and love comes from humans, not magic space aliens beaming down messages to Moses and Mohammad. “It never fails to shock me how people take peace for granted.” ― Malala Yousafzai, We Are Displaced.  January 8, 2019
+
+https://old.reddit.com/r/BlueskySocial/comments/1oazanh/white_house_invades_bluesky_to_troll_predictably/nkdsivi/
+
+American society is a complete joke that flocks to mockery and hate at every problem. Always *hate harder*, *deport harder*, *block harder*, *mock harder*. A race to the bottom of mob mentality
+
+https://old.reddit.com/r/BlueskySocial/comments/1oazanh/white_house_invades_bluesky_to_troll_predictably/nkdstgk/
+
+Trump produces fiction, Putin produces fiction, Reddit audience member crying out for even MORE fiction and bullshit.
