@@ -245,4 +245,48 @@ This is not just a story about social psychology and data analytics. **It has to
 
 Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this powerful new way,” David tells me.
 
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkbhil4/
+
+Wild sports events / a home run, front page of Reddit /r/All - a race car driver wins, front page. Every thing Donald Trump does is entertainment to a society of pepole addicted to amusements and entertainment cneters, meme mills, addicted to touch devices.
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkajyvq/
+
+That's not the least. Being funny / amusing / entertaining is Trump's skill. People at this shit up on Reddit. Endless Tony Clifton mocking. *Infinite Jest V*
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkat77c/
+
+Menace of Unreality. 
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkb3tzs/
+
+The timeline where USA society avoids nonficiton learning of Surkov governing, what Kremlin and WHite House adopted.
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkaf40g/
+
+Finally someone recognizes that Tony Clifton acting is excellent. Reddit audices have never had a status symbol / icon to mock and insult constantly. For over 10 years and 4 months, endless addiction to shit-talk insuling mocking President Tony Clifton for his bragging performances.
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkaeisu/
+
+Reality and real were abandoned in favor of extremely short low-effort commenting, disposable message mills.
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkar41j/
+
+Only cocerned about "The Media", a media outlet, not for living in a nation run by "The Onion" addicts. "Trump Onion Fans" who eat the onion with no self-awareness of Surkovian methods.
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkauewc/
+
+Just like Surkov did in February 12, 2019, it is bragging about owning heartw and minds though IRA and media systems. https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkataah/
+
+Reddit users claim to be smart, but never mount a rescue operation against the Cambridge Analytica mind-fuck. Taking Fox News seriously by promoting Jen Senko since year 2015 avoided. People are far too enaged in the CA / IRA conditioned out-group mocking. Mocking women, mocking nonfiction learning, mocking everyone else as *dumb stupid idiots* all the time. Egomania abounds. Why can't social media Bluesky and Reddit on Sunday (today) teach BIble verse "1 John 3:17" about Murdoch / Trump / Musk / Putin and stick to the topic of that teaching until every person in USA age 12 to age 120 knows that verse? Also "1 John 4:20"- confront and stand up to the clergy for not making these known with all the media venues and media oulets they have (Churches, television church shows / televagelism, advertising on Super Bowl in 2025 https://www.usatoday.com/story/sports/ad-meter/2025/02/09/he-gets-us-super-bowl-commercials-jesus/78249530007/ )
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkbbupe/
+
+Everything is funny when you arrnge synbolism ass-backwards and don't grasp metaphors. 
+
+https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkbdetd/
+
+Fiction addiccts abound. That it is "alternate universes" of storytelling and people can't translate Moses burning bush outer-space stories to Hamlet's Ghost and 1977 Star Wars "Force Ghost" stories. The Quran and Bible are SCIENCE FICTEN. Angels and dreams are creative storytelling. Messengers from outer space stories are crated every minute, ChatGPT can create 500 of them for you in an hour. The inability to translate outer-space "voices" / messages / Carl Sagan Contact / fiction stories between each other is a serious problem. Ahteists don't grasp their inability to translate The Bible to Star Wars. ... ... ...    
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
