@@ -1,6 +1,6 @@
 # Bloomsday more
 
-One Blooms day, One Finnegans Day night
+One Blooms day, One Finnegans Wake night
 
 One inversion of the monomyth
 
