@@ -25,3 +25,13 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3m3kiqa2xl22k
 
 3. One inversion of understadings. John 1:1 bit flip. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
 
+&nbsp;
+
+### Lyrics: ["We Call Him a Dreamer"](https://youtu.be/gncyDkWWY_w?t=108)
+
+&nbsp;
+
+Finnegns Wake, year 1924 onward....   
+.... Stop the madness .... 
+
+
