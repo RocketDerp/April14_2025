@@ -287,6 +287,44 @@ Everything is funny when you arrnge synbolism ass-backwards and don't grasp meta
 
 https://old.reddit.com/r/whennews/comments/1oamcry/wtf/nkbdetd/
 
-Fiction addiccts abound. That it is "alternate universes" of storytelling and people can't translate Moses burning bush outer-space stories to Hamlet's Ghost and 1977 Star Wars "Force Ghost" stories. The Quran and Bible are SCIENCE FICTEN. Angels and dreams are creative storytelling. Messengers from outer space stories are crated every minute, ChatGPT can create 500 of them for you in an hour. The inability to translate outer-space "voices" / messages / Carl Sagan Contact / fiction stories between each other is a serious problem. Ahteists don't grasp their inability to translate The Bible to Star Wars. ... ... ...    
+Fiction addicts abound. That it is "alternate universes" of storytelling and people can't translate Moses burning bush outer-space stories to Hamlet's Ghost and 1977 Star Wars "Force Ghost" stories. The Quran and Bible are SCIENCE FICTEN. Angels and dreams are creative storytelling. Messengers from outer space stories are crated every minute, ChatGPT can create 500 of them for you in an hour. The inability to translate outer-space "voices" / messages / Carl Sagan Contact / fiction stories between each other is a serious problem. Ahteists don't grasp their inability to translate The Bible to Star Wars. ... ... ...    
 “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_insurrection_act/nkbggsu/
+
+Prediction.
+
+https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_insurrection_act/nkbhnwp/
+
+Mass dehumanization event. Anti-goodness. Anti-compassion. Anti-empathy. pro-disease.
+
+https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_insurrection_act/nkbjjr7/
+
+Donald Trump goes on media systems, broadcasts images and words, and everyone flcoks. But people using media systems of social media can't seem to imagine stopping entertainment / stopping fiction video games / being serious and sustaining serious on important topics. To rescue MAGA from cults, intead of just commenting for year after year "cult" with no desire to rescue or turn the situation around using information systems. People aren't claling ofr mental health prfeesionals to deal with "mob mentality" issues, abandonment of science / reality-based thinking. People are behaving far more as addicts to having an out-gorup to "dunk upon" than actually any desire to assert goodness / originate goodness.
+
+https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_insurrection_act/nkbhq3z/
+
+Reddit audience flocks to South Park depiction of Donald Trump. Fiction addicts thrilled to spend free time and spare time for paid profit-making media content that abandones serious reality and nonficiton learning. The King of Pop meme culture / pop media, leading an audience driven by fiction addictions. .. ... ...       
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_insurrection_act/nkbu00q/
+
+After 10 years and 3 months, still fixated on one and only one person. Reddit is a peer to peer hate platform, step out of line and you are blocked / attacked / downvoted / reported to secret police mods. I've documented some of my censored messages on this Github. People prize hate, they prize hate upon Trump, prize mocking upon Trump. It is a society that flocks to signals of total mockery and hate. It was not like this before year 2013. Cambridge Analytica and Internet Reserch Agency patterns have been adopted into routine everyday mindsets now. People are not standing up to hate itself and poor Bible literacy itself, they are mocking and insutling and commenting. Not seeing the forest for the trees.
+
+https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_insurrection_act/nkbsewk/
+
+Of course he needs to go. But that doesn't deal with hundreds of millions of fiction addicts who can't organize nonfiction learning about the crisis. It isn't just ONE MAN who has these anti-reality issues, addictions to fiction storytelling. We have a full blown crisis of media ecology and abandonment of reality. Since Q2 2013. First described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ 
+
+https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_insurrection_act/nkbs4ss/
+
+Fake means fiction. Non-reality, unreal. He is in Kremlin reality. Surkov won, Putin won. We need to rescue Donald Trump and hunreds of milloins of people from compusive fiction flocking / confusng fction as nonfiction. We have drowned ourselves in information systems with junk content. Disposable commenting is prized at high speeds over stable thoughful reason thinking. ... ... ...           
+“a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture **consuming itself with information, and many of us do not even wonder how to control the process**. We proceed under the assumption that information is our friend, believing that cultures may suffer grievously from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also **suffer grievously from information glut, information without meaning**, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
+https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_insurrection_act/nkblwws/
+
+Fiction outsells nonfiction. Enterainment-based Surkovian governing has Reddit audience and Bluesky audience constantly flocking to reaction-commenting / reaction mindsets. Abandonment of reason thinking. 
+
+https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_insurrection_act/nkbrgv5/
+
+Reddit audience constantly concerned with dipaers being under Donald Trump's pants. They find Tony Clifton acts so entertaining.
 
