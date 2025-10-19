@@ -27,7 +27,7 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3m3kiqa2xl22k
 
 &nbsp;
 
-### Lyrics: ["We Call Him a Dreamer"](https://youtu.be/gncyDkWWY_w?t=108)
+### Lyrics: ["We Call Him a Dreamer"](https://youtu.be/gncyDkWWY_w?t=109)
 
 &nbsp;
 
