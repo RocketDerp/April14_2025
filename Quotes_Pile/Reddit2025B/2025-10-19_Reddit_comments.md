@@ -328,3 +328,37 @@ https://old.reddit.com/r/law/comments/1oarwfd/trump_dont_forget_i_can_use_the_in
 
 Reddit audience constantly concerned with dipaers being under Donald Trump's pants. They find Tony Clifton acts so entertaining.
 
+https://old.reddit.com/r/instant_regret/comments/1oarp5q/who_put_that_window_there/nkbn2d1/
+
+If we could be this serious about the operating system of our society, our government and morality education. But people are attracted to technical systems / filmed.
+
+https://old.reddit.com/r/news/comments/1oatwlq/israel_says_the_transfer_of_humanitarian_aid_into/nkc6e65/
+
+Everything around Trump / Trump White House is entertainment and amusement. The abandonment of reaosn thinking in favor of meme-think LOL-washing amusement-washing funny-washing every Trump act as content.
+
+https://old.reddit.com/r/news/comments/1oatwlq/israel_says_the_transfer_of_humanitarian_aid_into/nkc00vb/
+
+"LOL" laugh track for Reddit audience.
+
+https://old.reddit.com/r/news/comments/1oatwlq/israel_says_the_transfer_of_humanitarian_aid_into/nkc067l/
+
+Minds blown by Levant monomyth information warfare. "LMAO" tiny-short patterns of conditioned amusement-washing / humor-washing of mass dehumanization events.
+
+https://old.reddit.com/r/news/comments/1oatwlq/israel_says_the_transfer_of_humanitarian_aid_into/nkbzvuq/
+
+Entertaining Reddit audiences. Into meme stupor thinking patterns.
+
+https://old.reddit.com/r/news/comments/1oatwlq/israel_says_the_transfer_of_humanitarian_aid_into/nkc1ql0/
+
+It is almost like people are feeding low-effort disposable comments into thier minds, minds fed trash garbage high-speed memes and messages to avoid serious nonfiction learning and reason thinking.
+
+https://old.reddit.com/r/news/comments/1oatwlq/israel_says_the_transfer_of_humanitarian_aid_into/nkbvzwc/
+
+Parenting in palestine is a fucking nightmare. Being born into that place with a passport that won't let you escape the out-group hate. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+JOSEPH CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. **It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future**.
+MOYERS: What kind of new myth do we need?
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+MOYERS: There is something about that on the Great Seal of the United States.
+CAMPBELL: That’s what the Great Seal is all about.
+
