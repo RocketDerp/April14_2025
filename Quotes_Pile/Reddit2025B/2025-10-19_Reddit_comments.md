@@ -400,3 +400,16 @@ https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himse
 
 <img width="964" height="298" alt="image" src="https://github.com/user-attachments/assets/20311ad9-0c5c-41a9-afc7-043a74e02a07" /> Reddit messags to give up and abandon Americans. Give up on rescuing those that Russian information warfare has manipulated and harmed. Give up on the injured. Do not fight back against Putin's Kremlin, just let people have their hearts and minds wrecked by Russians.
 
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nkayc3t/
+
+Social media cult of using free time and spare time for low-effort commenting disposable messages. Not claling for social media to do cult deprogramming, rescue. The problem has not gone away FOR OVER TEN YEARS AND FOUR MONTHS.
+
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nkas8rs/
+
+Amusement-washing, meme-washing, LOL-washing, Reddit has been going it to Trump the "LOL cow" to milk for memes and jokes - FOR OVER TEN YEARS AND THREE MONTHS while abandoning calls for serious sustained focus on nonfiction learning of media ecology / media addiction / Russian information warfare.
+
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nk99ecm/
+
+It is amusing entertainment to audiences. Going after Taylor Swift, going after Bruce Springsteen, posting as Star Wars characters, it's all entertainment / amusement to chucklehead nation of media addicts. ... ... ...     
+"All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
