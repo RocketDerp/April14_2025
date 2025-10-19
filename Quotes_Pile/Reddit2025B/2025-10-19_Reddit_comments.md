@@ -366,3 +366,37 @@ https://old.reddit.com/r/news/comments/1oatwlq/israel_says_the_transfer_of_human
 
 Fiction vs. fiction. Science fiction monomyth trilogy infighting. Quran vs. Torrah. Book supremacy, story supremacy. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nk9904p/
+
+A society that doesn't see a problem with prizing entertainment over all other things. Prizing low-effort shallow commenting at high speeds above helping each other with serious comprehension problems. A society that entertainment-washes amusement-washes every bad thing into prized content. What the intimate touch device media ecology has done to the mental states / mind sets of the nation. ... ... ...       
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nk9grh4/
+
+Russia won an information war since year 2013. People can't grasp why things have changed so deeply. The IRA and CA changed minsets into self-harm of USA, anti-goodness, anti-humanism.
+
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nkawlr3/
+
+Sports mentalty of "winner take all" has been programmed into minds by Cambridge Analytica doctors.
+
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nk9kmen/
+
+Yes, it's constantly painful to me. Brain damaging, that the cult of low-effort junk input into minds, media cults of trash didsposable inforamtion, is self-harming the children of the nation. That parents prize Truth Social behaviors as God / Jesus leadership roles.
+
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nkapf40/
+
+<img width="1214" height="790" alt="image" src="https://github.com/user-attachments/assets/dc16d7d7-1c3f-4c1b-9c72-3a3b66045a93" /> "Alternate Universes", "Alternate Reality" induced by filter-bubble media https://en.wikipedia.org/wiki/Filter_bubble patterns. Alas, people won't call for everyone to get on the *same page at the same time* and comment these observations on disposable messaging systems where content gets aged out quickly. People do not see the need for Wiki style sustained progress of improving information. Or even turning to nonfiction books printed on paper to remind people of media ecology itself and what high-speed favoring of TCP/IP rapid deivery over the messages themselves. No book titles, no authors named, no mention of Jen Senko's year 2015 film, etc. Alternate universes, ARG screen games of touch devices and HDTV channel screens. ... ... ...      
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nkapty5/
+
+LOL-washing, milking Trump as a "LOL cow" of endless entertaiment. Amusement-washing. Surkovian techniques.  Joke-washing. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nkb60js/
+
+Truth Social role model. Reddit 4chan no-identity low-effort disposable information mindsets. Constantly prizing high-speed delivery over comprehension and understanding.
+
+https://old.reddit.com/r/politics/comments/1oafwu6/trump_posts_ai_video_of_himself_bombing/nk9wtdw/
+
+<img width="964" height="298" alt="image" src="https://github.com/user-attachments/assets/20311ad9-0c5c-41a9-afc7-043a74e02a07" /> Reddit messags to give up and abandon Americans. Give up on rescuing those that Russian information warfare has manipulated and harmed. Give up on the injured. Do not fight back against Putin's Kremlin, just let people have their hearts and minds wrecked by Russians.
+
