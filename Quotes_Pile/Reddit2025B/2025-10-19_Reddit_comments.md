@@ -502,3 +502,13 @@ American society is a complete joke that flocks to mockery and hate at every pro
 https://old.reddit.com/r/BlueskySocial/comments/1oazanh/white_house_invades_bluesky_to_troll_predictably/nkdstgk/
 
 Trump produces fiction, Putin produces fiction, Reddit audience member crying out for even MORE fiction and bullshit.
+
+https://old.reddit.com/r/technology/comments/1ob20ei/this_is_definitely_my_last_twitchcon_highprofile/nkdygi1/
+
+Fiction addiction abounds. Bible verse "1 John 4:20" problem, people can't tell the character of God is a metaphor. Yaweh is an idea, a metaphor, a science fiction story character. People fall in love and fight wars for a metaphor / idea- and we don't chooseto teach that to everyone. We prefer to have predatory billionares make profit and power off it. Putin and Surkov monomyth self-harm on a massive scale apointing this. Death for a fiction story character. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...   
+
+JOSEPH CAMPBELL: It’s been said that poetry consists of letting the word be heard beyond words. And Goethe says, “All things are metaphors.” Everything that’s transitory is but a metaphorical reference. That’s what we all are.
+
+BILL MOYERS: But how does one worship a metaphor, love a metaphor, die for a metaphor?
+
+JOSEPH CAMPBELL: **That’s what people are doing all over the place — dying for metaphors**. But when you really realize the sound, “AUM,” the sound of the mystery of the word everywhere, then you don’t have to go out and die for anything because it’s right there all around. Just sit still and see it and experience it and know it. That’s a peak experience.
