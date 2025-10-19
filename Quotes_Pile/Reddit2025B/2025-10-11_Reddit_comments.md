@@ -3168,3 +3168,7 @@ No link to the clip. It's celebration of amusement-washing and comedy-washing of
 https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7wczj/
 
 Neil Postmans short 184 page length book from year 1985 should be made front-page every 12 hours on Bluesky and Reddit, Jen Senko should be a household name, etc. But people will not break free from their low-effort commenting high-speed messaging addictions.
+
+https://old.reddit.com/r/Music/comments/1oabg0z/rip_sam_rivers_limp_bizkit_bassist_dead_at_48/nk88myx/
+
+Hate outsells love and compassion.
