@@ -512,3 +512,37 @@ JOSEPH CAMPBELL: It’s been said that poetry consists of letting the word be he
 BILL MOYERS: But how does one worship a metaphor, love a metaphor, die for a metaphor?
 
 JOSEPH CAMPBELL: **That’s what people are doing all over the place — dying for metaphors**. But when you really realize the sound, “AUM,” the sound of the mystery of the word everywhere, then you don’t have to go out and die for anything because it’s right there all around. Just sit still and see it and experience it and know it. That’s a peak experience.
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkclwo2/
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkckkpr/
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkckyxb/
+
+It's science fiction storytelling from 2,000 years ago that people can't read right. People prize low-effort high-speed commenting networks, prize badness over goodness. Why can't social media make Bible verse "1 John 3:17" known to EVERY PERSON in USA from age 12 to 120? Because so much trash addictions of low-effort unimportant entertainment and trivia. ... ... ...    
+
+"Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance. Orwell feared we would become a captive culture. Huxley feared we would **become a trivial culture**, preoccupied with some equivalent of the feelies, the orgy porgy, and the centrifugal bumblepuppy. As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on **the alert to oppose tyranny** "failed to take into account man's almost infinite appetite for distractions." In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us.
+
+This book is about the possibility that Huxley, not Orwell, was right.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkdai57/
+
+Learning comparative mythology is no longer optional. Russian information warfare, Surkov monomyth, exploits all this ignorance. Every person age 12 to age 120 needs to know the history of science fiction monomyth addictions. L Ron Hubbard has been eclipsed by Surkov students.
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkcnt0v/
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkdoskg/
+
+Experience with Fox News alternate reality we have all encountered since October 7, 1996. We have to be willing to admit Neil Postman was correct in his 1985 book, eleven years earlier.
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkct5eq/
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkcm7vj/
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkcr5dr/
+
+https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos_said_id_rather_have/nkcrddh/
+
+“The other nine, decent, hard-working, ordinarily intelligent and honest men, did not know before 1933 that Nazism was evil. They did not know between 1933 and 1945 that it was evil. And they do not know it now. None of them ever knew, or now knows, Nazism as we knew and know it; and they lived under it, served it, and, indeed, made it.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1955
+
