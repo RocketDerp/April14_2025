@@ -1722,3 +1722,11 @@ https://old.reddit.com/r/anime_irl/comments/1o6k55r/anime_irl/
 
 Parenting in Palestine ....      
 https://old.reddit.com/r/CuratedTumblr/comments/1o9a4m3/consent/
+
+&nbsp;
+
+Bernie Sanders     
+https://old.reddit.com/r/politics/comments/1oao91s/sanders_at_no_kings_rally_megabillionaires_have/
+
+Abandonment of goodness, need for remedial morality. Cambridge Analytica aftermath.      
+https://old.reddit.com/r/politics/comments/1oaq8je/the_depth_of_magas_moral_collapse/
