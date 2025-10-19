@@ -362,3 +362,7 @@ CAMPBELL: We need myths that will identify the individual not with his local gro
 MOYERS: There is something about that on the Great Seal of the United States.
 CAMPBELL: That’s what the Great Seal is all about.
 
+https://old.reddit.com/r/news/comments/1oatwlq/israel_says_the_transfer_of_humanitarian_aid_into/nkc01mr/
+
+Fiction vs. fiction. Science fiction monomyth trilogy infighting. Quran vs. Torrah. Book supremacy, story supremacy. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
