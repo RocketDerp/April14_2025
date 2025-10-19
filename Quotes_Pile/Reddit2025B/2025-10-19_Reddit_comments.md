@@ -208,3 +208,41 @@ CAMPBELL: On some levels a private dream runs into truly mythic themes and can�
 MOYERS: From the archetypal person within us, the archetypal self we are.
 
 CAMPBELL: That’s right. 
+
+https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkb1y9b/
+
+https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkazfc4/
+
+Yes. Hell is not a place underground, under the Earth. Hell is a mass man state, mob mentality. The metaphor of Hell is our current October 2025 USA mindset. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkb7lbo/
+
+The situation gives me mass man / mass mind brain damage. So much self-harm mindsets / mob mentality.
+
+https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkb6zi3/
+
+Anti-reality. Celebration of fiction, celebration of ignorance. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkbb6ow/
+
+https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkb8tsd/
+
+Low-effort commenting addicts / media addicts are thrilled to have entertainment leaders. In this following quote, [Howdy Doody ficiton clown show](https://en.wikipedia.org/wiki/Howdy_Doody) is President Ronald Regan in year 1985 of book publication, second term in office / White House. ... ... ...   
+"All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
+
+https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkaxmce/
+
+Amusement-washing, LOL-wiping away of reality. "Amusing Ourselves To Death" - Neil Postman described in year 1985.
+
+https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkauv90/
+
+Reddit audience is addicted to /r/All front page of shocking / unusual / mind blowing media. Donald Trump is put in the center of society attention FOR OVER TEN YEARS AND FOUR MONTHS because social media society can't face what the Apple iPhone / iPad / touch devices have done to life and mindsets in USA, and people can't be bothered to learn nonfiction about Russia's Internet Research Agency and Cambridge Analytica and ponder the long-term outcomes / the results of doctors at CA using them most sophisticated methods of mind methods. ... ... ...            
+https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy
+
+This is not just a story about social psychology and data analytics. **It has to be understood in terms of a military contractor using military strategies on a civilian population**. Us. David Miller, a professor of sociology at Bath University and an authority in psyops and propaganda, says it is “an extraordinary scandal that this should be anywhere near a democracy. It should be clear to voters where information is coming from, and if it’s not transparent or open where it’s coming from, it raises the question of whether we are actually living in a democracy or not.”
+
+Paul and David, another ex-Cambridge Analytica employee, were working at the firm when it introduced mass data-harvesting to its psychological warfare techniques. “It brought psychology, propaganda and technology together in this powerful new way,” David tells me.
+
+
