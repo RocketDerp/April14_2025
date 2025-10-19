@@ -3152,3 +3152,19 @@ https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt
 
 Lots to say on this one.
 
+https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7xjc5/
+
+Not promoting Jen Senko's name, not borther to look deeper into this issue. Jen Senko's film has been out for a decade. Should be a household name and repeat topic until the issue is resolved.
+
+https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7d60x/
+
+There is a planet of over 8 billion people. Why does USA view this only as a Fox News issue? No author names, no book titles, no links, no article names. Just tiny short-length messages that dominate mindsets.
+
+https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7dt5x/
+
+No link to the clip. It's celebration of amusement-washing and comedy-washing of serious problems. Celebration of not using nonfiction learning to address these problems.  ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/Music/comments/1oa71vk/maga_fans_angry_bad_bunny_doesnt_reflect_the/nk7wczj/
+
+Neil Postmans short 184 page length book from year 1985 should be made front-page every 12 hours on Bluesky and Reddit, Jen Senko should be a household name, etc. But people will not break free from their low-effort commenting high-speed messaging addictions.
