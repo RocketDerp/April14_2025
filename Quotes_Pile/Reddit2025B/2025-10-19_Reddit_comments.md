@@ -228,7 +228,7 @@ https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks
 
 https://old.reddit.com/r/NoFilterNews/comments/1oao2q3/wildest_part_trump_shocks_experts_with_bizarre/nkb8tsd/
 
-Low-effort commenting addicts / media addicts are thrilled to have entertainment leaders. In this following quote, [Howdy Doody ficiton clown show](https://en.wikipedia.org/wiki/Howdy_Doody) is President Ronald Regan in year 1985 of book publication, second term in office / White House. ... ... ...   
+Low-effort commenting addicts / media addicts are thrilled to have entertainment leaders. In this following quote, [Howdy Doody fiction clown show](https://en.wikipedia.org/wiki/Howdy_Doody) is President Ronald Regan in year 1985 of book publication, second term in office / White House. ... ... ...   
 "All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**."
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
 
@@ -418,4 +418,53 @@ https://old.reddit.com/r/law/comments/1oavgvo/trump_democrats_didnt_realize_the_
 
 Meme deocration, meme-wrapping, entertainment-wrapping, Russian IRA invasion is how we got here. Social media Truth Social prizing of LOL / LMAO / amusement above all else. Note that this was published in 1985, BEFORE smartphones and before Bluesky and before Reddit and before Twitter, so it does not name the Apple iPhone like a televison set / television screen. ... ... ...    
 "What is happening here is that television is altering the meaning of 'being informed' by creating a species of information that might properly be called disinformation. I am using this world almost in the precise sense in which it is used by spies in the CIA or KGB. Disinformation does not mean false information. It means misleading information - misplaced, irrelevant, fragmented or superficial information - information that creates the illusion of knowing something but which in fact leads one away from knowing. In saying this, I do not mean to imply that television news deliberately aims to deprive Americans of a **coherent, contextual understanding of their world. I mean to say that when news is packaged as entertainment, that is the inevitable result**. And in saying that the television news show **entertains but does not inform**, I am saying something far more serious than that we are being deprived of authentic information. I am saying **we are losing our sense of what it means to be well informed**. Ignorance is always correctable. But what shall we do if we take ignorance to be knowledge?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkci0d5/
+
+Russia won hearts and minds of the enemy. https://en.wikipedia.org/wiki/Winning_hearts_and_minds Americans can't even name the "Internet Research Agency" and see the avoidance of nonfiction learning. 
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkcizha/
+
+Rushed to embrace the out-group hate patterns of CA and IRA. Did not bow down, did not bend over, ReTweeted and upvoted on Twitter, Reddit, Facebook, etc.
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkcoo33/
+
+Someone gets it. Trump is consistently anti-humanism, pro domination, "Stand Up For the Big Guy" values, Putin.
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkcgvhe/
+
+Trump trusts Putin, people trust Trump. People think Fox News is nonfiction. People think The Bible is nonfiction. We have a media ecology crisis.
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkclhv8/
+
+All echoing Internet Research Agency and Cambridge Analytica mindset patterns. Self-harm USA, *hate harder*, *mock harder*, ANYTHING to avoid confronting the avoidance of nonfiction learning about Russian infromationn warfare and media ecology (Marshall McLuhan, Neil Postman, etc)
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkcmr7c/
+
+ate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkci1oi/
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkcglnj/
+
+No book titles, no author names, no links, no quotes. Avoidance of nonfiction learning is what created this society-wide 100% of the population mess. The attack againstreality is described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - but people will no longer engage nonfiction learning.
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkch296/
+
+Prizing clown meme message mills for learning has impcated the entire population. Low-effort commenting addicts / media addicts are thrilled to have entertainment leaders. In this following quote, [Howdy Doody fiction clown show](https://en.wikipedia.org/wiki/Howdy_Doody) is President Ronald Regan in year 1985 of book publication, second term in office / White House. ... ... ...   
+"All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkcliwv/
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkcof0r/
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkciljj/
+
+The USA will go down for abandoning nonfiction learning and flocking to "meme life" and amusement leadership. Abandoning reason thinking systems in favor of prizing hate and prizing high-speed media machines over human persons.
+
+https://old.reddit.com/r/europe/comments/1oawd08/trump_urged_zelenskyy_to_accept_putins_terms_or/nkchf9n/
+
+People avoid nonfiction books on this subject. Published ELEVEN FULL YEARS AGO. ... ... ...     
+"The Kremlin’s idea is to own all forms of political discourse, to not let any independent movements develop outside of its walls. Its Moscow can feel like an oligarchy in the morning and a democracy in the afternoon, a monarchy for dinner and a totalitarian state by bedtime.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, year 2014.
 
