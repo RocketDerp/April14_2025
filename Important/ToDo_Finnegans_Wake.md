@@ -61,3 +61,7 @@ https://www.youtube.com/watch?v=tX1zFx7VUd0
 
 Mother Mary's pubin Dublin song     
 https://www.youtube.com/watch?v=p5QpNF26BQc
+
+&nbsp;
+
+Levant King of Jesus ruling over USA. Street gangs of Morman vs. Catholic vs. other protestants. Shia vs. Sunni (Jesus is in Quran) street gangs. September 11, 2001 street gangs of terrorism attacking USA street gangs of Bible.  John 1:1 - podcasters are originators of Language memes. Bible is science fiction crisis.    https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/
