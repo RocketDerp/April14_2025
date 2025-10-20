@@ -2,6 +2,10 @@
 
 Monday, October 20, 2025 USA. The October 18, 2025 "No Kings Day" weekend has passed.
 
+Our wounds run so deep, our mental one-bit brainrot of liberal vs. conservative bi-polor logic, left vs. right bi-polar logic. That is NOT what the Founding Fathers in year 1776 created for the American Dream Machine, a New World Order, [***Out of Africa***](https://en.wikipedia.org/wiki/Recent_African_origin_of_modern_humans). NOT *out of outer space aliens, Eden*. 
+
+Our Wounded King does not grasp or know he is wounded. Nor do his haters, nor do his hate audiences, those who prize mocking, those who prize hate. People do not understand, the human learning has been lost, repalced by "meme life" junk high-speed meme consumption since year 2013.
+
 We have a wounded king. As defined in summer of 1987, Skywalker Ranch Califrnia, filmed by George Lucas:
 
 &nbsp;
