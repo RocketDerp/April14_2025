@@ -722,3 +722,7 @@ year 2012, sharing Malala's story with my wife... she wan't feeling it. I'd spen
 https://old.reddit.com/r/LivestreamFail/comments/1obqbf0/kick_streamer_in_india_sam_pepper_shoots_a/nkhhoyc/
 
 I'm in the Reddit audience - I am not a "bot". I see real people finding out about his antics entertainment and in the scene cheering him on. I really don't think Reddit society grasps media ecology.
+
+https://old.reddit.com/r/ThatsInsane/comments/1obo5ww/europol_just_dismantled_a_sim_farmforhire/nkhc5vo/
+
+Real human people are funding, building, using these machines. Reddit is not a anti-technology society, people adore fiction and insincerity on Reddit. Trump is a role model of Truth Social / Reddit behavior. Trump uses a real name while Reddit community hides real identity and reality.
