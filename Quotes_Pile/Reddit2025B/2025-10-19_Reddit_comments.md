@@ -707,3 +707,7 @@ https://old.reddit.com/r/BlueskySkeets/comments/1obi5tb/all_while_wearing_a_crow
 
 Humor-washing, LOL-washing, amusement-washing, milking the "LOL cow" for memes, entertainment-washing. He is the biggest entertainer in all human history. President Tony Clifton NYC / SNL (Trump Home town) act. People eat the feces up. Diaper-topic fetish audience. For over TEN YEARS AND FOURTH MONTHS people have endlessly prized shit, prized dehumanization, prized hate leadership. Media addiction runs this nation. Neil Postman had it all describe in his 1985 book "Amusing Ourselves To Death" about the last President who was an "entertainer" in second term (year 1985). A core aspect of Tony Clifton performances is extreme bragging about talent and success. For example, a 2000 retrospective in The Guardian describes an announcer introducing Clifton as "a man who has sold more records than Elvis and the Beatles combined". https://www.theguardian.com/film/2000/may/25/comment
 
+https://old.reddit.com/r/BlueskySkeets/comments/1obi5tb/all_while_wearing_a_crown_seems_relevant/nkguexn/
+
+I've been a pro in social media since year 1985... So am I. You must have forgotten year 1985 and a book printed about Ronald Reagan. And the "Cold War" against Russia. Surkov won.
+
