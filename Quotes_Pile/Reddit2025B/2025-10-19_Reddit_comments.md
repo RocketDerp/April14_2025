@@ -546,3 +546,74 @@ https://old.reddit.com/r/complaints/comments/1oawsnx/if_youre_a_maga_person_whos
 
 “The other nine, decent, hard-working, ordinarily intelligent and honest men, did not know before 1933 that Nazism was evil. They did not know between 1933 and 1945 that it was evil. And they do not know it now. None of them ever knew, or now knows, Nazism as we knew and know it; and they lived under it, served it, and, indeed, made it.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published 1955
 
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke2dkp/
+
+It works. The denial of real reality, the denial of truth, here in the Reddit community. Tony Clifton acts draw in Reddit mocking every time. People eat it. And no President in USA history has ever had this much power, control and media coverage / media addicts. A population that will not stop prizing hate, prizing mockery, turning the whole nation into endless mocking FOR OVER TEN YEARS AND THREE MONTHS. Even when Trump was not POTUS for 4 years, he had a Reddit audience flock to every turd antic and behavior, unable to sse the compusive attraction to badness. Goodness has been abandoned, nonfiction learning abandoned. Weare LIVING in "Infinite Jest V"
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nkecsp8/
+
+Reddit audience complaing that the Reality TV entertainment isn't creative enough and original enough. Media addictions have ruined society.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nkedm1r/
+
+Why? People abandoning goodness. Unable to imagine anything other than the media presented to them. Unabel to educate, teach, use social media systems to train and create good leaders. Instead, just flocking to trash memes and Russian mindsets conditioned by the IRA and CA.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke7dwp/
+
+Fox News and trash memes on Twitter, Facebook, Reddit get replaced all the time. The Peope gets replaced all the time and for thousands of years people flock to monomyth science fiction storytelling. Surkov cracked the monomyth fiction code, until people see that this is all fiction-addictions running socity - then corporate / outside nations / anyone will be leading the nation with fiction. Rupert Murdoch wasn't an elected official. 
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke9256/
+
+New entertainment video games, amusement TV shows, entertaining amusement films, come along all the time. What made the USA world leaders was nonfiction learning. Addiction to fiction has been seeded by IRA and CA and nobody is facing up to the "Amusing Ourselves To Death" 1985 problem described by Neil Postman.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nkeboh4/
+
+The Bible is science fiction, but people can be like characters.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke90ev/
+
+More fiction entertainers, more fiction-based leadership. Anything on Reddit to avoid nonfiction serious leanring and fight back against Putin's information warfare since year 2013.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke57oq/
+
+Low-effort commenting and addiction to mocking Trump, reacting to Trump, has wrecked the USA. For OVER TEN YEARS AND FOUR MONTHS this is the content people prize on meme sites.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke7kjw/
+
+Livng in a simulacra, fiction vs. fiction. Alternate realities, alternate universes. The total abandonment of goodness, abandonment of reality.  ... ... ...      
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nkebzbr/
+
+The problem is social media addicts keep commetning upon cults and will not go to the nonfiction section of the public library and start defending against Putin's 5,000 Cambridge Analytica cult patterns.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke61r8/
+
+Andy Kaufman played Elvis acts in addition to creating the Tony Clifton character and act. Donald Trump has bamboozled everyone with Tony Clifton who can't call out Surkov and Kaufman techniques.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke8axx/
+
+People abandoned real reality. Media addiction to mocking and hate signals are all people crave now.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke98zu/
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke6njz/
+
+The magic "Q drops" of information chanting. Not for reform of governing and leadership, only a "List" and "files". Addicts of content want content. Reality and goodness abandoned just to have *information strip tease* of documents. QAnon Pizzagate addicts chanting to the Reddit audince. No call to stop predatory against girls today in 2025, just a magical information list of years-ago private jet private island white men games. No desire to reform morality for young girls, anti-Malala values. Only intersted in learning sex acts of white men. Trump is correct about sex power entirely different when you are a media star. Reddit audience constantly wants more Trump sex content.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke4alx/
+
+Surkov cracked the monomyth patterns. Kremlin and White House have convinced the population to abandon reality. First described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - but people will no longer engage nonfiction learning.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke9s19/
+
+<img width="982" height="432" alt="image" src="https://github.com/user-attachments/assets/a835c8f1-bfd1-467d-a0ef-25c9b32463ba" /> Ate the onion. Unaable to describe Surkov Russian information warfare. They are not unserious, they are very serious. Ukraine is having real people killed. Health care is being worsned in USA. They are VERY SERIOUS about self-harm to USA. Calling it "unserious" in thier Tony Clifton antics and performance is total denial of reality and failure to recognize Surkovian methods and see how serious people are about fiction addictions and attacking science reality / authentic reality.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nkeegzq/
+
+Low-effort high-speed commenting has drowned out serious efforts to confront the media ddiction problemsto entertainer signals / entertainment leadership. People didn't take Jen Senko's 2015 film serious, don't take nonfiction serious.
+
+https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke565e/
+
+Tony Clifton acts are not jokes in the classic sense. They are brain exploits. Mind-fucking.
+
