@@ -50,3 +50,9 @@ https://old.reddit.com/r/comics/comments/1o974i6/up_to_something_gator_days/
 
 Populating the public library, the bricks of the Tower of Babel climb of human to human understanding of our own brain interpretation of reality.     
 https://old.reddit.com/r/meme/comments/1o95fd4/real/
+
+&nbsp;
+
+Walking among the dead, people not Woke to Wake, Finnegans Wake, year 1924 onward. Minds alled up in poetry language, books, films, audio, media ecology of Wake.      
+https://www.youtube.com/watch?v=tX1zFx7VUd0      
+191,283 views  October 17, 2025
