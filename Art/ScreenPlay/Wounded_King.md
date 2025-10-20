@@ -17,7 +17,7 @@ Trump's rescue involves transforming passion for women into compassion for Malal
 ### Trump: "The Injured One"
 
 JOSEPH CAMPBELL: "But Abelard’s idea was that Christ came to be crucified to evoke in man’s heart the sentiment of compassion for the suffering of life, and so to remove man’s mind from blind commitment to the goods of this world. It is in compassion with Christ that we turn to Christ; and the injured one becomes our Savior.
-This is reflected in the medieval idea of the injured king, the Grail King, suffering from his incurable wound. The injured one again becomes the savior. It is the suffering that evokes the humanity of the human heart."
+This is reflected in the medieval **idea of the injured king, the Grail King, suffering from his incurable wound**. The injured one again becomes the savior. It is the suffering that evokes the humanity of the human heart."
 
 ### Trump: "Ask The Question"
 
