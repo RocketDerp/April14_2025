@@ -4,7 +4,7 @@ Monday, October 20, 2025 USA. The October 18, 2025 "No Kings Day" weekend has pa
 
 Our wounds run so deep, our mental one-bit brainrot of liberal vs. conservative bi-polor logic, left vs. right bi-polar logic. That is NOT what the Founding Fathers in year 1776 created for the American Dream Machine, a New World Order, [***Out of Africa***](https://en.wikipedia.org/wiki/Recent_African_origin_of_modern_humans). NOT *out of outer space aliens, Eden*.  Eden is science fiction story, the Great Seal of the United States of America is a world order founded on nonfiction.
 
-![Pyramid in Africa](httpsGreat_Pyramid_of_Giza_-_Pyramid_of_Khufu.jpg)
+![Pyramid in Africa](Great_Pyramid_of_Giza_-_Pyramid_of_Khufu.jpg)
 
 &nbsp;
 
