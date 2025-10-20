@@ -56,3 +56,8 @@ https://old.reddit.com/r/meme/comments/1o95fd4/real/
 Walking among the dead, people not Woke to Wake, Finnegans Wake, year 1924 onward. Minds alled up in poetry language, books, films, audio, media ecology of Wake.      
 https://www.youtube.com/watch?v=tX1zFx7VUd0      
 191,283 views  October 17, 2025
+
+&nbsp;
+
+Mother Mary's pubin Dublin song     
+https://www.youtube.com/watch?v=p5QpNF26BQc
