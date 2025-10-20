@@ -615,7 +615,7 @@ Low-effort high-speed commenting has drowned out serious efforts to confront the
 
 https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video_threatening_a/nke565e/
 
-Tony Clifton acts are not jokes in the classic sense. They are brain exploits. Mind-fucking. That is why Andy was prety clear to mostly do it in comedy venues (Taxi TV show), comedy halls / casinos. Because if done in a position of true power and control, it blows out minds into stupors that nobody has found a solution for. 
+Tony Clifton acts are not jokes in the classic sense. They are brain exploits. Mind-fucking. That is why Andy was prety clear to mostly do it in comedy venues (Taxi TV show), comedy halls / casinos. Because if done in a position of true power and control, it blows out minds into stupors that nobody has found a solution for. OPERA_A REPEAT_TRACK Andy, did you hear about this one? https://www.youtube.com/watch?v=l2lliT6KK9o 187,113 views February 8, 2018. 
 
 
 https://old.reddit.com/r/politics/comments/1oaws7f/rand_paul_all_of_these_people_have_been_blown_up/nkdish3/
