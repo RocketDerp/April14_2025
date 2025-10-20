@@ -711,3 +711,11 @@ https://old.reddit.com/r/BlueskySkeets/comments/1obi5tb/all_while_wearing_a_crow
 
 I've been a pro in social media since year 1985... So am I. You must have forgotten year 1985 and a book printed about Ronald Reagan. And the "Cold War" against Russia. Surkov won.
 
+https://old.reddit.com/r/todayilearned/comments/1obixtu/til_kurt_cobain_tracked_down_the_raincoats_an/nkh31wy/
+
+https://old.reddit.com/r/todayilearned/comments/1obixtu/til_kurt_cobain_tracked_down_the_raincoats_an/nkh78r0/
+
+https://old.reddit.com/r/todayilearned/comments/1obixtu/til_kurt_cobain_tracked_down_the_raincoats_an/nkh7ije/
+
+year 2012, sharing Malala's story with my wife... she wan't feeling it. I'd spent two full years sharing songs and films and doing media ecology lessons of USA / North Africa / Levant. And she wasn't feeling anything Malala was saying. And I'm like... climate change future, world peace future, do you read these blogs from January 2009 onward? Blah. OPERA_A Doctor My Eyes, did Malala see too much of the parade of tears? https://www.youtube.com/watch?v=JSVQVbBJd34
+
