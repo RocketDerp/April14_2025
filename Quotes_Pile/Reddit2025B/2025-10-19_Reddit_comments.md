@@ -626,3 +626,27 @@ https://old.reddit.com/r/politics/comments/1oaws7f/rand_paul_all_of_these_people
 
 Pizzagate, basement of pizza shop, magical Flat Earth brain exploit level QAnon / Q mind-fuck patterns.
 
+https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/nkh79eu/
+
+Media ecology lessons!
+
+https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/nkh7anm/
+
+In other words, mob mentality of the Internet can easily be exploited by faking and manipulating audiences into something being "forbidden" and "sin". The Romans 11:32 MonoMyth mind exploit pattern of fiction storytelling of the Levant thousands and thousands of years.
+
+https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/nkh6fzh/
+
+Denial of Reddit addiction and learning / teaching. People worship media gods, Trump and Putin are media content arrangement gods.
+
+https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/nkh6ph5/
+
+The USA military / Pentagon helped create Top Gun fiction. https://www.vox.com/23141487/top-gun-maverick-us-military-hollywood-oscar-winner-best-sound
+
+https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/nkh6xdm/
+
+brairot of liberal vs. conservative binary.
+
+https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/nkh3vxe/
+
+Yes. media ecology lessons. The "Internet forever" is total bullshit. I've been posting stuff on the Internet since the early 1990's and much of it is entirely gone.
+
