@@ -4,6 +4,7 @@
 ++ Surreal   
 ++ Endless attraction to Trump images and icons / status symbol of rich    
 ++ Hate training camp    
+++ Entertainment focus    
 
 &nbsp;
 
@@ -819,3 +820,10 @@ https://old.reddit.com/r/pics/comments/1o9fmh8/pete_hegseth_at_the_meeting_with_
 
 Hate clergy, hate prized, hate values. Everything MLK Jr' said about hate abandoned again and again. Donald Trump playing Tony Clifton has thrived off feedback loops of hate for hate. For over TEN YEARS AND FOUR MONTHS, always more hate. Hate of immigrants, hate of nonfiction book reading, hate of people who watch media other than Fox News, all met with more hate. Wrecking the USA by everyone advancing the technology systems and techniques of hate. Goodness itself abandoned. Nonfiction serious learnng in the face of pandemic, abandoned. Hate prized.    
 https://old.reddit.com/r/goodnews/comments/1oa36rp/2600_rallies_across_50_states_million_and/
+
+&nbsp;
+
+&nbsp;
+
+Top of front-page of Reddit. In our face that Taylor Swift, films, everything to do with enertainment "fake fiction storytelling" (Top Gun is fiction storytelling, "Fake News" in USA Trump language). And people can not turn to nonfiction learning of Surkov student techniques, Russia under Putin media methods learning.      
+https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/
