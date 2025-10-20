@@ -726,3 +726,96 @@ I'm in the Reddit audience - I am not a "bot". I see real people finding out abo
 https://old.reddit.com/r/ThatsInsane/comments/1obo5ww/europol_just_dismantled_a_sim_farmforhire/nkhc5vo/
 
 Real human people are funding, building, using these machines. Reddit is not a anti-technology society, people adore fiction and insincerity on Reddit. Trump is a role model of Truth Social / Reddit behavior. Trump uses a real name while Reddit community hides real identity and reality.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhf38l/
+
+They can't distinguish science fiction storytelling, nor Founding Fathers didn't put Jesus in the Great Seal or documents.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhppnh/
+
+Leavnt myth is inverted. And the USA is far from the only nation. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhr3zc/
+
+Reddit messages: give up on education, declare the out-group as worthless "unteachable", don't correct literacy problems, don't take on Fox News, don't take on low-effort Reddit messaging. Anti-Malala.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhhdua/
+
+Science fiction storytelling confused. Fiction outsells nonfiction.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhip6c/
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhkpff/
+
+The Great Seal is a cherry-picking tool. It is IMPOSSIBLE to follow the science fiction story of The Bible, it is full of contradictions. The crisis is flocking to shit messages, like short-length Reddit commenting. And not taking comparative mythology and media ecology learning seriously. Event ChatGPT does not follow every command you give it in laguage. Tower or Babel problem is very real.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhgfwg/
+
+Bluesky and Reddit: block thy enemy, hate thy enemy, use powerful machines to burn their messages with "block" button.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhcqq4/
+
+My dad is from Columbus, Ohio. Ready Player One ;)
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhdstl/
+
+Think this is "accidental". The Founding Fathers didn't even have Karl Marx to blame in year 1776.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhg3ah/
+
+Give up on the union idea. A bunch of people voting for a government doesn't work, so give up. No author name, no book titles, just low-effort Twitter-think messaging.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhd5nr/
+
+Tiny-short messages to satire-wash the Trump leadership / Russian win of information war as amusement.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhd42i/
+
+Putin happened. Internet Research Agency, Cambridge Analytica happned. My brothers Jeff and Jon are prime examples. Full of worship for Trump and full of worship for sports games and wealth lords.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhdzzq/
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhiqf5/
+
+"Like". Tiny-short messages, no quotes, no book titles, no author names. People know more about Sponge Bob content on Reddit than they ever bother to learn about psycology of world wars and mob mentality. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhd683/
+
+Tiny-short messages saying "cult" as a "give up" phrase. Do not cite nonfiction learning on the subject. Do not call for mass cult deprogramming against the doctors of Cambridge Analytica mind-fuck. Reddit iself is a media cult to mocking and hate messages, a training ground for the mind. <img width="1102" height="787" alt="Hungry for Ecstasy: Trauma, the Brain, and the Influence of the Sixties. Sharon Klayman Farber. November 2012 · Bloomsbury Publishing USA. Chapter 6. Page 139" src="https://github.com/user-attachments/assets/da550018-f749-4eaa-9857-6452a7e2b283" /> ... ... ... 
+"The **'Shared Psychosis' of Donald Trump and His Loyalists January 11, 2021** — Forensic psychiatrist Bandy X. Lee explains the outgoing president's pathological appeal and how to wean people from it." https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhdpkn/
+
+Reddit messages really push that they are "scared" of something. No, they have power and wealth and they are willing to die for their Fox News fiction and Putin Kremlin mind-fuck fiction. They are agressive on the warpath, that isn't scared. Reddit users are "scared" to use real names and identifying location in public, put a mask on when using Reddit, while showing real-names of Trump and real photographs of the people they are criticizing. ... ... ...      
+"We do not know whether Hitler is going to found a new Islam. (He is already on the way; he is like Mohammed. The emotion in Germany is Islamic; warlike and Islamic. They are all drunk with a wild god.)" - Dr. Carl Jung
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhdd5j/
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhdkd1/
+
+They are the top of modern society. I can't function in Donald Trump worship society, and poisoned infrmation Bluesky and Reddit society where people lust for memes and hate human persons. Where tiny-short messages like this are all people desire - and nobody can learn nonfiction of Russian information warfare and media ecology.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkheife/
+
+No quotes, no author names, no book titles, no links. Bible is science fiction storytelling. Like Star Wars 1977 or Hamlet's Ghost. People can't seem to face the fiction vs. nonfiction issue.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhia1u/
+
+Why isn't Reddit taking the entire media ecology of what Trump is posting and Fox News and low-effort tiny-short dispoable commenting serious.... we are drowning in shit postings, every level of society, the most ignorant 12 year old on Reddit shit-posting and 79 year old Donald Trump is shit-posting. People are so addicted to the crap on media systems, people can't criticze it. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhd61b/
+
+Turning serious situations into "bingo" games, entertainment.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhdsj8/
+
+And that people are so addicted to reaction commenting and can't see the media ecology and Russian information warfare win.
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhfh9h/
+
+No quotes, no links, no books, no author names, no citations. www.GreatSealUSA.com
+
+https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/nkhd9bb/
+
+tiny-length messaging with no citations, no quotes, no links, no books, no aritcle titles, no author names. Did you kill him, do you work for Israel? The only thing is junk information addicts repeating their favorite fiction monomyth story junk.
+
