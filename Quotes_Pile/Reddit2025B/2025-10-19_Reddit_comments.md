@@ -617,3 +617,11 @@ https://old.reddit.com/r/politics/comments/1ob3sul/trump_79_posts_menacing_video
 
 Tony Clifton acts are not jokes in the classic sense. They are brain exploits. Mind-fucking.
 
+https://old.reddit.com/r/politics/comments/1oaws7f/rand_paul_all_of_these_people_have_been_blown_up/nkdish3/
+
+People want these "files", pure information. They don't want reformation in society, just a video game achievement "reward" of unlcoking files. Information strip tease. QAnon "Q Drops" of information, Pizzagate programming into minds. Lust for sex information about Donald Trump on private jets and private islands, rich men sex games. No concern for girls / women / Malala's efforts since January 2009 to empoer young girls with education and give them a voice globally.
+
+https://old.reddit.com/r/politics/comments/1oaws7f/rand_paul_all_of_these_people_have_been_blown_up/nkct01n/
+
+Pizzagate, basement of pizza shop, magical Flat Earth brain exploit level QAnon / Q mind-fuck patterns.
+
