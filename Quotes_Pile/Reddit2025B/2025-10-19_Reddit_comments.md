@@ -658,3 +658,44 @@ https://old.reddit.com/r/TheMatpatEffect/comments/1new14o/the_original_video_of_
 
 Temple, Synagogge, meme echo rooms, Church, meme pattern chambers. John 1:1 echoland. Finnegans Wake exit.
 
+https://old.reddit.com/r/agedlikemilk/comments/1obfxt9/in_4_days_israel_has_broken_the_ceasefire_80/nkgn04p/
+
+Trust social media. Where just this morning my Reddit comment was censored for quoting Carl Sagan. Trust no-identity Russian infiltration of Reddit, which wrecked all the hearts and minds since year 2013. https://www.bbc.com/news/world-us-canada-45294192 Denial abounds on Reddit that social media is magically not "the media". Low-effort commenting that does not provide links, does not provide quotes, no citations, no author names, no book titles. 
+
+https://old.reddit.com/r/agedlikemilk/comments/1obfxt9/in_4_days_israel_has_broken_the_ceasefire_80/nkh81tq/
+
+He support nonfiction leadership, but then the Russian Internet Research Agency and Cambridge Analytica mind-fucked him "a few years ago", just like everyone else. Into simualcra and addiction to fiction contents, addiction to mock Trump, addiciton to hate Trump. Addiction to hate and mocking itself.
+
+https://old.reddit.com/r/agedlikemilk/comments/1obfxt9/in_4_days_israel_has_broken_the_ceasefire_80/nkgkl0i/
+
+It's President Tony Clifton act. Surkov student mindsets. Ink isn't wet, bragging. It's a halmark of Tony Clifton performances. For example, a 2000 retrospective in The Guardian describes an announcer introducing Clifton as "a man who has sold more records than Elvis and the Beatles combined". https://www.theguardian.com/film/2000/may/25/comment
+
+https://old.reddit.com/r/agedlikemilk/comments/1obfxt9/in_4_days_israel_has_broken_the_ceasefire_80/nkgjp00/
+
+Realty Social Media audience, Reddit fiction addicts, pondering what next episode of the Reality Reddit content / Reality Time magazine / Reality Kremlin will provide. Tiny-short disposable messaging addicts addicted to Trump image and Trump show, hate prized. Twice electing Donald Trump. People aren't allowed to actually learn from mistakes. Humanity has this problem, like... 8,000 years. Prizing hate. Prizing dehumanization.  ... ... ...     
+"All of you guys out there in the Middle East are out of the same Melting Pot. And you're all as crazy as a butterfly on absenth. I don't know whether you're all Canaanites at the base or you're all Jews at the base or out of the land of Nod or whatever the hell you were at the get go. Semites or whatnot, but you've been fighting there now for something like 8,000 years. And you've never had 5 minutes of quiet and peace. You're forever killing each other and sticking knives at each other and burning babies and the world has had to suffer with this.
+
+Great things have come out of the Middle East. Great things like the rubat of Omar kayam but stupidity seems to be your chief export. Stupidity and violence are your cash crops all you. And this was before September 11th and I said my solution to the problem in the Middle East is this:" - [Harlon Ellison Interview](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+
+https://old.reddit.com/r/agedlikemilk/comments/1obfxt9/in_4_days_israel_has_broken_the_ceasefire_80/nkge29i/
+
+Sure, people who prize trash disposable commenting messages know everything. The Levant "Tree of Knowledge" looks like Wiki refinement, not Reddit opposite of Wikipedia where peeople throw information trash all over.
+
+https://old.reddit.com/r/agedlikemilk/comments/1obfxt9/in_4_days_israel_has_broken_the_ceasefire_80/nkgfmy1/
+
+People can't understand the abandonment of nonfiction. People are bewildered how their own low-effort Reddit media envionrment has created addiction to trash media-input disposable thinking mindsets.
+
+https://old.reddit.com/r/agedlikemilk/comments/1obfxt9/in_4_days_israel_has_broken_the_ceasefire_80/nkh63om/
+
+Fiction addicts are not "uniformed", they prize fiction storytelling over nonfiction science learning. They prize magical storytelling, monomyth science fiction, over real reality. We don't teach this monomyth crisis in schools. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+JOSEPH CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. **It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future**.
+MOYERS: What kind of new myth do we need?
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+MOYERS: There is something about that on the Great Seal of the United States.
+CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/agedlikemilk/comments/1obfxt9/in_4_days_israel_has_broken_the_ceasefire_80/nkgwojc/
+
+The issue is not reading, the issue is prizing low-effort thinking and commenting (Reddit). The mindsets, the prizing of high-speed messaging over comprehension and understanding. Tower of Babel conflict metaphors. 
+
