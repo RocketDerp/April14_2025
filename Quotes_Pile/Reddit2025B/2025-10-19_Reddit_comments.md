@@ -653,3 +653,8 @@ Yes. media ecology lessons. The "Internet forever" is total bullshit. I've been 
 https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/nkgxd6f/
 
 Trump Onion Fans. Eating the fiction storytelling without any self-awareness of the audience reacting all around on Reddit. Unable to defend USA against Putin / Russian / Surkov student techniques. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/TheMatpatEffect/comments/1new14o/the_original_video_of_67_kid/ndt10f7/
+
+Temple, Synagogge, meme echo rooms, Church, meme pattern chambers. John 1:1 echoland. Finnegans Wake exit.
+
