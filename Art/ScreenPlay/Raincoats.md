@@ -10,5 +10,9 @@ Music video by The Raincoats performing Don't Be Mean. (C) 1996 UMG Recordings, 
 
 &nbsp;
 
+https://old.reddit.com/r/todayilearned/comments/1obixtu/til_kurt_cobain_tracked_down_the_raincoats_an/
+
+&nbsp;
+
 ### Unbrella, Why Did I Fall for That, 1982?
 
