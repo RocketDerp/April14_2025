@@ -28,7 +28,7 @@ MOYERS: The beginning of Europe?
 CAMPBELL: Yes—the individual Europe, the Grail Europe.
 
 Now, when Perceval comes to the Grail castle, he meets the Grail King, who is brought in on a litter, wounded, **kept alive simply by the presence of the Grail**. Perceval’s compassion moves him to ask, “What ails you, Uncle?” But he doesn’t ask the question because he has been taught by his instructor that a knight doesn’t ask unnecessary questions. So he obeys the rule, and the adventure fails.
-And then it takes him **five years of ordeals and embarrassments and all kinds of things to get back to that castle and ask the question that heals the king** and heals society. The question is an expression, not of the rules of the society, but of compassion, the natural opening of the human heart to another human being. That’s the Grail.
+And then it takes him **five years of ordeals and embarrassments and all kinds of things to get back to that castle and ask the question that heals the king** and ***heals society***. The question is an expression, **not of the rules of the society**, but of compassion, the natural opening of the human heart to another human being. That’s the Grail.
 
 MOYERS: And it is a kind of love that—
 
