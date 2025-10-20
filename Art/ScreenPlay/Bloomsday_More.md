@@ -34,4 +34,10 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3m3kiqa2xl22k
 Finnegans Wake, year 1924 onward....   
 .... Stop the madness .... 
 
+&nbsp;
+
+&nbsp;
+
+Finnegans Wake Night is Dragging...    
+https://www.youtube.com/watch?v=zWyYA19bm4M
 
