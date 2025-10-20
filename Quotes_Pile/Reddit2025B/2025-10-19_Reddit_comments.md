@@ -650,3 +650,6 @@ https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_
 
 Yes. media ecology lessons. The "Internet forever" is total bullshit. I've been posting stuff on the Internet since the early 1990's and much of it is entirely gone.
 
+https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/nkgxd6f/
+
+Trump Onion Fans. Eating the fiction storytelling without any self-awareness of the audience reacting all around on Reddit. Unable to defend USA against Putin / Russian / Surkov student techniques. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
