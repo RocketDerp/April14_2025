@@ -719,3 +719,6 @@ https://old.reddit.com/r/todayilearned/comments/1obixtu/til_kurt_cobain_tracked_
 
 year 2012, sharing Malala's story with my wife... she wan't feeling it. I'd spent two full years sharing songs and films and doing media ecology lessons of USA / North Africa / Levant. And she wasn't feeling anything Malala was saying. And I'm like... climate change future, world peace future, do you read these blogs from January 2009 onward? Blah. OPERA_A Doctor My Eyes, did Malala see too much of the parade of tears? https://www.youtube.com/watch?v=JSVQVbBJd34
 
+https://old.reddit.com/r/LivestreamFail/comments/1obqbf0/kick_streamer_in_india_sam_pepper_shoots_a/nkhhoyc/
+
+I'm in the Reddit audience - I am not a "bot". I see real people finding out about his antics entertainment and in the scene cheering him on. I really don't think Reddit society grasps media ecology.
