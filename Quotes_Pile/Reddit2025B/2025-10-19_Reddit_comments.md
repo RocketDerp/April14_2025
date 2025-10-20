@@ -819,3 +819,57 @@ https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_
 
 tiny-length messaging with no citations, no quotes, no links, no books, no aritcle titles, no author names. Did you kill him, do you work for Israel? The only thing is junk information addicts repeating their favorite fiction monomyth story junk.
 
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhbakk/
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhfu8k/
+
+No links, no dates, no quotes. Highly upvoted, liked. 
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhzcu1/
+
+Reddit messages: give up, didn't work by now, embrace Putin and Trump forever. Don't dig deeper into *why* cults behave this way, and exactly what Cambridge Analytica did to minds. Stick with low-effort commenting to "give up".
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nki21jr/
+
+Never recover give up. We can't possibly even be better than year 2012. Short-length low-effort commenting, disposable comment addictions abound. Give up on nonfiction and science learning. Anti-Malala who didn't *give up* on the Taliban problem.
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhbf22/
+
+Fiction addicts craving more fiction trash media. Always flocking to Trump for fiction and wanting to share it for entertainment / teach a lesson. No books, no author names, no links. Can't imagine that Surkov students have weaponized media like this - so you desire to spread the shit all around. As has been going on FOR OVER TEN YEARS AND FOUR MONTHS!
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhckcz/
+
+Trump can "read the room" of Reddit audience diaper-topic desires.
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhqgrf/
+
+This is the "same page" people in Reddit audience call out for. Not Neil Postman's 1985 book explaing how Top Gun is fiction amusement, and how junk media wrecks a nation.
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhy594/
+
+Dream wishing NOT for Trump's removal and fight back against Putin in an inforamtion war, but dreaming everyone knows diaper-jokes. These are addicts to Tony Clifton acts without any self-awareness of their own media addictions.
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhhyho/
+
+Give-up messages on Reddit.
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhdm6d/
+
+Reddit audiences block each other, hdie their real names, do all kinds of dehumanizing machine-lust shit (jet is a machine, touch devices are machines, AI machines). It isn't just one single 79 year old man. It's an entire population swiming in the ocean of dehumanization and hate.
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhi9u2/
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhk0br/
+
+Falling for Russia's information warfare since year 2013.
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhemoc/
+
+Russia isn't just agitating, they are attacking Reality. It is a War Against Nonfiction. People aren't agitated, they are thrilled, excited, "high energy", meme addicts. Them more fiction, the more people flock. War Agaisnt Reason Thinking.
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhyj9g/
+
+https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_the_presidents_ai/nkhcwtv/
+
+Tony Clifton performances, audiences have been flocking to the shit FOR OVER TEN YEARS AND THREE MONTHS, prizing mocking, prizing insults, prizing hate, prizing dehumanization.
+
