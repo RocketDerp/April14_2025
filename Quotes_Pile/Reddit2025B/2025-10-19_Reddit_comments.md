@@ -1165,3 +1165,37 @@ They have been using the time to entertain the Reddit and Bluesky audiences with
 https://old.reddit.com/r/Wellthatsucks/comments/1ockcdc/after_i_had_eaten_23_of_my_salad/nknw3tr/
 
 Note the abscience of links, article titles, book title, author names. As if this topic has never come up before with over 8 billion people alive on Earth. This is entertainment, drowning authentic high-quality learning with disposable commenting. While predatory billionares are mind-fucking the hell out of everyone using the same media systems and techniques.
+
+https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nkmryyn/
+
+A society that prizes no-identity commenting, prizes hate, secret police of removing comments (my censored on Reddit just today on this GitHub). Avoids quotes, avoids author names, avoid nonfiction. The very society that lets leaders use "good bullshiting sounds-good" skills to drive society and bullies people who are sincere and sickned by the Trump situtation and media ecology crisis as "weak".
+
+https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nkmxuua/
+
+Real identity freaks out Reddit users, who constantly post famous and rich people (like Trump and Musk) using real identity. It's a self-dehumanizing platform that prizes hate, mocking, insulting. Like Truth Social prizes hate and mocking.
+
+https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nkn46uv/
+
+Asserting humanism in the face of ChatGPT / Grok AI / billionares and mass dehumanization by Russia on Reddit is a human goodness.
+
+https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nknhbk6/
+
+My messages get censored based on keywords. I've been documenting them on this GitHub. The denial of Reddit disappearing messages is common. And accounts disappeared and banned by secret police with no public trial.
+
+https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nkn719l/
+
+I'm from social media 1983 where you use your real voice on radio, your real phone number for your BBS, long distance charges itemize who you call, etc.  Social media radio had licensing. Mine is KBRV0896
+
+https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nkmzhtt/
+
+Yes. Turning a public bulletin board into private messaging is a bad idea. People should treat their messages like Wikipedia contributions, for the whole world. Secrecy and privacy should be on platforms where that is main focus and education is given on the subject of bugs / flaws / exploits to computer systems. Corporations leak data, even the White House leaks data, secrecy problems. People should stand up to hate as a global problem and stop acting like comptitive hate has good outcomes for humanity.
+
+https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nkna80h/
+
+https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nknl9g5/
+
+Most are attacking non-fiction. Driving away people who cite nonfiction, having serious nonfiction removed / banned. It's a playground for Russia and other to manipulate people into fiction addictions by making it "uncool" to be serious about humor-washing LOL-washing amusment-washing Donald Trump since year 2013. By constantly framing Trump as entertainment source to mock and insult, weaponized normal.
+
+https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nkmseog/
+
+It should be FULLY documented. IP addresses, browser strings, content, peoople should analyze what they are up against with insincerity and falsehoods.
