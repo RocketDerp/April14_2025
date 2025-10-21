@@ -1,6 +1,6 @@
 # German
 
-I'm blonde hair, blue eyed, like my mother.
+I'm blonde hair, blue eyed, (Nordic Aryan prized attributes) like my mother.
 
 Both my parent's families settled in Ohio after immigrating from Germany back in year 18xx or whatever.
 
