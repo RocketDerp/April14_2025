@@ -1040,3 +1040,36 @@ https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_t
 
 "Bro" on Reddit ate the onion. Trump Onion Fans. Eating the fiction storytelling without any self-awareness of the audience reacting all around on Reddit. Unable to defend USA against Putin / Russian / Surkov student techniques. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ocb3xw/fair_but_i_still_dont_get_it/nklerr1/
+
+Elon Musk mind virus isn't taken seriously. Parroting being described.
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ocb3xw/fair_but_i_still_dont_get_it/nklabgy/
+
+I take seriously the Internet Research Agency viral memes, the John 1:1 and "1 John 4:20" crisis of the levant that has overtaken mindsets. The addiction to mockery and mocking. Not the children doing it, the Kremlin and White House doing "6 7" in tens of thousands of meme patterns.
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ocb3xw/fair_but_i_still_dont_get_it/nklfc6u/
+
+Mind virus in action. People should really take Elon MUsk seriously that there are "mind virus" and that billionares manipulate them. 
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ocb3xw/fair_but_i_still_dont_get_it/nkli9sj/
+
+The core of Surkov governing. The core of Putin. That's what "Operation Matthew 4:19" is founded upon. That in the end, people will slaughter their own children with systems of LOL mocking. That making out-group angry is what people will die for. The Levant crisis for thousands of years.  Prizing hate. Prizing dehumanization. Prizing war as a hero creation construct.  ... ... ...     
+"All of you guys out there in the Middle East are out of the same Melting Pot. And you're all as crazy as a butterfly on absenth. I don't know whether you're all Canaanites at the base or you're all Jews at the base or out of the land of Nod or whatever the hell you were at the get go. Semites or whatnot, but you've been fighting there now for something like 8,000 years. And you've never had 5 minutes of quiet and peace. You're forever killing each other and sticking knives at each other and burning babies and the world has had to suffer with this.
+
+Great things have come out of the Middle East. Great things like the rubat of Omar kayam but stupidity seems to be your chief export. Stupidity and violence are your cash crops all you. And this was before September 11th and I said my solution to the problem in the Middle East is this:" - [Harlon Ellison Interview](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ocb3xw/fair_but_i_still_dont_get_it/nkl8f25/
+
+It is not "facinating" to watch world wars break out over John 1:1 Bible verse and "The Tower of Babel". it isn't funny watching Fox News alternate reality not grasp Reddit alternate reality while everyone is in meme stupor mind state.
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ocb3xw/fair_but_i_still_dont_get_it/nklbjus/
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ocb3xw/fair_but_i_still_dont_get_it/nkl9wqj/
+
+Yha. low-effort generic thoughtless messaging. I bet Ukraine in year 2012 having a baby, "just another new generation". Or Germany and Japan in year 1939. People will march and dance right into the next war. Trump is badness itself, this is the topic people are not seeing about trend-chasing, fads. World peace and compassion are not "fads". We have a serious probelm in humanity and we are not seeing the LOL "6 7" brain exploit patterns that Large Language Models and the Kremlin do see. meme-washing, sureal-washing, is the very mechanism of Putin and Trump power.
+
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1ocb3xw/fair_but_i_still_dont_get_it/nklg18w/
+
+Just like Donald Trump. If only people could see. Trump does not know WHY his organge makeup works on crowds, but it makes people abandon reason thnking and put their brain into "meme stupor" mode where all serious matters get washed away by mocking. He wins power and wealth, he doesn't know all the mechanics at a Neil Postman NYU level, but Trump knows it works. Reddit soceity does not see the forest for the trees that FOR OVER TEN YEARS AND FOUR MONTHS that hate Trump, mock Trump, has only destroyed nonfiction and reason thinking. Hate and mockery are the rocketship that Trump has risen to power. Surkov understood in year 2013 and in year 2019... but now the feedback loops with LLM artificial intelligence has runaway monomyths situation.
+
