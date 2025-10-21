@@ -1162,3 +1162,6 @@ https://old.reddit.com/r/law/comments/1ocktoh/comer_the_evidence_we_gathered_doe
 
 They have been using the time to entertain the Reddit and Bluesky audiences with "Q Drop" information strip tease, Pizzagate QAnon style.
 
+https://old.reddit.com/r/Wellthatsucks/comments/1ockcdc/after_i_had_eaten_23_of_my_salad/nknw3tr/
+
+Note the abscience of links, article titles, book title, author names. As if this topic has never come up before with over 8 billion people alive on Earth. This is entertainment, drowning authentic high-quality learning with disposable commenting. While predatory billionares are mind-fucking the hell out of everyone using the same media systems and techniques.
