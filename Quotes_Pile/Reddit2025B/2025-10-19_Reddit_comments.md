@@ -879,3 +879,9 @@ Joyce being autistic. Reddit society downvoted this comment.
 
 https://old.reddit.com/r/Wellthatsucks/comments/1obvo9l/air_quality_in_india_during_diwali/nkii04v/
 
+https://old.reddit.com/r/news/comments/1obrhay/at_least_135_mutilated_bodies_of_palestinians_had/nkit6vh/
+
+https://old.reddit.com/r/news/comments/1obrhay/at_least_135_mutilated_bodies_of_palestinians_had/nkimszm/
+
+https://old.reddit.com/r/news/comments/1obrhay/at_least_135_mutilated_bodies_of_palestinians_had/nkicn3x/
+
