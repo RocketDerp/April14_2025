@@ -14,6 +14,9 @@ https://old.reddit.com/r/comedyheaven/comments/1ocdir5/german/
 
 &nbsp;
 
+* One of the sickest thing about this Reddit front page "joke" is that it ignores the crisis of diagnosis in austim based on subjective horribly trained, terribly educated therapists and doctorates. Like doctors of Cambridge Analytica and doctor Arabram Brill of NYC values. Robert F.Kenney, Jr. running the White House autism in October 2025. **The reliance on shallow superficial interpretation, highly subjective, that avoids genetic testing for autism spectrum disorder**.  When evaluating your subjective behavior - they also do not ask about your marriage communications, your parent communications, lifestyle, travels. The subjective clinical testing done for autism washes away humanism and individual experience. I've lived in South America, North Africa, Middle East, Malaysia and Indonesia - I've been Christian and Muslim - and the psycology "autism" measures take no account of religion and nation. Hence the "joke" about German culture vs. Canada or other culture with "autsim". Every serious topic humor-washed at RFK Jr. LOL mind exploit level. Surkov students running the mindsets in 2025, that every serious topic is entertainment material.
+  
+
 
 I worked for a Germany company, SAP. Traveled to thier HQ in Waldorf, Germany early in my computing career. 
 
