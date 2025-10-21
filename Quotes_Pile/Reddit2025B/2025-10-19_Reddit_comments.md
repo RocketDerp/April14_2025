@@ -1227,3 +1227,15 @@ https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migra
 
 And in Ireland, the Levantreligion groups vs. atheists / local religions, and religion groups against competing religion groups. Levant storytelling fiction-driven street gangs, out-group hate patterns.
 
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko76ui/
+
+Elon Musk, richest man in the world, is waging war on empathy, war against compassion. Fiction vs. nonfiction is a better divide than brairot of left vs. right. Why is Malala not good enough for people to support, educating the poor across the world? Ending terrorism through education and teaching and giving girls voice in male-dominated religion cultures?
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko5x3v/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko732u/
+
+Hence why I keep saying why does social media society avoid Malala. White skin color "right-wing" isn't the Taliban. Reddit community is extremely competitive on "smarter than you" egoism and anti-education anti-teaching that Malala supprots. Because education is seen as a way to dominate others, highly competitive to get name-brand university, etc. A big reason why sustained refined knowledge of Wiki systems is not prized on Reddit, because people view knowledge as a way to trick and outsmart peers / other people. There is extremely competitive egoism over calling people dumb / stupid / idiot / worthless. It is done CONSTANTLY to Donald J Trump / Mosk. People on Reddit prize celebration of ignroance, celebrating how dumb and stupid other people are. Sharing and making high-quality thoughtful learning a focus of every day in Wiki style is avoided to the extreme on Bluesky and Reddit culture. Anti-Malala values, anti-Wiki values. ... ... ...        
+“The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
