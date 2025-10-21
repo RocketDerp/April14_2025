@@ -894,3 +894,48 @@ Levant monomyth / Russian system. Out-group hate, life on Earth is temporary. Ed
 https://old.reddit.com/r/worldnews/comments/1obx24w/ecuador_says_it_has_no_evidence_that_survivor_of/nkiof0v/
 
 <img width="940" height="368" alt="image" src="https://github.com/user-attachments/assets/0fdf388e-3d64-4d41-8222-87a6e46e4a41" /> Exactly. Reddit audience is never more thrilled than mocking the President Tony Clifton. Snark and satire and mockery. People who attack and insult those who don't think LOL is the most important thing in the unvierse. Humor addiction, meme addicts, entertainment addicts. Miling the Donald Trump "LOL cow" for all the insuting of poop diapers they can get.
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkj1vj4/
+
+Trump's power os media, antics on TV, going golfing and having it filmed, Truth Social media, Twitter, on front page of Reddit constantly and always. Fox News. Go down with the ship, but send a S.O.S. to the world that media addiction to trash content (Fox News) is self-harm. Community on Bluesky and Reddit social media can't imagine halting entertainment. [ACTION PLAN: Be serious, halt all sports and games entertainment, halt mocking. Teach nonfiction. Use the spare time and free time that goes into constantly mocking Trump and Putin and actually stand up for getting on the same pages (of goodness).](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkj14vl/
+
+It is a King. It is a mythology, science fiction, of God strorytelling. Fiction addictions have wrecked the nation. The Great Seal of the United States was created to address fiction addictions.
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkiu8r8/
+
+Faith in fiction storytelling, monomyth science fiction, above nonfiction understanding and teaching. Social media society has abandoned serious learning in favor of entertainment-based antics. People are not asserting and teaching goodness like MLK Jr. did. People have given up the idea of better thinking systems than manipulation, marketing, deception, tricks, games, fiction storytelling. Fox News fiction addiction was an obvious problem people did not stand up to seriously. Neil Postman's 1985 book has been on the shelf eleven years before Fox News. Jen Senko's 2015 film came along to put nonfiction in front of the issue as a rally point, but people keep flocking to low-effort short-lived commenting. Anti-Wiki values of prizing high-speed recency over serious sutained focus (MLK Jr was about going to the past and plucking authentic cherries out of The Bible, cerry picking is GOODNESS. Not-picking Donald Trump to hate all day and night, to mock and insult, is not goodness).
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkiw0ht/
+
+Not asserting science, letting fiction addictions take over society was a We The People thing. Neil Postman's 1985 book "Amusing Ourselves To Death" was at the public library. Even got coverage AGAIN recently. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkiuyci/
+
+Reality was wrecked systemically by Russia since March 2013. Nobody wants to face up that fiction addictions, tiny-length commentiing and reaction image addictions, are the abnaonment of science nonfiction. It is not "cool" to quote books and be serious. It's cool to mock, insult, meme-speak. Russia won a war, addiction to mocking and insulting won.  First described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - but people will no longer engage nonfiction learning.
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkj0kza/
+
+Yes, it does. We The People need to reform social media values. End the dehumanization and hate. Don't die as a no-name media content creator. Assert that EVERY VOICE is important and if there are hate voices, address them. We must make the case for world peace and goodness itself. It is humanity job to create humnism. Magical space aliens do not bream down messages to Moses and angels speaking to Mohammad. It is US, We The People.
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkinius/
+
+This place, Reddit, prizes hate, prizes mocking, prizes diper jokes. As meme-washed Trump for OVER TEN YEARS AND FOUR MONTHS. Endlessly calling him fat and idiot. Instead of educating and rescuing MAGA from the Internet Research Agency, people have made it an insult and dehumanize Americans contest. Ukraine was holding the line on the War Againt Reality, and social media addictions trashed reality in North America.
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkiorvk/
+
+We The People adore fiction storytelling. People enjoy HATE upon Trump, insutling Trump, more than asserting Carl Sagan and nonfiction. Reality is not a popular learning subject. Fiction "Star Wars Andor" is, not authentic real life on planet Earth of 8 billion people. It's trivalized, excitement. Love, compassion, goodness, world peace - are all mockedy away in media mockery mills.
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkipngu/
+
+Malala came on the world stage in 2012 with her January 2009 blog. Why is she not good enough for a non-government movement, a reformation of clergy and thinking?
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkisx8j/
+
+When low-effort no-link no-quote no-book no-author didsposable commenting is your culture, it is fiction vs. fiction, monomyth vs. monomyth. Religion storytelling fiction vs. Fox News fiction vs. Reddit low-effort commenting misunderstanding fictions.
+
+https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_troops_to/nkiqp21/
+
+The world is going to vomit up that USA superhero bullshit fantasy of goodness from a media-addict society that sold out to trash memes. Sold out Ukraine.
+
