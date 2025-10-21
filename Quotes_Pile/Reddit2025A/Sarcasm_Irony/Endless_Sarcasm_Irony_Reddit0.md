@@ -849,3 +849,16 @@ https://old.reddit.com/r/law/comments/1oc3hzx/federal_judges_caught_the_us_gover
 Ameircan, Atlanta Georgia, Dr. Martin Luther King Jr. gave us the worlds in year 1954 - they are on WikiQuotes - and people on social media can't be bothered to teach each other and stand up for goodness. Love and compassion are rewarding, they are fun, they are enjoyable. But somehow Reddit and Bluesky have convinced that machine blocking and machine deportation of people is far more "fun" than actual compassion and love.        
 https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/
 
+&nbsp;
+
+&nbsp;
+
+But meme-society, "Cringe" calling society, amusement-washed away serious topics. As entertainment, sports, games, video screen games, are far more important to social media society than sustaining focus on important topics. It's only gotten worse since year 2016.         
+https://old.reddit.com/r/CringeTikToks/comments/1oc9n7o/back_in_2016_rfk_jr_was_speaking_to_a_guest_on/
+
+&nbsp;
+
+&nbsp;
+
+Someone want to tell Reddit that certain men know how to manipulate women? As they make memes for Reddit, they make films for Reddit, songs for Reddit, TV shows for Reddit? And profit off these inner desires? And that there is a "monomyth" pattern? And how everyone since year 2012 is avoiding sustained focus on Malala's movement to empower girls with education and understanding of their real-world and not just Disney World fiction? Not just Quran science fiction, not just Mecca science fiction theme park like Disney? Nah, snark and mockery works in Swat Valley Pakistan just as well as USA centered Reddit. All entertainment and fiction.     
+https://old.reddit.com/r/SipsTea/comments/1oc7v7b/should_we_tell_her/
