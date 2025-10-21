@@ -834,3 +834,10 @@ https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_
 
 Reddit media consumers prize low-effort trash commenting and are infomous for not reading the articles. And links in commments are often forbidden, censored. WikiTribune ignored along with other anti-refinement efforts with information - in favor of low-effort disposable commenting about critical and important topics. Speed of information, Carl Sagan on 10-second sound bites, ignored time and time again about Twitter and Bluesky and TikTok. No quotes from Neil Postman on entertainment-wrapping, meme-wrapping. And well, the IRA invading Reddit itself with the no-identity no author name prizing of Reddit society commenting. Right vs. left brainrot one-bit logic. Fiction vs. nonfiction better explains the USA news crisis. Advertising isn't making things free, it is paid for by the wealthy. Reddit inclusive.         
 https://old.reddit.com/r/AdviceAnimals/comments/1obuokl/dew_yer_research111_the_death_knell_of_the/
+
+&nbsp;
+
+&nbsp;
+
+By the People for the People. A society that abandons nonfiction is a self-deception society. Prizing entertainment and bullying methods of communication above all else. Worship of LOL and cleverness. HavingT The Great Dictator 1940 call our cleverness, think about it, Charlie Chaplin critiizing cleverness.         
+https://old.reddit.com/r/law/comments/1oc3hzx/federal_judges_caught_the_us_government_providing/
