@@ -862,3 +862,10 @@ https://old.reddit.com/r/CringeTikToks/comments/1oc9n7o/back_in_2016_rfk_jr_was_
 
 Someone want to tell Reddit that certain men know how to manipulate women? As they make memes for Reddit, they make films for Reddit, songs for Reddit, TV shows for Reddit? And profit off these inner desires? And that there is a "monomyth" pattern? And how everyone since year 2012 is avoiding sustained focus on Malala's movement to empower girls with education and understanding of their real-world and not just Disney World fiction? Not just Quran science fiction, not just Mecca science fiction theme park like Disney? Nah, snark and mockery works in Swat Valley Pakistan just as well as USA centered Reddit. All entertainment and fiction.     
 https://old.reddit.com/r/SipsTea/comments/1oc7v7b/should_we_tell_her/
+
+&nbsp;
+
+&nbsp;
+
+More sarcasm and satire on Reddit Front page. Mocking recency bias, one of the worst problems caused by Reddit community drowning all important topics with disposable commenting and disposable posting. No calls to get onthe same page of sustained focus. Important issues are drowned out by the recency bais of both Fox News media and Reddit media. Amusing Ourselves To Death as described in 1986 book by Neil Postman.      
+https://old.reddit.com/r/MurderedByAOC/comments/1ocg46p/aged_like_fine_wine/
