@@ -873,3 +873,9 @@ https://old.reddit.com/r/technology/comments/1obobwg/news_outlets_wont_describe_
 
 Tony Clifton performances, audiences have been flocking to the shit FOR OVER TEN YEARS AND THREE MONTHS, prizing mocking, prizing insults, prizing hate, prizing dehumanization.
 
+https://old.reddit.com/r/jamesjoyce/comments/1obgiep/am_i_dumb_or_is_it_supposed_to_be_this_dense/nkgk550/
+
+Joyce being autistic. Reddit society downvoted this comment.
+
+https://old.reddit.com/r/Wellthatsucks/comments/1obvo9l/air_quality_in_india_during_diwali/nkii04v/
+
