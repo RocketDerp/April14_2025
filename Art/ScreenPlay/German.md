@@ -76,7 +76,7 @@ NOTE: I like to emphasize that this book was published before September 11, 2001
 
 &nbsp;
 
-Again, 1969 Georgia, I've listened to some of the hate prizing. Autism can be a real wake-up call when you discover you have hyper empathy. And what machine lust lovers are doing to humanism in flocking to Putin / Kremlin mental programming since year 2013. Humor-washing the abandonment of goodness.
+Again, 1969 Georgia, I've listened to some of the hate prizing. Autism can be a real wake-up call when you discover you have hyper empathy. And what machine lust lovers are doing to humanism in flocking to Putin / Kremlin mental programming since year 2013. Humor-washing the abandonment of goodness. I lived in the Middle East and looked real hard on what ideas people prize, toxic clergy of hate and dehumanization of out-groups. And I have not forgotten the Atlanta, Georgia reformation teachings in October 2025.
 
 &nbsp;
 
