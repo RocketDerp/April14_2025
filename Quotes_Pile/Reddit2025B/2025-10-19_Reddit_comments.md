@@ -1199,3 +1199,31 @@ Most are attacking non-fiction. Driving away people who cite nonfiction, having 
 https://old.reddit.com/r/SubredditDrama/comments/1ocisqr/coordinated_altright_misinformation_network_being/nkmseog/
 
 It should be FULLY documented. IP addresses, browser strings, content, peoople should analyze what they are up against with insincerity and falsehoods.
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko5nq5/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nkod717/
+
+Yha, magical non-identity people. Wildcard content.
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nkof6ki/
+
+Catholic preists. James Joyce topics...
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nkofg4z/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nkogjvy/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nkof21z/
+
+If you are a famous DJ they let you mollest children. (Donald Trump and being a star). In my high school in Fort Wayne, Indiana (class of 1988), girls were proud to date older men who were stars of sports. Sports stars are GOD in Fort Wayne, Indiana. This was first-hand experience - they would openly tell me. Sports groupies, college boys who would come home to Fort Wayne for holidays that high school girls would seek out. https://en.wikipedia.org/wiki/Lori_Mattix
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nkohasa/
+
+That's the greater issue. I don't see social media used to address these problems of those who fall thorugh the cracks. Hate seems to moviate more than compassion.  ... ... ...       
+"Look at… go to Atlanta and see the hotel that gleams like a glistening palace and all this. Well before I get too carried away with all these phenomena which you can see around you every day, you have got to remember that even in that hotel in Atlanta, in the winter, the **poor still crawl into the postmodern cracks and sleep at night**. So I mean it is not as though that turning the world, as it were, hyperreal has somehow done anything other than make our situation more extreme vis-a-vis those people who have fallen, as it were, out of the loop altogether. here is in this country now the most alarming lack of sympathy for those people who have fallen off the boat, if you know what I mean. People who have somehow slipped off the track. I am not sure they want a lot of sympathy but if they did there would be an alarming short supply of it. And I think part of that is because they add still further to the complexity." https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko93vf/
+
+And in Ireland, the Levantreligion groups vs. atheists / local religions, and religion groups against competing religion groups. Levant storytelling fiction-driven street gangs, out-group hate patterns.
+
