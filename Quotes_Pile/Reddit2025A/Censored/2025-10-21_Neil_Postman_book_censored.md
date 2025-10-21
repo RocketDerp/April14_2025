@@ -14,7 +14,7 @@ https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_
 
 > They all know he’s a clown and he has the respect of NO ONE.
 
-Donald Trump is the greatest entertainer known to mankind. For over TEN YEARS AND FOUR MONTHS, every social media meme addict flocks to him for content.  The USA has never had a more entertaining and thrilling source of amusement, no media star has ever draw so much attention, time, coverage, mocking, hate.
+Donald Trump is the greatest entertainer known to mankind. For over TEN YEARS AND FOUR MONTHS, every social media meme addict flocks to him for content.  The USA has never had a more entertaining and thrilling source of amusement, no media star has ever drawn so much attention, time, coverage, mocking, hate.
 
 &nbsp;
 
