@@ -9,7 +9,11 @@ I have autism.
 RFK Jr. has made autism a current joke for the Reddit home page to joke-wash.
 
 Tuesday, October 21, 2025     
-https://old.reddit.com/r/comedyheaven/comments/1ocdir5/german/
+https://old.reddit.com/r/comedyheaven/comments/1ocdir5/german/    
+<img width="831" height="767" alt="image" src="https://github.com/user-attachments/assets/2c6b00f1-5d9c-4bd9-ab9f-830edbba5f67" />
+
+&nbsp;
+
 
 I worked for a Germany company, SAP. Traveled to thier HQ in Waldorf, Germany early in my computing career. 
 
@@ -18,6 +22,8 @@ I worked for a Germany company, SAP. Traveled to thier HQ in Waldorf, Germany ea
 I was born in Columbus Georgia unlike my mother / father / brother Jeff / brother Jon all born in Ohio.
 
 I learned a few things about Nazi mind-fucking from Putin's time spent in the KGB before the Berlin Wall fell.
+
+&nbsp;
 
 &nbsp;
 
@@ -70,7 +76,7 @@ NOTE: I like to emphasize that this book was published before September 11, 2001
 
 &nbsp;
 
-Again, 1969 Georgia, I've listened to some of the hate prizing. Autism can be a real wake-up call when you discover you have hyper empahty.
+Again, 1969 Georgia, I've listened to some of the hate prizing. Autism can be a real wake-up call when you discover you have hyper empathy. And what machine lust lovers are doing to humanism in flocking to Putin / Kremlin mental programming since year 2013. Humor-washing the abandonment of goodness.
 
 &nbsp;
 
