@@ -1259,3 +1259,11 @@ https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migra
 
 https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko69fj/
 
+https://old.reddit.com/r/politics/comments/1ochqgh/trump_obsessed_over_project_2025_creator_getting/nkmk0go/
+
+Social media users are drawn by the sex lives of the rich, powerful, famous. Trump understand that his sexual antics and topics / dialog / media content draws in audiences on every media platform, including Reddit. People eat this shit up.
+
+https://old.reddit.com/r/politics/comments/1ochqgh/trump_obsessed_over_project_2025_creator_getting/nkmmciz/
+
+It's Reddit trash media desires, mind-fucked people on meme machines who crave more and more Donald Trump content FOR OVER TEN YEARS AND FOUR MONTHS. It never ends, the addiciton to mocking and insulting Trump.
+
