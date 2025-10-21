@@ -1113,3 +1113,8 @@ Media addict wants more low-effort media.
 https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nklrt84/
 
 Yes, a "Tony Clifton" clown act / perforamnce. Which is what USA prizes. Entertainment and mocking. Reddit prizes mocking and hate leadership signals. 
+
+https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nklrl73/
+
+Donald Trump prizes junk media like Truth Social and Reddit commenting messages, disposable anti-Wiki anti-refinement of information. No-identity messaging addicts, and Fox News as a constant benchmark to measure "goodness" against. An entire society, 100% of the population, defeated by the IRA and CA.
+
