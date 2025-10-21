@@ -827,3 +827,10 @@ https://old.reddit.com/r/goodnews/comments/1oa36rp/2600_rallies_across_50_states
 
 Top of front-page of Reddit. In our face that Taylor Swift, films, everything to do with enertainment "fake fiction storytelling" (Top Gun is fiction storytelling, "Fake News" in USA Trump language). And people can not turn to nonfiction learning of Surkov student techniques, Russia under Putin media methods learning.      
 https://old.reddit.com/r/Music/comments/1obir7w/kenny_loggins_wants_danger_zone_removed_from_ai/
+
+&nbsp;
+
+&nbsp;
+
+Reddit media consumers prize low-effort trash commenting and are infomous for not reading the articles. And links in commments are often forbidden, censored. WikiTribune ignored along with other anti-refinement efforts with information - in favor of low-effort disposable commenting about critical and important topics. Speed of information, Carl Sagan on 10-second sound bites, ignored time and time again about Twitter and Bluesky and TikTok. No quotes from Neil Postman on entertainment-wrapping, meme-wrapping. And well, the IRA invading Reddit itself with the no-identity no author name prizing of Reddit society commenting.       
+https://old.reddit.com/r/AdviceAnimals/comments/1obuokl/dew_yer_research111_the_death_knell_of_the/
