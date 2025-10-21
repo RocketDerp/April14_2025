@@ -1073,3 +1073,43 @@ https://old.reddit.com/r/NonPoliticalTwitter/comments/1ocb3xw/fair_but_i_still_d
 
 Just like Donald Trump. If only people could see. Trump does not know WHY his organge makeup works on crowds, but it makes people abandon reason thnking and put their brain into "meme stupor" mode where all serious matters get washed away by mocking. He wins power and wealth, he doesn't know all the mechanics at a Neil Postman NYU level, but Trump knows it works. Reddit soceity does not see the forest for the trees that FOR OVER TEN YEARS AND FOUR MONTHS that hate Trump, mock Trump, has only destroyed nonfiction and reason thinking. Hate and mockery are the rocketship that Trump has risen to power. Surkov understood in year 2013 and in year 2019... but now the feedback loops with LLM artificial intelligence has runaway monomyths situation.
 
+https://old.reddit.com/r/PoliticalHumor/comments/1ocabur/wait_for_it/nkl2glu/
+
+Over the weekend, Trump posts fiction shit content of "Top Gun" fiction, and the Reddit audience wants more fiction leaership. The cravings for penis topics of government are constant. Guns are phalic power weapons eveyone is stroking all year since December 4, 2024 Luigi.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1ocabur/wait_for_it/nkl67kx/
+
+Skin color obsession around "ornge" and "brown" and "black" (in context of politicain skin colors) by shallow and superficial short-message addiction society.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1ocabur/wait_for_it/nkl9afb/
+
+Hey, I think crime is bullshit too. But people want to manipulate and trick each other with images and symbols and LOL-wash amusement-wash penis-wash the USA government mass dehumnization.
+
+https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nklcq18/
+
+Reddit society, meme society, social media society is constantly amused and entertained by the mockery Surkov students create.
+
+https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nklg4ld/
+
+Yes, vibes. Like Tony Clifton. Funny-washing, joke-washing, amusement-washing all because of media mania. Russia won, Surkov won, Putin won. Since year 2013. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Kremlin / Ukraine / etc.
+
+https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nkld6ig/
+
+As much as low-effort commenting addicts are to communicate with. The extremes people will go to in avoidance of nonfiction learning about Surkov and media ecology.
+
+https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nklcxni/
+
+If you were mind-fucked by the Russian Internet Research Agency on Reddit into avoid nonfiction books, author names, links, citations, Wiki style refinement of serious information - would you behave any different than create more disposable commenting messages? ... ... ...     
+*"At the NATO summit in Wales last week, General Philip Breedlove, the military alliance’s top commander, made a bold declaration. Russia, he said, is waging “the most amazing information warfare blitzkrieg we have ever seen in the history of information warfare". It was something of an underestimation. The new Russia doesn’t just deal in the petty disinformation, forgeries, lies, leaks, and cyber-sabotage usually associated with information warfare.* ***It reinvents reality, creating mass hallucinations*** *that then translate into political action."* - ["Russia and the Menace of Unreality", "How Vladimir Putin is revolutionizing information warfare". By Peter Pomerantsev (currently working for Johns Hopkins University) September 9, 2014]
+
+https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nkllqvh/
+
+Reddit messages saying: give up on dialog, give up on teaching, give up on education, give up on USA, etc.
+
+https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nklq7ep/
+
+Media addict wants more low-effort media.
+
+https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nklrt84/
+
+Yes, a "Tony Clifton" clown act / perforamnce. Which is what USA prizes. Entertainment and mocking. Reddit prizes mocking and hate leadership signals. 
