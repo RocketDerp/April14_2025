@@ -81,3 +81,13 @@ Saturday October 18, 2025
 
 Low-effort trivail interactio simulation. Dates stripped from the simulated? screen shots. This isn't even clever. The bar of tiny-short message and content is slow low, this is active measures to avoid the problems.         
 https://old.reddit.com/r/clevercomebacks/comments/1oa8giz/john_can_you_tell_the_meaning_of_democracy/
+
+&nbsp;
+
+&nbsp;
+
+Tuesday, October 21, 2025
+
+Anti-realty simualcra. Front page of Reddit. $200 payment for 4 or 5 hours. Magical rich anti-billionaire paying against Trump and Musk. Left vs. right brainrot, one-bit logic. Are people who dislike Trump in other nations getting paid to dislike Trump? Are people getting paid to love the humans in Ukraine and dislike Putin? Forgetting the Putin and Trump meeting in Alaska between the two No Kings days... the ongoing buddy friendship of Trump and Putin? I think Trump has been manipulated, tricked, bamboozled by Putin. I think war against reality... fantasy fiction that drives people's mindsets into into unreality $200 payments to EVERY PERSON who went is that war against reality.       
+https://old.reddit.com/r/clevercomebacks/comments/1ocmkx9/i_love_this_clever_question/
+
