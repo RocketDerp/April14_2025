@@ -1239,3 +1239,23 @@ Hence why I keep saying why does social media society avoid Malala. White skin c
 “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
 
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nkoi8ss/
+
+Exactly the values of competitive education and dominating others, hate upon others, in the name of Jesus - that I'm talking about. Instead of wanting to use social media in Wiki style / promoting Malala - you get this egomania of insuting and hate. This is what Putin's IRA has fed, Cambridge Analytica amplified in minds, what social media society prizes. Hate and dehumanization in the name of literal hate messages that "Jesus" god strike down on people. They aren't even self-aware of their symbolism usage in many cases. Will claim the "Jesus Christ" is meaningless in the context of Ireland conflicts. OPERA_A In your Reddit head REPEAT_A Wake to 1924 onward Finnegans Wake media ecology! https://www.youtube.com/watch?v=6Ejga4kJUts
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko7wv5/
+
+People unwilling to organize their ideas and get on the same page of goodness is a global problem. Spare time and free time flocks to shit commenting messages. What the Russian IRA has exploited all across NATO and beyond (even Japan in 2025). Prizing tiny-short low-effort insult messages and blaming "the government" in a democracy. Why aren't people having NAMED LISTS of changes and linking them and details. Why aren't people promoting Malala's education efforts of the uneducated and poorly educated since year 2012? We The People of every nation need to focus on nonfiction and reason thinking instead of hate and dehumanization of out-groups. OPERA_A https://www.youtube.com/watch?v=EZIB6MslCAo
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nkohlmo/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko2tc9/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko84mj/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko8qeb/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nkog66x/
+
+https://old.reddit.com/r/pics/comments/1ocoilb/oc_thousands_riot_outside_a_migrant_hotel_in/nko69fj/
+
