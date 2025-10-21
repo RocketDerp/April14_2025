@@ -65,3 +65,11 @@ https://www.youtube.com/watch?v=p5QpNF26BQc
 &nbsp;
 
 Levant King of Jesus ruling over USA. Street gangs of Morman vs. Catholic vs. other protestants. Shia vs. Sunni (Jesus is in Quran) street gangs. September 11, 2001 street gangs of terrorism attacking USA street gangs of Bible.  John 1:1 - podcasters are originators of Language memes. Bible is science fiction crisis.    https://old.reddit.com/r/CringeTikToks/comments/1obp8ny/republican_rep_chip_roy_the_truth_is_the_marxist/
+
+&nbsp;
+
+&nbsp;
+
+Heart of James Joyce, Roman palace of the soul.   
+Islamic (Ottoman), Roman (year 380 on), Israel - all claim outer-space allien Allah / Yaweh / Jesus messages saved humanity. Science fiction inspiration pointing in the wrong direction. Men created those stories.  Hamlet's Ghost was created by men, Star Wars 1977 "Force Ghost" created by men. The 2,000 year old Levant "1 John 4:20" crisis of orgin and *seeing God* that is not there. God is a symbol of world peace and everyone, not an entity. Not a space alien who sent people from planet Eden. That's sci fi.        
+https://old.reddit.com/r/HistoryMemes/comments/1ocei93/laughs_in_imperivm/
