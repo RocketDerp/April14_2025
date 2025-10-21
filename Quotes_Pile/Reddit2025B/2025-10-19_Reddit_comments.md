@@ -963,3 +963,37 @@ https://old.reddit.com/r/europe/comments/1oc8gu5/most_britons_now_consider_that_
 
 https://old.reddit.com/r/europe/comments/1oc8gu5/most_britons_now_consider_that_it_was_wrong_to/nkkqu8t/
 
+https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/nkj5ng2/
+
+Oh, not *funny* and amusing anymore. Really. The heart of the problem. the "milking the LOL LOL cow" of Donald Trump FOR OVER TEN YEARS AND FOUR MONTHS, laughing-washing hate, amusement-washing hate, meme-washing hate. Avoiding MLK Jr's 1954 writings and teachings, one Wiki click away. https://en.wikiquote.org/wiki/Martin_Luther_King_Jr. - Neil Postman was correct in 1985 "Amusing Ourselves To Death" about high-speed media systems, aka Reddit.
+
+https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/nkkyjyw/
+
+Uh yha, this "widespread belief" is spelled out by Neil Postman even more clearly in year 1992. But nonficiton learning can't compete with Reddit low-effort disposable comment attraction. It isn't just TikTok. It isnt just Fox News. Meme Life glut, Low-effort glut. Apply this to Reddit, Bluesky, TikTok: ... ... ...         
+“a peek-a-boo world, where now this event, now that, pops into view for a moment, then vanishes again. It is an improbable world. It is a world in which the idea of human progress, as Bacon expressed it, has been replaced by the idea of technological progress. The aim is not to reduce ignorance, superstition, and suffering but to accommodate ourselves to the requirements of new technologies. We tell ourselves, of course, that such accommodations will lead to a better life, but that is only the rhetorical residue of a vanishing technocracy. We are a culture consuming itself with information, and many of us do not even wonder how to control the process. We proceed under the assumption that information is our friend, believing that **cultures may suffer grievously from a lack of information, which, of course, they do. It is only now beginning to be understood that cultures may also suffer grievously from information glut**, information without meaning, information without control mechanisms.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
+https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/nkiqj8q/
+
+<img width="1624" height="674" alt="image" src="https://github.com/user-attachments/assets/266d79c2-6d66-4bee-b42c-e737df487c29" /> IMPORTANT_A - holy shit, did someone just quote "1 John 4:20" on Reddit?!?! The Finnegans Wake even deeper equation?
+
+https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/nkiucxv/
+
+Just because you don't do rituals doesn't mean you shouldn't teach people basic literacy of poetry and science fiction storytelling, especially since war and hate are problems outside of books. "1 John 4:20" is all about not loving Jesus or God or other fiction characters. Literally loving a book more than human persons. 
+
+https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/nkj0uny/
+
+Good verses! IMPORTANT_A
+
+https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/nkkecg0/
+
+This is what social media addicts prize in politicians. Fantasy sex content, "The Epstein List" of rich white men private jet fantasy.
+
+https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/nkky3i6/
+
+They very article context is that the USA has changed to hate. So this Reddit messaging is *go along iwth hate*, if the world changes, go with it. That's exactly what Dr. Martin Luther King Jr. called out in year 1954. If war and terrorism comes, you don't go along with it. If Reddit wrecks the world, you don't go along with it. If poisoning the earth becomes cool and trendy, you don't go along with it. Sheep logic of ALWAYS follow the trending popular crap. ... ... ...           
+February 28, 1954: "Most people can't stand up for their convictions, because the majority of people might not be doing it. See, everybody's not doing it, so it must be wrong. And since everybody is doing it, it must be right. So a sort of numerical interpretation of what's right. But I'm here to say to you this morning that some things are right and some things are wrong. Eternally so, absolutely so. It's wrong to hate. It always has been wrong and it always will be wrong. It's wrong in America, it's wrong in Germany, it's wrong in Russia, it's wrong in China. It was wrong in 2000 B.C., and it's wrong in 1954 A.D. It always has been wrong, and it always will be wrong." - Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/nkkegis/
+
+The worship of nicknames.
+
