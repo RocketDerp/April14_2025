@@ -841,3 +841,11 @@ https://old.reddit.com/r/AdviceAnimals/comments/1obuokl/dew_yer_research111_the_
 
 By the People for the People. A society that abandons nonfiction is a self-deception society. Prizing entertainment and bullying methods of communication above all else. Worship of LOL and cleverness. HavingT The Great Dictator 1940 call our cleverness, think about it, Charlie Chaplin critiizing cleverness.         
 https://old.reddit.com/r/law/comments/1oc3hzx/federal_judges_caught_the_us_government_providing/
+
+&nbsp;
+
+&nbsp;
+
+Ameircan, Atlanta Georgia, Dr. Martin Luther King Jr. gave us the worlds in year 1954 - they are on WikiQuotes - and people on social media can't be bothered to teach each other and stand up for goodness. Love and compassion are rewarding, they are fun, they are enjoyable. But somehow Reddit and Bluesky have convinced that machine blocking and machine deportation of people is far more "fun" than actual compassion and love.        
+https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_hate_america_rally/
+
