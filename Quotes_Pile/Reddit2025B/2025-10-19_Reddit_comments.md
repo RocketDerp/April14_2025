@@ -1116,5 +1116,11 @@ Yes, a "Tony Clifton" clown act / perforamnce. Which is what USA prizes. Enterta
 
 https://old.reddit.com/r/videos/comments/1ocbuom/report_trump_got_into_shouting_match_with/nklrl73/
 
-Donald Trump prizes junk media like Truth Social and Reddit commenting messages, disposable anti-Wiki anti-refinement of information. No-identity messaging addicts, and Fox News as a constant benchmark to measure "goodness" against. An entire society, 100% of the population, defeated by the IRA and CA.
+Donald Trump prizes junk media like Truth Social and Reddit commenting messages, disposable anti-Wiki anti-refinement of information. No-identity messaging addicts, and Fox News as a constant benchmark to measure "goodness" against. An entire society, 100% of the population, defeated by the IRA and CA. Russia found low-effort commenting addicts so easy to manipulate. Amuse and entertain people into meme stupors and mindless commenting.
+
+https://old.reddit.com/r/WitchesVsPatriarchy/comments/1oca6jb/my_favorite_disney_movie_of_all_time/nklx7vt/
+
+https://old.reddit.com/r/movies/comments/1occk82/hbo_max_raises_prices_across_all_plans_effective/nklpg7u/
+
+https://old.reddit.com/r/movies/comments/1occk82/hbo_max_raises_prices_across_all_plans_effective/nkll4go/
 
