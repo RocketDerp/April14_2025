@@ -1141,3 +1141,24 @@ https://old.reddit.com/r/news/comments/1ocfp2x/american_chess_grandmaster_daniel
 https://old.reddit.com/r/news/comments/1ocfp2x/american_chess_grandmaster_daniel_naroditsky_dies/nkmmurb/
 
 Like Putin is doing to the entire world with Surkov students. Like Rupert Murdoch is doing to humanism. Yet, people won't stand up for ALL hate in ALL places. Only the specific hate that they choose to focus on. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/law/comments/1ocktoh/comer_the_evidence_we_gathered_does_not_implicate/nknbcns/
+
+A societhy that prizes tiny-short comment messages calling peope stupid all the time. Over and over.
+
+https://old.reddit.com/r/law/comments/1ocktoh/comer_the_evidence_we_gathered_does_not_implicate/nkn6gv2/
+
+Many peopleon Bluesky and Reddit will predictable reaction at MAGA, mocking MAGA. Everyone in USA's deepest faith is out-group mocking.
+
+https://old.reddit.com/r/law/comments/1ocktoh/comer_the_evidence_we_gathered_does_not_implicate/nkn9ypo/
+
+Audience has been eating out of Trump White House / Kremlin information style all year. This is what the USA consideres the best entertainment and amusemeing: mocking how dumb and stupid people are. Over and over, out-group dumb, out-group stupid, out-group idiot. People addicted to mocking and name-calling.
+
+https://old.reddit.com/r/law/comments/1ocktoh/comer_the_evidence_we_gathered_does_not_implicate/nknjjoe/
+
+No quotes, no links, no book titles, no author names, no article titles. The dsposable message grinding mill where Wiki style organized progress of citation on information is turned to dust of everyone commenting on different pages at different times carrying around different viewpoints of reality.
+
+https://old.reddit.com/r/law/comments/1ocktoh/comer_the_evidence_we_gathered_does_not_implicate/nknkqgh/
+
+They have been using the time to entertain the Reddit and Bluesky audiences with "Q Drop" information strip tease, Pizzagate QAnon style.
+
