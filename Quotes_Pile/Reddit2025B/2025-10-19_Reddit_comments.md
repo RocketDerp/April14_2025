@@ -997,3 +997,46 @@ https://old.reddit.com/r/politics/comments/1obxnzu/the_person_leading_an_actual_
 
 The worship of nicknames.
 
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkkvywm/
+
+This is the kind of Reddit comment that banality-washes the problem (Rick Roderick 1993 describes the role of television, now the role of Reddit and Bluesky). Makes normal the shit diaper topics of Trump and amusement-washes everything. This is the anti-learning commenting that atttracts audiences. That's why the GOP stand up for it and Fox News. Because the entire 100% of USA society has "Amused Itself To Death" with entertainment prizing. Trump entertains. Mocking Trump is not resisting Tony Clifton acts. Hate is not resisting hate.
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkl1pxw/
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkky8jo/
+
+The point is Surkov won, Russia won, since year 2013. Satire-washing is what Reddit society adores. Everyoene agrees on abandoning serious nonfiction.
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nklblds/
+
+Satire is the religion faith. That's the holy ground. You can't even get Steely Dan fans to see their own addiction to satire as "cool" nullifies the very calling-out of satire. OPERA_A Satire is God itself to meme-heads. Everything Must Go. https://www.youtube.com/watch?v=M1pmEy6oNvc
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkky0mk/
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkkwxz8/
+
+History won't even connect the dots to Cambridge Analytica and the Internet Research Agency. It should not be difficult to get USA to fight back against Russia and be serious, but it is.
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkl9su3/
+
+The way is low-effort Reddit commenting, a society that prizes shit commenting and avoidance of learning about Kremlin information warfare.  ... ... ...       
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkkyjb7/
+
+USA has a very low desire to click on non-fiction learning. Avoidance of goodness, avoidance of nonfiction is a population-wide problem since year 2013.
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkkx0e8/
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkkxtxd/
+
+Reddit blows-out mind every time. Why do people think minb-blowing out is only one side's problems? Minds that flock to hate leadership signals, follow Putin's Kremlin "Operation Matthew 4:19" - go fucking read The Bible. Surkov mastered it.
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkl0c8s/
+
+No links, no article names, no book titles, no author names. "Funny" amusing, disposable commenting, LOL addicts who refuse to take the problem of hate seriously and refuse to take the problem of media ecology learning seriously. "it's wild" also in there. So entertaining to Reddit audience!
+
+https://old.reddit.com/r/nottheonion/comments/1oc9kdn/top_republicans_stand_by_the_presidents_poop_video/nkkz9uw/
+
+"Bro" on Reddit ate the onion. Trump Onion Fans. Eating the fiction storytelling without any self-awareness of the audience reacting all around on Reddit. Unable to defend USA against Putin / Russian / Surkov student techniques. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
