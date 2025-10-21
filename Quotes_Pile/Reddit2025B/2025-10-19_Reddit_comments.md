@@ -939,3 +939,27 @@ https://old.reddit.com/r/news/comments/1obxjl6/us_appeals_court_lets_trump_send_
 
 The world is going to vomit up that USA superhero bullshit fantasy of goodness from a media-addict society that sold out to trash memes. Sold out Ukraine.
 
+https://old.reddit.com/r/europe/comments/1oc8gu5/most_britons_now_consider_that_it_was_wrong_to/nkkpnb1/
+
+Yes. The snapshot of time from March 2013 to October 2015, when it became clear that the IRA has changed tone and attention spans. Out-gorup hate had taken hold. 
+
+https://old.reddit.com/r/europe/comments/1oc8gu5/most_britons_now_consider_that_it_was_wrong_to/nkkqby7/
+
+Yes. What Russia did was really bad. But year 2022 when ChatGPT took off, all traditional marketing and advertising systems jumped in the Kremlin bonfire. Large Language Models trained on Cambridge Analytica methods and feedback loops.
+
+https://old.reddit.com/r/europe/comments/1oc8gu5/most_britons_now_consider_that_it_was_wrong_to/nkkz7ts/
+
+Surkov won. Surkov's fiction novels reveal what people do not see. A timing of public relations exploiting of meme-think "meme life" cleverness. Intentional or not, Joseph Campbell warned us in summer of 1987 that Levant myths were "disqualified", 1985 Neil Postman was warning of Fox News alternate reality in 1985, and Carl Sagan clearly said s in 1995. Rick Rodierck 1993 in their too. And everyone throwing away the future by ignoring Malala and terrorism heart and soul in 2012 onward... to "milk the LOL cow" of media social media amusing humanity to death over Donald Trump playing Tony Clifton.
+
+https://old.reddit.com/r/europe/comments/1oc8gu5/most_britons_now_consider_that_it_was_wrong_to/nkkz4y3/
+
+We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). Left vs. right brainrot and hate are such a drag on humanity. People do not teach goodness, do not assert goodness. [Leo B was correct that osmosis isn't working](../Leo_Buscaglia_Quotes.md)
+
+https://old.reddit.com/r/europe/comments/1oc8gu5/most_britons_now_consider_that_it_was_wrong_to/nkksh0v/
+
+It's sikeninghow 4Chat / Reddit prizes trolling and insulting and downvoting (and now blocking) above all else and doesn't see that trolling works. Ukaine war trolling by Russia, Trump trolling FOR OVER TEN YEARS AND THREE MONTHS, that Fox News adopts trolling. Hate does work. People *win* with anti-forgiveness and hate. But what they win is horrible. Like winning climiate change with advrtising, marketing, public relations. You win shit. That's what trolling and hate and bullying win. The Moddle East in-group. Disqualiifed for the future, clergy found *hate the others* drew an audience, which Reddit and Bluesky does too. Hate as the core motivation for a media venue (Church, Mosque, Reddit, Fox News, Bluesky).
+
+https://old.reddit.com/r/europe/comments/1oc8gu5/most_britons_now_consider_that_it_was_wrong_to/nkkqpi8/
+
+https://old.reddit.com/r/europe/comments/1oc8gu5/most_britons_now_consider_that_it_was_wrong_to/nkkqu8t/
+
