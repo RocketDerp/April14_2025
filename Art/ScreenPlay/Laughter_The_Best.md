@@ -2,7 +2,7 @@
 
 Chuckle-washing serious problems.   
 Late night comedy show banal-washing serious problems.    
-Social media addicts "miling the LOL cow" to wash Donald Trump and Elon Musk behaviors.    
+Social media addicts "milking the LOL cow" to wash Donald Trump and Elon Musk behaviors.    
 Joke-washing.   
 Comedy-washing. 
 
