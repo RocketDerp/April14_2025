@@ -11,3 +11,4 @@ RFK Jr. has made autism a current joke for the Reddit home page to joke-wash.
 Tuesday, October 21, 2025     
 https://old.reddit.com/r/comedyheaven/comments/1ocdir5/german/
 
+I worked for a Germany company, SAP. Traveled to thier HQ in Waldorf, Germany early in my computing career. 
