@@ -10,3 +10,6 @@ https://old.reddit.com/r/news/comments/1n7iul3/desantis_to_make_florida_first_st
 Platform lists for USA      
 Add Imaginary Independent Voters Platform List A - Second Bill of Rights      
 https://old.reddit.com/r/union/comments/1n7linw/democratic_vs_republican_platform/
+
+Neil Postman was correct. Published November 20, 2024         
+https://newrepublic.com/article/186804/entertainment-mangled-public-discourse
