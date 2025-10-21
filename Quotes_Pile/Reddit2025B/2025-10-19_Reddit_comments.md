@@ -1124,3 +1124,20 @@ https://old.reddit.com/r/movies/comments/1occk82/hbo_max_raises_prices_across_al
 
 https://old.reddit.com/r/movies/comments/1occk82/hbo_max_raises_prices_across_all_plans_effective/nkll4go/
 
+https://old.reddit.com/r/news/comments/1ocfp2x/american_chess_grandmaster_daniel_naroditsky_dies/nkm5lzs/
+
+Prizing of hate, prizing of bullying. Age 29, this man had Donald Trump as society leader role model from parents. Rupert Murdoch media empire leadership since 1996. Games and competititon, gamers.
+
+https://old.reddit.com/r/news/comments/1ocfp2x/american_chess_grandmaster_daniel_naroditsky_dies/nkmmnii/
+
+Give up on people. Give up on humanism. Machine logic of Twitter-think. The same attitude about not rescuing Donald Trump and MAGA from Putin mass dehumanization programming since year 2013. Give up on goodness, accept badness clergy teaching.
+
+https://old.reddit.com/r/news/comments/1ocfp2x/american_chess_grandmaster_daniel_naroditsky_dies/nkmrv9p/
+
+Fiction outsells nonfiction. Just quoting a nonfiction book is enough to get you run off Reddit.
+
+https://old.reddit.com/r/news/comments/1ocfp2x/american_chess_grandmaster_daniel_naroditsky_dies/nkmxjup/
+
+https://old.reddit.com/r/news/comments/1ocfp2x/american_chess_grandmaster_daniel_naroditsky_dies/nkmmurb/
+
+Like Putin is doing to the entire world with Surkov students. Like Rupert Murdoch is doing to humanism. Yet, people won't stand up for ALL hate in ALL places. Only the specific hate that they choose to focus on. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
