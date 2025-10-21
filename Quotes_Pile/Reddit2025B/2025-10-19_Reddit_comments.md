@@ -885,3 +885,12 @@ https://old.reddit.com/r/news/comments/1obrhay/at_least_135_mutilated_bodies_of_
 
 https://old.reddit.com/r/news/comments/1obrhay/at_least_135_mutilated_bodies_of_palestinians_had/nkicn3x/
 
+https://old.reddit.com/r/news/comments/1obrhay/at_least_135_mutilated_bodies_of_palestinians_had/nkib6jz/
+
+https://old.reddit.com/r/worldnews/comments/1obx24w/ecuador_says_it_has_no_evidence_that_survivor_of/nkinb62/
+
+Levant monomyth / Russian system. Out-group hate, life on Earth is temporary. Eden is the "real planet".
+
+https://old.reddit.com/r/worldnews/comments/1obx24w/ecuador_says_it_has_no_evidence_that_survivor_of/nkiof0v/
+
+<img width="940" height="368" alt="image" src="https://github.com/user-attachments/assets/0fdf388e-3d64-4d41-8222-87a6e46e4a41" /> Exactly. Reddit audience is never more thrilled than mocking the President Tony Clifton. Snark and satire and mockery. People who attack and insult those who don't think LOL is the most important thing in the unvierse. Humor addiction, meme addicts, entertainment addicts. Miling the Donald Trump "LOL cow" for all the insuting of poop diapers they can get.
