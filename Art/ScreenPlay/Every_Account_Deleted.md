@@ -12,3 +12,4 @@ The faith in humor, faith in satire, the infinite jesting religion.
 
 Why did both theses pepole delete their Reddit accounts? To identifying?
 
+Ticking others with depth charges and explosoves mounted on the supporting walls of the Tower of Babel. Suicide bombers into the Tower of Babel humor junctions.
