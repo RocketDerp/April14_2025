@@ -1267,3 +1267,101 @@ https://old.reddit.com/r/politics/comments/1ochqgh/trump_obsessed_over_project_2
 
 It's Reddit trash media desires, mind-fucked people on meme machines who crave more and more Donald Trump content FOR OVER TEN YEARS AND FOUR MONTHS. It never ends, the addiciton to mocking and insulting Trump.
 
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkp909a/
+
+Wake Up *to what exactly?* That's always the problem, people want to wake up to different things. This is a bamboozle on a James Joyce Dublin scale, religions from thousands of years used to further love and compassion... but further space alien stories that devide people from goodness on Earth. Without love and compassion in society, it's a nightmare.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkpezky/
+
+Absurd surreal teleivison-like self-harm to USA. Tiny-short patterns of message thinking that prize recency over the one alarming pro-Russia anti-NATO behaviors. Unable to defend USA against Putin / Russian / Surkov student techniques. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkq3lni/
+
+That's the self-harm of the entire population. The only way it makes sense to me is through the lense of comparative mythology of Levant religions, the self-harm people have in service to Allah. October 7, 2023 self-harm of Palestine is an example. Terrorism act against Israel with little compassion. ... ... ...     
+JOSEPH CAMPBELL: Now, when Luke Skywalker unmasks his father, he is taking off the machine role that the father has played. The father was the uniform. That is power, the state role.
+
+BILL MOYERS: Machines help us to fulfill the idea that we want the world to be made in our image, and we want it to be what we think it ought to be.
+
+CAMPBELL: Yes. But then there comes a time when the machine begins to dictate to you. For example, I have bought this wonderful machine—a computer. Now I am rather an authority on gods, so I identified the machine — **it seems to me to be an Old Testament god with a lot of rules and no mercy**.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkp8yco/
+
+Yes, Harry Potter has monomyth elements. And the writer has gone anti-humanism against women. Anti-Malala (Malala supports transgender, has funded films).
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkpc850/
+
+Great a quote. Alas, the problem isn't just abortion and one issue. There is a pattern. What about the born children who need food and housing? That's killed children throughout history, in all nations, abornin medical procedures is a new recency concern. The woman is only concerned about HER health care and food, not others in need. And is she Christian, does not not get the whole idea of Judgement Day being Jesus job?
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkqh388/
+
+How many times on Reddit has this conversation "enagement" played out over abortion in the past 15 years? People make it on different pages, disposable commenting, unable to see thee drowning from the timer that removes the Reddit post and puts a new one up.... A Wiki refinemen of these topics to get all on the same page... is avoided. That's the only point my GitHub has... ty cry out about the drowning itself. Tree tree tree, people do not see the spare time / free time not focusing on the forest.  Addiction to commenting is driving society in total. We must face Neil Postman's 1985 book.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkp9hnr/
+
+This is a global effort by Murdoch and Putin and Trump and Musk to eliminate compassion and eliminate empahty. A video game in which you have objectives to solve, earn more money and loot and gain more land on maps, and all the people in the land are in the way of your conquest challenge. OPERA_A Those Napoleon days are over a long time ago. Minstrel shows of black people held up for mockery and entertainment. Those days of anti-compassion conquest are over a long time ago. https://www.youtube.com/watch?v=m7EJGXa-5Rc
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkqbfqf/
+
+Yes. People think slavery only in terms of skin color, not the "weak unagressive non-conquest" people treated as slaves. Like Malala describes women in Swat Valley, Pakistan.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkpg7cz/
+
+Tbe problem is people won't face up that organized religion can be created. Scientology is a 1950 example. Reddit cult, Fox News cult of messages. There is nothing magic or supernatural. Popularity itself drives a story into becoming a religion. Fox News is popular, sports are popular, low-effort commenting is popular....
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkp9sb0/
+
+Donald Trump is not dumb. He is smart in the areas Reddit doesn't grasp: media ecology. Donald Trump is a force of seeing how people react to teleivison and Truth Social and Twitter. Calling him dumb and stupid at age 79 for seeing what Reddit users refuse to study and discuss. It isn't just Fox News, the relationshp with Russia was to invade Reddit. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkqoi0h/
+
+People can't stop fixating on Trump's death dealing with the blowout of minds at "milking the LOL cow of Trump for humor and entertainment" that has driven USA society. Reddit is ground zero of mocking and insulting. Over a decade of intellectual education lost to the lowest-effort diaper poop jokes. There are no longer people intelligent enough to find Neil Postman 1985 book and pull the alarm that high-speed electric media itself has wrecked our minds. And that 1985 book was WIHTOUT a media invasion from enemy Russia!
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkpbnym/
+
+Yes. Putin wants to prove that the only real gains in life are February 2014 taking land from Ukraine. It's already been messages that Canada is in the crosshairs of such logic / thinking pathways. Denial of the forest abounds, people only see trees. The everyday Russian life is in service to a monster state.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkplj5v/
+
+Muslims blame the jews, the jewish blame the Muslims and atheists. Out-group hate. ... ... ...     
+“If Christians, Hindus or Jews are really our enemies, as so many say, why are we Muslims fighting with each other?” ― Malala Yousafzai, I am Malala: The Story of the Girl Who Stood Up for Education and was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkr37lo/
+
+Why did Reddit not make Jen Senko's 2015 film a front-page constantly commented "we all need to rally behind Jen Senko" topic?
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkpz2i6/
+
+We did not defend people against Putin's media invasion. On Reddit.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkpxz1w/
+
+When the Democrats are in power... denial of how Russia won hearts and minds. This is not the old pattern of year 2012 and earlier. Year 2013 was a deep change to media-driven society, Surkovian seeds planted via Reddit.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkpvxlo/
+
+And low-effort commenting printing / pressing of messages from meme mills. Pepole scattered at different timesof the day on different postings commenting low-effort disposable messages. No concern or recognition of the absence of being on the same page via a Wiki refinement of ideas. I'm drowned, everyone is drowned. The brain damage of not being able to get people to look at Russia and media ecology.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkq00n0/
+
+The problems coming is you are living in a police state. Worship of technology Reddit values. OPERA_A https://www.youtube.com/watch?v=oaZl12Z5P7g
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkpcehy/
+
+People sold their nation out for LOL LOL LOL grinding on social meme sites how funny and dumb stupid idiot Donald Trump was. Anti-goodness, mocking is not goodness. Insulting is not betterment of huamnity. It's a loop of a video game grinding away every day joke-washing Trump.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkpg4bt/
+
+Pollyanna denial of how Reddit itself lives in denial of the dehumanization of MAGA popularity. "Leopards ate MAGA American faces, Leopards eating USA faces, ha ha ha ha, so dumb idiots they are" with low-effort avoidance of nonficiton learning about Russian information warfare. Cambridge Analytica wrecked brains, including mine. What CA unleashed was 100 years newer than Edward Bernays. MLK Jr was thrown into trash at the first sign of mass dehumanization year 2013. People do not stand up against hate, they prize hate of Trump.  Everyone agrees on out-group hate. 100 percent faith of the total population: hate harder, never forgive. MLK Jr and Malala comprehensions burned at every chance.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkq1cp4/
+
+If you want a society that isn't a fucking video simulacra game run by billionares, you are powerless. Because the intelligent educated people of Reddit and Bluesky won't stand for goondess itself. Poeple prize hate of MAGA, prize hate of Americans. We need to rescue from Putin, hearts and minds lost.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkqor0y/
+
+"LMAO" Reddit audience laugh track. That's the addiction that wrecked USA. Amusing  above all else.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkqggy3/
+
+Russia was hell bent on making USA suffer. Anti-compassion anti-love. 
+
