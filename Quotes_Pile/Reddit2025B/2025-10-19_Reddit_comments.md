@@ -1365,3 +1365,31 @@ https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_
 
 Russia was hell bent on making USA suffer. Anti-compassion anti-love. 
 
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkphvye/
+
+Allah is fiction. Jesus is fiction storytelling. Love is nonfiction. We have taken nonfiction love and tossed it into the trash. Bible verse "1 John 4:20" spells out the hate problem and the liars problem.
+
+https://old.reddit.com/r/politics/comments/1ocucsp/social_security_medicare_and_medicaid_are_going/nkr1vlq/
+
+So many living in denial of how hate driven the population has become. Self-harm mindsets, hate thy neighbor.
+
+https://old.reddit.com/r/worldnews/comments/1od3ft7/russia_strikes_kharkiv_kindergarten_with_drones_1/nkrdht3/
+
+Epstein-washing the health care problems, Ukraine war problems. Tiny-short message think that the only thing that matters is a list of information, Epstein list, not hate and dehumanization. Just a list of information.
+
+https://old.reddit.com/r/worldnews/comments/1od3ft7/russia_strikes_kharkiv_kindergarten_with_drones_1/nkr0y8i/
+
+Self-harm. Surkov monomyth is self-harm to humanity / domestic Russia / whole world. Anti-Malala anti MLK jr. Anti-goodness mindsets.
+
+https://old.reddit.com/r/worldnews/comments/1od3ft7/russia_strikes_kharkiv_kindergarten_with_drones_1/nkr4rwl/
+
+This is what Putin and Trump mean about "no more political correct", it is military terrorism.
+
+https://old.reddit.com/r/worldnews/comments/1od3ft7/russia_strikes_kharkiv_kindergarten_with_drones_1/nkr6zpl/
+
+It's not swept under the rug, it's entertainment to people who think war is fun sport between teams. Who make games about world conquest and war, board games, video games, entertainment. Love is considered boring, peace is mocked as "whirled peas" for a meal of LOL.
+
+https://old.reddit.com/r/worldnews/comments/1od3ft7/russia_strikes_kharkiv_kindergarten_with_drones_1/nkr2p1e/
+
+Social media is the power of Trump, Truth Social / Twitter. Reddit can't see Reddit. Bluesky can't see Bluesky. entertainment addicts, faith in mocking, faith in insuting, faith in hate. Deepest faiths. Death for entertainment of poop diaper jokes about Donald Trump.
+
