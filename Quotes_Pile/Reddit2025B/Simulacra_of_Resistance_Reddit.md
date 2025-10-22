@@ -98,3 +98,12 @@ It is not a clever question at all. The entire question is built on an assumptio
 
 I thhink the greater problem is people like bullshit news, fiction addiction, bullshit seeking - over nonfiction and sincere honest sources. This is not a MAGA only problem. The very posting on Reddit is evidence of people flocking to shit / bullshit. That's how Fox News has thrived since year 1996. That's how Trump and Putin operate. Exploiting audience attraction to badness, shit, decepiton as some kind of "gotcha", the whole nation is sinking chasing fiction and anti-goodness. "The Media" isn't theproblem, the audience is the problem. The meme decoration of the image on Reddit is the problem. The eogism of self-centered tribal behavior of a "team sport" of a video screen game vs. another video screen game is the problem! [Ted Koppel talks about video screen game of channel vs. channel, fiction vs. fiction, all audiences avoiding non-fiction](../Ted_Koppel.md)
 
+&nbsp;
+
+&nbsp;
+
+Wednesday, October 22, 2025
+
+https://old.reddit.com/r/democrats/comments/1od6lq9/the_peoples_housesmh/
+
+"SMH, Shaking My Head". Entertained at the bad season of memes and entertainment. Shirt little quips and memes about the sitution. Russia won, Surkov students won. Media addiction and images population. Simulaccra of resistance. Symbolism gumbo served to We The People.
