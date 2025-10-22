@@ -1397,3 +1397,11 @@ https://old.reddit.com/r/technology/comments/1od4nak/amazon_allegedly_replaced_4
 
 Trump isn't the origin. Surkov students. Russia. Reddit can't face reality of Internet Research Agency and a war agaisnt Reality itself. You weaponzied against the weak parts of enemy, addiction to fiction.
 
+https://old.reddit.com/r/AmIOverreacting/comments/1od52z6/aio_my_bf_destroyed_the_food_i_made_and_the_pan/nkrizoh/
+
+Reddit owners can abuse you. Boss men / corporations can abuse you. Governments and news organizations can abuse you. People give up on solving these problems. Pepole do not stand for goodness and education and teaching, they expect it automatically.  [Leo B was correct that osmosis isn't working](../Leo_Buscaglia_Quotes.md)
+
+https://old.reddit.com/r/AmIOverreacting/comments/1od52z6/aio_my_bf_destroyed_the_food_i_made_and_the_pan/nkrg2cf/
+
+Yes, like breaking the enviornment of planet earth. Like breaking human identity with Reddit accounts that hide identity. People only apply these thinking systems in romantic relationship contexts. Governments and jobs do not work if love and compassion and learning of goodness are not part of every area of society. Acting like toxic Reddit isn't toxic while discussing human relationship trajectories... forest for the trees. The entire planet, of over 8 billion people, is bombarding people with hate and dehumanization. Lust for technology and hate for persons. Filtering out "bad people" is avoiding the "bad environment" and bad culture and bad toxic outcomes of social media.
+
