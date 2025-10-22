@@ -869,3 +869,10 @@ https://old.reddit.com/r/SipsTea/comments/1oc7v7b/should_we_tell_her/
 
 More sarcasm and satire on Reddit Front page. Mocking recency bias, one of the worst problems caused by Reddit community drowning all important topics with disposable commenting and disposable posting. No calls to get onthe same page of sustained focus. Important issues are drowned out by the recency bais of both Fox News media and Reddit media. Amusing Ourselves To Death as described in 1986 book by Neil Postman.      
 https://old.reddit.com/r/MurderedByAOC/comments/1ocg46p/aged_like_fine_wine/
+
+&nbsp;
+
+&nbsp;
+
+"grooming", as in sexual grooming? No, this is indoctrination. The "murdered by words" response is ignorant of how Levant religions are done and how holy leaders, clergy, podcoasts. You don't learn about Batman except through fiction. Same with science fiction Bible and readers. People know of Levar Burton for book reading, and that's what Charlie Kirk is. The ignorance of media ecology is wrecking the nation. Japanese "Ash" is a fiction character from Japan. Media ecology is not magical or supernatural. It gets transported from Japan via technology means.        
+https://old.reddit.com/r/MurderedByWords/comments/1od9jq4/this_is_what_grooming_children_actually_looks_like/
