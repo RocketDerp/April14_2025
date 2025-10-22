@@ -877,3 +877,10 @@ https://old.reddit.com/r/MurderedByAOC/comments/1ocg46p/aged_like_fine_wine/
 "grooming", as in sexual grooming? No, this is indoctrination. The "murdered by words" response is ignorant of how Levant religions are done and how holy leaders, clergy, podcoasts. You don't learn about Batman except through fiction. Same with science fiction Bible and readers. People know of Levar Burton for book reading, and that's what Charlie Kirk is. The ignorance of media ecology is wrecking the nation. Japanese "Ash" is a fiction character from Japan. Media ecology is not magical or supernatural. It gets transported from Japan via technology means. Mecca and Mohamamd are NO WHERE NEAR Swat Valley, Pakistan, get out a map and study the transport of Quran to Pakistan. Media ecology literacy is not optional today! “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
 ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban.        
 https://old.reddit.com/r/MurderedByWords/comments/1od9jq4/this_is_what_grooming_children_actually_looks_like/
+
+&nbsp;
+
+&nbsp;
+
+Since year 2013, Russia put ALL, one hundred percent, EVERYONE into out-group hate patterns. Levant monomyth out-group hate messaging patterns. Surkov won. That's why. When you HATE Donald Trump, you prize hate, that's your deepest value. Anti-education, anti-teaching, anti-preaching, PRO-HATE. That's exactly what Putin / Kremlin / Russia wanted. Americans hate Americans. Tony Clifton Presdint gets EVERYONE to adopt mocking as highest value and deepest faith both. STUDY FUCKING SURKOV!        
+https://old.reddit.com/r/politics/comments/1odajs6/trump_keeps_attacking_americans_why_does_he_get/
