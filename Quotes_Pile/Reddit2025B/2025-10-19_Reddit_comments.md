@@ -1424,3 +1424,51 @@ Minds are broken. You can see everything Neil Postman wrote about in his 1985 bo
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1od4r54/did_kamala_really_lose_or_was_the_election_rigged/nkreic7/
 
 Trump is not stupid on media ecology. Including the postal mail paper media ecology. Reddit community is ignroant and uniformed of the emotional and behavior impacts of media. Trump is one of the smartest and most talented people in seeing media ecology influnce at the Marshall McLuhan, Andy Kaufman, Neil Postman, Surkov level. Calling people stupid is thought-terminating behavior. It ends conversation and does not educate or teach. It just encourages ending thought.
+
+https://old.reddit.com/r/comics/comments/1od3aqw/happymeal/nkr17e0/
+
+Parenting in Palestine. Childhood in Swat Valley, Pakistan. 
+
+https://old.reddit.com/r/comics/comments/1od3aqw/happymeal/nkr1g3v/
+
+Laughed at the global behavior humans. It does not have to be your literal mother. History is a nightmare I am trying to awken from. Being born into Palestine.
+
+https://old.reddit.com/r/comics/comments/1od3aqw/happymeal/nkrvi1g/
+
+I'm not good when a monster state of parents have made Donald Trump and Putin the trust role models of children's futures. The bullshit Reddit users try to wash away. I don't agree with Joseph Campbell no more (Campbell contradicts himself, in the spirit of mythology  contradicting itself, the final lesson?). I'm not affirming the conditions of life, I'm pointing at the lessons handed down and the anti-forgiveness and anti-progress and anti-learning from mistakes. The machines have been trained to mindfuck us now. 
+
+https://old.reddit.com/r/comics/comments/1od3aqw/happymeal/nkqzy9r/
+
+The fucking audience needs to look at reality of systemic abuse, Reddit dehumanization. the parenting Reddit is giving to society. The prizing of Hate upon Trump, the prizing of mockery of sincerity, mockery agaisnt truth. ... ... ...        
+"There is a sort of poverty of the spirit which stands in glaring contrast to our scientific and technological abundance. The richer we have become materially, the poorer we have become morally and spiritually. We have learned to fly the air like birds and swim the sea like fish, but we have not learned the simple art of living together as brothers."
+
+https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_casey_calls_bad_bunny/nkrqmo7/
+
+https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_casey_calls_bad_bunny/nksfay2/
+
+https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_casey_calls_bad_bunny/nksh0qr/
+
+Reddit users can't grasp that "The Internet" is real-life, so is Fox News, media ecology. Addicts to Reddit can't see Reddit. 
+
+https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_casey_calls_bad_bunny/nksezod/
+
+Proud of humans hate humans. Proud of humanity for prizig hate. Like Middle East pride.
+
+https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_casey_calls_bad_bunny/nkrrdwt/
+
+Dublin still isn't awake to Finnegans Wake teachings.
+
+https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_casey_calls_bad_bunny/nkrsuwj/
+
+https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_casey_calls_bad_bunny/nkrs4k7/
+
+Exactly. Pale  Blue Dot Pride. 
+
+https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_casey_calls_bad_bunny/nkrxbfq/
+
+As long as "Owning the libs". As long as hate motivates media content.
+
+https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_casey_calls_bad_bunny/nkrto5h/
+
+you can't even tolerate music of other people. You can't tolerate words and ideas from other people. Block-happy Bluesky and Reddit, needto silence and "can't stand" humans.
+
