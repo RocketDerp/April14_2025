@@ -1472,3 +1472,7 @@ https://old.reddit.com/r/Music/comments/1od79rg/dropkick_murphys_singer_ken_case
 
 you can't even tolerate music of other people. You can't tolerate words and ideas from other people. Block-happy Bluesky and Reddit, needto silence and "can't stand" humans.
 
+
+https://old.reddit.com/r/technology/comments/1odbajd/meta_lays_off_600_employees_within_ai_unit/nksz1ts/
+
+Being parented and raised by Fox News since year 1996, or parented and raised by Toxic Levant Clergy that prizes hate and out-group dehumanization, or being raised by any other values of normalizing hate as part of life. Competitive out-group hate. 1942 in Japan and Germany parenting wasn't "baby boomer" adults. Bad is bad. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
