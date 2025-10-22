@@ -1405,3 +1405,22 @@ https://old.reddit.com/r/AmIOverreacting/comments/1od52z6/aio_my_bf_destroyed_th
 
 Yes, like breaking the enviornment of planet earth. Like breaking human identity with Reddit accounts that hide identity. People only apply these thinking systems in romantic relationship contexts. Governments and jobs do not work if love and compassion and learning of goodness are not part of every area of society. Acting like toxic Reddit isn't toxic while discussing human relationship trajectories... forest for the trees. The entire planet, of over 8 billion people, is bombarding people with hate and dehumanization. Lust for technology and hate for persons. Filtering out "bad people" is avoiding the "bad environment" and bad culture and bad toxic outcomes of social media.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1od4r54/did_kamala_really_lose_or_was_the_election_rigged/nkrchsw/
+
+Yes. Including emotional and goodness supression. We are in the realm of toxic religions. Where love and compassion are abandoned every day all day. Terrorism and self-harm doesn't just go after governments. It is language itself, mindsets, etc. Cambridge Analytica depth charges into minds have damaged goodness, wrecked goodness. People who aren't standing up to all hate aren't seeing how it morphs and changes. The Surkov undfinable aspects that Adam Curtiis emphaized December 31, 2014. Hate is toxic, adding hate to every area of life makes everything supressive and shit. The 4 years WITHOUT Trump in White Hosue were still driven down by people prizing hate and not standing up to hate itself through education and teaching. Not by "cutting out" and thratening and starving people out of your life, cutting out MAGA. We have to rescue MAGA / rescue Trump / rescue people. The case has to be made for goodness, humanity is the source of goodness and source of love and compassion. Not outer space aliens ("Angels") sending magic messages down to Moses and Mohammad. We The People are the source of goodness.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1od4r54/did_kamala_really_lose_or_was_the_election_rigged/nkr877t/
+
+"Never", "ever", thought-terminating. I think minds are rigged / manipulated by Cambridge Analytica to favor simple-think Twitter-think meme-think anti-learning anti-understanding.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1od4r54/did_kamala_really_lose_or_was_the_election_rigged/nkrdhgx/
+
+Can not be convinced that there is "winning hearts and minds" by Russian enemy to self-harm within USA. Despite seeing evidence on Reddit constantly. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1od4r54/did_kamala_really_lose_or_was_the_election_rigged/nkrdcob/
+
+Minds are broken. You can see everything Neil Postman wrote about in his 1985 book "Amusing Ourselves To Death" on Fox News, Bluesky, Reddit, Newsmax, Facebook, TikTok, etc, etc. This isn't "election rigging" in the way people are using the phrase. This is addiction to fiction. Self-harm fiction. A toxic set of fiction monomyth stories. Anti-nonfiction, people not facing up that school is not where adults learn. Video games, sports. church, Reddit, Netflix, Disney plus, etc is where adults learn. Fox News is where adults learn. Not in schools, education for adults is the crisis. Donald Trump trusts Putin because of media and communications as an adult, not because of his classroom education. Prizing low-effort disposable messages on Truth Social and Reddit is a crisis. 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1od4r54/did_kamala_really_lose_or_was_the_election_rigged/nkreic7/
+
+Trump is not stupid on media ecology. Including the postal mail paper media ecology. Reddit community is ignroant and uniformed of the emotional and behavior impacts of media. Trump is one of the smartest and most talented people in seeing media ecology influnce at the Marshall McLuhan, Andy Kaufman, Neil Postman, Surkov level. Calling people stupid is thought-terminating behavior. It ends conversation and does not educate or teach. It just encourages ending thought.
