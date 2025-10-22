@@ -1531,3 +1531,42 @@ https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_pay
 
 This is what Reddit cheers on as long as I've been on Reddit. It is called "Fuck You Money", "Fuck You Power", the block-happy deport-happy behaviors. People think such role models are awesome and cool and worship such values.
 
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nktsfg9/
+
+<img width="862" height="524" alt="image" src="https://github.com/user-attachments/assets/6f7cf386-d9e4-421a-9d31-ecc3e05061bb" /> The deep meaning that everything around donald Trump is humor, jokes, amusement. President Tony Clifton. How NYU Neil Postman's 1985 book "Amusing Ourselves To Death" explains the population behavior, the Reddit audience, the society joke-washing of Trump. The prizing of amusement over goodness, "To Death" as Postman grimly described it.
+
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nktq4x8/
+
+Reddit and other media audiences are "owned" to prize highly tiny-short messages as simulacra to Surkov techniques and methods. The Internet Research Agency mind-fucked Reddit https://www.bbc.com/news/world-us-canada-45294192 into meme stupors mental states, addiction to mocking Trump and not discussing the IRA and CA directly. To fiaate on man's sex life, penis shape, poop diapers and not be serious about learning media ecology and standing up for goodness.
+
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nkul1r1/
+
+Downplaying the situation. "Social media engagement" washing the problem. Normalizing via "reading the room" of Reddit banality.
+
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nkto37m/
+
+Satire-washing. Why isn't Reddit making Malala the front page EVERY DAY with quotes and "we need this" attitudes? Do pepole think we do no not need global reform of clergy, fiction vs. non-fiction? yesterday was RARE to see Malala make the front page.
+
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nkuai80/
+
+No links. No citations. No quotes. No author names, no book titles, no article links. Thoe whole population lost. Since Q2 2013. First described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - but people will no longer engage nonfiction learning.
+
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nkul1so/
+
+Trivializing serious situations. Tiny-short messages that make teaching, education, comprehension, Russia's War Against Reality since Q2 2013 simplistic. Russia's anti-reality war first described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - but people will no longer engage nonfiction learning.
+
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nkugp6g/
+
+Short-length joke messages and egoism is trivail and easy. Reddit disposable commenting. 
+
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nkukpvb/
+
+Audience members reach to Surkov techniques of Putin and Trump, Tony Clifton acts.
+
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nkug6wx/
+
+Anti-rescue, anti-goodness messaging on Reddit machines. Dehumanize Americans. Tiny-short mind-fuck message paths on Reddit.
+
+https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nkuma6e/
+
+No links, no author names, no book titles, just tiny-short dispsosable commenting on serious topics.
