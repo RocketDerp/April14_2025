@@ -1476,3 +1476,58 @@ you can't even tolerate music of other people. You can't tolerate words and idea
 https://old.reddit.com/r/technology/comments/1odbajd/meta_lays_off_600_employees_within_ai_unit/nksz1ts/
 
 Being parented and raised by Fox News since year 1996, or parented and raised by Toxic Levant Clergy that prizes hate and out-group dehumanization, or being raised by any other values of normalizing hate as part of life. Competitive out-group hate. 1942 in Japan and Germany parenting wasn't "baby boomer" adults. Bad is bad. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nksx2ww/
+
+Americans traded goodness away to Russia, in exchange for Trump dipaer ppop joking, humor-washing that he was an overweight man, mockery and insutling constantly. Social media let in Infinite Jest viral monomyth dehumanization mindsets and FOR OVER TEN YEARS AND FOUR MONTHS peole flockto hate-shit mock-shit and anti-goodness shit.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nkteaep/
+
+Conservative vs.liberal brainrot. The Founding Fathers did not teach 1-bit logic of out-groups. Even if the Founding Fathers were bad with slaves and native peoples, they built a media system learning tool in the Great Seal of the United States of America that is 13 steps up a pyramid, not 1-bit logic of conservatives vs. liberal. Look to fiction vs. nonfiction.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nkterb1/
+
+Joke-washing the win of Russia in an information war since year 2013. Satire-washing. Prizing tiny-length short messages above all other learning and teaching.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nktfnrb/
+
+A citation, link!
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nkt3tnu/
+
+<img width="1090" height="440" alt="image" src="https://github.com/user-attachments/assets/735c005f-046f-4627-a4d4-09fd9f65e1c3" /> Hear! Hear! Beyond the denial. This is WAY WORSE than USA internal politics. This is self-harm induced by Russian information warfare! Alas, no links, no author names, no quotes.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nkteu4a/
+
+Every person in society needs to preach goodness. Naming just a few of the predators is no longer dealing with the Cambridge Analytica aftermath. EVERY PERSON has to assert goodness and preach remedial morality.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nktdnpx/
+
+Addictions to mocking and insulting Donald Trump. Poop diaper, orange skin, people are charmed into meme stupors with dumb ad fuck joke-washing.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nkt0k9u/
+
+People can not fathom Surkov governing / Russian information warfare. The amusement-washing Kremlin defeat of USA. "LOL liberals suffering!!! LOL conservatives suffering" bullshit society Russia seeded into USA since year 2013. The abandonment of nonfiction learning. ... ... ...      
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nksx00m/
+
+Low-effort ideas are what USA sold out to. Bullshit content addictions, to bullshit itself.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nkswyut/
+
+You can get away with so much when you let Russia meme systems invade Reddit. When you prize low-effort reacting commenting above all other information system usages.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nkszo06/
+
+And probably the E.U. and U.K. to defend against the White House and Kremlin bullshit.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nkszh0f/
+
+Why would anyone spend their own money to upgrade a government building, the White House. Especially if marketing the USA and selling decadance leadership of the world.
+
+https://old.reddit.com/r/law/comments/1odcgiw/trump_says_he_has_final_say_on_paying_himself/nksyo8i/
+
+This is what Reddit cheers on as long as I've been on Reddit. It is called "Fuck You Money", "Fuck You Power", the block-happy deport-happy behaviors. People think such role models are awesome and cool and worship such values.
+
