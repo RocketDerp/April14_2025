@@ -73,3 +73,10 @@ Levant King of Jesus ruling over USA. Street gangs of Morman vs. Catholic vs. ot
 Heart of James Joyce, Roman palace of the soul.   
 Islamic (Ottoman), Roman (year 380 on), Israel - all claim outer-space allien Allah / Yaweh / Jesus messages saved humanity. Science fiction inspiration pointing in the wrong direction. Men created those stories.  Hamlet's Ghost was created by men, Star Wars 1977 "Force Ghost" created by men. The 2,000 year old Levant "1 John 4:20" crisis of orgin and *seeing God* that is not there. God is a symbol of world peace and everyone, not an entity. Not a space alien who sent people from planet Eden. That's sci fi.        
 https://old.reddit.com/r/HistoryMemes/comments/1ocei93/laughs_in_imperivm/
+
+&nbsp;
+
+&nbsp;
+
+Malala celebrates Hindu and Buddha and MLK Jr. And social media rarely calls for the whole world to stop all out-group hate. We see hate patterns but do not see forest for trees.      
+https://old.reddit.com/r/indiameme/comments/1od4l2m/a_muslim_family_celebrating_diwali_secretly_on/
