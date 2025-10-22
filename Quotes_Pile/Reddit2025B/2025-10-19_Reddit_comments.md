@@ -1393,3 +1393,7 @@ https://old.reddit.com/r/worldnews/comments/1od3ft7/russia_strikes_kharkiv_kinde
 
 Social media is the power of Trump, Truth Social / Twitter. Reddit can't see Reddit. Bluesky can't see Bluesky. entertainment addicts, faith in mocking, faith in insuting, faith in hate. Deepest faiths. Death for entertainment of poop diaper jokes about Donald Trump.
 
+https://old.reddit.com/r/technology/comments/1od4nak/amazon_allegedly_replaced_40_of_aws_devops_with/nkrb6jb/
+
+Trump isn't the origin. Surkov students. Russia. Reddit can't face reality of Internet Research Agency and a war agaisnt Reality itself. You weaponzied against the weak parts of enemy, addiction to fiction.
+
