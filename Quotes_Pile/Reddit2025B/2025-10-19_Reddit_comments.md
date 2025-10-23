@@ -1649,5 +1649,5 @@ Right after Amazon Web Services / AWS - one of the biggest brand of USA technolo
 
 https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nkvxzsp/
 
-Reddit audience lusts for diaper / poop / anal sex with Trump topics.
+Reddit audience lusts for diaper / poop / anal sex with Trump topics. South Park Satan + Trump sex act content.
 
