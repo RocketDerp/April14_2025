@@ -1822,4 +1822,95 @@ Donald Trump leaked audio spelled out our scoiety crisis: when you are a VIP / a
 
 https://old.reddit.com/r/todayilearned/comments/1oe8tz9/til_in_2001_a_wealthy_private_jet_passenger/nkzrdmr/
 
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl0yute/
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl0z9jl/
+
+People who prize speedy media over goodness... haters are drawn to hate like a magnet. Orange skin color blows people's minds away. Golf outings blow minds away. Creating a non-stop ***total mockery*** is constant minb-blowing to people who prize hate. ... ... ...       
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. **For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost***." - Martin Luther King Jr.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl11vb5/
+
+<img width="796" height="694" alt="image" src="https://github.com/user-attachments/assets/7433e978-37d5-4cc2-a757-4078f1d4d3c6" /> Yes, the ENTIRE population. Reddit can not see Reddit's behavior. The forest for the out-group trees. Russia mid-fucked Reddit audience too. Americans raging and Americans, all avoiding nonfiction learning about Surkov information warfare and media ecology.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl10if9/
+
+Mob mentality abounds. Twitter-think reactionary mindsets.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl10wkq/
+
+Why isn't social media teaching remedial Bible literacy? "1 John 3:17" verse about Murdoch / Musk / Trump?
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl153tx/
+
+Spin reality itself. Putin since March 2013.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl12v04/
+
+He is an actor, an entertainer. Tony Clifton performances. 
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl0ygdh/
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl13zyg/
+
+Congress is diong the same thing as Bluesky and Reddit social media audience: Glued to the sports entertainment and mocking how terrible and bad Tony Clifton is at his wild self-declared excellence. Sucking down the Russian information warfare and avoiding teaching Neil Postman media ecology.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl10oui/
+
+Insulting and mocking is not resistng a Tony Clifton performance. Terrible horrific bad taste in entertainment on Reddit and Bluesky draws people into "MEME life!!!" bullshit. Instead of nonfiction focus on Neil Postman.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl11fqq/
+
+But it is so entertaining to people. It's right out of drug boat movies and car chases. That's why people flock to Trump. For constant stimulation of amusement and entertainment. Hyper reality addicts. People can not name Surkov governing. ... ... ...         
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/
+At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl15i9a/
+
+I think Russia mind-fucked the whole population into anti-reality, fiction addictions, and hyper-reality. The way is low-effort Reddit commenting, a society that prizes shit commenting and avoidance of learning about Kremlin information warfare.  ... ... ...       
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl164or/
+
+Joke-washing, amusement-washing, entertainment-washing. Reddit audiences, Bluesky adueinces, people eat that shit up. Nonstop entertainment from an Entertainer President, Reality TV star. Media addicts flock.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl13vln/
+
+Forgot Russia? Putin and Trump just met in Alaska this summer...
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl161br/
+
+Luigi worshipers. People who will do ANYTHING to avoid nonfiction books on the problems.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl0zm8u/
+
+Reddit audeinces have their minds blown. Constantly stimulated by the dialog and communications created by Kremlin and White House.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl14p0j/
+
+Extreme media addicts want even more fiction content. Never enough, for OVER TEN YEARS AND FOUR MONTHS, always crying out for more ficiton, more Trump.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl10gl0/
+
+The next time a Reddit addict doesn't tak Marshall McLuhan media ecology seriously... the addiction to high-speed media to avoid comprehension. The Fox News problem, avoiding promoting Jen Senko's nonfiction film since year 2015....
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl13iz7/
+
+Reddit community is in a simualcra. They can't imagine Tony Clifton **is acting this bad**. Possilbly **THE WORST** you have ever seen. https://youtu.be/JKTR8Yj5hg4?t=83 - Surkov won, Putin won. Americans will not engage nonriciton learning of Russian information warfare.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl114a4/
+
+The WHOLE SOCIETY. Not just one fucking man! "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl12eok/
+
+There is not a hint of **goodness** anymore. It's nonstop media addicts feeding their media addiction. Simualcra runaway, monomyth fiction runaway. Cambridge Analytica aftermath, minds avoidng GOODNESS at every level of society. MLK Jr's writings are right on WikiQuote, but people only want to react and insult Trump.
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl13upv/
+
+People are not sitting back, they are reacting. They are mocking. Their minds are in feedback loops. Hate leadership signals. Racing to high-speed TCP/IP media systems to hate Trump, blowing minds out. FOR OVER TEN YEARS AND FOUR MONTHS chasing Donald Trump as entertainment, "LOL cow to milk for LOL memes".
+
+https://old.reddit.com/r/law/comments/1oeepc5/trump_i_dont_think_were_gonna_necessarily_ask_for/nl13zzx/
+
+Popcorn entertainment, amusement comedy, surreal Surkovain governing. Nobody can stop it. Putin has been in power for over 25 years using popcorn audience techniques. 
 
