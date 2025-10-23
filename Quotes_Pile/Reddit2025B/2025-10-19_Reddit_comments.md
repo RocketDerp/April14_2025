@@ -1731,3 +1731,16 @@ A shallow and superficial society that fixates on the most banal meaning of the 
 https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkyxwcz/
 
 Messages on Reddit to downplay the situation, that it will fix itself, that We The People on Reddit audience aren't the ones who have abandoned nonfiction sustained focus on serious Russian information warfare topics.
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkz50q4/
+
+The socity is calling for "useless Democrats" to be more Joe Rogan, more Fox News, more fiction. The abandonment of nonfiction isn't only republicans. The polarity logic of us vs. them, without prizing goodness. Prizing competititon above goodness.
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkypkv2/
+
+Prizing hate has only grown every day since year 2013. It isn't just one subreddit (The_Donald) or one TV channel (Fox News, Newsmax), it's dehumanization via out-group hate prizing.
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkyzopm/
+
+Anything to avoid learning about Russian information warfare, any idea to avoid all the nations reporting Kremlin information warfare. Rescue Americans. Badness is not rewarding. Hate isn't enjoyable.
+
