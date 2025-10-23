@@ -1622,3 +1622,32 @@ https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberde
 https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nky5gzf/
 
 "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year (2014)." - BBC, Adam Curtis. **December 31, 2014. MORE THAN A DECADE AGO**, and people can't find these sentences and apply to October 2025 Ukraine and Trump.
+
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nkw22z2/
+
+Minds are so blown-out from reality it is never ending shock that people are fragmented and all on alternate universes, alternate realities, of media filter bubbles. https://en.wikipedia.org/wiki/Filter_bubble
+
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nkxnlt0/
+
+Denial of the Internet Research Agency. Reddit audience mind-fuck to not study Cambridge Analytica and IRA and just stick with simple-think tiny-length Twitter-think messages.
+
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nkvrjr1/
+
+"Not smart". Constantly downplaying the intelligence of Putin and Trump. That Reddit-think is "smart", fragmented dispsoable commenting is "smart", while Trump is working hard / laboring hard.
+
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nky7l4l/
+
+Exactly. Convinced everyone they are dumb. Gullible USA. October 19, 2024. "America's gullibility crisis" by Zachary Basu  https://www.axios.com/2024/10/19/musk-ackman-election-misinformation
+
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nkwlozw/
+
+Trump is systemically attacking earth itself. Pro-pollution. He is also supporting Russian values of pro-disease. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nkw2c0y/
+
+Right after Amazon Web Services / AWS - one of the biggest brand of USA technology in cyber had a failure. This is internatioanl marketing to stay away from USA. https://www.zdnet.com/home-and-office/networking/the-massive-aws-outage-that-broke-half-the-internet-is-finally-over-heres-what-happened/
+
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nkvxzsp/
+
+Reddit audience lusts for diaper / poop / anal sex with Trump topics.
+
