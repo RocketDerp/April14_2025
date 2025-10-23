@@ -1744,3 +1744,30 @@ https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rott
 
 Anything to avoid learning about Russian information warfare, any idea to avoid all the nations reporting Kremlin information warfare. Rescue Americans. Badness is not rewarding. Hate isn't enjoyable.
 
+https://old.reddit.com/r/PublicFreakout/comments/1oe59wu/wife_understandably_freaking_out_at_israeli/nkyxd69/
+
+The most top-voted upvoted liked comment on the posting. Dehumanizing the conflict as "bots", machines. Reddit machine lovers / addicts to high-speed messaging "can't wait" for messaging. Instead of condeming all hate and teaching remedial morality to clergy and society. Humanity has this problem, like... 8,000 years. Prizing hate. Prizing dehumanization.  ... ... ...     
+"All of you guys out there in the Middle East are out of the same Melting Pot. And you're all as crazy as a butterfly on absenth. I don't know whether you're all Canaanites at the base or you're all Jews at the base or out of the land of Nod or whatever the hell you were at the get go. Semites or whatnot, but you've been fighting there now for something like 8,000 years. And you've never had 5 minutes of quiet and peace. You're forever killing each other and sticking knives at each other and burning babies and the world has had to suffer with this.
+
+Great things have come out of the Middle East. Great things like the rubat of Omar kayam but stupidity seems to be your chief export. Stupidity and violence are your cash crops all you. And this was before September 11th and I said my solution to the problem in the Middle East is this:" - [Harlon Ellison Interview](/Grim_Blunt/Cognitive_Decline_Nation.md#harlan-ellison-middle-east-8000-years)
+
+https://old.reddit.com/r/PublicFreakout/comments/1oe59wu/wife_understandably_freaking_out_at_israeli/nkyy6m2/
+
+I'm appaled at how social media society has behaved toward Torah / BIble / Quran since Malala realeased her October 8, 2013 book. The ENTIRE world of over 8 billion people who will not face up that hate and out-group conflicts between langauges and science fiction stories is a human brain problem we all must face up to. People prize hate, in specific flavors, out-goup hate prizing.
+
+https://old.reddit.com/r/PublicFreakout/comments/1oe59wu/wife_understandably_freaking_out_at_israeli/nkz0qzm/
+
+Declaring people hopeless, worthless, "not a single shred". 
+
+https://old.reddit.com/r/PublicFreakout/comments/1oe59wu/wife_understandably_freaking_out_at_israeli/nkyta12/
+
+More low-effort messaging, so many low-effort message addicts who don't want to teach remedial morality to all humantiy.
+
+https://old.reddit.com/r/PublicFreakout/comments/1oe59wu/wife_understandably_freaking_out_at_israeli/nkz71vn/
+
+And Ukraine, Palestine, Russia, USA, isn't? This is a humanity-wide problem of brain and mind. Prizing hate.
+
+https://old.reddit.com/r/PublicFreakout/comments/1oe59wu/wife_understandably_freaking_out_at_israeli/nkyvpwo/
+
+Yes, because people believe magical space aliens beam down goodness and compassion and that humans aren't the source via teaching, learning, sharing. People prize hate, encourage hate, "hate harder" as the answer to language and mindset conflicts.
+
