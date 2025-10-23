@@ -1585,3 +1585,23 @@ https://old.reddit.com/r/YouShouldKnow/comments/1odnz9t/ysk_the_combination_of_r
 
 The magical meaning of the word "politics" in USA culture now.
 
+https://old.reddit.com/r/whenthe/comments/1odvrcw/yeah_so_they_were_not_banned_for_suspecting/nkxaqrb/
+
+Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/whenthe/comments/1odvrcw/yeah_so_they_were_not_banned_for_suspecting/nkwyryi/
+
+In other words: shut up. Don't say things that aren't egomania pleasing to mob mentality / "Reddit HiveMind". Unless, of course, you say it the way people will accept anything bad: fiction. Turn the workd into Surkovian governing, Putin and Trump, and you can harm people again and again because Reddit media enviornment makes it fiction entertainment. In Star Wars Andor (fiction entertainment), you cheer onterrorists who don't solve problems with dialog and thinking, it's solved with murder and killing. Because people worship fiction entertainment. (The Bible is science fiction,magical outer-space angels, Quran is science fiction, magical messages into a cave of Mohamamd). Anything goes is fiction! Trump's power, Putin's power, Saudi Arabia's power, etc.
+
+https://old.reddit.com/r/whenthe/comments/1odvrcw/yeah_so_they_were_not_banned_for_suspecting/nkx10iw/
+
+Never heard of Donald Trump? How can you use Reddit and not hear of President Tony Clifton, Donald J. Trump who collect badness itself of human brain exploits, human mind flaws of finding badness entertaining?
+
+https://old.reddit.com/r/whenthe/comments/1odvrcw/yeah_so_they_were_not_banned_for_suspecting/nkx1qq1/
+
+Satire-washig is the Reddit society. Anything evil is chered on, Donald J. Trump and Putin since year 2013, if you can satire it. A fucking brain exploit Cambridge Analytica mastered, Steve Bannon, Surkov.
+
+https://old.reddit.com/r/whenthe/comments/1odvrcw/yeah_so_they_were_not_banned_for_suspecting/nkxl9b8/
+
+Yes, the denial of the year 2013 war against reality abounds. Facebook created what it "pretends", "just satire, bro", "just my sense of comedy,bro" pretends to be. Putin and Surkov for over 25 years. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - but people will no longer engage nonfiction learning.. The avoidance of nonfiction isn't "pretending", the addiction to low-effort disposable commenting as adult education isn't pretending. The Fox News audience addiction to "Amusing Ourselves To Death" (Neil Postman, 1985) isn't pretending. Quran science fiction monomyth audience isn't "pretending" to hand over power and wealth to the few since poetry was composed in year 635. 
+
