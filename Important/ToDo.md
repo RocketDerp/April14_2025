@@ -1730,3 +1730,10 @@ https://old.reddit.com/r/politics/comments/1oao91s/sanders_at_no_kings_rally_meg
 
 Abandonment of goodness, need for remedial morality. Cambridge Analytica aftermath.      
 https://old.reddit.com/r/politics/comments/1oaq8je/the_depth_of_magas_moral_collapse/
+
+&nbsp;
+
+&nbsp;
+
+Trump is "One world Order"     
+https://old.reddit.com/r/PoliticalHumor/comments/1odpeb9/ya_think/
