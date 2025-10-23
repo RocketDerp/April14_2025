@@ -1771,3 +1771,7 @@ https://old.reddit.com/r/PublicFreakout/comments/1oe59wu/wife_understandably_fre
 
 Yes, because people believe magical space aliens beam down goodness and compassion and that humans aren't the source via teaching, learning, sharing. People prize hate, encourage hate, "hate harder" as the answer to language and mindset conflicts.
 
+https://old.reddit.com/r/PublicFreakout/comments/1oe59wu/wife_understandably_freaking_out_at_israeli/nkz5oxc/
+
+People prize hate. Think life is a video game to "level up" on hate. ... ... ...      
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. **For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost***." - Martin Luther King Jr.
