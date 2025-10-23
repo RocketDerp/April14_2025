@@ -1676,3 +1676,12 @@ https://old.reddit.com/r/NoFilterNews/comments/1odxgzg/trump_is_preparing_a_coup
 https://old.reddit.com/r/NoFilterNews/comments/1odxgzg/trump_is_preparing_a_coup_the_evidence_is_clear/nkxhikz/
 
 Low-effort media. An audience that prizes stimulation. Reacting to the stimulation. In very predictable and conditioned ways.
+
+https://old.reddit.com/r/sports/comments/1oe5hfs/fbi_says_the_alleged_nba_gambling_ring_involves/nkyv3zb/
+
+Russia won the "War Against Reality". First described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - but people will no longer engage nonfiction learning.
+
+https://old.reddit.com/r/sports/comments/1oe5hfs/fbi_says_the_alleged_nba_gambling_ring_involves/nkyxgt4/
+
+Because society seeks out anti-goodness, prizes misunderstandings, prizes anti-comprehension, thinks it is entertaining and fun Reddit content to mock and insult and dehumanize out-groups. Minsets wrecked by IRA and CA. But people can't articulate that and describe it, just punch-line of joke. The vocabulary to describe the problem in a way audiences will listen has disappeared since year 2013, egoism attitudes have taken over.
+
