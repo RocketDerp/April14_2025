@@ -861,3 +861,12 @@ Male body media ecology. Is this true only in USA, North America? True in 1930 v
 
 https://old.reddit.com/r/todayilearned/comments/1o8ynb0/til_that_shorter_men_actually_live_longer_a_major/
 
+&nbsp;
+
+&nbsp;
+
+### Length of writing
+
+https://old.reddit.com/r/TikTokCringe/comments/1odomj5/this_is_so_concerning/
+
+5 complete sentences
