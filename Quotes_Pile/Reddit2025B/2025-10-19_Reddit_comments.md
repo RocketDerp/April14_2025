@@ -1788,3 +1788,7 @@ https://old.reddit.com/r/technology/comments/1oe8yb8/maga_website_took_money_to_
 
 Ha ha ha funny laugh track for Reddit audience. That suffering over fition storytelling. Confusion over nonfiction from fiction exploits the brain into meme stupor, LOL mental state.
 
+https://old.reddit.com/r/law/comments/1oe9uj7/trump_pardons_convicted_crypto_founder_who_helped/nl05vtt/
+
+A mockery-named account "Stupid answers only", that is giving a mockery-track for Reddit audiences, mocking goodness itself. And the media ecology issues of TikTok / YouTube / filter-bubble mocking.
+
