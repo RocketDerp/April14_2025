@@ -901,4 +901,6 @@ A year 2009 published article indicates that machine OCR was used to create the 
 
 https://archive.vanityfair.com/article/2009/1/the-devil-at-37000-feet
 
-I spot errors on October 23, 2025: "They were stickand-rudder men" "training is classroomand simulator-based.". 
+I spot errors on October 23, 2025: "They were stickand-rudder men" "training is classroomand simulator-based." "He said, “Twentyfive-oh-five. That’s why I write it down.”" - is that last one style or error?
+
+
