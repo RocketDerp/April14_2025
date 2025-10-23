@@ -890,3 +890,15 @@ A non-clickbait headline would describe the profession / occupation / field of e
 ### Valve / Steam - Digital Assets, Rare items
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oe4ti3/peetah_what_happened_this_morning/
+
+&nbsp;
+
+&nbsp;
+
+### Computer to paper and back again
+
+A year 2009 published article indicates that machine OCR was used to create the website publication. Loss of original document?
+
+https://archive.vanityfair.com/article/2009/1/the-devil-at-37000-feet
+
+I spot errors on October 23, 2025: "They were stickand-rudder men" "training is classroomand simulator-based.". 
