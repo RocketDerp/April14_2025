@@ -919,5 +919,5 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1oe1xy3/us/
 
 &nbsp;
 
-Worship a murder. A manipulator, a killer, a sneak-attack gun worshiper. Prizing hate, fith in hate, worship of hate. Instead of promoting the Second Bill of Rights in USA on social media since December 4, 2024 - promoting violence and hate. Anti-goodness prized. The only lesson being taught here is to prize dehumanization. Which health insurance in USA does, dehumanizes.      
+Hot man photos. Luigi. Worship a murderer. A manipulator, a killer, a sneak-attack gun worshiper. Prizing hate, fith in hate, worship of hate. Instead of promoting the Second Bill of Rights in USA on social media since December 4, 2024 - promoting violence and hate. Anti-goodness prized. The only lesson being taught here is to prize dehumanization. Which health insurance in USA does, dehumanizes.      
 https://old.reddit.com/r/LetGirlsHaveFun/comments/1oe6lhf/shes_right/
