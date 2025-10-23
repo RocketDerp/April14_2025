@@ -891,3 +891,10 @@ https://old.reddit.com/r/politics/comments/1odajs6/trump_keeps_attacking_america
 
 The lack of integrity is the audience. Amused itself to death. The Trump "Integrity" is "starting" to show problems in October 2025. This is the second term in office. Time is lost, recnecy bias abounds. Integrity of staying focus on nonfiction reality has been a crisis since year 2013.    
 https://old.reddit.com/r/popculturechat/comments/1odupmz/actor_ethan_hawke_on_donald_trump_demanding_to_be/
+
+&nbsp;
+
+&nbsp;
+
+Donald Trump is not lazy, he is doing it right in the face of Reddit front page, going viral against in multiple media systems. Rewrting reality. Reddit society can't even name the Russian "War Against Reality" since year 2013.     
+https://old.reddit.com/r/therewasanattempt/comments/1odxjb9/to_still_get_us_to_believe_the_2020_election_was/
