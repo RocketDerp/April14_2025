@@ -90,4 +90,6 @@ https://old.reddit.com/r/CuratedTumblr/comments/1odn1j2/odysseus/
 
 &nbsp;
 
+The Problem of Waking in Finnegans Wake | A New Interpreative Paradigm
+
 https://www.youtube.com/watch?v=E7rUZkFIb-I
