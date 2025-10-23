@@ -914,3 +914,10 @@ https://old.reddit.com/r/TikTokCringe/comments/1oe27ac/the_impression_is_on_poin
 
 Charlie Kirk image. Charlie Kirk is not a Nazi. Trump is not Adoph Hitler. This is not Germany. This is a media system / media ecology crisis of podcasters at a Mormon university. Podcasting didn't exist, live streaming by smartphone devices did not exist. Reddit images did not exist. People are prizing hate and prizing out-group hate. I have seen enough Trump prizing by Reddit since year 2013 to see hate itself is the problem. People think joke-wash humor-wash satire-wash Trump and will not face up to the problems of USA society year 2014, year 2015, the abadonment of reality in USA at the hands of meme mills and media-think. Shit prizing of shit ideas and a paths. Prizing hate. Prizing guns, Prizing killings. EVERY PERSON in the world needs to abandon hate and leave it behind. Prizing hate, teaching hate, *hate harder* is exaclty how Putin defeated the USA via Reddit invasion.       
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1oe1xy3/us/
+
+&nbsp;
+
+&nbsp;
+
+Worship a murder. A manipulator, a killer, a sneak-attack gun worshiper. Prizing hate, fith in hate, worship of hate. Instead of promoting the Second Bill of Rights in USA on social media since December 4, 2024 - promoting violence and hate. Anti-goodness prized. The only lesson being taught here is to prize dehumanization. Which health insurance in USA does, dehumanizes.      
+https://old.reddit.com/r/LetGirlsHaveFun/comments/1oe6lhf/shes_right/
