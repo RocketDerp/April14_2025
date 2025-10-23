@@ -1613,3 +1613,12 @@ https://old.reddit.com/r/nba/comments/1oe21ca/charania_portland_trail_blazers_co
 
 https://old.reddit.com/r/nba/comments/1oe21ca/charania_portland_trail_blazers_coach_chauncey/nkya59b/
 
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nkvv6bq/
+
+A whole population who thinks self-harm is a "win", that suffering of human beings to systems, systems and proceses harm, is funny and amusing.
+
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nkvvmn6/
+
+https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberdefense_even_as/nky5gzf/
+
+"But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year (2014)." - BBC, Adam Curtis. **December 31, 2014. MORE THAN A DECADE AGO**, and people can't find these sentences and apply to October 2025 Ukraine and Trump.
