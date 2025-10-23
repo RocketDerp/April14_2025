@@ -1792,3 +1792,22 @@ https://old.reddit.com/r/law/comments/1oe9uj7/trump_pardons_convicted_crypto_fou
 
 A mockery-named account "Stupid answers only", that is giving a mockery-track for Reddit audiences, mocking goodness itself. And the media ecology issues of TikTok / YouTube / filter-bubble mocking.
 
+https://old.reddit.com/r/politics/comments/1odp21f/trump_admin_warns_argentina_beef_might_be/nkxf7hm/
+
+https://old.reddit.com/r/politics/comments/1odp21f/trump_admin_warns_argentina_beef_might_be/nkx4wha/
+
+https://old.reddit.com/r/politics/comments/1odp21f/trump_admin_warns_argentina_beef_might_be/nkw4xpa/
+
+Donald Trump hates people, people hate Donald Trump. It is the deepest fith in the USA, *hate harder*, since year 2013. Prizing of hate, faith in hate, religion deepest values of hate.
+
+https://old.reddit.com/r/politics/comments/1odp21f/trump_admin_warns_argentina_beef_might_be/nkvih8h/
+
+When people prize fiction, people prize falsehood leaders, people prize low-effort disposable commenting on every media platform - the problem isn't good ideas, the problem is the attraction to self-harm as leadership signals.
+
+https://old.reddit.com/r/politics/comments/1odp21f/trump_admin_warns_argentina_beef_might_be/nkvqoav/
+
+Answers: misunderstandings, education that values ticking and gaming other people over comprehension. Anti-reality, fiction addictions.
+
+https://old.reddit.com/r/politics/comments/1odp21f/trump_admin_warns_argentina_beef_might_be/nkx4vsi/
+
+Entertainment, sports, gaming. Everything games and sports mentality. People in USA will tolerate ANYTHING wrapped in Trump entertainment or "BINGO" games.
