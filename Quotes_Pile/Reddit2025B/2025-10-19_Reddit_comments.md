@@ -1923,3 +1923,4 @@ You know what occurred to me? We teach everything in the world to people, except
 
 - From the chapter "The Art of Being Fully Human" page 127 of "Living, Loving & Learning" by Leo Buscaglia, Ph. D. as he refers to Haim Ginott's book. Video of Leo B speaking quote https://youtu.be/OZ2fe9rVlgg?t=792
 
+https://old.reddit.com/r/goodnews/comments/1oecvc4/joe_rogan_faces_backlash_after_mocking_the_no/nl0yfhi/
