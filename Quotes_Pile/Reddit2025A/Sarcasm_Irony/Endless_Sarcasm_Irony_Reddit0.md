@@ -907,3 +907,10 @@ October 23, 2025
 
 The entertainment-washing of Trump on the front page of Reddit is constant. People in love with mimicing the behavior, media style, language, fashion of Donald Trump. The brand seared so deep into minds it is every aspect of society. A nation driven by media addiction, all cashing in on the unpopularity / popularity denial seams in the humanb brain.     
 https://old.reddit.com/r/TikTokCringe/comments/1oe27ac/the_impression_is_on_point/
+
+&nbsp;
+
+&nbsp;
+
+Charlie Kirk image. Charlie Kirk is not a Nazi. Trump is not Adoph Hitler. This is not Germany. This is a media system / media ecology crisis of podcasters at a Mormon university. Podcasting didn't exist, live streaming by smartphone devices did not exist. Reddit images did not exist. People are prizing hate and prizing out-group hate. I have seen enough Trump prizing by Reddit since year 2013 to see hate itself is the problem. People think joke-wash humor-wash satire-wash Trump and will not face up to the problems of USA society year 2014, year 2015, the abadonment of reality in USA at the hands of meme mills and media-think. Shit prizing of shit ideas and a paths. Prizing hate. Prizing guns, Prizing killings. EVERY PERSON in the world needs to abandon hate and leave it behind. Prizing hate, teaching hate, *hate harder* is exaclty how Putin defeated the USA via Reddit invasion.       
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1oe1xy3/us/
