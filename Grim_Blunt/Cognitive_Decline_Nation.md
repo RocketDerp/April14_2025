@@ -271,3 +271,13 @@ In fact when you look at the iconic significance of churches, you know the Fathe
 https://old.reddit.com/r/technology/comments/1o9tso2/are_we_living_in_a_golden_age_of_stupidity/
 
 Technology-driven "golden age of stupidity" - Neil Postmans 1992 book, after Neil Postman's 1985 book. Amusement mills of artificial intelligence creating generative copyright-avoiding unique (RNG) answers to the same promot. Taking orders from tehcnology itsef.
+
+&nbsp;
+
+&nbsp;
+
+## October 23, 2025 
+
+https://old.reddit.com/r/politics/comments/1odv4jy/trumps_cognitive_collapse_is_clear_psychologist/
+
+Fixated on one single person. Avoiding the Fox News cult of fiction, Bible audience of Trump, etc.
