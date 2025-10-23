@@ -1651,3 +1651,11 @@ https://old.reddit.com/r/news/comments/1odn3ru/trump_administration_cuts_cyberde
 
 Reddit audience lusts for diaper / poop / anal sex with Trump topics. South Park Satan + Trump sex act content.
 
+https://old.reddit.com/r/clevercomebacks/comments/1oe39v3/generation_stuck_forever/nkydi07/
+
+The top-voted popular comment. Adulthood got gamified. Technology gives the orders. The MonoMyth has been cracked, it was faultering and Levant disqualified by 1987 (Joseph Campbell statement at age 83). MLK Jr's reformations on global hate were rejected, not repeated from year 1954 (timing 1 decade after World War Two). Marketing, advertising, driving consumers into brand loyalty and pre-provided dreams. Rick Roderick in year 1993 was describing what already happaned. Eternal September took over. Ignorance prized, hate prized. Neil Postman 1995 about narative was right. We were due for a new post-Levant narative. Campbell's teachings about the Great Seal of the USA and science, Carl Sagan's 1995 book. I am sure there are many many more examples - but these are the ones I have found true. OPER_A I've been around the world and I've been to The Washington Zoo, and in all my travels as *the facts* unravel... I've found this to be true. https://www.youtube.com/watch?v=a_1HRTJ5Hv8
+
+https://old.reddit.com/r/clevercomebacks/comments/1oe39v3/generation_stuck_forever/nkyemp9/
+
+Trickle down Fox News content. Trickle down IRA invasion of Reddit.
+
