@@ -898,3 +898,12 @@ https://old.reddit.com/r/popculturechat/comments/1odupmz/actor_ethan_hawke_on_do
 
 Donald Trump is not lazy, he is doing it right in the face of Reddit front page, going viral against in multiple media systems. Rewrting reality. Reddit society can't even name the Russian "War Against Reality" since year 2013.     
 https://old.reddit.com/r/therewasanattempt/comments/1odxjb9/to_still_get_us_to_believe_the_2020_election_was/
+
+&nbsp;
+
+&nbsp;
+
+October 23, 2025
+
+The entertainment-washing of Trump on the front page of Reddit is constant. People in love with mimicing the behavior, media style, language, fashion of Donald Trump. The brand seared so deep into minds it is every aspect of society. A nation driven by media addiction, all cashing in on the unpopularity / popularity denial seams in the humanb brain.     
+https://old.reddit.com/r/TikTokCringe/comments/1oe27ac/the_impression_is_on_point/
