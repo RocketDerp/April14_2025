@@ -884,3 +884,10 @@ https://old.reddit.com/r/MurderedByWords/comments/1od9jq4/this_is_what_grooming_
 
 Since year 2013, Russia put ALL, one hundred percent, EVERYONE into out-group hate patterns. Levant monomyth out-group hate messaging patterns. Surkov won. That's why. When you HATE Donald Trump, you prize hate, that's your deepest value. Anti-education, anti-teaching, anti-preaching, PRO-HATE. That's exactly what Putin / Kremlin / Russia wanted. Americans hate Americans. Tony Clifton Presdint gets EVERYONE to adopt mocking as highest value and deepest faith both. STUDY FUCKING SURKOV!        
 https://old.reddit.com/r/politics/comments/1odajs6/trump_keeps_attacking_americans_why_does_he_get/
+
+&nbsp;
+
+&nbsp;
+
+The lack of integrity is the audience. Amused itself to death. The Trump "Integrity" is "starting" to show problems in October 2025. This is the second term in office. Time is lost, recnecy bias abounds. Integrity of staying focus on nonfiction reality has been a crisis since year 2013.    
+https://old.reddit.com/r/popculturechat/comments/1odupmz/actor_ethan_hawke_on_donald_trump_demanding_to_be/
