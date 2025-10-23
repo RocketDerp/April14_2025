@@ -891,6 +891,8 @@ A non-clickbait headline would describe the profession / occupation / field of e
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oe4ti3/peetah_what_happened_this_morning/
 
+https://old.reddit.com/r/pcmasterrace/comments/1oecsuz/counterstrike_2_update_destroys_nearly_2_billion/
+
 &nbsp;
 
 &nbsp;
