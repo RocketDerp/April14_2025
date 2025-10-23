@@ -870,3 +870,16 @@ https://old.reddit.com/r/todayilearned/comments/1o8ynb0/til_that_shorter_men_act
 https://old.reddit.com/r/TikTokCringe/comments/1odomj5/this_is_so_concerning/
 
 5 complete sentences
+
+&nbsp;
+
+&nbsp;
+
+### The audience craves "Clickbait"
+
+Front page of Reddit Thursday Octobwr 23, 2025
+
+https://old.reddit.com/r/BeAmazed/comments/1odt66t/what_happen_when_you_have_17_years_of_experience/
+
+A non-clickbait headline would describe the profession / occupation / field of experience.
+
