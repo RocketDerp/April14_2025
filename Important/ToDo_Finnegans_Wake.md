@@ -80,3 +80,10 @@ https://old.reddit.com/r/HistoryMemes/comments/1ocei93/laughs_in_imperivm/
 
 Malala celebrates Hindu and Buddha and MLK Jr. And social media rarely calls for the whole world to stop all out-group hate. We see hate patterns but do not see forest for trees.      
 https://old.reddit.com/r/indiameme/comments/1od4l2m/a_muslim_family_celebrating_diwali_secretly_on/
+
+&nbsp;
+
+&nbsp;
+
+Joyce Book name      
+https://old.reddit.com/r/CuratedTumblr/comments/1odn1j2/odysseus/
