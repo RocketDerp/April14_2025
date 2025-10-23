@@ -1727,3 +1727,7 @@ https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rott
 A shallow and superficial society that fixates on the most banal meaning of the metaphor. ... ... ...     
 “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.”
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkyxwcz/
+
+Messages on Reddit to downplay the situation, that it will fix itself, that We The People on Reddit audience aren't the ones who have abandoned nonfiction sustained focus on serious Russian information warfare topics.
