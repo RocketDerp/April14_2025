@@ -1689,3 +1689,36 @@ https://old.reddit.com/r/AITAH/comments/1oe51wg/third_update_aitah_for_not_letti
 
 Hate thy enemy. Hate that ex. Hate thy neighbor. People prize hate. Hate the other political party. Hate the other religions. Out-group hate parenting and clergy. Normalize hate values. Anti-forgiveness, anti-compassion, anti-comprehension.
 
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkxx14p/
+
+School of hate. Prizing hate. Competition to hate harder. Simple-think most popular comment, prizing disposable commenting Twitter-length messages.
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkxyl23/
+
+Faith that there must be failures in life. Out-group bi-polar logic of winners and losers. 
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkystfz/
+
+At least one message on Reddit calls out the downplaying. The normaliatin via mocking. Saying Tony Clifton is weak and band and never learning about Andy Kaufman and Bob Z.
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nky4nwd/
+
+Palestine is terrorists October 7, 2023. Swat Valley Taliban is terrorists. Yet, low-effort commenting and avoiding education and teaching for ALL ages, not just children in school rectangle classrooms, but on Reddit itself... is avoided. Like the every popular "it is a cult", it is thought-ending phrase to say it without actually confrntong the problem. Avoding nonfiction serious learning. ... ... ...       
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkyc6kn/
+
+LOL-mindset, it's so amusing to hear the "lines" of midunderstanding and poor comprehension. It's entertainment funny to Reddit audience. Prizing of shit.
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nkyxt3q/
+
+Exactly. I'm screaming in a world. The faith in trash media, faith in badness itself has driven me crazy since year 2014. People can never get enough of out-group hate and will not stop programming Reddit cloud computing machines to educate the youth with hate techniques and hate prizing methods. Nothing at all was learned from Fox News October 7, 1996 onward and families and friends prizing hate. The prizing of hate has wrecked the USA since year 2013.
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nky1y7g/
+
+"Fuck \*", fuck *wildcard*. Hate-track messages for Reddit audience. Faith in hate, faith in "fuck you", fuck the future, fuck is another word fir hate.
+
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nky7vf5/
+
+Amused and thrilled to have LOL stimulation, Trickle Down White House shit of hate. Comedy for Reddit audience members.
+
