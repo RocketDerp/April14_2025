@@ -1570,3 +1570,18 @@ Anti-rescue, anti-goodness messaging on Reddit machines. Dehumanize Americans. T
 https://old.reddit.com/r/worldnews/comments/1odg6qh/trump_calls_for_ukraine_to_be_carved_up_with/nkuma6e/
 
 No links, no author names, no book titles, just tiny-short dispsosable commenting on serious topics.
+
+https://old.reddit.com/r/YouShouldKnow/comments/1odnz9t/ysk_the_combination_of_rice_and_beans_contains/nkvcx9q/
+
+Kremlin has used it as a training / testing ground for mind-fucking.
+
+https://old.reddit.com/r/YouShouldKnow/comments/1odnz9t/ysk_the_combination_of_rice_and_beans_contains/nkvf0mz/
+
+https://old.reddit.com/r/YouShouldKnow/comments/1odnz9t/ysk_the_combination_of_rice_and_beans_contains/nkvnjiz/
+
+Link?
+
+https://old.reddit.com/r/YouShouldKnow/comments/1odnz9t/ysk_the_combination_of_rice_and_beans_contains/nkvs6mx/
+
+The magical meaning of the word "politics" in USA culture now.
+
