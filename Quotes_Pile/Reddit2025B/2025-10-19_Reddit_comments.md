@@ -1605,3 +1605,11 @@ https://old.reddit.com/r/whenthe/comments/1odvrcw/yeah_so_they_were_not_banned_f
 
 Yes, the denial of the year 2013 war against reality abounds. Facebook created what it "pretends", "just satire, bro", "just my sense of comedy,bro" pretends to be. Putin and Surkov for over 25 years. September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - but people will no longer engage nonfiction learning.. The avoidance of nonfiction isn't "pretending", the addiction to low-effort disposable commenting as adult education isn't pretending. The Fox News audience addiction to "Amusing Ourselves To Death" (Neil Postman, 1985) isn't pretending. Quran science fiction monomyth audience isn't "pretending" to hand over power and wealth to the few since poetry was composed in year 635. 
 
+https://old.reddit.com/r/nba/comments/1oe21ca/charania_portland_trail_blazers_coach_chauncey/nky4hkr/
+
+Grift nation. 
+
+https://old.reddit.com/r/nba/comments/1oe21ca/charania_portland_trail_blazers_coach_chauncey/nky743v/
+
+https://old.reddit.com/r/nba/comments/1oe21ca/charania_portland_trail_blazers_coach_chauncey/nkya59b/
+
