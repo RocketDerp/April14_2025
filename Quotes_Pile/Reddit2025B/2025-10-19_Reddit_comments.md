@@ -1722,3 +1722,8 @@ https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rott
 
 Amused and thrilled to have LOL stimulation, Trickle Down White House shit of hate. Comedy for Reddit audience members.
 
+https://old.reddit.com/r/politics/comments/1oe11wr/stephen_miller_is_trumps_rottweiler_now_he_wants/nky8zfw/
+
+A shallow and superficial society that fixates on the most banal meaning of the metaphor. ... ... ...     
+“Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
