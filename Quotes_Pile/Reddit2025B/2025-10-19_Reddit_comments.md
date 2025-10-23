@@ -1775,3 +1775,16 @@ https://old.reddit.com/r/PublicFreakout/comments/1oe59wu/wife_understandably_fre
 
 People prize hate. Think life is a video game to "level up" on hate. ... ... ...      
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. **For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost***." - Martin Luther King Jr.
+
+https://old.reddit.com/r/technology/comments/1oe8yb8/maga_website_took_money_to_unmask_charlie/nkzm1rj/ 
+
+A society that prizes United Health Care in year 2024, prizes a sneak-attack murder killer Luigi in year 2024, prizes hate and dehumanization. A shitty golf course to par on. Abandonment of goodness in favor of manipulating, tricking, misinformting, confusing others as sport and entertainment.
+
+https://old.reddit.com/r/technology/comments/1oe8yb8/maga_website_took_money_to_unmask_charlie/nkzlqg2/
+
+Fiction storytelling outsells nonfiction. It is a global focus.
+
+https://old.reddit.com/r/technology/comments/1oe8yb8/maga_website_took_money_to_unmask_charlie/nkzlntb/
+
+Ha ha ha funny laugh track for Reddit audience. That suffering over fition storytelling. Confusion over nonfiction from fiction exploits the brain into meme stupor, LOL mental state.
+
