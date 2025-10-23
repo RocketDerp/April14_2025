@@ -1685,3 +1685,7 @@ https://old.reddit.com/r/sports/comments/1oe5hfs/fbi_says_the_alleged_nba_gambli
 
 Because society seeks out anti-goodness, prizes misunderstandings, prizes anti-comprehension, thinks it is entertaining and fun Reddit content to mock and insult and dehumanize out-groups. Minsets wrecked by IRA and CA. But people can't articulate that and describe it, just punch-line of joke. The vocabulary to describe the problem in a way audiences will listen has disappeared since year 2013, egoism attitudes have taken over.
 
+https://old.reddit.com/r/AITAH/comments/1oe51wg/third_update_aitah_for_not_letting_my_exhusband/nkyyb3v/
+
+Hate thy enemy. Hate that ex. Hate thy neighbor. People prize hate. Hate the other political party. Hate the other religions. Out-group hate parenting and clergy. Normalize hate values. Anti-forgiveness, anti-compassion, anti-comprehension.
+
