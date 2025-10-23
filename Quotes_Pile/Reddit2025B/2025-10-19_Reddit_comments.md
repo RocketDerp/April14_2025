@@ -1811,3 +1811,15 @@ Answers: misunderstandings, education that values ticking and gaming other peopl
 https://old.reddit.com/r/politics/comments/1odp21f/trump_admin_warns_argentina_beef_might_be/nkx4vsi/
 
 Entertainment, sports, gaming. Everything games and sports mentality. People in USA will tolerate ANYTHING wrapped in Trump entertainment or "BINGO" games.
+
+https://old.reddit.com/r/todayilearned/comments/1oe8tz9/til_in_2001_a_wealthy_private_jet_passenger/nkzxbl9/
+
+Instead of facing our misunderstanding, comprehension issues, sharing as good of information was we can in Wiki information systems style, refinement and progress, we turn to egoism and out-group hate. We are not facing that there are brain issues we can all learn about not tricking each other, convincing each other, to take risks and self-harm as a social skill.
+
+https://old.reddit.com/r/todayilearned/comments/1oe8tz9/til_in_2001_a_wealthy_private_jet_passenger/nl00meh/
+
+Donald Trump leaked audio spelled out our scoiety crisis: when you are a VIP / a star, they let you manipulate their minds. Trump bends the USA mass mind to self-harm, prizing of hate, prizing of dehumanization. People think hate of Tony Clifton acts is resisting Tony Clifton acts, it is not. (I have not researched this specific instance, but people are observing their own behaviors towards VIP)
+
+https://old.reddit.com/r/todayilearned/comments/1oe8tz9/til_in_2001_a_wealthy_private_jet_passenger/nkzrdmr/
+
+
