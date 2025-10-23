@@ -108,3 +108,13 @@ https://old.reddit.com/r/democrats/comments/1od6lq9/the_peoples_housesmh/
 
 "SMH, Shaking My Head". Entertained at the bad season of memes and entertainment. Shirt little quips and memes about the sitution. Russia won, Surkov students won. Media addiction and images population. Simulaccra of resistance. Symbolism gumbo served to We The People. Right vs. left one-bit brainrot. The Founding Fathers did not put "left and right" into teachings. 13 steps up the pyramid is not logic of bi-polar left vs. right.
 
+&nbsp;
+
+&nbsp;
+
+Thursday, October 23, 2025
+
+https://old.reddit.com/r/MurderedByWords/comments/1oe5z4c/how_soon_we_forget/
+
+"Freaked out", "meltdown", endless out-group feedback loops of "owning the libs". Media simualcra vs. media simulacra. Entertainment politics. Antics politcs. Twitter-think reactionary mindsets. CA / IRA outcomes. 
+
