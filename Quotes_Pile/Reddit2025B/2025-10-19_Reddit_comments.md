@@ -1972,3 +1972,30 @@ https://old.reddit.com/r/ChikaPH/comments/1oemt6p/is_this_true_rip_emman/nl31y72
 https://old.reddit.com/r/ChikaPH/comments/1oemt6p/is_this_true_rip_emman/nl2oozj/
 
 https://old.reddit.com/r/ChikaPH/comments/1oemt6p/is_this_true_rip_emman/nl2pway/
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl2rojm/
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl2tb8j/
+
+<img width="1222" height="520" alt="image" src="https://github.com/user-attachments/assets/89d55d2c-b461-4216-b4c1-f1ae62148b84" /> Trump-language is waht this GitHub is about. Finnegans Wake, Babel Tower.
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl2th6i/
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl34g5p/
+
+We The People have been mind-fucked by Russia since year 2013. Denial abouunds. Surkov won.
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl2ru1p/
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl2zs65/
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl2qwsk/
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl2vnzu/
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl2ycns/
+
+https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_negotiations_with_canada/nl2s3h0/
+
+Surkov won since year 2013.
+
