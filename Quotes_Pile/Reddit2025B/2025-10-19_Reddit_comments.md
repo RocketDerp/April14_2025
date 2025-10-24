@@ -2174,3 +2174,35 @@ Any hate can be justified if wrapped in fiction. Surkov governing / information 
 https://old.reddit.com/r/Music/comments/1of252g/moron_kid_rock_slammed_as_he_shares_a_lie_that/nl5v2nc/
 
 Russia's IRA and CA drove people into self-harm. At best, many people will try not to actively harm others.  A society where 1 in 10 are predatory who prize 20 kills each doesn't take long to turn all life into hell. Let alone wiht 3 out of 10 prize 25 kill each. People fell in love with IRA memes and machines. A person can't compete with fiction fantasy outselling a real human person. "Not good enough" Bernie Sanders ideas in 2025, not good enough Malala since year 2013. A planet of 8 billion people and people do not cherry-pick cheries, people since year 2013 prize hate and predatory agressive programming of billlonaires to self-harm. People can't even accept a natural cherry, a real human person, too many augmented clothing / makeup actors and sports stars too choose from. Always another star to fill the mind with. 
+
+https://old.reddit.com/r/NoFilterNews/comments/1of0ter/rand_paul_says_hes_sick_of_republicans_caving_to/nl5k1lp/
+
+There is no limit, no bottom, of how much Reddit audience upvotes sex with Trump keywords. Diaper fetish, poop, licking his balls and ass. People can not stop resisting adopting the hate of Donald Trump. Endlessly for over a decade, people prize the hate signals and rich white men sex symbol. They clain it is sarcasm and jokes, but it's wrecked the entire nation because people will not stop their fixation on the trash mindsets.
+
+https://old.reddit.com/r/NoFilterNews/comments/1of0ter/rand_paul_says_hes_sick_of_republicans_caving_to/nl5k7b1/
+
+Irrelevant. Good ideas are not accepted except prizing of no-identity Reddit high-speed commenting. A real person behind an idea, mind-blocked.
+
+https://old.reddit.com/r/NoFilterNews/comments/1of0ter/rand_paul_says_hes_sick_of_republicans_caving_to/nl5y31d/
+
+Prizing of disposable commenting above calling for serious focus on media ecology. Prizing a total mockery society.
+
+https://old.reddit.com/r/NoFilterNews/comments/1of0ter/rand_paul_says_hes_sick_of_republicans_caving_to/nl69v9l/
+
+Prizing media decorqtion, media style of presentation, over reality. Fiction addictions.
+
+https://old.reddit.com/r/NoFilterNews/comments/1of0ter/rand_paul_says_hes_sick_of_republicans_caving_to/nl5vicr/
+
+Look around on Bluesky and Reddit to understand. Badness and self-harm is prized. Dehumanization and blocking is prized, machine lust to deport / export / block people. Egoism / egomania abounds. Understand goodness isn't popular. Low-efort disposable commenting and bad ideas are popular.
+
+https://old.reddit.com/r/NoFilterNews/comments/1of0ter/rand_paul_says_hes_sick_of_republicans_caving_to/nl5l0c4/
+
+Interet Reasarch Agench changed all mindsets into simualcra and favoring of fiction, since March 2013, and nobody can see the forest for the trees. Only feedback loops of "the others".
+
+https://old.reddit.com/r/NoFilterNews/comments/1of0ter/rand_paul_says_hes_sick_of_republicans_caving_to/nl5mdoc/
+
+Wanting to deport and silence people, "shut the fuck up", others. MAGA values, USA values.
+
+https://old.reddit.com/r/NoFilterNews/comments/1of0ter/rand_paul_says_hes_sick_of_republicans_caving_to/nl5q11t/
+
+But not Reddit addicts who enabled Putin's Media Invasion, the IRA. And only care to mock the out-group, just as other media platforms do.
