@@ -1962,3 +1962,8 @@ https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_h
 https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl1xdr8/
 
 War against empathy.
+
+https://old.reddit.com/r/politics/comments/1oemp1b/trump_says_all_us_trade_negotiations_with_canada/nl2mgsi/
+
+This is the type of citation commenting that should be prized.
+
