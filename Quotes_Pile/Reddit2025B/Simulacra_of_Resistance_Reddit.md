@@ -118,3 +118,13 @@ https://old.reddit.com/r/MurderedByWords/comments/1oe5z4c/how_soon_we_forget/
 
 "Freaked out", "meltdown", endless out-group feedback loops of "owning the libs". Media simualcra vs. media simulacra. Entertainment politics. Antics politcs. Twitter-think reactionary mindsets. CA / IRA outcomes. 
 
+&nbsp;
+
+&nbsp;
+
+Friday, October 24, 2025
+
+https://old.reddit.com/r/politics/comments/1oexcpy/donald_trump_sued_over_east_wing_demolition/
+
+ANYTHING to avoid dealing with the Fox News media cult problem, the Reddit media cult problems. Very top of the front page of Reddit. The government has the right to change their buildings. The problem is We The People who prize self-harm to the nation. Who react to everything instead of standing up for goodness. This is mroe simualcra of resistance. The wing of the White House is already torn down.
+
