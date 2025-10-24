@@ -2051,3 +2051,101 @@ https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to
 
 Hate is a problem every day of life. In every area of life. Not just voting and elections. Even on Reddit, hate is a problem. Lust for machines and hate for human persons.
 
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4aqnm/
+
+Audience puppet phrases. Reactionary mindsets. For the Reddit hate-motivated audience.  ... ... ...     
+"the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. Surkov is at the centre of the show, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable.
+
+This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for neuro-linguistic programming and Eriksonian hypnosis: types of subliminal manipulation based largely on confusing your opponent, first developed in the US in the 1960s. There are countless NLP and Eriksonian training centres in Moscow, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator. Newly translated postmodernist texts give philosophical weight to the Surkovian power model. François Lyotard, the French theoretician of postmodernism, began to be translated in Russia only towards the end of the 1990s, at exactly the time Surkov joined the government. The author of Almost Zero loves to invoke such Lyotardian concepts as the breakdown of grand cultural narratives and the fragmentation of truth: ideas that still sound quite fresh in Russia." - October 20, 2011 - https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+https://old.reddit.com/r/law/comments/1o6ocgl/trump_stating_he_is_going_after_democratic/njhxy6s/
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4j70c/
+
+The White House moved into TokTok, government BlueSky accounts. This is exapnsion beyond Fox News. The "chronically Fox News" society has the same problems as Reddit audience: fiction addiction. The Palestine and Israel: chronic science ficiton Quran, chronic science fiction Torah.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4mexv/
+
+Prizing suffering, prizing hate. Lovers of systems, lust for systemic power, touch device system lovers, who hate human persons. ... ... ...       
+"That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the refusal to defeat any individual. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. Individuals who happen to be caught up in that system, you love, but you seek to defeat the system." - November 15, 1957 - Dr. Martin Luther King Jr.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4q8co/
+
+Russian Internet Research Agency since March 2013 got ahold of Mass Man (Toronto McLuhan term) / Mass Mind (NYC Howard Bloom term) / Hive Mind (Reddit year 2014 term) of society, including Reddit. Cambridge Analytica manipulated the mass-mind inversions of mob mentality, making hate attractive.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl56dqf/
+
+<img width="1182" height="828" alt="image" src="https://github.com/user-attachments/assets/9477443c-5676-45f2-863b-101f05f4f96d" /> People in deep denial, act like this is incompetence. Eating the Surkov governing / eating the Tony Clifton antics. This is organized, well executed, and dominating Reddit audience minds.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl58q07/
+
+Anti-NATO pro-Russia. Anti-goodness. Self-harm USA.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl58clv/
+
+Yes. Caling people "clown" avoids the audience problem. Fox News draws a massive audience. Science fiction Bible clowning draws people to addictions to fiction. Reddit low-effort clowning messages draws people in every day. Tony Clifton acts by the White House are incredibly popular. Mocking President Tony Clifton is not resisting the power mechanics of Tony Clifton acts. **Unpopularity is popular, mocking and insutling Tony Clifton acts is pouplar. Calling Tony Clifton bad and clown is popular.** ... ... ...         
+
+"here we get the phenomenon of Reagan, the hyperreal president. More real than real. I mean he’s better at being Harry Truman than Harry Truman. I mean, the distinction about what he is is lost in the hyperreality of his smile, which like the Cheshire Cat’s, you know, just gleams across his face. And we get for the first time a phenomenon never known in polling which is the phenomenon of not liking a person, but of liking liking a person. This is a sign you are dealing with the hyperreal. Let me go over that again: Reagan’s popularity was popular. When you went through the various traits of Reagan and what **Reagan stood for and his policies and so on, ah, vast numbers of people disliked nearly all of them. What was popular was his popularity**. And I don’t think that Reagan’s alone in this." - Texan Rick Roderick, Duke University https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl55ghl/
+
+Yes. which is why the answer is for social media society to face up that social media started this trending (ate the IRA toxic) and needs to stop it. [Operation Matthew 4:19](/Operation_Matthew_4_19_on_monday_2024-03-31.md)
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl5748a/
+
+It's etremely popular. It wins every debate. No technique can overcome the mob mentality of people attacking a serious person. Crowds are drawn to intelligence and belittle it in mob mentality. ... ... ...     
+"Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and they work." - https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4iart/
+
+It is not "only geriatrics". It is every peson. Fiction leadership is prized. People do not even understand or seek nonfiction. Wiki nonfiction refinement and understand inot prized, low-effort disposable high-speed commenting and reactions prized above all else. This is all genders, all ages. People have no idea what the Surkov monomyth patterns unleashed. An addiction to fiction so deep people will die for meme decoration above all else. Die for a fixation on art style / poetry style / animation style / tone and fashion / etc.   Death for a fiction story character. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...   
+
+JOSEPH CAMPBELL: It’s been said that poetry consists of letting the word be heard beyond words. And Goethe says, “All things are metaphors.” Everything that’s transitory is but a metaphorical reference. That’s what we all are.
+
+BILL MOYERS: But how does one worship a metaphor, love a metaphor, die for a metaphor?
+
+JOSEPH CAMPBELL: **That’s what people are doing all over the place — dying for metaphors**. But when you really realize the sound, “AUM,” the sound of the mystery of the word everywhere, then you don’t have to go out and die for anything because it’s right there all around. Just sit still and see it and experience it and know it. That’s a peak experience.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4rkwk/
+
+Yes. Age 10 children are crying for Charlie Kirk's death. This isn't just the elderly.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4fee3/
+
+Look at the pro-hate pro-dehumanization behaviors on Reddit. People on Facebook use real names and real photographs of their life. Reddit self-dehumanizes and prizes dehumanization via machines.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4kfb0/
+
+Fiction outsells nonfiction. Nonfiction is insulted and mocked as boring / bad.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4rfji/
+
+1993 Rick Roderick: "And the charm of Rorty’s answer is it’s so American. It’s deeply rooted in our culture, in both **the anti-intellectualism of our culture, in our fear of eggheads** and so on, and so in that sense it has a double significance. Positively it means that the work of intellectuals has always been separated off from the work of ordinary people. In other words, you have to be freed from the constraints of manual labour. When I was a dishwasher, I didn’t have a lot of time to do this. When I was a union organiser, I didn’t have a lot of time to do this. Any time I was involved in manual labour, I didn’t really have the time to do this intellectual work. That separation, that fateful separation between intellectual and manual labour has been with philosophy throughout. It’s rather disappointing though to have that tradition – the great tradition of thinking in general – be reduced to a comment like “Well, gee… I don’t care. We haven’t figured it out”" - https://rickroderick.org/301-paul-ricoeur-the-masters-of-suspicion-1993/
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4wfzg/
+
+Monomyth mind-fuck, inverting reality.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4yh7h/
+
+We have been iterating finn cycles on many media stages. Fox News audience has been iterating cycles for decades. Reddit since year 2013 eating out of the hands of Putin and Surkov students.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl50r6t/
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4d14k/
+
+Rancid, toxic. Pro-hate society. it isn't the administration, it's meme machine addicts, touch device addicts. Entertainment / amusement addicts. People who have sold out goodness in favor of meme decoration. Reddit is ground zero. LOL-washing, milking Trump as a "LOL cow" of endless entertaiment. Amusement-washing. Surkovian techniques. Joke-washing. September 10, 2025 - "The 40-Year-Old Book That Predicted Our Dystopian Politics" https://time.com/7313999/neil-postman-trump-prediction/
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl59ecc/
+
+Bluesky and Reddit have never been more gleeful in their life. The out-group hate, hate MAGA, hate humanism hate MLK Jr., hate nonfiction, hate defending against Russia. Fiction addictions run the WHOLE society who keeps blaiming other sub-groups. Hate is the problem for EVERY group. Hate upon the Earth, toxic poison of the world.. is a problem for ALL people. Not just sub-groups.
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4da3f/
+
+That's how it works. Ass-bacwards meaning. INVERTED. ... ... ...        
+"In contrast to the Oriental (Buddhist and Vedantic) ways of interpreting the symbolism of the guarded gate and passage to the Tree of Life — as referring, namely, to an inward, psychological, barrier and crisis of transcendence — the authorized Christian reading has been of an actual, concrete, historic event of atonement with an angry god, who for centuries had withheld his boon of paradise from mankind, until strangely reconciled by this curious self-giving of his only son to a criminal’s death on the Cross. The fact of the crucifixion was **read as the central fact of all history, and along with it certain other associated “facts” were accepted**, such as in other mythological traditions would be interpreted psychologically (or, as theologians say, “spiritually”) as symbols; such as (1) the Virgin Birth, (2) the Resurrection, (3) the Ascension, (4) the existence of a heaven to which a physical body might ascend, and, of course, (5) the Fall in the garden of Eden, c. 4004 B.C., from the guilt of which the Crucifixion has redeemed us." https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4i7a5/
+
+Tiny-short message addicts who say others can not read, while fixated on disposable commenting. Trump Onion Fans. Eating the fiction storytelling without any self-awareness of the audience reacting all around on Reddit. Unable to defend USA against Putin / Russian / Surkov student techniques. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
