@@ -13,3 +13,14 @@ Everyone is so untrue, Everyone in U.S.A. society prizes deception.
 
 If Billy Joel can say "Everyone", I can say "Everyone", especially in October 2025.
 
+&nbsp;
+
+&nbsp;
+
+## Programmed for Audiences
+
+We programmed machines to manipulate us.
+
+ChatGPT 5:
+
+https://old.reddit.com/r/ChatGPT/comments/1oetzub/i_do_find_this_just_amazing/
