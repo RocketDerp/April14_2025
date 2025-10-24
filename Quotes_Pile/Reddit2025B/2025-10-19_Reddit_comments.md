@@ -2149,3 +2149,8 @@ https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_s
 
 Tiny-short message addicts who say others can not read, while fixated on disposable commenting. Trump Onion Fans. Eating the fiction storytelling without any self-awareness of the audience reacting all around on Reddit. Unable to defend USA against Putin / Russian / Surkov student techniques. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/technology/comments/1oeuyyu/dhs_posts_video_featuring_song_popular_with_nazi/nl4db5b/
+
+<img width="1564" height="638" alt="image" src="https://github.com/user-attachments/assets/697ac324-37de-4de4-9508-1d0a725912a9" /> Bluesky, where book-burning is organized. The media ecolocy ignorance. In year 1937, they did not have Unicode cloud computing systems like Bluesky, you had to burn paper magazines and newsletters with flame and paper. Now it's done with "lists" of disagreeble people to "burn". ... ... ...      
+Heinrich Heine: "Where they burn books, they will also ultimately burn people" (German-Jewish poet wrote these words in his 1821 play Almansor). Ray Bradbury, who stated, "You don't have to burn books to destroy a culture. Just get people to stop reading them", and Dwight D. Eisenhower, who warned, "Don't join the book burners"
+
