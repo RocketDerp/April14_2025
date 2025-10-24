@@ -1737,3 +1737,10 @@ https://old.reddit.com/r/politics/comments/1oaq8je/the_depth_of_magas_moral_coll
 
 Trump is "One world Order"     
 https://old.reddit.com/r/PoliticalHumor/comments/1odpeb9/ya_think/
+
+&nbsp;
+
+&nbsp;
+
+Sports mentality, fame mentality, wealth mentality, gambling mentality    
+https://old.reddit.com/r/nba/comments/1of5k55/jaylen_brown_on_sports_betting_that_whole_world/
