@@ -1967,3 +1967,8 @@ https://old.reddit.com/r/politics/comments/1oemp1b/trump_says_all_us_trade_negot
 
 This is the type of citation commenting that should be prized.
 
+https://old.reddit.com/r/ChikaPH/comments/1oemt6p/is_this_true_rip_emman/nl31y72/
+
+https://old.reddit.com/r/ChikaPH/comments/1oemt6p/is_this_true_rip_emman/nl2oozj/
+
+https://old.reddit.com/r/ChikaPH/comments/1oemt6p/is_this_true_rip_emman/nl2pway/
