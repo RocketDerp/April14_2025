@@ -2206,3 +2206,16 @@ Wanting to deport and silence people, "shut the fuck up", others. MAGA values, U
 https://old.reddit.com/r/NoFilterNews/comments/1of0ter/rand_paul_says_hes_sick_of_republicans_caving_to/nl5q11t/
 
 But not Reddit addicts who enabled Putin's Media Invasion, the IRA. And only care to mock the out-group, just as other media platforms do.
+
+https://old.reddit.com/r/news/comments/1of2x8b/school_staff_member_dies_after_being_kicked_by/nl67nvx/
+
+And entertainment glorifies using physical violence, strength, weapon systems, bars and tools, to "settle disputes". Action heroes. Revenge / payback / settle scores.
+
+https://old.reddit.com/r/news/comments/1of2x8b/school_staff_member_dies_after_being_kicked_by/nl6dj41/
+
+Reddit is designed to scare you? No, the audience craves nonfiction and hate. Following hate leaders like Donald Trump to mock and hate: orange skin, diapers, golf course, langauge. Instead of asserting goodness, people flock to react and adopt hate.
+
+https://old.reddit.com/r/clevercomebacks/comments/1of10gr/whose_side_is_he_on/nl6h8hr/
+
+And people prize Trump's crimes. It gives them more content to mock and insult. People prize the hate, prize the power. Reddit audience flocks to hate leadership and adopts hate.
+
