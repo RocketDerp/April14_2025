@@ -1999,3 +1999,55 @@ https://old.reddit.com/r/Economics/comments/1oen2q4/trump_says_all_us_trade_nego
 
 Surkov won since year 2013.
 
+https://old.reddit.com/r/nextfuckinglevel/comments/1oen3ck/mechanical_engineering_hobbyist_explains_the/nl35t1b/
+
+Wake the Finnegans.
+
+https://old.reddit.com/r/Damnthatsinteresting/comments/1oeo6v1/in_1997_warlord_charles_taylor_ran_for_president/nl30gfp/
+
+https://old.reddit.com/r/LivestreamFail/comments/1oer82a/russian_vtuber_klinsy_cheers_genocide_and/nl4hocy/
+
+The IRA made hate "cool". There is no preaching on why hate is bad. Just forbidding of it. In USA, our public schools do not teach comparative mythology, that religions are science fiction (magical angels our outer-space aliens. Eden is not a proven planet). Hate media platforms of science fiction Torah vs. science fiction Bible media / Church venue, and all the variations and out-group hate over childhood story indoctrination. How all those mind patterns apply to modern-day Twitch streamers, subreddit content, etc.
+
+https://old.reddit.com/r/LivestreamFail/comments/1oer82a/russian_vtuber_klinsy_cheers_genocide_and/nl43r9l/
+
+https://old.reddit.com/r/LivestreamFail/comments/1oer82a/russian_vtuber_klinsy_cheers_genocide_and/nl3oq13/
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl4m4ks/
+
+New account.
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl4iq5j/
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl4fve4/
+
+The faith in bullying. These issues are much larger than 'cooperation', it is the attraction to badness itself that drives every area of USA society now. Every group wants to harm other groups. Surkov won since year 2013.
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl4mp50/
+
+People think and behave as if "evil" is cool. Cheer on that it is "bad-ass" and "strong" to avoid goodness.
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl4c03t/
+
+The craving for more and more deception. Always calling for more badness in the face of bad.
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl45bk4/
+
+Sports mentality, "winner takes all", military thinking. So many are convinced hate is rewarding. I find hate sickening no matter which "team" people originate it from. Hate is bad. People have faith in hate. Fait in deception. Faith in mocking.
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl4de0t/
+
+The Middle East / Levant clergy has found this popular. Subreddit moderators found this popular. Love and compassion isn't "cool" or attractive to people who prize hate. The prizing of hate is the problem. Self-harm on a global scale is a human problem we are not facing. USA has the education, teching, learning, information systems. But pepole are attracted to teams of hate.
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl4d20v/
+
+Faith in hate. People have blind and total faith that hate will improve hate.
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl4hl9j/
+
+Every person thinking for thier own self is egoism. Goodness is goodness. Thinking badness is a problem regardless of independence. Faith in hate, faith in killing, faith in war, faith in badness itself is a problem. Freedom to hate and freedom do dehumanizae is not acceptable. Levant clergy that teaches that Satan is a team you can join - just because, is the problem. Satan isn't a valid choice. Poisoning the earth and war isn't a valid choice. We are not learning from world wars and mistakes.
+
+https://old.reddit.com/r/politics/comments/1oetzna/the_gop_expected_democrats_to_relent_on_the/nl4hxya/
+
+Hate is a problem every day of life. In every area of life. Not just voting and elections. Even on Reddit, hate is a problem. Lust for machines and hate for human persons.
+
