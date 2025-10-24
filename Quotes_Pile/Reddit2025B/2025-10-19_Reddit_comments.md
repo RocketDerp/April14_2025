@@ -1924,3 +1924,41 @@ You know what occurred to me? We teach everything in the world to people, except
 - From the chapter "The Art of Being Fully Human" page 127 of "Living, Loving & Learning" by Leo Buscaglia, Ph. D. as he refers to Haim Ginott's book. Video of Leo B speaking quote https://youtu.be/OZ2fe9rVlgg?t=792
 
 https://old.reddit.com/r/goodnews/comments/1oecvc4/joe_rogan_faces_backlash_after_mocking_the_no/nl0yfhi/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1oehwg1/everybody_apologizing_for_cheating_with_chatgpt/nl1oxzd/
+
+Fake detectors.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1oehwg1/everybody_apologizing_for_cheating_with_chatgpt/nl1tlik/
+
+It is a "win debate" and dehumanie tactic common on Reddit in year 2025.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1oehwg1/everybody_apologizing_for_cheating_with_chatgpt/nl1pxpt/
+
+And since July 2015, Donald Trump is the role model for parenting, business, children. Aspire to communicate and dominate like Trump.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1oehwg1/everybody_apologizing_for_cheating_with_chatgpt/nl1pqpk/
+
+Same. My hadnwriting is terrible. Now so too is my typing.
+
+https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl1eegr/
+
+Such interesting timing for this posting on Reddit.
+
+https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl17ict/
+
+https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl1aav6/
+
+https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl17q0g/
+
+https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl1758q/
+
+https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl1a1fe/
+
+https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl1j5a5/
+
+https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl1yv0c/
+
+https://old.reddit.com/r/PortlandOR/comments/1oefu3i/mother_confronts_group_of_homeless_drug_addicts/nl1xdr8/
+
+War against empathy.
