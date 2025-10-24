@@ -921,3 +921,10 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1oe1xy3/us/
 
 Hot man photos. Luigi. Worship a murderer. A manipulator, a killer, a sneak-attack gun worshiper. Prizing hate, fith in hate, worship of hate. Instead of promoting the Second Bill of Rights in USA on social media since December 4, 2024 - promoting violence and hate. Anti-goodness prized. The only lesson being taught here is to prize dehumanization. Which health insurance in USA does, dehumanizes.      
 https://old.reddit.com/r/LetGirlsHaveFun/comments/1oe6lhf/shes_right/
+
+&nbsp;
+
+&nbsp;
+
+Comedy-washing Trump quotes as entertainment, front page of Reddit. Amusement mill, meme mill. addicts to everything as entertainment and comedy have taken over the nation. Neil Postman's 1985 book "Amusing Ourselves To Death", everything is humor. Comedy-washing.      
+https://old.reddit.com/r/comedyheaven/comments/1oexel9/biggest_fan/
