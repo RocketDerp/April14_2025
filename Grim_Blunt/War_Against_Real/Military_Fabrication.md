@@ -10,3 +10,16 @@ https://old.reddit.com/r/worldnews/comments/1ofj2d9/venezuelas_maduro_says_us_fa
 Ah, Baudrillard, ah, was offered a job by a French newspaper to cover the war. So of course he agreed on condition he not go to the Gulf because he wanted to cover it on CNN where it would really happen, follow me? I mean the war would really… who won or lost would be told to us on CNN. We won’t know who won or lost anywhere else, so to cover the war in the sense of hyperreality, the way to cover it is sitting in one’s flat in Paris on CNN. That’s how he covered the war."
 
 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+&nbsp;
+
+&nbsp;
+
+# “The Enemy Has Disappeared”
+
+1992, one year before Roderick's lecture.
+
+The military technology of an aircraft carrier, the year 1992 military leaders / architects "force projection".
+
+“With the rise of Technopoly, one of those thought-worlds **disappears**. Technopoly eliminates alternatives to itself in precisely the way Aldous Huxley outlined in Brave New World. It does not make them illegal. It does not make them immoral. It does not even make them unpopular. **It makes them invisible** and therefore irrelevant. And it does so by redefining what we mean by religion, by art, by family, by politics, by history, by truth, by privacy, by intelligence, so that our definitions fit its new requirements. Technopoly, in other words, is totalitarian technocracy.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, 1992
+
