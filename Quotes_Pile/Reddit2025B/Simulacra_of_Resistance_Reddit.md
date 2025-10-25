@@ -128,3 +128,13 @@ https://old.reddit.com/r/politics/comments/1oexcpy/donald_trump_sued_over_east_w
 
 ANYTHING to avoid dealing with the Fox News media cult problem, the Reddit media cult problems. Very top of the front page of Reddit. The government has the right to change their buildings. The problem is We The People who prize self-harm to the nation. Who react to everything instead of standing up for goodness. This is mroe simualcra of resistance. The wing of the White House is already torn down.
 
+&nbsp;
+
+&nbsp;
+
+Saturday, October 25, 2025
+
+https://old.reddit.com/r/goodnews/comments/1ofo81r/gavin_newsom_decimated_donald_trump_he_is_a/
+
+Denial of destruction of NATO, denial of Russia. Donald Trump is incredibly strong at wrecking the future of the USA in service to Putin mental programming since year 2013. People have given up on science leadership and nonfiction. "Amusing Ourselves to Death" 1985 book by Neil Postman explains all the denial people have, the addiction to touch-device media content. Trump provides nonstop fiction-based leadership into self-harm. This isn't weak, it is a froce nobody can stop. Like calling cancer "weak", or calling a nulcear bomb wrecking a city "weak". It's a fundamental misunderstanding of realty and truth to declare Trump as a society-wide / population-wide force of "weak". This speec "decimated" nothing, it added to the bullshit, added to misunderstadnings, added to the pile of fiction content, added to anti-reality about the sitution. Putin has wrecked the USA via the IRA since year 2013. Denial abounds. Absolute denial of reality an the real situation.
+
