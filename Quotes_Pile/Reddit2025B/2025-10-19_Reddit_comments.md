@@ -2312,3 +2312,32 @@ https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest
 https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest_jb_pritzker/nl8purp/
 
 Minds blown into meme stupor states as reality is being overwritten. As rules are changed.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ofigsx/something_like_this/nlaj2zb/
+
+No links, no author names, no book titles, no article title, no quotes, etc. Reddit has been online for 20 years, anyone who thinks that it is 'underground' and USA government can't idetify people is uneducated on server-side infrastructure / advertising networks / time-based profiling of activities / that ISP-level monitoring (especially mobile and time periods).. well ...
+
+https://old.reddit.com/r/CringeTikToks/comments/1ofigsx/something_like_this/nlawcj8/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ofigsx/something_like_this/nl9hx5w/
+
+The reason for this GitHub. People just don't get it. Science fiction storytelling, monomyth stories, are self-harm of a nation who stares into them. Russia is self-harming at Surkov monomyth, Israel is self-harming. Faith in Eden as a literal reward is self-harm to Earth, condemnation of life on Earth as a wrecking ground of conquest. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+JOSEPH CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. **It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future**.
+MOYERS: What kind of new myth do we need?
+CAMPBELL: We need myths that will identify the individual not with his local group but **with the planet**. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+MOYERS: There is something about that on the Great Seal of the United States.
+CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ofigsx/something_like_this/nla62e2/
+
+Reddit society adores mocking and insulting Trump sex. Epstein private yet sex, sex with Ivanka, poop siaper sex, South Park 2025 sex with Satan, on and on. Addiction to mocking itself drives the USA socieety. Prizing hate, prizing abuse by power symbolism (POTUS).
+
+https://old.reddit.com/r/CringeTikToks/comments/1ofigsx/something_like_this/nl9md75/
+
+He is leading the nation into fiction leadership. Trump was doing it with Surkov methods of fiction governing since November 7, 2012 agreement to create the IRA.  Throw-away / no-identity Reddit swims in fiction leadership signals. Video game addicts prize video game A.I. environments. Trump has consistently shown: anti-reality media, *being against nonfiction learning*, "fake news" is a rally call - a charge against nonfiction call to arms... rewriting reality. He is an addict to fiction leading a nation that prizes mocking goodness, insulting goodness, abandoning nonfiction and science thinking leadership of the world.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ofigsx/something_like_this/nl9v5rr/
+
+Reddit audience loves that Trump world of bullshit and images of Trump sex content keep expanding. Anything to avoid learning nonfiction media ecology, anything to feed addiction to Trump media. This has been going on FOR OVER TEN YEARS AND FOUR MONTHS. A society that abandoned goodness for amusement and entrtainment leadership.
+
