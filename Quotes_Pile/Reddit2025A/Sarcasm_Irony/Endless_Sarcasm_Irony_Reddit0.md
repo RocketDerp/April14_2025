@@ -935,3 +935,10 @@ https://old.reddit.com/r/comedyheaven/comments/1oexel9/biggest_fan/
 
 "Fun and memes", that's Reddit the amusement mill. That's "Amusing Ourselves To Death" as described in the 1985 book by Neil Postman. It is a TOTAL SOCIETY PROBLEM, ALL INCLUSIVE, 100%. Memes to death, joke-washing, meme-thnking, meme-mindset problem since year 2013. Surkov won.      
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1ofstam/its_all_fun_and_memes_until_someone_needs_food/
+
+&nbsp;
+
+&nbsp;
+
+Reddit socity is against nonfiction expressed directly. Quotes, citations, links. Satire-washing Donald Trump society, meme-washing, amusement-washing, entertainment-washing everything. A simulacra mind-game of endlessly avoiding Wiki style refinement of common understanding in favor of fragmented "tactical cleverness" (1940 Great Dictator, 1951 Hannah A).      
+https://old.reddit.com/r/memes/comments/1ofuyk4/why_is_reddit_allergic_to_straight_answers/
