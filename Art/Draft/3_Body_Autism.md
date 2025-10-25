@@ -23,3 +23,6 @@ April 14, 2025
 
 Most irritating person evern encountered in all life, autistic      
 https://www.yahoo.com/news/elon-musk-most-irritating-person-222004495.html
+
+This is in the context that Donald Trump is extremely popular, attracts hate, attracts dehumanization. Popularity itself of a star / super star.
+
