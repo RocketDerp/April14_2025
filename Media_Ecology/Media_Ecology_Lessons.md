@@ -905,4 +905,16 @@ https://archive.vanityfair.com/article/2009/1/the-devil-at-37000-feet
 
 I spot errors on October 23, 2025: "They were stickand-rudder men" "training is classroomand simulator-based." "He said, “Twentyfive-oh-five. That’s why I write it down.”" - is that last one style or error?
 
+&nbsp;
 
+&nbsp;
+
+### New books, promoting books
+
+https://www.youtube.com/watch?v=QN1rULxGHCA
+
+The convergence... do recognize that ChatGPT readds books and is knowledgable?  
+
+https://youtu.be/QN1rULxGHCA?t=270
+
+The purpose of books is to *entertain us*... 
