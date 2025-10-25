@@ -97,3 +97,11 @@ The utility of men, msut be entertaining (sports stars, actors, entertainers, mu
 https://old.reddit.com/r/Adulting/comments/1nk1nsa/whats_your_take_on_this/
 
 Then those men feel they have to *earn* digity and emotonal worth, conquest women. Arrange systems of control over women. As Malala describes in her October 8, 2013 book of bieng a girl under the Taliban.  
+
+&nbsp;
+
+&nbsp;
+
+Instead of preaching against hate, prizing hate. The microsphone is right there to say "hate is bad".
+
+https://old.reddit.com/r/TikTokCringe/comments/1og06hy/dont_ask_the_question_if_youre_not_prepared_to/
