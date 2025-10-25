@@ -928,3 +928,10 @@ https://old.reddit.com/r/LetGirlsHaveFun/comments/1oe6lhf/shes_right/
 
 Comedy-washing Trump quotes as entertainment, front page of Reddit. Amusement mill, meme mill. addicts to everything as entertainment and comedy have taken over the nation. Neil Postman's 1985 book "Amusing Ourselves To Death", everything is humor. Comedy-washing.      
 https://old.reddit.com/r/comedyheaven/comments/1oexel9/biggest_fan/
+
+&nbsp;
+
+&nbsp;
+
+"Fun and memes", that's Reddit the amusement mill. That's "Amusing Ourselves To Death" as described in the 1985 book by Neil Postman. It is a TOTAL SOCIETY PROBLEM, ALL INCLUSIVE, 100%. Memes to death, joke-washing, meme-thnking, meme-mindset problem since year 2013. Surkov won.      
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ofstam/its_all_fun_and_memes_until_someone_needs_food/
