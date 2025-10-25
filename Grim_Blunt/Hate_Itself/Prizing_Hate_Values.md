@@ -102,6 +102,6 @@ Then those men feel they have to *earn* digity and emotonal worth, conquest wome
 
 &nbsp;
 
-Instead of preaching against hate, prizing hate. The microsphone is right there to say "hate is bad".
+Instead of preaching against hate, prizing hate. The microphone is right there to say "hate is bad".
 
 https://old.reddit.com/r/TikTokCringe/comments/1og06hy/dont_ask_the_question_if_youre_not_prepared_to/
