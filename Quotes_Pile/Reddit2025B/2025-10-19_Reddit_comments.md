@@ -2284,3 +2284,31 @@ Tony Clifton shows are all about the audience insulting Tony Clifton.
 https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl703kp/
 
 Minds blown by Trump entertainment leadership.
+
+https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest_jb_pritzker/nl898xy/
+
+Reddit deaath-wishing, gun worship, as a solution to thinking problems.
+
+https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest_jb_pritzker/nl8h16p/
+
+https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest_jb_pritzker/nl8igzv/
+
+More when you look at social media behaviors. Technology lust / machine lovers. A huge part of what people won't listen to.
+
+https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest_jb_pritzker/nl8d500/
+
+Langauge and communications, "meme speak" is a joke. All humor-washing joke-washing. Neil Postman's 1985 book "Amusing Ourselves To Death". People no longer are intersted in goodness, flocking to badness, and interpretation of language and communcations is skewed to self-harm and badness. 
+
+https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest_jb_pritzker/nl898mm/
+
+Saudi Arabia.  Fiction driven, science ficiton theme park of Mecca. Dictator in outer space with wildcard interpretations of the poetry.
+
+https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest_jb_pritzker/nl8hks4/
+
+Exactly the kind of Duke students Rick Roderick described in year 1993.
+
+https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest_jb_pritzker/nl8eyrk/
+
+https://old.reddit.com/r/law/comments/1ofd2z9/stephen_miller_threatens_to_arrest_jb_pritzker/nl8purp/
+
+Minds blown into meme stupor states as reality is being overwritten. As rules are changed.
