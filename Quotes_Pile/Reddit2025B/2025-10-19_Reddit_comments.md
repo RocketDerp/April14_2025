@@ -2406,3 +2406,36 @@ https://old.reddit.com/r/politics/comments/1ofqypn/rfk_jr_to_urge_americans_to_e
 Living to age 99 with hate isn't winning anything. ... ... ...        
 "some things so eternally true that they're worth dying for. And if a man happens to be 36 years old, as I happen to be, and some great truth stands before the door of his life, some great opportunity to stand up for that which is right, he's afraid his home will get burned, or he's afraid that he will lose his job, or he's afraid that he will get shot or beat down by state troopers. He may go on and live until he's 80, but he's just as dead at 36 as he would be at 80. And the cessation of breathing in his life is merely the belated announcement of an earlier death of the spirit. He died... A man dies when he refuses to stand up for that which is right. A man dies when he refuses to stand up for justice. A man dies when he refuses to take a stand for that which is true." https://en.wikiquote.org/wiki/Martin_Luther_King_Jr.
 
+https://old.reddit.com/r/politics/comments/1ofy7uu/donald_trump_issues_warning_to_canada_i_can_play/nlci6rp/
+
+People do not smell Trump, taste Trump, live in the same room as Trump. He knows where the cameras are, he knows where Twitter and Truth Social are, he is a media figure. And the pattern of media ecology self-harm "Amusing Ourselves to Death" isn't fixed by one man's death. ChatGPT and other systems are trained to prize and seek out that kind of popularity. Where people abandon goodness, abandon compassion, in service to their meme "LOL cow miling" addiction to Trump as an amusement source.
+
+https://old.reddit.com/r/politics/comments/1ofy7uu/donald_trump_issues_warning_to_canada_i_can_play/nlcjl0b/
+
+A funeral for the pandemic deaths, the clergy failed big time. People died in isolation to not spraed the diseases. The unprocessed grief and avoidance of "thank you" to medical and essential works. Celebrating the hard work and lives lost. Instead, we celebrate sports stars playing in rectangle fields.
+
+https://old.reddit.com/r/politics/comments/1ofy7uu/donald_trump_issues_warning_to_canada_i_can_play/nlcjp6w/
+
+Social media laugh track "LOL" for Reddit audience.
+
+https://old.reddit.com/r/politics/comments/1ofy7uu/donald_trump_issues_warning_to_canada_i_can_play/nld1q7s/
+
+Tiny-think, that's the end of that thought pattern. Twitter worship role model of facing the Kremlin / Putin issue of infatuation with Russia messages and symbols.
+
+https://old.reddit.com/r/politics/comments/1ofy7uu/donald_trump_issues_warning_to_canada_i_can_play/nlcjsjn/
+
+This national mindset from Russia is the product of Reddit society satire-washing Putin media invasion, the Internet Research Agency.
+
+https://old.reddit.com/r/politics/comments/1ofy7uu/donald_trump_issues_warning_to_canada_i_can_play/nlcj7hn/
+
+https://old.reddit.com/r/politics/comments/1ofy7uu/donald_trump_issues_warning_to_canada_i_can_play/nlcny0j/
+
+Canada is not playing dirty. People on Reddit have their minds blow that language is being rewritten right in front of them. That Reddit audience has adopted the hate and dehumanization of Trump leadership. ... ... ...     
+"the stage is constantly changing: the country is a dictatorship in the morning, a democracy at lunch, an oligarchy by suppertime, while, backstage, oil companies are expropriated, journalists killed, billions siphoned away. Surkov is at the centre of the show, sponsoring nationalist skinheads one moment, backing human rights groups the next. It’s a strategy of power based on keeping any opposition there may be constantly confused, a ceaseless shape-shifting that is unstoppable because it’s indefinable.
+
+This fusion of despotism and postmodernism, in which no truth is certain, is reflected in the craze among the Russian elite for neuro-linguistic programming and Eriksonian hypnosis: types of subliminal manipulation based largely on confusing your opponent, first developed in the US in the 1960s. There are countless NLP and Eriksonian training centres in Moscow, with every wannabe power-wielder shelling out thousands of dollars to learn how to be the next master manipulator. Newly translated postmodernist texts give philosophical weight to the Surkovian power model. François Lyotard, the French theoretician of postmodernism, began to be translated in Russia only towards the end of the 1990s, at exactly the time Surkov joined the government. The author of Almost Zero loves to invoke such Lyotardian concepts as the breakdown of grand cultural narratives and the fragmentation of truth: ideas that still sound quite fresh in Russia." - October 20, 2011 - https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin
+
+https://old.reddit.com/r/politics/comments/1ofy7uu/donald_trump_issues_warning_to_canada_i_can_play/nlcsrta/
+
+Reddit messages: Give up, don't rescue, let a nuclear powered nation fall under spell of Putin / Russia and let it wreck the whole planet Earth.
+
