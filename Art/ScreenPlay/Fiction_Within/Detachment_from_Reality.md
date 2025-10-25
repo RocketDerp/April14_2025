@@ -9,3 +9,7 @@ https://www.youtube.com/watch?v=Wy8zX11DOak
 
 With reaction    
 https://youtu.be/Wy8zX11DOak?t=173
+
+https://youtu.be/Wy8zX11DOak?t=195    
+3:15 into video     
+“Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 1985
