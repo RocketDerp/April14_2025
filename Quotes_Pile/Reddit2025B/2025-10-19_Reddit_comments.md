@@ -2348,3 +2348,17 @@ https://old.reddit.com/r/PublicFreakout/comments/1ofvl2b/life_before_oct_7th_nev
 https://old.reddit.com/r/PublicFreakout/comments/1ofvl2b/life_before_oct_7th_never_forget_when_israel/nlc8inl/
 
 Hate is a global problem, over 8 billion living people. To focus on one spot for a brief period of time is to miss the forest for the trees. Look at marriages, families, parents who had their children. Hate is a problem all over the world at every scale. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/law/comments/1ofurtb/billionaire_trump_supporter_timothy_mellon/nlbvxp0/
+
+The enemy is the educated people who don't worship wealth and worship fame above all else. If you consume your name-brand sports stars with their owners, you are within the system. Jody Allen / Paul Allen Group leadership models of society. Software, sports, DreamWorks.
+
+https://old.reddit.com/r/law/comments/1ofurtb/billionaire_trump_supporter_timothy_mellon/nlbx9rj/
+
+https://old.reddit.com/r/law/comments/1ofurtb/billionaire_trump_supporter_timothy_mellon/nlc18rx/
+
+It took me a lot of experience at the Bellevue HQ of Paul Allen Group to see how much people prize this system of inequality. We could be over-producing and stockpiling food for disasters and such, but insecurity is the name of the mental programming game.
+
+https://old.reddit.com/r/law/comments/1ofurtb/billionaire_trump_supporter_timothy_mellon/nlbuybv/
+
+Reddit media addict looks forward to more Russian information warfare win, looking forward to more self-harm outcomes of USA.
