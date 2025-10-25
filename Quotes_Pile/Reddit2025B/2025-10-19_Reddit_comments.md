@@ -2341,3 +2341,10 @@ https://old.reddit.com/r/CringeTikToks/comments/1ofigsx/something_like_this/nl9v
 
 Reddit audience loves that Trump world of bullshit and images of Trump sex content keep expanding. Anything to avoid learning nonfiction media ecology, anything to feed addiction to Trump media. This has been going on FOR OVER TEN YEARS AND FOUR MONTHS. A society that abandoned goodness for amusement and entrtainment leadership.
 
+https://old.reddit.com/r/PublicFreakout/comments/1ofvl2b/life_before_oct_7th_never_forget_when_israel/nlc6w59/
+
+"LMAO" laugh-track for Reddit audience. Turning all situations into out-group meme-think. No matter how serious the egomania issues of humanity, washing it away with laugh-track is the  powerful media technique to deploy on the most sophsiticated media systems.
+
+https://old.reddit.com/r/PublicFreakout/comments/1ofvl2b/life_before_oct_7th_never_forget_when_israel/nlc8inl/
+
+Hate is a global problem, over 8 billion living people. To focus on one spot for a brief period of time is to miss the forest for the trees. Look at marriages, families, parents who had their children. Hate is a problem all over the world at every scale. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
