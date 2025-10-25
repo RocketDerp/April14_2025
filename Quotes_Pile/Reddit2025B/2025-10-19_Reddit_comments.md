@@ -2388,3 +2388,21 @@ https://old.reddit.com/r/worldnews/comments/1ofvw3u/trump_ends_canada_access_at_
 
 <img width="1034" height="652" alt="image" src="https://github.com/user-attachments/assets/d3f8d31c-f1d8-43f6-b083-ebdb8fbd6ca2" /> "These people" live in an "alternate reality', but not Reddit. Where people hide real names, real locations, their real human life in favor of low-effort high-speed disposable commenting. Only FOX NEWS HDTV is the "alternate universe" / alt reality screen game / ARG. https://en.wikipedia.org/wiki/Filter_bubble Not subreddit vs. subreddit, filter-bubble egoism vs. filter-bubble egoism. ... ... ...      
 “Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ofurvu/substitute_teacher_fired_on_her_first_day_of/nlcerfc/
+
+The abandonment of goodness. No calls for people to turn the Titanic of society in a new direction, we are just going to keep riding the amusement mills and entertainment addictions.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ofurvu/substitute_teacher_fired_on_her_first_day_of/nlc37fr/
+
+If kids could sus out anti-goodness, we wouldn't be in the world we have been heading into since year 2013. Kids would have revolted by halting entertainment. Parents recommending Donald J. Trump as a role model for childhood sincee June 15, 2015.
+
+https://old.reddit.com/r/politics/comments/1ofqypn/rfk_jr_to_urge_americans_to_eat_more_saturated/nlayuk8/
+
+Humanity flocking to simple-think low-effort commenting is an anti-comprehension media cult. The abandonment of getting on the same page of complex understandings for out-group oriented focus. It isn't just MAGA. It isn't just the USA.
+
+https://old.reddit.com/r/politics/comments/1ofqypn/rfk_jr_to_urge_americans_to_eat_more_saturated/nlc75la/
+
+Living to age 99 with hate isn't winning anything. ... ... ...        
+"some things so eternally true that they're worth dying for. And if a man happens to be 36 years old, as I happen to be, and some great truth stands before the door of his life, some great opportunity to stand up for that which is right, he's afraid his home will get burned, or he's afraid that he will lose his job, or he's afraid that he will get shot or beat down by state troopers. He may go on and live until he's 80, but he's just as dead at 36 as he would be at 80. And the cessation of breathing in his life is merely the belated announcement of an earlier death of the spirit. He died... A man dies when he refuses to stand up for that which is right. A man dies when he refuses to stand up for justice. A man dies when he refuses to take a stand for that which is true." https://en.wikiquote.org/wiki/Martin_Luther_King_Jr.
+
