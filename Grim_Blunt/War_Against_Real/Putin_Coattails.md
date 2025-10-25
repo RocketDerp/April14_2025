@@ -6,7 +6,7 @@ It's a phrase I remember from high school... November 6, 1984 time period. Those
 
 I personally think in a world of 8 billion people with James Joyce defined "History is a Nightmare" (Joseph Campbel's interpretation of Joyce at least, at age 83 in Power of Myth)...
 
-### I detech the egomania at top of the stairs
+### I detect the egomania at top of the stairs
 
 That we don't need orginality unless it's good. What I have seen in my world travels, as the facts unravel, I foubd this to be true: https://www.youtube.com/watch?v=Hp8Oq_q7Bnw
 
