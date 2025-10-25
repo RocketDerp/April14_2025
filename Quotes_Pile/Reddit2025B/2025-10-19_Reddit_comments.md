@@ -2362,3 +2362,29 @@ It took me a lot of experience at the Bellevue HQ of Paul Allen Group to see how
 https://old.reddit.com/r/law/comments/1ofurtb/billionaire_trump_supporter_timothy_mellon/nlbuybv/
 
 Reddit media addict looks forward to more Russian information warfare win, looking forward to more self-harm outcomes of USA.
+
+https://old.reddit.com/r/worldnews/comments/1ofvw3u/trump_ends_canada_access_at_shared_border_library/nlc30co/
+
+The entire USA society. People who flock to MAGA and Trump as a low measuring bar, doing everything they can to avoid Wiki style progress of refined information and understanding in favor of insutling out-groups and hating out-groups. Leading the world with out-group hate messaging systems / information systems.
+
+https://old.reddit.com/r/worldnews/comments/1ofvw3u/trump_ends_canada_access_at_shared_border_library/nlc4a1n/
+
+Yes. Putin won hearts and minds to prize hate, prize out-group hate. But people don't want to study year 2013 and year 2014 learning about the Kremlin infornantion warfare againt Reality itself.
+
+https://old.reddit.com/r/worldnews/comments/1ofvw3u/trump_ends_canada_access_at_shared_border_library/nlc6vb1/
+
+Reddit audience mind-blown. Trump is highly successful at symbolism and information systems / icon systems / to blow Reddit audience minds with surprise. Constantly attracted to antics politics, the Reddit audience.
+
+https://old.reddit.com/r/worldnews/comments/1ofvw3u/trump_ends_canada_access_at_shared_border_library/nlc9byw/
+
+Reddit comment community thinks "Barbie" is a super-smart political discourse. Mocking is not resisting a total mockery. ... ... ...      
+ “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 1985
+
+https://old.reddit.com/r/worldnews/comments/1ofvw3u/trump_ends_canada_access_at_shared_border_library/nlc1x5n/
+
+"LOL" amusement track, laugh-track, for Reddit audience. Look at Tony Clifton declaring he is a great success! Look at what a source of entertainment and amusement Donald Trump is for the Reddit audience. FOR OVER TEN YEARS AND FOUR MONTHS, ENDLESS amusement-washing of Trump. An announcer introducing Clifton as "a man who has sold more records than Elvis and the Beatles combined". https://www.theguardian.com/film/2000/may/25/comment
+
+https://old.reddit.com/r/worldnews/comments/1ofvw3u/trump_ends_canada_access_at_shared_border_library/nlc9emz/
+
+<img width="1034" height="652" alt="image" src="https://github.com/user-attachments/assets/d3f8d31c-f1d8-43f6-b083-ebdb8fbd6ca2" /> "These people" live in an "alternate reality', but not Reddit. Where people hide real names, real locations, their real human life in favor of low-effort high-speed disposable commenting. Only FOX NEWS HDTV is the "alternate universe" / alt reality screen game / ARG. https://en.wikipedia.org/wiki/Filter_bubble Not subreddit vs. subreddit, filter-bubble egoism vs. filter-bubble egoism. ... ... ...      
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
