@@ -2244,3 +2244,43 @@ People are extremely fragile in their egomania of language usage, word patterns.
 https://old.reddit.com/r/complaints/comments/1of7fqj/i_cant_fucking_believe_the_east_wing_of_the_white/nl6yl0s/
 
 People prize hate. Including Reddit messages constantly prizing the hate of Americans, hate of Trump, hate of MAGA, hate of the White House.  Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl6tsbx/
+
+Tony Clifton performances. Reddit audiences flock to shit.
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl7nv5u/
+
+Surkovian governing.
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl7opqh/
+
+Amused audience, rating how excellent the Surkov student screenplays, Tony Clifton acts are.
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl708vk/
+
+That's Reddit society. Diaper jokes, orange skin, poop fetish, "shit posting". Trump is a master of what meme addicts crave, mocking and insulting to "win debate".
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl6zp8y/
+
+Nonsense is prized.
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl71s5h/
+
+Complete ignorance of Russian media methods, Surkov and Putin techniques for 25 years.
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl74ykz/
+
+Absurd surreal blows Reddit audience minds. People can't name unreality warfare, Surkov methods.
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl72unj/
+
+People are crazy. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl706py/
+
+Tony Clifton shows are all about the audience insulting Tony Clifton.
+
+https://old.reddit.com/r/whenthe/comments/1of5mbg/when_the_information_doesnt_mis/nl703kp/
+
+Minds blown by Trump entertainment leadership.
