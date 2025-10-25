@@ -2219,3 +2219,28 @@ https://old.reddit.com/r/clevercomebacks/comments/1of10gr/whose_side_is_he_on/nl
 
 And people prize Trump's crimes. It gives them more content to mock and insult. People prize the hate, prize the power. Reddit audience flocks to hate leadership and adopts hate.
 
+https://old.reddit.com/r/law/comments/1of76xn/pentagon_to_use_130_million_donation_from/nl6z5ws/
+
+<img width="900" height="718" alt="image" src="https://github.com/user-attachments/assets/778f3ca9-b255-4d46-a721-18d5e0c7536e" /> Anti-goodness.
+
+https://old.reddit.com/r/law/comments/1of76xn/pentagon_to_use_130_million_donation_from/nl708a6/
+
+Since March 2013, society-wide. At first I thought it was an "internet social trend" of hate prizing. By sumer of 2015, I was telephoning the Pentagon to report a media invasion (I contacted Samantha at the Pentagon; Monday, August 17, 2015 afternoon).
+
+https://old.reddit.com/r/law/comments/1of76xn/pentagon_to_use_130_million_donation_from/nl744e5/
+
+Satire-washing serious situation, normalization of the situation via mocking.
+
+https://old.reddit.com/r/law/comments/1of76xn/pentagon_to_use_130_million_donation_from/nl7eaxq/
+
+https://old.reddit.com/r/law/comments/1of76xn/pentagon_to_use_130_million_donation_from/nl7jul1/
+
+The "satire" that people love mocking Trump antics isn't satire at all. A nonfiction leader, a science thinking government, would not provide the entertainment stimulation to Reddit audiences.
+
+https://old.reddit.com/r/complaints/comments/1of7fqj/i_cant_fucking_believe_the_east_wing_of_the_white/nl7cliu/
+
+People are extremely fragile in their egomania of language usage, word patterns. Tower of Babel wars are waging.
+
+https://old.reddit.com/r/complaints/comments/1of7fqj/i_cant_fucking_believe_the_east_wing_of_the_white/nl6yl0s/
+
+People prize hate. Including Reddit messages constantly prizing the hate of Americans, hate of Trump, hate of MAGA, hate of the White House.  Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
