@@ -93,3 +93,10 @@ https://old.reddit.com/r/CuratedTumblr/comments/1odn1j2/odysseus/
 The Problem of Waking in Finnegans Wake | A New Interpreative Paradigm
 
 https://www.youtube.com/watch?v=E7rUZkFIb-I
+
+&nbsp;
+
+&nbsp;
+
+Feels like Thunder in lyrics      
+https://old.reddit.com/r/nextfuckinglevel/comments/1og64q8/jen_ledger_drummer_and_covocalist_for_the_band/
