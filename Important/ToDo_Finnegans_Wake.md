@@ -122,3 +122,11 @@ In the conclusion to his A Skeleton Key to Finnegan’s Wake, Campbell reflects 
 Like a millrace it sweeps down and out of sight, to strike again the paddle wheel of revolving time. As the dark torrent disappears from view, we are left standing on the bank, bewildered, yet strangely refreshed by the passage of these miraculous waters. (p. 355)
 
 Phase 4 of Wake: Chaotic (Anarchic) Age: This is the final stage, where individualism and materialism lead to a breakdown of society. It is a period of chaos, selfishness, and sterility, often described as a "ricorso" or return to the primitive. 
+
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1ogugdf/a_religious_upbringing_in_childhood_is_linked_to/
+
