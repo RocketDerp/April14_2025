@@ -940,5 +940,13 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ofstam/its_all_fun_and_meme
 
 &nbsp;
 
-Reddit socity is against nonfiction expressed directly. Quotes, citations, links. Satire-washing Donald Trump society, meme-washing, amusement-washing, entertainment-washing everything. A simulacra mind-game of endlessly avoiding Wiki style refinement of common understanding in favor of fragmented "tactical cleverness" (1940 Great Dictator, 1951 Hannah A).      
+Reddit society is against nonfiction expressed directly. Quotes, citations, links. Satire-washing Donald Trump society, meme-washing, amusement-washing, entertainment-washing everything. A simulacra mind-game of endlessly avoiding Wiki style refinement of common understanding in favor of fragmented "tactical cleverness" (1940 Great Dictator, 1951 Hannah A).      
 https://old.reddit.com/r/memes/comments/1ofuyk4/why_is_reddit_allergic_to_straight_answers/
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1og7v8f/definitely/
+
+Sexual kissing fetish to see Donald Trump on front page. "definitely" non-descriptive title. There is endless audience demand for Trump images / content. No media star has changed so many minds to shit.
