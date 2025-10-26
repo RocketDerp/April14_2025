@@ -107,3 +107,18 @@ https://old.reddit.com/r/nextfuckinglevel/comments/1og64q8/jen_ledger_drummer_an
 
 Towe of Babel, Itsy Bitsy super small spider     
 https://old.reddit.com/r/justgalsbeingchicks/comments/1ogitwu/itchy_bitchy_spider_sounds_so_much_better_honestly/
+
+&nbsp;
+
+&nbsp;
+
+4-part Finn Cycle     
+Yes album.  
+https://www.youtube.com/watch?v=edN7f0jVGf4
+
+In the conclusion to his A Skeleton Key to Finnegan’s Wake, Campbell reflects on the experience of reading this book:
+
+
+Like a millrace it sweeps down and out of sight, to strike again the paddle wheel of revolving time. As the dark torrent disappears from view, we are left standing on the bank, bewildered, yet strangely refreshed by the passage of these miraculous waters. (p. 355)
+
+Phase 4 of Wake: Chaotic (Anarchic) Age: This is the final stage, where individualism and materialism lead to a breakdown of society. It is a period of chaos, selfishness, and sterility, often described as a "ricorso" or return to the primitive. 
