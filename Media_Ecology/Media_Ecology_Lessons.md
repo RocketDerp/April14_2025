@@ -929,3 +929,12 @@ The purpose of books is to *entertain us*...
 
 Forbidden by the audience / players     
 https://old.reddit.com/r/Battlefield/comments/1og24q3/is_this_a_joke_ea/
+
+&nbsp;
+
+&nbsp;
+
+### Changing stories
+
+Do people not change stories in their mind? Do people not think multiple paths in their own future?    
+https://www.youtube.com/watch?v=Gksxu-yeWcU
