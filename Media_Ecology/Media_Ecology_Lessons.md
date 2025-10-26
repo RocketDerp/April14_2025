@@ -893,6 +893,8 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oe4ti3/peetah_what_happe
 
 https://old.reddit.com/r/pcmasterrace/comments/1oecsuz/counterstrike_2_update_destroys_nearly_2_billion/
 
+https://old.reddit.com/r/technology/comments/1og6r77/ludicrous_6_billion_counter_strike_2_skins_market/
+
 &nbsp;
 
 &nbsp;
