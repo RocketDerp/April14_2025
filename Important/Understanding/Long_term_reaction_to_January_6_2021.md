@@ -44,3 +44,14 @@ THE LEAST OF THESE is SILENT on a CRTICAL TOPIC: “When the whole world is sile
 ### Self-aware: "I raise up my voice—not so I can shout, but so that those without a voice can be heard"
 
 Matthew 25:40 Bible verse.
+
+&nbsp;
+
+&nbsp;
+
+Climate change denial    
+Matthew 25:40 Bible verse.   
+
+The plants, the animals, the poor without cars and private jets... that's the least. Not just human life, but all species on earth. We need to slow down. We need to organize sharing rids - not for profit, but for climate change and ecology. We need to educate on pregnancy and sustainability. We need to trade people around, we need to face up to the technology boom humanity created. 
+
+Like all my writing, this needs massive rewriting.
