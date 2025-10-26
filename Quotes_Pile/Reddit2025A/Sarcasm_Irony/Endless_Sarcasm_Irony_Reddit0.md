@@ -950,3 +950,11 @@ https://old.reddit.com/r/memes/comments/1ofuyk4/why_is_reddit_allergic_to_straig
 https://old.reddit.com/r/CringeTikToks/comments/1og7v8f/definitely/
 
 Sexual kissing fetish to see Donald Trump on front page. "definitely" non-descriptive title. There is endless audience demand for Trump images / content. No media star has changed so many minds to shit.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/memes/comments/1ogmnsb/where_are_these_people_hiding/
+
+Minds BLOWN on Reddit society when reality comes into play. only the rich and famojs like Musk and Trump and YouTube people use their REAL NAMES and REAL FACES. Because self-dehumaizing people is the media addiction. Anti-reality cult. Cult of Trump-washing real name, promoting REAL NAME of Donald Trump and all his nicknames, while self-dehumanizing non-famous non-rich non-wealthy non private jet people.
