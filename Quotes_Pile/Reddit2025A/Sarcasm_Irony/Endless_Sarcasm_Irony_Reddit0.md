@@ -958,3 +958,11 @@ Sexual kissing fetish to see Donald Trump on front page. "definitely" non-descri
 https://old.reddit.com/r/memes/comments/1ogmnsb/where_are_these_people_hiding/
 
 Minds BLOWN on Reddit society when reality comes into play. only the rich and famojs like Musk and Trump and YouTube people use their REAL NAMES and REAL FACES. Because self-dehumaizing people is the media addiction. Anti-reality cult. Cult of Trump-washing real name, promoting REAL NAME of Donald Trump and all his nicknames, while self-dehumanizing non-famous non-rich non-wealthy non private jet people.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1ogmeci/gop_senator_scrambles_to_walk_back_his_attack/
+
+Right on the front page of Reddit, right on news networks: non-believers are terrorists. Malala's efforts since January 2009 ignored by society. No real learning about the media ecology crisis since September 11, 2001. Fiction vs. nonfiction. Addiction to fiction driving people into attack science thinking.
