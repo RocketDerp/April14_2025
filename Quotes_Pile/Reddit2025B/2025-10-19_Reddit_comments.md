@@ -2439,3 +2439,68 @@ https://old.reddit.com/r/politics/comments/1ofy7uu/donald_trump_issues_warning_t
 
 Reddit messages: Give up, don't rescue, let a nuclear powered nation fall under spell of Putin / Russia and let it wreck the whole planet Earth.
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1ogdq7i/thought_watching_the_concert_through_the_phone_in/nlft6pl/
+
+Yes, of the influence of tiny-short messages. The most popular comment on this posting. The behavior is egoism, egomania. Self-centered because of followers feedback. You see this with online sex workers who do camera recording in public places as "risk taking". Donald Trump is the role model of the world of media star. Everything is a stage, and people are thrilled to hate upon the Tony Clifton confidence.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ogdq7i/thought_watching_the_concert_through_the_phone_in/nlfvd73/
+
+Audience absorbed, feedback absorbed.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ogdq7i/thought_watching_the_concert_through_the_phone_in/nlfwygz/
+
+This behavior isn't unique to social media. Before cameras has TCP/IP live streaming, there were TV shows like "Candid Camera", Jackass film, MTV year 2003: https://en.wikipedia.org/wiki/Punk%27d
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ogdq7i/thought_watching_the_concert_through_the_phone_in/nlg5oif/
+
+Every area of our life is driven by marketing and advertising techniques. It's ok if a billionaire funds Reddit with advertising and marketing methods, but once a everyday person does it - people act like it is a problem. The billionars are wrecking the USA ana threatening the world with war. Nobody wants to roganize and stand up to the problem being role models of success.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ogdq7i/thought_watching_the_concert_through_the_phone_in/nlggwew/
+
+Is commenting bout other people on Reddit being in the moment of your own life? She is commenting about hte concern on video.. how is a Reddit comment creator commenting about a stranger's concert attendance being "in the moment" of their life when it isn't a live photograph and posted the next day? This is "business as usual" in a world where billionares are wrecking society with all their power and wealth while people do thier bread and circus at concerts and on Reddit.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ogdq7i/thought_watching_the_concert_through_the_phone_in/nlg7ptb/
+
+The priority of the things. Every day low-effort reactions instead of begging people to do what beggers need. Housing, education, goodness, food, etc. Entertainment of concert, entertainment of insulting a entertainer content creator, on and on. The world of over 8 billion people has come together to ignore leaders like Malala and not actually desire goodness. Let it be known, this is what peole with free time and spare time prized and made priority.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ogdq7i/thought_watching_the_concert_through_the_phone_in/nlg1pec/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ogdq7i/thought_watching_the_concert_through_the_phone_in/nlgskx6/
+
+Media addiction, Reddit. Let it be known: people don't want goodness, they want a Reality TV star of "The Apprentice" to direct them around instead of finding better values from the public library of information. Same with Luigi worship on social media since December 4, 2024. Instead of saying: no murder is bad, We, We The PEOPLE, need to make the January 1944 Second Bill of Rights a sustained topic - Lugi the killer is the sustained cheering on. Gun worship, snaeak attack, manipulator who prizes high rent prices and real estate golf course families. Pay $8,500 more a moth for rent - but $1 a month for health care - btecause it's too much for people to focus on the inter-connected issues of food / housing / hehatlh care / education - all in the January 1944 Second Bill of Rights. It isn't even a LONG list. https://en.wikipedia.org/wiki/Second_Bill_of_Rights - but the prioirty is music concert and Luigi getting hot sex for being a gun worshiper who does manipulation and sneak attacks with extensive planning. Because no amount of extensive planning or spending moeny seems to get January 1944 Second Bill of Rights on the public table of discussion. Only negative things like murder and gun worship (Luigi) get you on the front page of society toic, or holding a selfi-light in the middle of a concert gets you on the public topic for a brief period. Or be like Donald Trump and Putin, do terrible things every 6 hours of evey day for OVER TEN YEARS AND FOUR MONTHS - and get on the front page. But don't address GLOBAL PROBELMS like Malala was doing in January 2009 - education for millions of people being trampled on by shit values of society and toxic interpretaitons of Levant religions - and sustain. Cheering on Lugii the sneak attack manipulative murderer is what gets attention and sustained focus all year in 2025. And my "rambling" long-form writing isn't going to get the point acorss. Michael Moore didn't in his professionally edited film. https://en.wikipedia.org/wiki/Capitalism:_A_Love_Story
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1ogdq7i/thought_watching_the_concert_through_the_phone_in/nlglh1j/
+
+The world does revolve around you. But Star Wars fan's can not be bothered with the NONFICTION learning. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+
+MOYERS: What happens when a society no longer embraces a powerful mythology?
+
+CAMPBELL: What we’ve got on our hands. If you want to find out what it means to have a society without any rituals, read the New York Times.
+
+MOYERS: And you’d find?
+
+CAMPBELL: The news of the day, including destructive and violent acts by young people who don’t know how to behave in a civilized society.
+
+MOYERS: Society has provided them no rituals by which they become members of the tribe, of the community. All children need to be twice born, to learn to function rationally in the present world, leaving childhood behind. I think of that passage in the first book of Corinthians: “When I was a child, I spake as a child, I understood as a child, I thought as a child: but when I became a man, I put away childish things.”
+
+CAMPBELL: That’s exactly it. That’s the significance of the puberty rites. In primal societies, there are teeth knocked out, there are scarifications, there are circumcisions, there are all kinds of things done. So you don’t have your little baby body anymore, you’re something else entirely.
+
+...
+
+ROUNDSPARROW: And marketing and advertising does that in our society. We don''t need physical violence. We need to lean and understand EVERY aspect of society, including where to look for NON-popularity. Not upvoting on Reddit. We don't need parents and government to knock teeth out and cut the penis and bomb Swat Valley schools. We need to stop acting like we are ignorant.
+
+...
+
+MOYERS: What has undercut this experience today?
+
+CAMPBELL: It’s characteristic of democracy that majority rule is understood as being effective not only in politics but also in thinking. **In thinking, of course, the majority is always wrong.**
+
+MOYERS: Always wrong?
+
+CAMPBELL: In matters of this kind, yes. The majority’s function in relation to the spirit is to try to listen and to open up to someone who’s had an experience
+
+...
+
+ROUNDSPARROW: Malala in the case of January 2009 onward with her blog. If you can't see the crisis of September 11, 2001 terrorism and the education focus answer of January 2009 blog (less than a decade later)... and Roger Ebert's June 2010 war against the Taliban statement: https://www.rogerebert.com/reviews/restrepo-2010 "It raises for me an obvious question: How can this war possibly be won? At the end, a title tells us U.S. troops withdrew from the Korangal Valley and therefore Outpost Restrepo in 2010."
+
+It isn't even that. it is what are we teaching? If we can not convince ourelves like Woodstock 1969 that peace and goodness is worth drug overdosing, death for, the pain and suffering of facing egoism / egomania in society - then what is a good death? Malala stood up for a good death. Standing up for wealth lords and power concentration has been popular, people standing up for Donald Trump since June 16, 2015 - standing up for out-group hate of immigrants and hate all around. If we can't make the case for heaen on earth, we won't build it and we will attack it.
