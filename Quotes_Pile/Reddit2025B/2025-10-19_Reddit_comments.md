@@ -2552,4 +2552,37 @@ https://old.reddit.com/r/LivestreamFail/comments/1ogaqdz/mizkif_admits_to_contro
 
 https://old.reddit.com/r/popculturechat/comments/1ogf9r8/sophie_turner_is_dating_coldplay_frontman_chris/nlgn4jv/
 
-Spare time and free time in service to beautiful people images.
+Spare time and free time on media systems in service to beautiful people images.
+
+https://old.reddit.com/r/politics/comments/1ogm8li/embarrassing_flaws_emerge_in_trumps_new_white/nlhjca0/
+
+https://old.reddit.com/r/politics/comments/1ogm8li/embarrassing_flaws_emerge_in_trumps_new_white/nlhmyds/
+
+It's media ecology. It's what we have let our society behave that is uneducated in media ecology. It is what you get when you abandon teaching for EVERY PERSON on Marshall McLuhan / Neil Postman and throw everyone into "meme life" values. The most attractive decoration of meme around self-harm ideas from Russia IRA. The left vs. right brainrot. Goodness is good. There is no "left or right" about goodness. Fiction vs. nonfiction explains media addiction and behaviors more than anything.
+
+https://old.reddit.com/r/politics/comments/1ogm8li/embarrassing_flaws_emerge_in_trumps_new_white/nlhq35s/
+
+What's broken is the abandonment of nonfiction. Year 1995, spelled out. ... ... ...         
+
+“Science is more than a body of knowledge; it is a way of thinking. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/politics/comments/1ogm8li/embarrassing_flaws_emerge_in_trumps_new_white/nlhqwzc/
+
+It's Surkov governing. It isn't "like" Instagram, it's Fox News and Reddit and Truth Social. It IS. But ignorance of Surkov governing methods for 25 years in Russia abounds on Reddit.
+
+https://old.reddit.com/r/politics/comments/1ogm8li/embarrassing_flaws_emerge_in_trumps_new_white/nlhkdt0/
+
+Reddit community has such a sex fetish with Trump. Every time a Trump story is posted, the Reddit audience flocks. FOR OVER TEN YEARS AND FOUR MONTHS, endless attraction to Donald Trump image / story. People who have thier minds blown by the President Tony Clifton techniques of media.
+
+https://old.reddit.com/r/politics/comments/1ogm8li/embarrassing_flaws_emerge_in_trumps_new_white/nlhnzni/
+
+Prediction. PREDICT_A
+
+https://old.reddit.com/r/politics/comments/1ogm8li/embarrassing_flaws_emerge_in_trumps_new_white/nlhn1d2/
+
+Trump has tons of style. No man has ever been such a messagenger of hate and mass dehumzniation. Reddit community is blind and ignorant to entertainment addiction, style, constant stimulation is the style.
+
+https://old.reddit.com/r/politics/comments/1ogm8li/embarrassing_flaws_emerge_in_trumps_new_white/nlhhmd0/
+
+Yes. Serving Putin. The meeting in Alaska, the anti-NATO, the wrecking of all goodness in USA isn't a "wake up call" that Trump is actually an extremely hard worker, laboring away, at self-harm. People can not see that Trump does not rest. Instead, the population of USA is Cambridge Analytica / IRA conditioned to parrot the idea that Trump is doing othing at all, a noop. He has been entertaining Reddit constantly and causing the Reddit audiene to blow their minds out on memes "miling the LOL cow" of President Tony Clifton acts.
+
