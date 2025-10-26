@@ -14,3 +14,8 @@ The bitch that bore him is in heat again.”
 ― Bertolt Brecht, The Resistible Rise of Arturo Ui     
 year 1941
    
+&nbsp;
+
+&nbsp;
+
+Malala looked with her January 2009 blog. But We The People of the world, gawked at Malala.   
