@@ -100,3 +100,10 @@ https://www.youtube.com/watch?v=E7rUZkFIb-I
 
 Feels like Thunder in lyrics      
 https://old.reddit.com/r/nextfuckinglevel/comments/1og64q8/jen_ledger_drummer_and_covocalist_for_the_band/
+
+&nbsp;
+
+&nbsp;
+
+Towe of Babel, Itsy Bitsy super small spider     
+https://old.reddit.com/r/justgalsbeingchicks/comments/1ogitwu/itchy_bitchy_spider_sounds_so_much_better_honestly/
