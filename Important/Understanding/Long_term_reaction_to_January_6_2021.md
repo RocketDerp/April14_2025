@@ -57,3 +57,15 @@ The plants, the animals, the poor without cars and private jets... that's the le
 Like all my writing, this needs massive rewriting.
 
 USA population needs to stop being self-centered and spread education. Wiki values. Not MAGA Russian IRA values.
+
+We ignored MLK Jr. February 28, 1954. Hate has got to go. We reached a technological realization of world war, and we all need to sober up from tech addiction and face the egoism and hate problems.
+
+&nbsp;
+
+## January 6, 2021 
+
+Cambridge Analytica, marketing / advertising / media addiction / selling / the thrill of "grand opening" selling, we are pushing ourselvs into badness. We are burning out goodness. Burnout abounds.
+
+USA needs to face up to age 250 problems. MLK Jr February 28, 1954 left behind.
+
+Yes, I'm beyond sick of writing this and seeing these anti-goodness paths and patterns. If we don't wake up to Finengans Wake year 1924 patterns of media ecology, we are going to drive ourselves into far warse than Sawt Valley Pakistan imported Quran interpreetation issues.
