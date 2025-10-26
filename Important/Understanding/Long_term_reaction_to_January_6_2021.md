@@ -55,3 +55,5 @@ Matthew 25:40 Bible verse.
 The plants, the animals, the poor without cars and private jets... that's the least. Not just human life, but all species on earth. We need to slow down. We need to organize sharing rids - not for profit, but for climate change and ecology. We need to educate on pregnancy and sustainability. We need to trade people around, we need to face up to the technology boom humanity created. 
 
 Like all my writing, this needs massive rewriting.
+
+USA population needs to stop being self-centered and spread education. Wiki values. Not MAGA Russian IRA values.
