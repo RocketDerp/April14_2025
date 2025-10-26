@@ -918,3 +918,12 @@ The convergence... do recognize that ChatGPT readds books and is knowledgable?
 https://youtu.be/QN1rULxGHCA?t=270
 
 The purpose of books is to *entertain us*... 
+
+&nbsp;
+
+&nbsp;
+
+### Screenplay curse words
+
+Forbidden by the audience / players     
+https://old.reddit.com/r/Battlefield/comments/1og24q3/is_this_a_joke_ea/
