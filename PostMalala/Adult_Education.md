@@ -3,8 +3,9 @@
 Malala the Child got Josseph Campbell's criticism of Levant faiths on the world stage. Carl Sagan's techings.
 
 Metaphor to Metaphor translation:     
-Age 14, "You Get What You Give", New Radicals
+Age 14, "You Get What You Give", New Radicals     
 "Maybe You've Been Brainwashed Too", Swat Valley Pakistan Taliban, indoctrination.   
+When your dreams are being killed by the Taliban Rulers / Toxic Clergy.     
 https://www.youtube.com/watch?v=DL7-CKirWZE   
 
 January 2009. Professional blogger.   
