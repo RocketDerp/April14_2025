@@ -157,3 +157,13 @@ Monday October 27 front page
 https://old.reddit.com/r/goodnews/comments/1ohcuvt/aoc_there_was_a_day_before_his_presidency_and/
 
 The media ecology crisis goes faar beyond one President. [Ted Koppel book published in **year 2015**](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md) which is many days before Trump took office in January 2017. Fox News ficton vs. Reddit fiction, the addiction to ficion vs. nonfiction. What Carl Sagan wrote about to public in January 1994 and expanded upon in 1995 book. The President doesn't run every aspect of every day, but addiction to Fox News 24-hour fiction dives people around you all day of every day into badness.
+
+&nbsp;
+
+&nbsp;
+
+Monday October 27 front page
+
+https://old.reddit.com/r/whenthe/comments/1ohbnxe/i_hate_that_nowadays_its_controversial_to_hate/
+
+Hate that hate that hate spiral. This is like "Merry Christmas is now forbidden" simualcra in USA about Starbucks coffee. Hate is the religion of Nazi, the idea of adding more hate lessons to Nazi people is a realization we had as a society February 28, 1954. War is bad. Bad is bad. Cheering it on as entertainment with "when the" images. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) - MAGA was built on hate. And worse, the Russian IRA has been seeding these out-group hate patterns with Cambridge Analytica doctors since year 2013. We swim in nonstop hate humans mesages, love technology machine messages. MAGA swims in them, Reddit swims in them, endless prizing of hate. Hate vs. hate. Hate harder, all around.
