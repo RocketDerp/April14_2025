@@ -130,3 +130,13 @@ Phase 4 of Wake: Chaotic (Anarchic) Age: This is the final stage, where individu
 
 https://old.reddit.com/r/science/comments/1ogugdf/a_religious_upbringing_in_childhood_is_linked_to/
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1ohfzcb/the_world_map_is_centered_on_greenwich_england/
+
+Exactly what Finnegans Wake does to minds. Runs ideas in iterations of lint like lint for compilers. https://en.wikipedia.org/wiki/Lint_(software) 
+
+"Campbell found consistent themes running through the text, noting that a "thread of logic runs through every paragraph" and that "in every passage there is a key word which sounds the essential theme". This approach to finding underlying patterns in complex narratives was one he applied to world mythology. He believed that Joyce provided "an answer to every riddle he propounds" within the text."  ( Google AI )
+see also: https://finwakeatx.blogspot.com/2014/05/joseph-campbell-on-how-to-read.html
