@@ -2594,3 +2594,75 @@ https://old.reddit.com/r/worldnews/comments/1oh0koc/explosions_shake_moscow_stre
 
 https://old.reddit.com/r/pics/comments/1oh2f24/protest_outside_the_la_mayors_house_criticized/nll44y7/
 
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlldkfx/
+
+Magical wildcard "the media". The "democrats" run the "liberal" media. Society prizes enteratinment news, not progress. Look at "the media" of no-links no-citations on Reddit "the media".
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nllcok3/
+
+It's become entertainment sports. Neil Postman's 1985 book "Amusing Ourselves To Death" is short (184 pages) and to the point describing the audience / voter problem. The book was published all over the world in different languages - yet people do not want to face up to this sports-mentality problem. Same with other nations, religions, etc.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlkyt3m/
+
+Charlie Kirk ran a virtual church since year 2021, "Talking Point Faith", "TP Faith". Levant religions are science fiction, angels from outer-space sending messages is science fiction storytelling. This is about fiction vs. nonfiction. It is a loophole that people can do ANYTHING as depicted in fiction. Star Wars Andor is about terrorism being cool, that words and ideas can't solve problems, violence and secret communications solve problems. Not that people choose goodness, but that there is forever a fight btween dark and light and keep on fighting forever and forever and forever as weapon systems can evolve to destroy entire planets and never face up that all hate is band and stop educating that evil / dark side is a valid choice. The machine technology state of even Darh Vader as a machine of technology. Fiction outsells nonfiction learning of science. And action violence outsells peace and goodnes. Blasphomy charges are all over the Earth througout history - for *science fiction* story popularity. We do not teach comparative mythology and media ecology of fiction vs. nonfiction to each person in USA... we let fiction addictions drive emotions of hate.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlkzk7r/
+
+If you don't hate Trump you won't enjoy Bluesky and Reddit. Welcome to a society that prizes hate and keeps evolving hate while leaving Dr. Martin Luther King's global human brain topics behind. People want an out-group, a Trump to hate. You don't have to hate Trump to remove Trump as a leader. There are plenty of other people that aren't elevated to leaders / POTUS. The hate itself is what attractw people to Trump. Hate upon a Tony Clifton performance is not resisting a Tony Clifton performance.  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)- it is the very meaning of "common good", "common goodness". But people prefer to be competitive over hate instead of viewing it as a world-wide everyone, every brain, issue.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlmk29n/
+
+Blind faith in "the resistance", blind faith in "the underground", regarldess of the message. Exactly how Trump rose to power to wreck the USA. People unwilling to face up to Russia's media invasion via. Reddit since year 2013. IRA / CA. Predictable "the resistance" thoughtless repeating hate patterns.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlld04w/
+
+“If we could learn to look instead of gawking,    
+We'd see the horror in the heart of farce,    
+If only we could act instead of talking,    
+We wouldn't always end up on our arse.   
+This was the thing that nearly had us mastered;   
+Don't yet rejoice in his defeat, you men!   
+Although the world stood up and stopped the bastard,   
+The bitch that bore him is in heat again.”   
+― Bertolt Brecht, The Resistible Rise of Arturo Ui    
+year 1941. German.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlm8g2g/
+
+Thought-termining "that simple". People hate Donald Trump, people hate Charlie Kirkk. The entire world has Russian an USA worshiping guns, worshiping nuclear weapons and prizing hate. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nll7zaf/
+
+Write a death-threat in USA to The President in a newspaper, facebook, Reddit - see it is investigated in year 2012 or 2017, two different  President systems. Threaten a public school shooting with posing next to a gun.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlla839/
+
+All these nicknames to banalize / entertainment-wash the situation for meme audiences.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlm6jn4/
+
+People in USA have abandoned goodness in favor of entertainment sports mentality of "us vs. them" like Middle East. MLK Jr's progress on our mob mentality / parenting for hate issues has been abandoned. Goodness does not attract followings. People will cheer on the removal of badnes, Trump, but still not assert desire for goodness.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlm1uwt/
+
+Try holding a mirror up to Reddit community for prizing no-citaiton disposable commenting to fragment everyone into their own egoism / filter-bubble. Popularity of egoism and popualrity of hate is driving society. "The Media" is Reddit, and "the media" of Reddit has gotten worse since year 2013 just like other media platforms. Hate is prized. Secret poice that removes messages that people don't even mention or document.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlmdpl8/
+
+The Bible is science fiction. Fiction outselsl nonfiction, even on Reddit media venue.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nlmilnt/
+
+Reddit audience laugh track, "LOL". Everything horrible and badness around Trump is entertainment to Reddit audience.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nll0tsi/
+
+"missing physical brain parts", instead of looking at the podcast Charlie Kirk media and the low-effort commenting that drives every media platform now. Endlessly washing away serious and important topics with comemnting. "Amusing Ourselves To Death" 1985 book by Neil Postman the egoism confrontation of EVERY media platform.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nll36nu/
+
+Because nonfiction science learning isn't popular. Fiction magical storytelling is popular.
+
+https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nllierc/
+
+Hold the mirror up to Reddit commenting. Except I'm not dunking. FOR OVER TEN YEARS AND FOUR MONTHS, the meme-washing "LOL cow milking" of Trump for memes and entertainment has wrecked the nation. Trump is ground zero for "cow LOL milking" of Trump for insults and hate. Nobody wants to remvoe the sacred cow of Trump the source of constant meme stimulation, addicts to high-speed messaging systems / meme mills are the very mechanism of power for Surkov governing.
