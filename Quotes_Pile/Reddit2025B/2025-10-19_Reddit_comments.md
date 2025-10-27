@@ -2745,3 +2745,7 @@ https://old.reddit.com/r/LivestreamFail/comments/1ohegec/dont_forget_her/nlnk7tq
 
 Serious people who can't tell they are in a mob mentalty, mob. How many people need to draw attention to this issue and keep (Reddit posting) "Don't Forget". How many dogs are NOT on camera being abused? how many does it take before you realize EVERY ex-lover people bitch about is not learning? OPERA_A "With every mistake we must surely be learning" ... and Teaching. But we are not. We are fixating on status symbols and repeating them as Example A to a point we don't see the 8 billion people on earth, Forest for the Trees. "I look at YOU ALL" https://www.youtube.com/watch?v=VJDJs9dumZI
 
+https://old.reddit.com/r/PublicFreakout/comments/1ohfmm0/jd_vance_blessed_with_couch_fucker_chants_during/nlnjdey/
+
+Front page of Reddit. What crime is there in having sex with a couch? Zero. But this is what people chant. QAnon Q level of mindsets. This is not asserting goodness. This isn't rebuilding a broken democracy that Russian information warfare wrecked since year 2013. This is simualcra of resistance. This is playing entertainemnt to entertainment-based Surkov politics. Abandonment of reason thinking.
+
