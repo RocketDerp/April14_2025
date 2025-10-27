@@ -6,3 +6,4 @@ https://old.reddit.com/r/videos/comments/1ohq81y/reagans_last_speech_as_presiden
 
 https://old.reddit.com/r/MurderedByWords/comments/1ohod04/modern_christian_values/
 
+https://old.reddit.com/r/CringeTikToks/comments/1ohkjpd/miserable_karen_excited_about_people_not/
