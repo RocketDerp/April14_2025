@@ -37,3 +37,13 @@ If people had freedom to "make mistakes" .. what would marriage be?
 "Dead bedrooms" - How many sexless marriages do people have? How many are honest and share about it? https://old.reddit.com/r/DeadBedrooms/
 
 We can't even all agree to the February 28, 1954 equation that all hate in all palces is bad. people prize hate, both hate of hteir children, hate of their neighbor, hate of other nations, hate of life on Earth... prized hate.
+
+&nbsp;
+
+People marry for wealth, for protection, for access to assets or platforms.    
+
+What does it say about a person who promised eternal marriage and then admits they never loved? 
+
+"Ada Lovelace was 19 when she married William King-Noel, who was also 19 at the time of their marriage. They married on July 8, 1835"
+
+"life expectancy at birth in 1835 was only around 40 to 45 years" - children died constantly. Death was way more on the table to an age 19 adult going into choice marriage.
