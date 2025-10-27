@@ -2771,3 +2771,5 @@ https://old.reddit.com/r/agedlikemilk/comments/1ohhe4f/too_soon_or_nah/nlnzdms/
 
 At this point, October 2025, it's just feedback loops. Hate vs. hate. *hate harder* competition, race to the bottom. Cambridge Analytica and Russia's IRA mind-fucked everyone into out-group monomyth simulacra patterns. Liberal tears, conservative tears, one-bit teams, and all the variations of meme decoration and style / fashion of messaging it. Hate is prized. "leopards ate those MAGA faces" on Bluesky and Reddit. It's the same shit, prizing shit, prizing harm of USA people. Russia won, Surkov won, since March 2013. There is no resistance. Mocking Trump is not resisting Tony Clifton performances.
 
+https://old.reddit.com/r/politics/comments/1ohibbm/venezuela_claims_capture_of_cia_group_accuses_us/nloemk1/
+
