@@ -147,3 +147,13 @@ Monday October 27, 2025 early morning
 https://old.reddit.com/r/HistoryMemes/comments/1oh8ebz/wait_are_we_the_bad_guys/
 
 With what sis going on in USA and Russia, this serves to make it only the Nazi Germany issue and not a human brain issue. Ignores Taliban, ignores Pol Pot, etc. So much Hollywood media about Nazi that people are deflecting all the religion-based issues of Christians in Germany attacking Jews, Christians in Russia attacking Ukraine, Christians in USA attacking goodness itself. Amusement-washing / meme-washing. And using a black skin person as a "baddie" in Germany.... 
+
+&nbsp;
+
+&nbsp;
+
+Monday October 27 front page
+
+https://old.reddit.com/r/goodnews/comments/1ohcuvt/aoc_there_was_a_day_before_his_presidency_and/
+
+The media ecology crisis goes faar beyond one President. [Ted Koppel book published in **year 2015**](https://github.com/RocketDerp/April14_2025/blob/main/Quotes_Pile/Ted_Koppel.md) which is many days before Trump took office in January 2017. Fox News ficton vs. Reddit fiction, the addiction to ficion vs. nonfiction. What Carl Sagan wrote about to public in January 1994 and expanded upon in 1995 book. The President doesn't run every aspect of every day, but addiction to Fox News 24-hour fiction dives people around you all day of every day into badness.
