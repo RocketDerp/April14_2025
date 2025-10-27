@@ -2710,3 +2710,24 @@ https://old.reddit.com/r/complaints/comments/1ohcy60/i_am_sick_of_this_cycle_of_
 
 It is not just one third who flock to fiction and mocking over nonfiction. Not only a USA issue, it's global. Hate is toxic. People hate on other group sof people, out-group hate patterns. The fantasy that hate is only "1/3" as this message implies is a huge mistake. Hate is a threat to all the world.  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/blender/comments/1ohb79k/kids_on_youtube_dont_understand_how_hard_using/nlmn85v/
+
+Quote a nonfiction book on Reddit comment section, people say you are an AI bot. Fiction addicts prize low-effort "original sounding" commenting and not seious links, citations, author names, etc.
+
+https://old.reddit.com/r/blender/comments/1ohb79k/kids_on_youtube_dont_understand_how_hard_using/nlmo7p8/
+
+Nonfiction learning isn't cool. Spending years workig on a fiction video game, cool. Every person spend an hour or two a week refining Wiki knowledge of the real world... uncool / unattractive.  ... ... ...       
+"An extraterrestrial being, newly arrived on Earth -- scrutinizing what we mainly present to our children in TV, radio, newspapers, magazines, the comics and many books -- might easily conclude that we are intent on teaching them murder, rape, cruelty, superstition and consumerism. We keep at it, and through constant repetition many of them finally get it. What kind of society would it be if, instead, we drummed into them science and a sense of hope?" - Carl Sagan. https://www.washingtonpost.com/archive/entertainment/books/1994/01/09/with-science-on-our-side/9e5d2141-9d53-4b4b-aa0f-7a6a0faff845/
+
+https://old.reddit.com/r/blender/comments/1ohb79k/kids_on_youtube_dont_understand_how_hard_using/nlmq39i/
+
+Hence why people prize low-effort high-speed disposable commenting as "real" and professionally written nonfiction as "fake news". The Donald Trump role model FOR OVER TEN YEARS AND FOUR MONTHS. People who claim they are resisting Trump by adopting all the Trump values of information systems and fiction addiction.
+
+https://old.reddit.com/r/blender/comments/1ohb79k/kids_on_youtube_dont_understand_how_hard_using/nlmsyzq/
+
+Hence why I quote so many dead authors: Carl Sagan, Neil Postman, Joseph Campbell, (now) Bill Moyers, Marshall McLuhan, MLK Jr. Because people are drowning themselves in meme decoration / style / fashion / accesorising. Taking signals based on style, not thinking about the payloads. Nonfiction isn't sweetened and hyper-energy like fiction, and people now find nonfiction unpalatable.
+
+https://old.reddit.com/r/blender/comments/1ohb79k/kids_on_youtube_dont_understand_how_hard_using/nlmy3zt/
+
+"But in the view of Baudrillard society has reached a point at which it has literally been overcome by its technology and the new and important issues aren’t about, ah, things like the non-believer or the non-offender, but about the non-person. In the world of Baudrillard social relations have disappeared between humans, because humans have begun to disappear. In fact Baudrillard thinks that **reality itself is in the process of disappearing**. The real." - 1993, Texan Rick Roderick. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
