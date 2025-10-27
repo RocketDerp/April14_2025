@@ -138,3 +138,12 @@ https://old.reddit.com/r/goodnews/comments/1ofo81r/gavin_newsom_decimated_donald
 
 Denial of destruction of NATO, denial of Russia. Donald Trump is incredibly strong at wrecking the future of the USA in service to Putin mental programming since year 2013. People have given up on science leadership and nonfiction. "Amusing Ourselves to Death" 1985 book by Neil Postman explains all the denial people have, the addiction to touch-device media content. Trump provides nonstop fiction-based leadership into self-harm. This isn't weak, it is a froce nobody can stop. Like calling cancer "weak", or calling a nulcear bomb wrecking a city "weak". It's a fundamental misunderstanding of realty and truth to declare Trump as a society-wide / population-wide force of "weak". This speec "decimated" nothing, it added to the bullshit, added to misunderstadnings, added to the pile of fiction content, added to anti-reality about the sitution. Putin has wrecked the USA via the IRA since year 2013. Denial abounds. Absolute denial of reality an the real situation.
 
+&nbsp;
+
+&nbsp;
+
+Monday October 27, 2025 early morning 
+
+https://old.reddit.com/r/HistoryMemes/comments/1oh8ebz/wait_are_we_the_bad_guys/
+
+With what sis going on in USA and Russia, this serves to make it only the Nazi Germany issue and not a human brain issue. Ignores Taliban, ignores Pol Pot, etc. So much Hollywood media about Nazi that people are deflecting all the religion-based issues of Christians in Germany attacking Jews, Christians in Russia attacking Ukraine, Christians in USA attacking goodness itself. Amusement-washing / meme-washing. And using a black skin person as a "baddie" in Germany.... 
