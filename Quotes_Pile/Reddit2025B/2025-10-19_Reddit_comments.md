@@ -2734,3 +2734,14 @@ https://old.reddit.com/r/blender/comments/1ohb79k/kids_on_youtube_dont_understan
 https://old.reddit.com/r/blender/comments/1ohb79k/kids_on_youtube_dont_understand_how_hard_using/nlmy8u3/
 
 An important point. I'd say 2 or 3 out of 10 people could do it at age 22 with 3 years of training. To "good" or "ver good' results. It's labor intensive. Especially in a world where people don't share the origianl source files and only share compiled output.
+
+https://old.reddit.com/r/LivestreamFail/comments/1ohegec/dont_forget_her/nlnf9o3/
+
+The same thing people prize in politicians and entertainers. Streaming hasn't made this new, it is ust many more hours of the same person on camera (EdTV / Trueman show) than was affordable in year 1985 vs. year 2025. A lot of politicians are terrible all across the world. People prize hate, hate leaders, hate signals, out-group hate. We The World People of over 8 billion alove, swim in a toxic ocean of our own out-group hate patterns. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) ... ... ...        
+“He believed that lack of education was the root of all of Pakistan’s problems. Ignorance allowed politicians to fool people and bad administrators to be re-elected.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
+
+https://old.reddit.com/r/LivestreamFail/comments/1ohegec/dont_forget_her/nlnk7tq/
+
+Serious people who can't tell they are in a mob mentalty, mob. How many people need to draw attention to this issue and keep (Reddit posting) "Don't Forget". How many dogs are NOT on camera being abused? how many does it take before you realize EVERY ex-lover people bitch about is not learning? OPERA_A "With every mistake we must surely be learning" ... and Teaching. But we are not. We are fixating on status symbols and repeating them as Example A to a point we don't see the 8 billion people on earth, Forest for the Trees. "I look at YOU ALL" https://www.youtube.com/watch?v=VJDJs9dumZI
+
