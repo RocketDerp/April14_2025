@@ -30,7 +30,7 @@ CAMPBELL: By the organized Church. And why couldn’t Christians live with anoth
 
 &nbsp;
 
-### Known probnlem in Levant
+### Known problem in Levant
 
 2,000 yaars ago Bible verse "1 John 4:20" survives as a nonfiction problem in a work of fiction. "God" is a fiction character. "I Love Jesus" is wrong, "I Love God" is wrong, because God is a symbol of ALL LIVING PEOPLE. That is the equation of verse "1 John 4:20" - love for fiction characters is wrong / liars. 
 
