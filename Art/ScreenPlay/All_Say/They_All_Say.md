@@ -17,3 +17,9 @@ Every person thinks this is ONLY in thier personal encounters, does not see the 
 Ego-pleasing telling people "lines" and "lies" to "open the door" creates a chain... and tough doors to open.
 
 "Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe. And you do that by love." - MLK Jr
+
+&nbsp;
+
+She had her songs rejected as non-profitable / unsellable. She kept asking them what they wanted, what the business side said was profitable.    
+https://www.youtube.com/shorts/PYLF3nVJwy4
+
