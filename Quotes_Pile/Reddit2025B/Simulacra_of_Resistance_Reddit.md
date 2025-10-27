@@ -146,7 +146,7 @@ Monday October 27, 2025 early morning
 
 https://old.reddit.com/r/HistoryMemes/comments/1oh8ebz/wait_are_we_the_bad_guys/
 
-With what sis going on in USA and Russia, this serves to make it only the Nazi Germany issue and not a human brain issue. Ignores Taliban, ignores Pol Pot, etc. So much Hollywood media about Nazi that people are deflecting all the religion-based issues of Christians in Germany attacking Jews, Christians in Russia attacking Ukraine, Christians in USA attacking goodness itself. Amusement-washing / meme-washing. And using a black skin person as a "baddie" in Germany.... 
+With whats is going on in USA and Russia, this serves to make it only the Nazi Germany issue and not a human brain issue. Ignores Taliban, ignores Pol Pot, etc. So much Hollywood media about Nazi that people are deflecting all the religion-based issues of Christians in Germany attacking Jews, Christians in Russia attacking Ukraine, Christians in USA attacking goodness itself. Amusement-washing / meme-washing. And using a black skin person as a "baddie" in Germany.... 
 
 &nbsp;
 
