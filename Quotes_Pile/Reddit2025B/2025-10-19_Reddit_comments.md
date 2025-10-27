@@ -2666,3 +2666,10 @@ Because nonfiction science learning isn't popular. Fiction magical storytelling 
 https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posting_meme_in/nllierc/
 
 Hold the mirror up to Reddit commenting. Except I'm not dunking. FOR OVER TEN YEARS AND FOUR MONTHS, the meme-washing "LOL cow milking" of Trump for memes and entertainment has wrecked the nation. Trump is ground zero for "cow LOL milking" of Trump for insults and hate. Nobody wants to remvoe the sacred cow of Trump the source of constant meme stimulation, addicts to high-speed messaging systems / meme mills are the very mechanism of power for Surkov governing.
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1ohaxfk/donald_trump_reacts_to_russias_nuclearcapable/nlmqogc/
+
+Reddit users eat the onion of Surkov media techniques. Being subtle is the opposite when you are waging a war against reality itself. Antics politics, antics warfare. People have had since year 2013 to catch on to the pattern, but still eat it up as "dumb Putin". Caling idiot, stupid, dumb when he has been in power for over 25 years using these media techniques / stunts / world press events.
+
