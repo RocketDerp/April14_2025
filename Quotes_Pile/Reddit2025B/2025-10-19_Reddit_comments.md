@@ -2773,3 +2773,11 @@ At this point, October 2025, it's just feedback loops. Hate vs. hate. *hate hard
 
 https://old.reddit.com/r/politics/comments/1ohibbm/venezuela_claims_capture_of_cia_group_accuses_us/nloemk1/
 
+https://old.reddit.com/r/politics/comments/1ohibbm/venezuela_claims_capture_of_cia_group_accuses_us/nlo3g1m/
+
+<img width="1116" height="610" alt="image" src="https://github.com/user-attachments/assets/8d638530-10ec-4253-9225-b361df7dc78a" /> Someone NOT eating the Surkov onion. Who sees that it's possible Trump White House isn't all idiots / dumb / stupid / morons / etc. Surkovian governing. But still can't name it.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ohhn02/trump_79_challenges_very_low_iq_jasmine_crockett/nlo9wev/
+
+Entertainment addicts want more Realty TV with Trump star. Ignorant of the impact media has on their minds. "Always completely unaware of this, they don't really notice the new medium" (Reddit / Bluesky / iPhone / Android) https://www.youtube.com/watch?v=cFwVCHkL-JU&t=196s Marshall McLuhann. March 1967
+
