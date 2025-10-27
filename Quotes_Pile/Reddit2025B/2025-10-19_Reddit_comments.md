@@ -2667,9 +2667,32 @@ https://old.reddit.com/r/law/comments/1oh287f/tennessee_man_arrested_after_posti
 
 Hold the mirror up to Reddit commenting. Except I'm not dunking. FOR OVER TEN YEARS AND FOUR MONTHS, the meme-washing "LOL cow milking" of Trump for memes and entertainment has wrecked the nation. Trump is ground zero for "cow LOL milking" of Trump for insults and hate. Nobody wants to remvoe the sacred cow of Trump the source of constant meme stimulation, addicts to high-speed messaging systems / meme mills are the very mechanism of power for Surkov governing.
 
-&nbsp;
-
 https://old.reddit.com/r/worldnews/comments/1ohaxfk/donald_trump_reacts_to_russias_nuclearcapable/nlmqogc/
 
 Reddit users eat the onion of Surkov media techniques. Being subtle is the opposite when you are waging a war against reality itself. Antics politics, antics warfare. People have had since year 2013 to catch on to the pattern, but still eat it up as "dumb Putin". Caling idiot, stupid, dumb when he has been in power for over 25 years using these media techniques / stunts / world press events.
+
+https://old.reddit.com/r/MurderedByWords/comments/1ohbhof/matt_walsh_knows_nothing_about_history/nln5ir6/
+
+<img width="1694" height="310" alt="image" src="https://github.com/user-attachments/assets/028af72e-ca02-47a2-99c6-ab4a9c51d272" /> Indoctrination into original sin. The Finnegans Wake core of Romans 11:32 original sin source, God himself, James Joyce realization of the "Woke" / "Wake" of the Finnegans.
+
+https://old.reddit.com/r/MurderedByWords/comments/1ohbhof/matt_walsh_knows_nothing_about_history/nlmvljl/
+
+Morality-washing.
+
+https://old.reddit.com/r/MurderedByWords/comments/1ohbhof/matt_walsh_knows_nothing_about_history/nlmqco6/
+
+Dehumanizing. Declaring humans worthless. Machine lovers wh hate people. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1ohbhof/matt_walsh_knows_nothing_about_history/nlmugxt/
+
+One of the best way to face this is that we did not have airports and time to study the human brain behavior as a global one. The predatory warmongers wanted to take over the world first. The thoughtful analytical realizations took more time. (Campbell: problem of a new religion for global to solve is agression is faster than compassion) It was not until a well educated univesity system really saw the big global picture. Year 1951 / 1954 / 1955 you see the waking up to the mind as the issue. Not one nation, not one geography, not one race, not one language written and spolken.  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/MurderedByWords/comments/1ohbhof/matt_walsh_knows_nothing_about_history/nlmvugh/
+
+Right vs. left one-bit brainrot. The Founding Fathres did not educate people to think in terms of left vs. right. It is 13 steps up the pyramid in the Great Seal of the United States of America thinking system. Not left vs. right. Fiction vs. nonfiction is likley are more useful perspective. Prizing hate vs. abandoning hate. 
+
+https://old.reddit.com/r/MurderedByWords/comments/1ohbhof/matt_walsh_knows_nothing_about_history/nln48vo/
+
+Drowing society in low-effort high speed messaging, Reddit commenting prizing, makes it all worse. You drum in the prizing of goodness instead of the prizing of reactionary high-speed commenting and sharing. You focus on Wiki style refinement of information for the whole world in all languages. ... ... ...       
+"An extraterrestrial being, newly arrived on Earth -- scrutinizing what we mainly present to our children in TV, radio, newspapers, magazines, the comics and many books -- might easily conclude that we are intent on teaching them murder, rape, cruelty, superstition and consumerism. We keep at it, and through constant repetition many of them finally get it. What kind of society would it be if, instead, we drummed into them science and a sense of hope?" - Carl Sagan. https://www.washingtonpost.com/archive/entertainment/books/1994/01/09/with-science-on-our-side/9e5d2141-9d53-4b4b-aa0f-7a6a0faff845/
 
