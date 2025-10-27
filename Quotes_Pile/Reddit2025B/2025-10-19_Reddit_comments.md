@@ -2749,3 +2749,8 @@ https://old.reddit.com/r/PublicFreakout/comments/1ohfmm0/jd_vance_blessed_with_c
 
 Front page of Reddit. What crime is there in having sex with a couch? Zero. But this is what people chant. QAnon Q level of mindsets. This is not asserting goodness. This isn't rebuilding a broken democracy that Russian information warfare wrecked since year 2013. This is simualcra of resistance. This is playing entertainemnt to entertainment-based Surkov politics. Abandonment of reason thinking.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ohdvli/but_we_have_a_psychopath_moron_president/nln9zu5/
+
+Ongoing FOR OVER TEN YEARS AND FOUR MONTHS, people "hate milk" ("LOLcow") Donald Trump for hate. Reddit audience keeps him in power with addiction to the hate signals. It sets such a low bar for status symbol, that hate is normalized throughout the society by Reddit elevating him to the cneter of all image / message signals. Presdient Tony Clifton act exploits this in the audience. People consume so much trash commenting that they can not cite PRINTED BOOKS ON PAPER from YEAR 2014. MORE THAN ELEVEN FULL YEARS AGO.  ... ... ...     
+"The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it **climbs inside all ideologies and movements**, exploiting and rendering them absurd. One moment Surkov would  ..." ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, **year 2014**
+
