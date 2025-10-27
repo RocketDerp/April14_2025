@@ -2,7 +2,7 @@
 
 A songwriter who changes costumes, dresses up, uses sets, used editing.
 
-To her audience, she is 
+To her audience, she is "Learned the hard way" to practice her instrument to draw an audience. 
 
 https://youtu.be/qi7Yh16dA0w?t=93
 
