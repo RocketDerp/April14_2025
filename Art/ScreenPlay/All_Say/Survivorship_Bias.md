@@ -27,3 +27,13 @@ You know, it’s very interesting to think of the history of Christianity. Durin
 MOYERS: Destroyed by the organized Church?
 
 CAMPBELL: By the organized Church. And why couldn’t Christians live with another religion? What was the matter with them?
+
+&nbsp;
+
+### Known probnlem in Levant
+
+2,000 yaars ago Bible verse "1 John 4:20" survives as a nonfiction problem in a work of fiction. "God" is a fiction character. "I Love Jesus" is wrong, "I Love God" is wrong, because God is a symbol of ALL LIVING PEOPLE. That is the equation of verse "1 John 4:20" - love for fiction characters is wrong / liars. 
+
+The love one has for a fictoin character is not love at all. That's what "1 John 4:20" is saying. Being attracted to carefully crafted and edited poetry, oral storytelling, of God is not love like love of a living human person. They are completely different categories. That's the entire point of the egoism being confronted in verse "1 John 4:20" - the media mania people get over fiction storytelling, the mania over Torah poetry.
+
+
