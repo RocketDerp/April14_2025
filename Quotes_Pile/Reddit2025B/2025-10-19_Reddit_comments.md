@@ -2842,3 +2842,39 @@ USA thinks that in year 2015 things were horrible and terrible and non-entertain
 "All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**."
 ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
 
+https://old.reddit.com/r/law/comments/1oi8b5k/texas_sues_tylenol_company_over_autism_claims/nltkqt1/
+
+Reddit audience members love that new phrases are coined and how thrilling it is to be inside the USA in October 2025 and constantly have reality wrecked by fiction addicts and low-effort commenting addictions.
+
+https://old.reddit.com/r/law/comments/1oi8b5k/texas_sues_tylenol_company_over_autism_claims/nltk01x/
+
+The lowest-effort reactionay commenting keeps getting more reactionary. People will not see that meedia itself is driving the USA deeper and deeper into fiction addictions, anti-reality. Putin won, Surkov won.
+
+https://old.reddit.com/r/law/comments/1oi8b5k/texas_sues_tylenol_company_over_autism_claims/nltoq9d/
+
+Low effort meme-thnking. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/law/comments/1oi8b5k/texas_sues_tylenol_company_over_autism_claims/nltyg35/
+
+Death-wishing Americ, death-wshing people to die. calling out desire of death to America. Machine lovers, meme addicts, totally detached from any ideae of rescuing Texans from Kremlin / Putin / Russian informtion warfare since year 2013. *Death to Texas* cheering. Wishing harm upon USA population.
+
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nltwaf4/
+
+Our nation, the USA, prizes entertainment of President Tony Clifton leading an entertainment-seeking amusmeent-seeking society that prizes low-effort disposable commenting. Amusement based Surkov governing methods.
+
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nlu6mvq/
+
+No they wouldn't. Sex slaves are all the rage, if you have to kill a predator like Epstein, people will cheer it on. It's Hollywood TV entertainment, the Reddit audience and Bluesky audiences eat up anything wrapped in enteratinment and avoiding confronting egomania of a total society. Meme addicts. Saying that the Pentagon is doing something about baddies who traffic slaves will only add to the hyperreality addictions USA Reddit community has. ... ... ...         
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/
+At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nlu5e9d/
+
+This low-effort social media engagement technique of asking questions. "Can we call it geonice in Palestine yet", banlity-washing the situation with social media 101 engagement methods / Twitter-think. Amusement-washing serious situaitons. Satire-washing.
+
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nltwj9k/
+
+Reddit is full of messages encouraging revenge-lust, Luigi revenge against a CEO since Decemer 4, 2024. Payback to MAGA, *leopards better fucking eat your face* messages, you deseve hate, prizing of hate, prizing of dehumanization. Prizing of payback and revenge. People death-wishing Trump constantly. A nation that all 100% agrees on: embracing Cambridge Analytica mind-fuck to hate upon out-groups. Fiction vs. fiction wars, hate vs. hate wars. Just like Middle East haate vs. hate out-group patterns. ... ... ...       
+"What Cambridge Analytica observed was that when respondents were **angry**, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were **more indiscriminately punitive, particularly to out-groups**. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical trade war with China or Mexico meant the loss of American jobs and profits, **people primed with anger** would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.”
+― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
+
