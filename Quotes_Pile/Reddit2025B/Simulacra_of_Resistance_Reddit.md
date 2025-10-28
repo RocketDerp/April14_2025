@@ -167,3 +167,13 @@ Monday October 27 front page
 https://old.reddit.com/r/whenthe/comments/1ohbnxe/i_hate_that_nowadays_its_controversial_to_hate/
 
 Hate that hate that hate spiral. This is like "Merry Christmas is now forbidden" simualcra in USA about Starbucks coffee. Hate is the religion of Nazi, the idea of adding more hate lessons to Nazi people is a realization we had as a society February 28, 1954. War is bad. Bad is bad. Cheering it on as entertainment with "when the" images. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md) - MAGA was built on hate. And worse, the Russian IRA has been seeding these out-group hate patterns with Cambridge Analytica doctors since year 2013. We swim in nonstop hate humans mesages, love technology machine messages. MAGA swims in them, Reddit swims in them, endless prizing of hate. Hate vs. hate. Hate harder, all around.
+
+&nbsp;
+
+&nbsp;
+
+Tuesday October 28, 2025 early morning / midnight Monday to Tuesday
+
+https://old.reddit.com/r/goodnews/comments/1ohznmq/joe_biden_just_delivered_the_speech_of_the_year/
+
+Demolishuing headline bullshit. The clip shows people are in denial. It is a wake up call of pointing people good from bad. "Good news" framing subreddit name. Bullshit. It is a call for change of direction, the news is terible. Every day is worse than the previous day. World Series is giong on, sports are not essential to life and democracy and people will not face up to entertainment addiction. Video games, sports games, meme games. People are drunk and blow their minds ut on horrible use of language that this is "demolishing" Trump.
