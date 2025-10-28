@@ -3013,3 +3013,11 @@ https://old.reddit.com/r/Music/comments/1oib8sn/63_of_republicans_disapprove_of_
 And peole will rentently turn to mocking and insulting and low-effort commenting in response. It works. Predictable.  It wins every debate. No technique can overcome the mob mentality of people attacking a serious person. Crowds are drawn to intelligence and belittle it in mob mentality. ... ... ...     
 "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, **then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely**," she adds. "Those kinds of tactics are meant to stop democratic debate, and **they work**." - https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
 
+https://old.reddit.com/r/AskReddit/comments/1oih82r/what_are_your_thoughts_on_the_hague_issuing_an/nlw0yac/
+
+Simulacra of resistance. Downvoting and not facing the media ecology. Jen Senko nonfiction ignored since year 2015, not given the repeating and attention on the media ecology crisis.
+
+https://old.reddit.com/r/AskReddit/comments/1oih82r/what_are_your_thoughts_on_the_hague_issuing_an/nlvi5oz/
+
+Not just Reddit. TikTok.
+
