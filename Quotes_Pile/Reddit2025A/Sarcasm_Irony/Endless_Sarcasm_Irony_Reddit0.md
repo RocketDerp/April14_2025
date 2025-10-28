@@ -974,3 +974,11 @@ Right on the front page of Reddit, right on news networks: non-believers are ter
 https://old.reddit.com/r/Gamingcirclejerk/comments/1ohqyu9/based_angry_joe/
 
 "low IQ mocking", that's exactly what MAGA prizes, Trump prizes. People who use intelligence to game, trick, manipulate others. Microsoft is using intelligence to manipulate video game players.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/minnesota/comments/1ohxgav/the_governor_urges_all_of_us_to_not_lose_the_plot/
+
+It's not just a phrase. USA society lost the plot. Democracy does not work without love and compassion. MLK Jr's 1950's teachngs about military and organization power were not to be ignored. You turn love into a competititon of attraction and charm and you end up with competitive rat race winners like Putin. You don't listen to Leo B and you end up in a world without love and people wishing for rocks to smash into the Earth and destroy life and people cheering on climate change as a "tears of suffering" LOL LOL amusement.
