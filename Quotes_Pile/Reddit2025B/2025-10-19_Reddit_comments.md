@@ -3031,3 +3031,15 @@ https://old.reddit.com/r/LivestreamFail/comments/1oig8sw/hasan_complains_that_pe
 Again, Donald Trump cult media star. Media cults of Reddit are in out-group cult orientation. High speed media ITSELF is driving behavior. Palestine politics, Trump politcs, it's all being driven by reactionary thinking. Trump is the media star role model for youth like Hasan as media stars. ... ... ...      
 “If politics is like show business, then the idea is not to pursue excellence, clarity or honesty but to appear as if you are, which is another matter altogether.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 1985
 
+https://old.reddit.com/r/UNBGBBIIVCHIDCTIICBG/comments/1oihtt8/yo_that_skeleton_is_naked/nlvr1xr/
+
+People prize anger, seek out media to get angry about. How can Haloween art be so anger inducing to pepole. Of all the issues in the world, this is the tiny amount of images it takes to make people angry.
+
+https://old.reddit.com/r/UNBGBBIIVCHIDCTIICBG/comments/1oihtt8/yo_that_skeleton_is_naked/nlvxyk0/
+
+A population of media addicts that let simulacra and simulation drive their life.
+
+https://old.reddit.com/r/UNBGBBIIVCHIDCTIICBG/comments/1oihtt8/yo_that_skeleton_is_naked/nlwiv32/
+
+Women dancing.
+
