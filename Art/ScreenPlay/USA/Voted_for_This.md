@@ -23,11 +23,11 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1oibqx7/posted_in_a_mom_grou
 
 It is SELF HARM. You spend your time at the side of the bed until the very last breath. You stand up for humanism. **YOU BECOME THE TEACHER, THE PREACHER** even to your own death and as people kill and murder you and torture you.
 
-You don't act lie it is entertainment and amusement!
+You don't act like it is entertainment and amusement!
 
-You don't throw away thousands of years of moral learning and study into the trash and abandon it so you can giggle away at people's suffering.
+You don't throw away thousands of years of moral learning and study into the trash and abandon it so you can **giggle away** at people's suffering. You don't turn it into your comedy show that real life suffering is going on.
 
-The answer to stupid  / dumb / idiot / moron isn't being a moron.
+The answer to stupid  / dumb / idiot / moron isn't being a giggle festival of LOL at humanity being ignorant and stupid.
 
 You stand up as best as you fucking can and you rescue Donald Trump from Putin's self-harm mind fuck. You LEARN about Surkov techniques and you study Cambridge Analtyica. You don't cheer on Russia fucking over the hearts and minds of the USA and NATO!
 
