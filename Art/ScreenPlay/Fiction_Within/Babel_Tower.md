@@ -14,6 +14,12 @@ Fiction outsells not fiction.
 
 "Just asking questions"
 
+### Shit-posting irony-posting
+
+https://youtu.be/KeK6JDTVZjg?t=489
+
+Trolling for mythology. Bible is mythology, Bible is science fiction, Matthew 4:19 is not fiction.
+
 ## No-evidence conspiracy theory
 
 The history of denials.
