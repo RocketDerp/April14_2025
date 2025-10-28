@@ -2804,3 +2804,8 @@ https://old.reddit.com/r/technology/comments/1ohrksj/ice_just_signed_a_57m_contr
 Social media society won't face sports addictions, gaming addictions, entertainment addictions, amusement addictions.
 
 https://old.reddit.com/r/politics/comments/1ohumuw/donald_trump_confuses_dementia_screening_for_very/nlraiwt/
+
+https://old.reddit.com/r/AdviceAnimals/comments/1oi6yxz/hey_there_you_boy/nltsmiu/
+
+Reddit community is a funny-cult. Joke-washing everything to do with MAGA / Trump as entertainment. The very basis of Donald Trump's power, professional entertainer and constatly throwing the crowd unusual language / style / fashion / choices, Tony Clifton performances. The Bluesky and Reddit commmunity cults of "milking the LOL cow (LOLcow milking)" for funny humor and amusement. Elevating Trump constantly to the center of power and attention with compusive addiction to the Tony Cliftion antics / Surkov governing methods.
+
