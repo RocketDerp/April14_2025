@@ -33,3 +33,20 @@ The answer to stupid  / dumb / idiot / moron isn't being a giggle festival of LO
 
 You stand up as best as you fucking can and you rescue Donald Trump from Putin's self-harm mind fuck. You LEARN about Surkov techniques and you study Cambridge Analtyica. You don't cheer on Russia fucking over the hearts and minds of the USA and NATO!
 
+&nbsp;
+
+&nbsp;
+
+### The Fire Trucks are Coming...
+
+YOU, We The People, rescue. With compassion and teaching and education. Go grab your Neil Postman books and you fucking defend USA and NATO against Cambridge Analtyica and the IRA!
+
+https://autistics.life/@RoundSparrow/115452669097913958       
+https://bsky.app/profile/roundsparrow.bsky.social/post/3m4bd64bdg224
+
+Rescue Trump, rescue the White House, rescue the cults of Putin / Kremlin. Fight Cambridge Analytica doctors! Find the mind-fucking!
+
+43,280,054 views  May 19, 2007
+
+https://www.youtube.com/watch?v=GFW-WfuX2Dk
+
