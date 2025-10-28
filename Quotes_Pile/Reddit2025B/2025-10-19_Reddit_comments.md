@@ -2926,3 +2926,15 @@ Egomania leader Donald J. Trump is the society values: egoism.
 https://old.reddit.com/r/complaints/comments/1oi9iup/why_the_fuck_are_members_of_the_military_cheering/nltyghx/
 
 <img width="958" height="448" alt="image" src="https://github.com/user-attachments/assets/fb190f3c-d478-4398-b4a0-8c2e2fd6d930" /> Citation, a founder of the field of psychology: "No nation keeps its word. A nation is a big, blind worm, following what? Fate perhaps. A nation has no honour, it has no word to keep. ... **Hitler is himself the nation**. That incidentally is why Hitler always has to talk so loud, even in private conversation — because he is speaking with 78 million voices." - Dr. Carl G. Jung. During an interview with **H. R. Knickerbocker (1939)**, quoted in A Life of Jung (2002) by Ronald Hayman, page 360
+
+https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nltluni/
+
+One-bit logic of two party-think. Polarity mindsets.
+
+https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nltn28r/
+
+<img width="914" height="302" alt="Screenshot from 2025-10-28 11-30-14" src="https://github.com/user-attachments/assets/a29f8b45-7d8e-40dd-a725-6267563632ca" /> Massively popular / liked / upvoted comment. Fresh 2025 Reddit account. What simple-tink tiny-short message thinking. Russia has programmed people to self-harm the nation, they are very serious about mass dehumanization. The faith in *hate harder* is very serious. Reddit-think mindsets can't see that the entire nation as an entity is in a veru serious *mob mentality, prizing hate* mindset. Denial of reality, denial of real, denial that the problems of attitude and compusive desires are serious.
+
+https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nltwb6m/
+
+Exactly Martin Luther King Jr's point. Technology lust, device lust for weapons and power, is in runaway. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
