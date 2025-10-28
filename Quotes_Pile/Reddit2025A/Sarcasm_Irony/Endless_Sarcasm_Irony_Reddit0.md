@@ -966,3 +966,11 @@ Minds BLOWN on Reddit society when reality comes into play. only the rich and fa
 https://old.reddit.com/r/NoFilterNews/comments/1ogmeci/gop_senator_scrambles_to_walk_back_his_attack/
 
 Right on the front page of Reddit, right on news networks: non-believers are terrorists. Malala's efforts since January 2009 ignored by society. No real learning about the media ecology crisis since September 11, 2001. Fiction vs. nonfiction. Addiction to fiction driving people into attack science thinking.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1ohqyu9/based_angry_joe/
+
+"low IQ mocking", that's exactly what MAGA prizes, Trump prizes. People who use intelligence to game, trick, manipulate others. Microsoft is using intelligence to manipulate video game players.
