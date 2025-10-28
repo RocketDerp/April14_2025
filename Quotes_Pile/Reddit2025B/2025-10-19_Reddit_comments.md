@@ -2788,3 +2788,18 @@ Physical violence isn't fixing the issues.
 https://old.reddit.com/r/law/comments/1ohnxe0/ag_pam_bondi_announces_investigation_into_another/nlpwe52/
 
 The world needs leadership of peacefully disarming hate.
+
+https://old.reddit.com/r/technology/comments/1ohrksj/ice_just_signed_a_57m_contract_for_aipowered/nlq6oo4/
+
+People need to rescue Trump from Putin. But Russia has locked people (the population) into mocking feedback loops, insult for insult, mock for mock.
+
+https://old.reddit.com/r/technology/comments/1ohrksj/ice_just_signed_a_57m_contract_for_aipowered/nlqgiqa/
+
+https://old.reddit.com/r/technology/comments/1ohrksj/ice_just_signed_a_57m_contract_for_aipowered/nlqi20z/
+
+https://old.reddit.com/r/technology/comments/1ohrksj/ice_just_signed_a_57m_contract_for_aipowered/nlqpsfp/
+
+https://old.reddit.com/r/technology/comments/1ohrksj/ice_just_signed_a_57m_contract_for_aipowered/nlq6n2s/
+
+Social media society won't face sports addictions, gaming addictions, entertainment addictions, amusement addictions.
+
