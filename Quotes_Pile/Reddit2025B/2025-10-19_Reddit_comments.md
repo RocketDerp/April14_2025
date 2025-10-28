@@ -3021,3 +3021,13 @@ https://old.reddit.com/r/AskReddit/comments/1oih82r/what_are_your_thoughts_on_th
 
 Not just Reddit. TikTok.
 
+https://old.reddit.com/r/LivestreamFail/comments/1oig8sw/hasan_complains_that_people_are_actively_trying/nlv90ge/
+
+He lives in the USA. He is a media star. Age 79 Donald Trump is the role model for all youth on being a media star. Hate is prized. Killing dogs is prized at the White House. South Dakota Governor Kristi Noem's memoir, No Going Back: The Truth on What's Wrong with Politics and How We Move America Forward, which includes a story about her killing her hunting dog, Cricket. This isn't a one person problem, this is a mass man (media ecology) problem. A complete failure to see how Donald Trump role model of priing hate wtih Putin has become *tricke down media values* since year 2013. ... ... ...     
+"Everybody tends to merge his identity with other people at the speed of light. It’s called being mass man. It began quite a long time ago." Marshall McLuhan, 1977. https://www.organism.earth/library/document/mcluhan-mcmanus
+
+https://old.reddit.com/r/LivestreamFail/comments/1oig8sw/hasan_complains_that_people_are_actively_trying/nlv8p0j/
+
+Again, Donald Trump cult media star. Media cults of Reddit are in out-group cult orientation. High speed media ITSELF is driving behavior. Palestine politics, Trump politcs, it's all being driven by reactionary thinking. Trump is the media star role model for youth like Hasan as media stars. ... ... ...      
+“If politics is like show business, then the idea is not to pursue excellence, clarity or honesty but to appear as if you are, which is another matter altogether.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. 1985
+
