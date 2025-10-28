@@ -3054,3 +3054,16 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1oil00u/i_dont_get_it/nlwggpq/
 https://old.reddit.com/r/ExplainTheJoke/comments/1oil00u/i_dont_get_it/nlwjehy/
 
 LOL-washing, society that prizes satire washing above goodness itself. Take a Steely Dan steam-powered ram-rod of NYC and shove the satire up your ass. Enema the shit show. Russia beat us. Disolve the corporation of satire. OPERA_A The Don of NYC sarcasm and satire, Band Leader Don F. https://www.youtube.com/watch?v=FiK2qICPP4o
+
+https://old.reddit.com/r/videos/comments/1oiioz1/christian_nationalist_pastor_associated_with_pete/nlvs2v0/
+
+*Normal* got chaced as trending, social media trending, right into the hands of Cambridge Analytica doctors and Russian Internet Research Agency since year 2013. So many minds re blown with Surkov student techniques and Tony Clifton performances. Minds blown entirely to avoid nonfiction sustained focus on important and serious topics of Kremlin informaiton warfare.
+
+https://old.reddit.com/r/videos/comments/1oiioz1/christian_nationalist_pastor_associated_with_pete/nlvt2zn/
+
+Right vs. left brainrot. There is no "right" team without a binary left team logic. Polarity pong mindset. What Cambridge Analytica doctors hammered into the minds deeper than anyone else. ... ... ...       
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/
+
+"The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka.
+
+He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
