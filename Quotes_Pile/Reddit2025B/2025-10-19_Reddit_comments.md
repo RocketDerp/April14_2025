@@ -2966,3 +2966,27 @@ https://old.reddit.com/r/rareinsults/comments/1oifza0/the_top_comment_did_not_di
 In a society that flocks to unusual and exoctic images to feed media addictions, A.I. provides a whole new topic. Faked by people? Faked by machines? Dramatic dress for public attention?
 
 https://old.reddit.com/r/rareinsults/comments/1oifza0/the_top_comment_did_not_disappoint/nlvt7r8/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1oifbmz/psa_do_not_have_sex_with_conservative_men/nlv3rev/
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1oifbmz/psa_do_not_have_sex_with_conservative_men/nlvb8h0/
+
+Egoism. Messy to deal with hate. People prize hate now in USA. Messy to admit Russia won an information war since year 2013.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1oifbmz/psa_do_not_have_sex_with_conservative_men/nlvbp4x/
+
+Fiction outsells nonfiction. Reddit has Kremlin simualcra patterns of behavior since year 2013.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1oifbmz/psa_do_not_have_sex_with_conservative_men/nlvhs59/
+
+Men who go with socity flow. Prize the crowd behavior over inidivdual compassion. Inlfuenced by Russian invasion of media, popularity of antics. Think they out-smarted Putin and everyon else is dumb idiots and stupid.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1oifbmz/psa_do_not_have_sex_with_conservative_men/nlv2liu/
+
+Shaming real human connections is self-harm. Compassion and love come from human persons, not some outer space gods and angels beaming down poetry books.
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1oifbmz/psa_do_not_have_sex_with_conservative_men/nlv2liu/
+
+<img width="1530" height="666" alt="image" src="https://github.com/user-attachments/assets/cfe29bd2-ecc7-4d7b-85e1-6b24db7480fa" /> Social media society has had since October 8, 2013 to promote and keep promoting Malala's book. Instead, since November 8, 2013 Moscow sex show of women, people comment upon / attention upon / post on Reddit - Donald J. Trump role model. Year after year after year avoiding Malala as "not good enough" leader. People despite women having voices and dialog, people flock to the *funny amusing* dialog / speech / communicatoins of Donald Trump as endless entertainment and mockery. Endless Trump prizing for anti-goodness. Always avoiding the Malala one click away. Prizing milking the "LOL cow" for memes of rich white dominating elderly males. ... ... ...          
+“If one man can destroy everything, why can't one girl change it?” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
+
