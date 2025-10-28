@@ -2803,3 +2803,4 @@ https://old.reddit.com/r/technology/comments/1ohrksj/ice_just_signed_a_57m_contr
 
 Social media society won't face sports addictions, gaming addictions, entertainment addictions, amusement addictions.
 
+https://old.reddit.com/r/politics/comments/1ohumuw/donald_trump_confuses_dementia_screening_for_very/nlraiwt/
