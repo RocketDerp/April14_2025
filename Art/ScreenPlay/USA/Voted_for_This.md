@@ -14,7 +14,9 @@ And if everyone around you starts voting for self-harm and suicide, you start as
 
 The Russia war against Reality mind-fucked people. People were not educated on media ecology. https://www.youtube.com/watch?v=kMiHRZPQzjQ&t=49s
 
-People use egomania / egoism to cover up mistakes. When they are suffering from **information overload** and contradictions - people had faith in USA. That it was a minor problem and wouth work itself out.
+People use egomania / egoism to cover up mistakes. When they are suffering from **information overload** and contradictions - people had faith in USA. That it was a minor problem and would work itself out. Well, Russia mind-fucking EVERY PERSON, not just MAGA, not just Republicans, EVERYONE - including democrats and independents. Russia mind-fucked EVERYONE.
+
+&nbsp;
 
 ### Faith in self harm
 
