@@ -3043,3 +3043,7 @@ https://old.reddit.com/r/UNBGBBIIVCHIDCTIICBG/comments/1oihtt8/yo_that_skeleton_
 
 Women dancing.
 
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1oihzan/this_homeless_heated_bed/nlvobhe/
+
+When Reddit people say "go touch grass", I really wonder how ignorant they are. How inexpereinced they are. I've lived in Colorado for years, I traveled in an RV all over USA full time. You have to really be anti-intellectual and in a filter bubble to think unusual and odd behaviors are limited to online. Donald J. Trump had a lifetime of "not on the Internet". The mind-fuck by Russia / Putin / Kremlin and Cambridge Analytica goes WAY BEYOND online. Touching grass doesn't fix self-harm in the mind. People can not recognize mass mind behaviors online or offline except when hating up others, and do not see the forest of change since year 2013. Media ecology leaerning by osmosis isn't working. People need to grap how education, learning, experience, reality is understood. "go touch grass" is a massive misunderstanding of how far off the rails the USA society has become. These people in that video in Colorado are touching fucking grass!
+
