@@ -2878,3 +2878,29 @@ Reddit is full of messages encouraging revenge-lust, Luigi revenge against a CEO
 "What Cambridge Analytica observed was that when respondents were **angry**, their *need for complete and rational explanations was also significantly reduced*. In particular, anger put people in a frame of mind in which they were **more indiscriminately punitive, particularly to out-groups**. They would also underestimate the risk of negative outcomes. This led Cambridge Analytica to discover that even if a hypothetical trade war with China or Mexico meant the loss of American jobs and profits, **people primed with anger** would tolerate that domestic economic damage if it meant they could use a trade war to punish immigrant groups and urban liberals.”
 ― Christopher Wylie, Mindf\*ck: Cambridge Analytica and the **Plot to Break** America, page 128, **year 2019**
 
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nltw32m/
+
+Satire-washing, amusement-washing, sarcasm-washing "nice". Popular tiny-short messages to act like this just started in October 2025 and hasn't been a direct trend since yaar 2013 with mass dehumanization via entertainment addictions. Russia won, Surkov won.
+
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nlu1mih/
+
+<img width="1074" height="816" alt="image" src="https://github.com/user-attachments/assets/757ed127-8cf4-462c-b66a-dbc304d7a8aa" /> Calling out the media enviornment. Messages to give up on learning, don't rescue, mock and insult, treat it all as fiction content. Hate upon Americans messages. I do not agree with "just ignore" directive. This message itself is avoiding anuthor names, book titles, article titles, links. It needs to be treated with extreme seriousness and all entertainment needs to be stopped and remedia morality needs to be a main focus.
+
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nlu0bbp/
+
+As long as it is trending. Keep repeating mistaakes, mistakes and murder are tradition. Russian mind-fuck messages. Don't protest, just go with the popularity trends of social media.
+
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nlu69zc/
+
+What good is remembering tiny short ideas? The Internet Research Agency and Cambrige Analytica mind-fucked the entire nation into simple-think patterns. People need to be serious and take on more than 'remember' simplistic ideas. Surkovian governing is a threat to the whole world and Reddit is ground zero in the mind programming to simple-think.
+
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nlu0zzv/
+
+Low-effort high-seed message commenting dominates society now. Wild abandonment of nonfiction in faavor of action Hollywood style. People can not name Surkov governing. ... ... ...         
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/
+At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_four_alleged_drug_boats/nlu0bq6/
+
+And what, Fox News audience has critical thinking skills? And that phrase has become practicaly thought-terminating. People throw it around like it has a common and understood meaning. "Critical thinking" will solve our issues. How about citing author names? book titles? This problem is not only on Reddit. It is also on Bluesky, it is also on HDTV network audiences. All high-speed media systems. Neil Postman's 1985 book "Amusing Ourselves To Death" needs to be understood by every person age 12 to age 120 and applied to Russian Surkov information warfare since year 2013. The Pentagon and White House are not Reddit, the problem is every area of society. ... ... ...      
+“Today, reports of the day’s events are conveyed to the viewing public by way of alternate universes, The Fox News cable channel conveys its version of reality, while at the other end of the ideological spectrum MSNBC presents its version. They and their many counterparts on radio are more the result of an economic dynamic than a political one. Dispatching journalists into the field to gather information costs money; hiring a glib bloviator is relatively cheap, and inviting opinionated guests to vent on the air is entirely cost-free. It wouldn’t work if it weren’t popular, and audiences, it turns out, are endlessly absorbed by hearing amplified echoes of their own biases. It’s divisive and damaging to the healthy functioning of our political system, but it’s also indisputably inexpensive and, therefore, good business.” ― Ted Koppel. Lights Out: A Cyberattack, A Nation Unprepared, Surviving the Aftermath. October 27, 2015. Page 13.
