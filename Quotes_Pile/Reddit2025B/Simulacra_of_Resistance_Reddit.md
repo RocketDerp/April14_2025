@@ -187,3 +187,13 @@ Tuesday October 28, 2025 morning
 https://old.reddit.com/r/MurderedByWords/comments/1oi8cyy/basic_needs_must_be_met/
 
 Another simualcra of Resistance, that exchaging insults is the way out of a total mockery that Russia intiaited since year 2013. A person who wants 40 million people to go without food but on Elon Musk Twiter has the decency of conduct to self-censor the wrd "fucking". It is mind-fuck content, corrupt mindset, and Reddit eats it up that a shit for shit flinging reply is "murder" by words. The murder is the feedback loop, shared on Reddit to feed Reddit society entertainment addictions. People who LOL-wash and amusement-wash away the sitution as a ARG / touch device screen game. For the thrills of mocking itself.
+
+&nbsp;
+
+&nbsp;
+
+Tuesday October 28, 2025 afternoon
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1oihr7m/democrats_finally_playing_hardball/
+
+Reddit declares that **finally someone is playing the game, hardball**. Entertainment addicts and sports-ball mentality. Entirely detached from reality. Amusement mill Reddit has been entertainment-washing Trump amusement-washing Trumpism / MAGA / Russin information warfare since 2014 when stories about Ukraine and new Kremlin media methods. People eat it up, addiction to sports-think amusements and images are the very mechanism of Putin and Trump power using Surkov techniques. A poster! Simualcra of resistance. Not educating people in Surkov techniques, nonfiction learning of how all this has go so far for USA addiction to a ballroom of entertainment / venue addiction / dancing images and presenttaion addictions.
