@@ -2781,3 +2781,10 @@ https://old.reddit.com/r/NoFilterNews/comments/1ohhn02/trump_79_challenges_very_
 
 Entertainment addicts want more Realty TV with Trump star. Ignorant of the impact media has on their minds. "Always completely unaware of this, they don't really notice the new medium" (Reddit / Bluesky / iPhone / Android) https://www.youtube.com/watch?v=cFwVCHkL-JU&t=196s Marshall McLuhann. March 1967
 
+https://old.reddit.com/r/law/comments/1ohnxe0/ag_pam_bondi_announces_investigation_into_another/nlpelj7/
+
+Physical violence isn't fixing the issues.
+
+https://old.reddit.com/r/law/comments/1ohnxe0/ag_pam_bondi_announces_investigation_into_another/nlpwe52/
+
+The world needs leadership of peacefully disarming hate.
