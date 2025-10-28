@@ -2938,3 +2938,25 @@ https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_bi
 https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nltwb6m/
 
 Exactly Martin Luther King Jr's point. Technology lust, device lust for weapons and power, is in runaway. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nltuzh3/
+
+Not just language: images, status symbols, video games, memes, films. Surkov governing has defeated the USA. Russia won, Surkov won. Everything Reddit culture prizes.  ... ... ...         
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/
+At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nlts9vb/
+
+You don't win a "soul" with throwing punches at Americans. These pro-violence pro-hate "gloves off, be killers' messages. Russia won a information war people are in denial of. Since year 2013.
+
+https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nltxw7n/
+
+https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nltsgfp/
+
+https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nltt1sy/
+
+Wrong. Everythng is entertainment, amusement. Reddit audience addicts of Q / QAnon / "Q Drops" want a magical list. They don't desire anything but a list of information. The whole world can be on fire in nucler war and they stil only fixted on a list of information. A information packet. Minds being programmed on Reddit to only care about entertainment and amusement of playing a simulacra of chasing a list.
+
+https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nlu9qio/
+
+Laugh track for Reddit audience. Everything Trump / ongoing in USA 2025 is "LOL".
