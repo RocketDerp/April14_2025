@@ -1744,3 +1744,10 @@ https://old.reddit.com/r/PoliticalHumor/comments/1odpeb9/ya_think/
 
 Sports mentality, fame mentality, wealth mentality, gambling mentality    
 https://old.reddit.com/r/nba/comments/1of5k55/jaylen_brown_on_sports_betting_that_whole_world/
+
+&nbsp;
+
+&nbsp;
+
+Choice marriage honesty, to children on sex     
+https://old.reddit.com/r/funny/comments/1oht0jp/i_wasnt_in_your_vagina_thats_disgusting/
