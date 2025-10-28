@@ -3072,3 +3072,12 @@ https://old.reddit.com/r/videos/comments/1oiioz1/christian_nationalist_pastor_as
 
 No link, no citation, but at least an author name / citation of name. Anti-left vs. anti-right. Hate vs. hate. Mob mentality, group think. Reddit and Bluesky thrive on anti-MAGA, let Russia mind-fuck MAGA into self-harm and people cheer it on. People "LOL milk the cow" of Trump for amusement, self-harm cheered on as it provides constatn Reddit audience entertainment. ... ... ...       
 “Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published year 1955.
+
+https://old.reddit.com/r/CringeTikToks/comments/1oinlfp/trump_tells_the_military_he_is_deploying_troops/nlwrph9/
+
+Prized low-effort high-speed commenting above all else. Put media addiction to LOL and amusement above all goodness like the population did. Embraced Cambridge Analytica mind-fuck and Russian IRA since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1oinlfp/trump_tells_the_military_he_is_deploying_troops/nlwtcly/
+
+Teaching youd children to prize low-effort commenting on amusement mills instead of sharing serious nonfiction about Russian information warfare. Spare time and free time in service to Trump images and antics on Reddit.
+
