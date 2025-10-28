@@ -25,7 +25,7 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1oibqx7/posted_in_a_mom_grou
 
 It is SELF HARM. You spend your time at the side of the bed until the very last breath. You stand up for humanism. **YOU BECOME THE TEACHER, THE PREACHER** even to your own death and as people kill and murder you and torture you.
 
-You don't act like it is entertainment and amusement!
+You don't act like it is entertainment and amusement! Your faith in other people self-harming and blowing up the ship yhou are living on, sinking the whole nation in your LOL amusement! You have to RESCUE those mind-fucked by Putin's meme army! Lear, study, BE FUCKING GOD DAMN SERIOUS: https://www.bbc.com/news/world-us-canada-45294192
 
 You don't throw away thousands of years of moral learning and study into the trash and abandon it so you can **giggle away** at people's suffering. You don't turn it into your comedy show that real life suffering is going on.
 
