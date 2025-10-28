@@ -2990,3 +2990,17 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1oifbmz/psa_do_not_have_sex_wi
 <img width="1530" height="666" alt="image" src="https://github.com/user-attachments/assets/cfe29bd2-ecc7-4d7b-85e1-6b24db7480fa" /> Social media society has had since October 8, 2013 to promote and keep promoting Malala's book. Instead, since November 8, 2013 Moscow sex show of women, people comment upon / attention upon / post on Reddit - Donald J. Trump role model. Year after year after year avoiding Malala as "not good enough" leader. People despite women having voices and dialog, people flock to the *funny amusing* dialog / speech / communicatoins of Donald Trump as endless entertainment and mockery. Endless Trump prizing for anti-goodness. Always avoiding the Malala one click away. Prizing milking the "LOL cow" for memes of rich white dominating elderly males. ... ... ...          
 “If one man can destroy everything, why can't one girl change it?” ― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Published October 8, 2013.
 
+https://old.reddit.com/r/Music/comments/1oib8sn/63_of_republicans_disapprove_of_bad_bunny_as/nlue10s/
+
+The answer people have to fiction governing always seems to be to prize creating more fiction content, fantasy politics. Anything to avoid nonfiction learning about Russian information warfare and organizing and mouting a rescue of hearts and minds from the Internet Research Agency and Cambridge Analytica outcomes. Normalizing evertying via satire and mocking.
+
+https://old.reddit.com/r/Music/comments/1oib8sn/63_of_republicans_disapprove_of_bad_bunny_as/nluct8a/
+
+Why is Reddit society so angry, pissed off, anti-intellectual about the topic. Why are people acting like buisness is usual, Superbowl February 2026 as usual entertainment and amuseement? Reddit society is doing everything it can to avoid realizing Russia won an information war with entertainment and antics. Anything to avoid nonfiction learning of media ecology. One click away to wake up to the crisis. Not just MAGA, not just Republicans, not just the Super Bowl in February 2026, the addiction to entertainment and amusement games driving the entire USA into self-harm. Team sports menality, mob mentality thinking patterns.  ... ... ...      
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/Music/comments/1oib8sn/63_of_republicans_disapprove_of_bad_bunny_as/nlu6mqq/
+
+The magic answer: touching grass, fixes mental problems of Fox News and Russian media invasion and billionares wrecking hearts and minds. The simple-think that you go touch grass and magically your society is under the influence of the Russian Internet Research Agency since year 2013. Suddenly touching grass fixes Cambridge Analytica doctors programming into minds. Even LSD drug would probably not do that, that's the lazy man's Finnegans Wake. www.LazyWake.com - Simple think thought-ending phrases like "go touch grass" do not deal with Putin's win of hearts and minds.
+
