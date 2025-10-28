@@ -6,7 +6,7 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1oibqx7/posted_in_a_mom_grou
 
 You did not vote for this.
 
-And if everyone around you starts voting for self-harm and sucide, you start asking DEEP and SERIOUS questions. You don't turn it into a mockery chamber of "Leopareds eating voter faces of Amerians, ha ha ha ha ha LOL LOL LOL".
+And if everyone around you starts voting for self-harm and suicide, you start asking DEEP and SERIOUS questions. You don't turn it into a mockery chamber of "Leopards eating voter faces of Americans, ha ha ha ha ha LOL LOL LOL".
 
 * “Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
