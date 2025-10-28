@@ -177,3 +177,13 @@ Tuesday October 28, 2025 early morning / midnight Monday to Tuesday
 https://old.reddit.com/r/goodnews/comments/1ohznmq/joe_biden_just_delivered_the_speech_of_the_year/
 
 Demolishuing headline bullshit. The clip shows people are in denial. It is a wake up call of pointing people good from bad. "Good news" framing subreddit name. Bullshit. It is a call for change of direction, the news is terible. Every day is worse than the previous day. World Series is giong on, sports are not essential to life and democracy and people will not face up to entertainment addiction. Video games, sports games, meme games. People are drunk and blow their minds ut on horrible use of language that this is "demolishing" Trump.
+
+&nbsp;
+
+&nbsp;
+
+Tuesday October 28, 2025 morning
+
+https://old.reddit.com/r/MurderedByWords/comments/1oi8cyy/basic_needs_must_be_met/
+
+Another simualcra of Resistance, that exchaging insults is the way out of a total mockery that Russia intiaited since year 2013. A person who wants 40 million people to go without food but on Elon Musk Twiter has the decency of conduct to self-censor the wrd "fucking". It is mind-fuck content, corrupt mindset, and Reddit eats it up that a shit for shit flinging reply is "murder" by words. The murder is the feedback loop, shared on Reddit to feed Reddit society entertainment addictions. People who LOL-wash and amusement-wash away the sitution as a ARG / touch device screen game. For the thrills of mocking itself.
