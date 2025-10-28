@@ -2960,3 +2960,9 @@ Wrong. Everythng is entertainment, amusement. Reddit audience addicts of Q / QAn
 https://old.reddit.com/r/law/comments/1oi8s69/gopled_oversight_committee_says_biden_pardons/nlu9qio/
 
 Laugh track for Reddit audience. Everything Trump / ongoing in USA 2025 is "LOL".
+
+https://old.reddit.com/r/rareinsults/comments/1oifza0/the_top_comment_did_not_disappoint/nlvuk05/
+
+In a society that flocks to unusual and exoctic images to feed media addictions, A.I. provides a whole new topic. Faked by people? Faked by machines? Dramatic dress for public attention?
+
+https://old.reddit.com/r/rareinsults/comments/1oifza0/the_top_comment_did_not_disappoint/nlvt7r8/
