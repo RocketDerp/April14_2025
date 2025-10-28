@@ -3002,5 +3002,14 @@ Why is Reddit society so angry, pissed off, anti-intellectual about the topic. W
 
 https://old.reddit.com/r/Music/comments/1oib8sn/63_of_republicans_disapprove_of_bad_bunny_as/nlu6mqq/
 
-The magic answer: touching grass, fixes mental problems of Fox News and Russian media invasion and billionares wrecking hearts and minds. The simple-think that you go touch grass and magically your society is under the influence of the Russian Internet Research Agency since year 2013. Suddenly touching grass fixes Cambridge Analytica doctors programming into minds. Even LSD drug would probably not do that, that's the lazy man's Finnegans Wake. www.LazyWake.com - Simple think thought-ending phrases like "go touch grass" do not deal with Putin's win of hearts and minds.
+The magic answer: touching grass, fixes mental problems of Fox News and Russian media invasion and billionares wrecking hearts and minds. The simple-think that you go touch grass and magically your society is under the influence of the Russian Internet Research Agency since year 2013. Suddenly touching grass fixes Cambridge Analytica doctors programming into minds. Even LSD drug would probably not do that, that's the lazy man's Finnegans Wake. www.LazyWake.com - Simple think thought-ending phrases like "go touch grass" do not deal with Putin's win of hearts and minds. The "laughable joke" is how Surkov students mind-fucked USA via Reddit - to amusement-wash and joke-wash and laugh-wash all serious topics of media ecology and information warfare.
+
+https://old.reddit.com/r/Music/comments/1oib8sn/63_of_republicans_disapprove_of_bad_bunny_as/nlu6rqv/
+
+Russia won, Surkov won, since year 2013. No quotes from books, no book titles, no author names, no links. Just low-effort disposable "conversation style", not serious - commenting addictions all on different pages at diffferent times. And nobody calling for fighting back against Putin.
+
+https://old.reddit.com/r/Music/comments/1oib8sn/63_of_republicans_disapprove_of_bad_bunny_as/nlu6eh0/
+
+And peole will rentently turn to mocking and insulting and low-effort commenting in response. It works. Predictable.  It wins every debate. No technique can overcome the mob mentality of people attacking a serious person. Crowds are drawn to intelligence and belittle it in mob mentality. ... ... ...     
+"Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, **then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely**," she adds. "Those kinds of tactics are meant to stop democratic debate, and **they work**." - https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
 
