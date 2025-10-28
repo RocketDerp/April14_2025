@@ -3067,3 +3067,8 @@ https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-des
 "The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka.
 
 He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
+https://old.reddit.com/r/videos/comments/1oiioz1/christian_nationalist_pastor_associated_with_pete/nlvwx5i/
+
+No link, no citation, but at least an author name / citation of name. Anti-left vs. anti-right. Hate vs. hate. Mob mentality, group think. Reddit and Bluesky thrive on anti-MAGA, let Russia mind-fuck MAGA into self-harm and people cheer it on. People "LOL milk the cow" of Trump for amusement, self-harm cheered on as it provides constatn Reddit audience entertainment. ... ... ...       
+“Hitlerism was a mass flight to dogma, to the barbaric dogma that had not been expelled with the Romans, the dogma of the tribe, the dogma that gave every man importance only in so far as the tribe was important and he was a member of the tribe.” ― Milton Sanford Mayer, They Thought They Were Free: The Germans, 1933-45. Published year 1955.
