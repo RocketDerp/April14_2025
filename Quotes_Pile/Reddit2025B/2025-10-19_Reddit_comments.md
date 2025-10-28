@@ -2909,3 +2909,20 @@ https://old.reddit.com/r/worldnews/comments/1oi9z63/us_kills_14_in_strikes_on_fo
 
 Tiny-short messages to provide satire-washing track for Reddit audience. Set the mindds that the comedy media washes awaay serious topics.
 
+https://old.reddit.com/r/complaints/comments/1oi9iup/why_the_fuck_are_members_of_the_military_cheering/nltxamd/
+
+"Not even kidding". Everything on Reddit and Bluesky is meme material, everything is humor-washed, kidding-washed, amusement-washed. Low-effort commenting addicts (who prize disposable messages above all life on earth) / media addicts are thrilled to have entertainment leaders. In this following quote, [Howdy Doody fiction clown show](https://en.wikipedia.org/wiki/Howdy_Doody) is President Ronald Regan in year 1985 of book publication, second term in office / White House. ... ... ...   
+"All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**."
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
+
+https://old.reddit.com/r/complaints/comments/1oi9iup/why_the_fuck_are_members_of_the_military_cheering/nltsxwo/
+
+They will "figure it out" in cheered-on death for a flag. No they won't. Reddit can't figure it out. Russia won an informaiton war ON REDDIT since year 2013. Nobody has "figured it out" in over a god damn decade. Cambridge Analytica looped people's minds into self-harm feedback mocking. OPERA_A I am sure you aren't right. You better FIGURE IT OUT YESTERDAY, NOW! WAKE_INDRA_SUPER_STAR https://www.youtube.com/watch?v=eKrcd9o03SE  174,425 views April 16, 2020 ["Nothing Is True & Everything Is Possible is the sixth studio album by English rock band Enter Shikari, released on 17 April 2020"](https://en.wikipedia.org/wiki/Nothing_Is_True_%26_Everything_Is_Possible)
+
+https://old.reddit.com/r/complaints/comments/1oi9iup/why_the_fuck_are_members_of_the_military_cheering/nltyv9i/
+
+Egomania leader Donald J. Trump is the society values: egoism.
+
+https://old.reddit.com/r/complaints/comments/1oi9iup/why_the_fuck_are_members_of_the_military_cheering/nltyghx/
+
+<img width="958" height="448" alt="image" src="https://github.com/user-attachments/assets/fb190f3c-d478-4398-b4a0-8c2e2fd6d930" /> Citation, a founder of the field of psychology: "No nation keeps its word. A nation is a big, blind worm, following what? Fate perhaps. A nation has no honour, it has no word to keep. ... **Hitler is himself the nation**. That incidentally is why Hitler always has to talk so loud, even in private conversation — because he is speaking with 78 million voices." - Dr. Carl G. Jung. During an interview with **H. R. Knickerbocker (1939)**, quoted in A Life of Jung (2002) by Ronald Hayman, page 360
