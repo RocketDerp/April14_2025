@@ -3047,3 +3047,10 @@ https://old.reddit.com/r/CrazyFuckingVideos/comments/1oihzan/this_homeless_heate
 
 When Reddit people say "go touch grass", I really wonder how ignorant they are. How inexpereinced they are. I've lived in Colorado for years, I traveled in an RV all over USA full time. You have to really be anti-intellectual and in a filter bubble to think unusual and odd behaviors are limited to online. Donald J. Trump had a lifetime of "not on the Internet". The mind-fuck by Russia / Putin / Kremlin and Cambridge Analytica goes WAY BEYOND online. Touching grass doesn't fix self-harm in the mind. People can not recognize mass mind behaviors online or offline except when hating up others, and do not see the forest of change since year 2013. Media ecology leaerning by osmosis isn't working. People need to grap how education, learning, experience, reality is understood. "go touch grass" is a massive misunderstanding of how far off the rails the USA society has become. These people in that video in Colorado are touching fucking grass!
 
+https://old.reddit.com/r/ExplainTheJoke/comments/1oil00u/i_dont_get_it/nlwggpq/
+
+<img width="902" height="612" alt="image" src="https://github.com/user-attachments/assets/3850e7ef-40af-4eca-a639-e9782db8f7f7" /> If it is comedy and entertainment, anything goes. Label it as fiction, Star Wars Andor 2025 terrorism, and you can do anything. That's the whole basis of the Russian information warfare, the Internet Research Agency wrecking of USA since year 2013. War Against Nonfiction. Satire-wash, amusement-wash, abnadon reality and sincerity and concentrate as much power as possible in Putin's hands by wrecking the mindsets of people who constantly can not tell they are in unreality.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1oil00u/i_dont_get_it/nlwjehy/
+
+LOL-washing, society that prizes satire washing above goodness itself. Take a Steely Dan steam-powered ram-rod of NYC and shove the satire up your ass. Enema the shit show. Russia beat us. Disolve the corporation of satire. OPERA_A The Don of NYC sarcasm and satire, Band Leader Don F. https://www.youtube.com/watch?v=FiK2qICPP4o
