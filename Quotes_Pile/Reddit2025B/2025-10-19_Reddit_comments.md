@@ -3300,3 +3300,23 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divo
 
 Quantity over quality. Keeps fixated on the target.
 
+https://old.reddit.com/r/politics/comments/1oj9be8/mike_johnson_says_republicans_arent_in_charge_of/nm18ygv/
+
+Media addiction is charging the country into a brick wall. Media mania behaviors. Doctors of psycology at Cambridge Analytica tiled the USA into self-harm and out-group hate that nothing has reversed.  "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1oj9be8/mike_johnson_says_republicans_arent_in_charge_of/nm2dj4e/
+
+Reddit society could front-page media ecology lessons (sustained, repeating, every 6 or 12 hours). Starting with Jen Senko's 2015 film. But instead, disposable commenting is prized over and over.
+
+https://old.reddit.com/r/politics/comments/1oj9be8/mike_johnson_says_republicans_arent_in_charge_of/nm26szd/
+
+Fiction outsells nonfiction. Reddit commenting with no citations, no links, no author names, no book titles, no quotes, etc.
+
+https://old.reddit.com/r/politics/comments/1oj9be8/mike_johnson_says_republicans_arent_in_charge_of/nm1k8wr/
+
+Denial of Putin / Russia since year 2013. Always blaming Americans for Russia mind-fucking. Putin and Trump met just this summer in Alaska, but people say it is 100% one single man they fixate on: Trump. And hundreds of millions of We The People who prize low-effort commenting and won't halt entertaiment - ignored. Democracy is not a single man.
+
+https://old.reddit.com/r/politics/comments/1oj9be8/mike_johnson_says_republicans_arent_in_charge_of/nm1pbho/
+
+Self harm. People prize calling others: stupid, idiot, dumb, moron. Hate upon the injured is the prized game right now in year 2025 USA. It's all self-harm. Hate is self-harm.  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
