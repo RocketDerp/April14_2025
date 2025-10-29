@@ -154,7 +154,7 @@ It's like Donald Trump "owns" all the Reddit diaper poop jokes that people live 
 
 https://old.reddit.com/r/okbuddycinephile/comments/1oaki38/top_gun_3_2025/nkacnqx/
 
-My only answer why people desire this kind of shit and sudden mental behavior changes of people to flock to badness itself since year 2013 is the Internet Research Agency and Cambridge Analytica doctors. Trump trusts Putin, and people trust Trump. Why would any American trust Russia? That's how deep the mind-fuck goes. Russia was agressive and attacking Ukraine since year 2014, why would you trust Trump for trusting Putin and praising Puttin constantly. All trust insociety is broken when such inversion of goodness symbols abounds. ... ... ...        
+My only answer why people desire this kind of shit and sudden mental behavior changes of people to flock to badness itself since year 2013 is the Internet Research Agency and Cambridge Analytica doctors. Trump trusts Putin, and people trust Trump. Why would any American trust Russia? That's how deep the mind-fuck goes. Russia was agressive and attacking Ukraine since year 2014, why would you trust Trump for trusting Putin and praising Puttin constantly. All trust in society is broken when such inversion of goodness symbols abounds. ... ... ...        
 https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ He continued, "And **our job is to get, is to drop the bucket further down the well than anybody else** to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
 
 https://old.reddit.com/r/NoFilterNews/comments/1oamj1l/trump_is_preparing_a_coup_the_evidence_is_clear/nkajmvq/
@@ -3109,3 +3109,21 @@ The marketing and advertising Apple computer does on society and how it wrecks f
 "And these are the phenomenon that Baudrillard examines with the most care. Incredible information overloads with information moving at incredible speed and even to the youngest children. I have talked about how children used to learn morality from their parents and now I think that \[morality is learned from\] Super Mario Brothers. They spend much more time with Super Mario Brothers and are much more emotionally involved with Nintendo than they are with their aunts, their uncles, their mothers and their fathers." - 1993 https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlzj0ib/?context=3
+
+https://old.reddit.com/r/WFH/comments/1oitis5/after_4_years_of_wfh_i_understand_why_boomers/nly3b01/
+
+Pointless convesations... Reddit commenting....
+
+https://old.reddit.com/r/WFH/comments/1oitis5/after_4_years_of_wfh_i_understand_why_boomers/nly3jp0/
+
+Reddit messages of "never explain yourself", keep secrets, don't communicate and educate people. I have worked from home since 1999. I helped organize groups for "Jelly Work At Home" in Austin, Texas in year 2009 when working from home was not common as it is now after 2019 pandemic in USA. Why is there such an anti-education anti-learning attitude of "never ever ever ever ever talk about fight club" explain yourself.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ois4oi/florida_is_threatening_legal_action_against/nlxr7yw/
+
+Exploliting irony in the audience is Surkov governing methods. Fiction addictions to irony storytelling techniques vs. science non-fiction. It blows the minds of Reddit and Bluesky audiences into predictable patterns. Putin has used these techniques for over 25 years. ... ... ...     
+"a central part of a new system of political control. And to understand how this is happening, you have to look to Russia, to a man called Vladislav Surkov, who is a hero of our time. Surkov is one of President Putin's advisers, and has helped him maintain his power for 15 years, but he has done it in a very new way. He came originally from the avant-garde art world, and those who have studied his career, say that what Surkov has done, is to import ideas from conceptual art into the very heart of politics." - [BBC, Adam Curtis, NYE 2014](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html).
+
+https://old.reddit.com/r/CringeTikToks/comments/1ois4oi/florida_is_threatening_legal_action_against/nly1asq/
+
+Denial of the Russian Internet Research Agency invading USA society and Cambridge Analytica altering mindsets. It isn't only republicans, it is all people We The People, not just politicians who were MIND-FUCKED by CA. ... ... ...    
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ He continued, "And **our job is to get, is to drop the bucket further down the well than anybody else** to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
