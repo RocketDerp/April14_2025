@@ -3081,3 +3081,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1oinlfp/trump_tells_the_military
 
 Teaching youd children to prize low-effort commenting on amusement mills instead of sharing serious nonfiction about Russian information warfare. Spare time and free time in service to Trump images and antics on Reddit.
 
+https://old.reddit.com/r/politics/comments/1oio4l9/trump_fires_entire_agency_overseeing_his/nlxkgvs/
+
+Imagine if all the people spending free time and spare time on social media actually faced up to the behaviors of a 79 year old television addict and made Jen Senko a household name and started to study all together nonfiction fron Neil Postman.
+
