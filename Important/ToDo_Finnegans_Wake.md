@@ -147,3 +147,10 @@ see also: https://finwakeatx.blogspot.com/2014/05/joseph-campbell-on-how-to-read
 
 A science fiction show commitment. Marriage is Forever ideas. Mythological understanding.   
 https://old.reddit.com/r/SipsTea/comments/1oj2w3e/hope_she_finds_the_treasure_shes_looking_for/
+
+&nbsp;
+
+&nbsp;
+
+Put this up here on GitHub about poetry and Bible.    
+https://old.reddit.com/r/CuratedTumblr/comments/1oj616j/christian_rap_competition/nm1yn9s/
