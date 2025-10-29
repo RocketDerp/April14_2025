@@ -3239,3 +3239,5 @@ https://old.reddit.com/r/CringeTikToks/comments/1oj5own/trump_i_met_with_uh_mr_t
 
 Mocking a Tony Clifton performance is not resisting a Tony Clifton performance. People are eating the Surkovian onions.
 
+https://old.reddit.com/r/politics/comments/1oj4ez0/the_government_is_closed_the_president_is_mia/nm0eoqd/
+
