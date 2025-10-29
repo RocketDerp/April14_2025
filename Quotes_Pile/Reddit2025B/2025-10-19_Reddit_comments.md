@@ -3099,5 +3099,8 @@ So when a man, a husband goes MAGA in year 2022 and wants Putin and Trump to rul
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlyql2r/
 
+https://old.reddit.com/r/tattoo/comments/1oiw6ir/refunded_deposit_by_andres_acosta/nlz5xht/
+
+Sounds like what people in USA year 2025 say, you can leave. Where? The social media trending towards climate change denial and billionare values - we can't all move to the very few nations not being overrun with Putin's information war. Think they are having a great time in Mexico in year 2025? Howm many people are calling for world peace? Name them. I would like to witnessan actual movement of people who have had enough of egomania leaders who prize Putin and Trump. Canada isn't avoiding the media ecology trends as many people want to admit. And USA is trying to take over Canada. https://www.cbc.ca/news/politics/trump-51st-state-again-1.7647268
 
 
