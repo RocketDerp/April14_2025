@@ -982,3 +982,11 @@ https://old.reddit.com/r/Gamingcirclejerk/comments/1ohqyu9/based_angry_joe/
 https://old.reddit.com/r/minnesota/comments/1ohxgav/the_governor_urges_all_of_us_to_not_lose_the_plot/
 
 It's not just a phrase. USA society lost the plot. Democracy does not work without love and compassion. MLK Jr's 1950's teachngs about military and organization power were not to be ignored. You turn love into a competititon of attraction and charm and you end up with competitive rat race winners like Putin. You don't listen to Leo B and you end up in a world without love and people wishing for rocks to smash into the Earth and destroy life and people cheering on climate change as a "tears of suffering" LOL LOL amusement.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1oj6hsc/state_of_twitter_right_now/
+
+Amusmeent-washing humor-washing, framing as "politica entertaiment humor" (subreddit) the information war. Everything with Trump is amusement to death since JUNE 16, 2015, FOR OVER TEN YEARS. [Neil Postamn was correct in year 1985 about Reddit and Bluesky meme-washing entertainment-washing serious problems away to be ignored](../Specific/Postman_1985_Howdy_Doody.md) - and that was WITHOUT active measures! That in 1985 was describing the Reddit media ecology / media environment crisis WITHOUT active effort by Putin's army all over Reddit since year 2013. https://www.bbc.com/news/technology-43301643
