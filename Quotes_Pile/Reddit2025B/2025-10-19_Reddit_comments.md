@@ -3260,3 +3260,7 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divo
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm2xqq2/
 
 "head injury" behavior abounds, target fixated.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm31cg0/
+
+This fresh Reddit account is fixated on target.
