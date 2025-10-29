@@ -3191,3 +3191,4 @@ CAMPBELL: He, the eye, what is represented by the eye. Reason. In Latin you woul
 
 If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, the tumult in Europe, wars and wars and wars -- we have pulled ourselves out of it and created a state in the name of reason, **not in the name of power**, and out of that will come the flowerings of the new life. That's the sense of that part of the pyramid.
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm09crj/
