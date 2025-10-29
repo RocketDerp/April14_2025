@@ -3221,3 +3221,11 @@ https://old.reddit.com/r/explainitpeter/comments/1oj3k4f/explain_it_peter/nlzzz2
 
 Wow, the most extreme and deranged girls / who own car / invite you out on a date. My god are people afraid of thier monomyth mindset patterns and gong into another media realm. I live in the USA in October 2025, and I've studied Putin under Russia attacking Ukraine - and there are far worse mindsets than "Hello Kitty". People have their mind blown-out by media patterns, "Hello Kitty" mind blown.
 
+https://old.reddit.com/r/nottheonion/comments/1oj46we/ice_invokes_halo_remake_seeks_recruits_to_destroy/nm06k2n/
+
+Gamer-washng, gaming-washing, video game addict exploiting. A society driven by media mania, implanted symbolisms. Russia won, Surkov won, Putin won. Since year 2013. [Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md) around MAGA / Fox News HDTV / Truth Social Internet / White House media coverage / Reddit / XBox / etc.
+
+https://old.reddit.com/r/nottheonion/comments/1oj46we/ice_invokes_halo_remake_seeks_recruits_to_destroy/nm04j8v/
+
+Media addict discussing Reddit media addicts subreddit. Mind blown to see Surkov governing in action. Fiction addiction, Halo is monomyth science fiction. Like Quran science fictin running Mecca / Saudi Arabia. Blowing up in our faces. Surkov monomyth patterns won.
+
