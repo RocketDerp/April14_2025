@@ -13,5 +13,5 @@ People are attracted to the Mosque, Church, Synagogle, Temple, movie cinema. All
 People are attracted to having their minds blown by billionares making expensive Star Wars Andor TV shows in year 2025.   
 People are attracted to content that blows out thier minds. They flock to it.
 
-* In the Huxleyan prophecy, Big Brother does not watch us, by his choice. **We watch him**, by ours.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+* "In the Huxleyan prophecy, Big Brother does not watch us, by his choice. **We watch him**, by ours.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
