@@ -3323,3 +3323,7 @@ Self harm. People prize calling others: stupid, idiot, dumb, moron. Hate upon th
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm3kxkx/
 
 Still target fixated. Anti-intellectual, "TLDR" "ELI3" Twitter-think machine lust.
+
+https://old.reddit.com/r/explainitpeter/comments/1ojbdp5/i_dont_get_it_explain_it_peter/nm3h375/
+
+Media ecology lesson material ;)
