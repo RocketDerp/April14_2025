@@ -3135,3 +3135,24 @@ https://old.reddit.com/r/CringeTikToks/comments/1ois4oi/florida_is_threatening_l
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlzpt50/
 
+https://old.reddit.com/r/Fauxmoi/comments/1oiqx0j/mandy_patinkin_zohran_mamdani_is_a_deeply/nlxrfbd/
+
+Reddit commenting that avoids citing authors, books, links, etc. People prize disposable conversation over serous discourse. It's gotten so bad, what Neil Postman described in his 1985 book "Amusing Ourselves To Death" about **public discourse** - that I find a great tool is to use dead author's words. Or people like Malala from Pakistan. Because people think our brains are so different from Pakistan that they can't even connect situations. The whoe Mulsim aspect of Mamdani... is he a Sufi or a Sunni / Shia? Sufi and Sunni share the same sets of material but interpret it very differently. New York City, home of Sarah Lawrence College - the importance of comparative mythology education has never been stonger than after September 11, 2001. Dead authors like Joseph Campbell explaining the religion vs. religion (USA Christians programmed hate upon Muslims) crisis. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the **Christians of the Muslims**, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+JOSEPH CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. **It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future**.
+MOYERS: What kind of new myth do we need?
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+MOYERS: There is something about that on the Great Seal of the United States.
+CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/Fauxmoi/comments/1oiqx0j/mandy_patinkin_zohran_mamdani_is_a_deeply/nly5lmj/
+
+This reddit comment is referencing the "genocide" of October 7, 2023. The issues of New York City and Christian vs. Muslim run FAR deeper, even deeper than September 11, 2021. People really lack education in comparative mythology and the whole fiction vs. nonfiction aspects (fiction vs. fiction in this situation, Fox News New York City too).
+
+https://old.reddit.com/r/Fauxmoi/comments/1oiqx0j/mandy_patinkin_zohran_mamdani_is_a_deeply/nlxnw9a/
+
+Every child under Donald Trump role model since June 16, 2015 doesn't have that. Reddit society that LOL-washed meme-washed Trump as the greatest source of mocking and entertainment. Abandoning nonfiction science, failing to defend against the Internet Research Agency (Russia / Putin / Kremlin).
+
+https://old.reddit.com/r/Fauxmoi/comments/1oiqx0j/mandy_patinkin_zohran_mamdani_is_a_deeply/nlxwe3h/
+
+And everyday people on Reddit, they are all perfect. Where is this planet of non-assholes. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
