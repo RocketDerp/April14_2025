@@ -27,3 +27,22 @@ People in USA say "learn to speak English!"
 "Lingustic Racism" https://www.bbc.com/worklife/article/20210528-the-pervasive-problem-of-linguistic-racism
 
 Having autism and the constant games people play with language and meme-speak and being bigoted towards out-groups, prizing hate. Tower of Babbel warfare and dehumanization.
+
+&nbsp;
+
+# 2,000 year old
+
+The Bible is 2,000 year old, and in my home nation USA, people prize The Bible and prize Church. All my family does. Donald Trump poses with Bible. https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church
+
+People get Trump to autograph The Bible. https://www.businessinsider.com/trump-profited-from-sales-of-god-bless-the-usa-bible-2024-8
+
+My LANGUAGE concern of the Tower of Babel, verse John 1:1 word and language conflicts, is why so many people for OVER TEN YEARS - since June 16, 2015 - can not locate Bible verse "1 John 3:17" and reference it relative to Elon Musk, Donald Trump, Rupert Murdoch, etc.
+
+This isn't a "word salad" issue, it is a problem of comprehension and understanding and locating TWO THOUSAND YEAR OLD CONCEPT on page "1 John 3:17" (verse) to match up to the real-world reality of USA year June 2015 onward. How Rupert Murdoch's wealth-praise media networks are programming HDTV channels and other media systems across the world to worship wealth leaders. The very definition of "love" as a word is in verse "1 John 3:17".
+
+If we can't even get on the page of problems from the 2,000 year old book that is printed all over the place on paper and has dedicated Church venues all over the palce, what hope do we have geetting on the same page of meaning and topics with Bluesky and Reddit comments?
+
+That's my langauge concern! Meaning! REAL WORLD. ../Reality/Substantive.md
+
+That's the HATE conflicts I see, the wealthy of the world programming machines of media, media devices, media networks, medium of delivery - to hammer economic prizing into minds and it's blowing up in our faces. The hate conflicts over media style / meme decoration / meme framing / colors and images on top of the words. Media ecology.
+
