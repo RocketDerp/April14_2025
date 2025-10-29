@@ -3192,3 +3192,17 @@ CAMPBELL: He, the eye, what is represented by the eye. Reason. In Latin you woul
 If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, the tumult in Europe, wars and wars and wars -- we have pulled ourselves out of it and created a state in the name of reason, **not in the name of power**, and out of that will come the flowerings of the new life. That's the sense of that part of the pyramid.
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm09crj/
+
+https://old.reddit.com/r/interestingasfuck/comments/1oj3m3r/i_wouldnt_want_to_be_on_the_receiving_end_of_that/nm018o7/
+
+https://old.reddit.com/r/interestingasfuck/comments/1oj3m3r/i_wouldnt_want_to_be_on_the_receiving_end_of_that/nm09b3n/
+
+Edible animals are treated the same. Alas, we don't teach comprative mythology.
+
+https://old.reddit.com/r/interestingasfuck/comments/1oj3m3r/i_wouldnt_want_to_be_on_the_receiving_end_of_that/nm01eu1/
+
+https://old.reddit.com/r/clevercomebacks/comments/1oj1ylp/california_should_aspire_to_be_44th_in_education/nm0f2rq/
+
+The Reddit community upvoted this to front page as a super "clever comebacks", that a person said **"Hush, Honey"** to a woman. Telling women to keep their mouths shut on education topics. Very popular message for machine lovers who hate human persons, who want to silence girls / females / women / genders. Reddit machine delivery of messages to mind-fuck of the Reddit audience. Telling a woman to **hush**. ... ... ...           
+“We realize the importance of our **voices only when we are silenced**.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. Octobdr 8, 2013
