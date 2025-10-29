@@ -3269,3 +3269,18 @@ https://old.reddit.com/r/law/comments/1ojepsh/charges_dropped_tennessee_authorit
 
 Yet you almost never see Reddit people discuss nonfiction of "information warfare". People on Reddit don't discuss the "secret police" who removes messages, bans users. People on Reddit discuss being banned, but not in terms of the secrecy of it, the lack of transparency, and the hidden (masked like I.C.E. agents) behind the scenes aspects of it. Nor do people discuss the Internet Research Agency by name - are messages removed that mention it, or do people not study nonfiction on the topics of meme warfare / media ecology? https://www.bbc.com/news/world-us-canada-45294192 
 
+https://old.reddit.com/r/law/comments/1ojepsh/charges_dropped_tennessee_authorities_dismiss/nm2ka2k/
+
+https://old.reddit.com/r/law/comments/1ojepsh/charges_dropped_tennessee_authorities_dismiss/nm31o1x/
+
+Egomania abounds in USA 2025.
+
+https://old.reddit.com/r/law/comments/1ojepsh/charges_dropped_tennessee_authorities_dismiss/nm2r3du/
+
+Sef harm to USA. Self harm is self-harm to the nation.
+
+https://old.reddit.com/r/law/comments/1ojepsh/charges_dropped_tennessee_authorities_dismiss/nm2wqp2/
+
+Polyanna attudes abound. Denila abounds. That goodness is being favored and that it is inevitable that truth wins. People are not standing up for truth, and messages like this are to downplay the situation and whitewash it into alway and inevitably failing when minds are corrupted by Russina information warfare since year 2013. There has been no society discussion that maybe Cambridge Analytica doctors dug too deep into minds and there are negative side-effects / outcomes. All the behavior around Charlie Kirk has been deeply emotional and anti-goodness, anti-empathy (Elon Musk and Charlie Kirk both attacked empathy in their media programs). ... ... ...        
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ He continued, "And **our job is to get, is to drop the bucket further down the well than anybody else** to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
