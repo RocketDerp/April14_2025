@@ -3162,3 +3162,32 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divo
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlzw5ee/
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlzx53m/
+
+https://old.reddit.com/r/law/comments/1oizeil/trump_if_i_want_to_enact_a_certain_act_id_be/nlzao88/
+
+Todler-washing, child-washing, infant-washing Donald J. Trump. That Putin and Trump are not responsible for the self-harm to USA, because *innocent children* are not not responsible for their choices and actions. Tiny-short message thining patterns, Reddit-mind fuck of Reddit audience.
+
+https://old.reddit.com/r/law/comments/1oizeil/trump_if_i_want_to_enact_a_certain_act_id_be/nlzzl1l/
+
+God is a fiction character in USA Bible / Church storytelling. Alas, humor-washing of serious problems of Bible literacy / science fiction story literacy is so normal and common people have no desire to actually organize as We The People and teach Bible verse "1 John 4:20" that you can not *see God*, because he is a fiction character like Hamlet's Ghost science ficiton or Star Wars 1977 "Force Ghost" characters. Magical angels are not going to save us from avoiding Marshall McLuhan (University of Toronto) media ecology learning.
+
+https://old.reddit.com/r/law/comments/1oizeil/trump_if_i_want_to_enact_a_certain_act_id_be/nlzd30r/
+
+Reddit audience members have their minds blown into meme stupor by the conradicotry / surreal / absurd Kremlin Surkov techniques of media and beahviors. Meme stupor addictions to the rapid high speed messaging and no desire to actually learn nonfiction about Russian information warfare since year 2013.
+
+https://old.reddit.com/r/law/comments/1oizeil/trump_if_i_want_to_enact_a_certain_act_id_be/nm01v2o/
+
+Egomania, self-centered, abounds in USA society. Touch devices and Cambridge Analytica doctors were a toxic combination for egoism. 
+
+https://old.reddit.com/r/law/comments/1oizeil/trump_if_i_want_to_enact_a_certain_act_id_be/nlz8jzj/
+
+A short message, but far better focus on the classical phrase "drunk on power". Not dementia-washing, not tolder-washing child-washing, but power itself being the crisis.  George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+
+JOSEPH CAMPBELL: "A new order of the world." This is a new order of the world. And the saying above, "Annuit Coeptis," means "He has smiled on our accomplishments" or "our activities."
+
+BILL MOYERS: He --
+
+CAMPBELL: He, the eye, what is represented by the eye. Reason. In Latin you wouldn't have to say "he," it could be "it" or "she" or "he." But the divine power has smiled on our doings. And so this new world has been built in the sense of God's original creation, and the reflection of God's original creation, through reason, has brought this about.
+
+If you look behind that pyramid, you see a desert. If you look before it, you see plants growing. The desert, the tumult in Europe, wars and wars and wars -- we have pulled ourselves out of it and created a state in the name of reason, **not in the name of power**, and out of that will come the flowerings of the new life. That's the sense of that part of the pyramid.
+
