@@ -1,4 +1,6 @@
-# Out Mock Total Mockery
+# Out-Mock Total Mockery
+
+Out-mocking a Total Mockery situation.
 
 https://autistics.life/@RoundSparrow/115457893044188138    
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m4dnekpku22n
