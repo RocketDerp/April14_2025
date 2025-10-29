@@ -3264,3 +3264,8 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divo
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm31cg0/
 
 This fresh Reddit account is fixated on target.
+
+https://old.reddit.com/r/law/comments/1ojepsh/charges_dropped_tennessee_authorities_dismiss/nm2iv2y/
+
+Yet you almost never see Reddit people discuss nonfiction of "information warfare". People on Reddit don't discuss the "secret police" who removes messages, bans users. People on Reddit discuss being banned, but not in terms of the secrecy of it, the lack of transparency, and the hidden (masked like I.C.E. agents) behind the scenes aspects of it. Nor do people discuss the Internet Research Agency by name - are messages removed that mention it, or do people not study nonfiction on the topics of meme warfare / media ecology? https://www.bbc.com/news/world-us-canada-45294192 
+
