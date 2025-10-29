@@ -3241,3 +3241,17 @@ Mocking a Tony Clifton performance is not resisting a Tony Clifton performance. 
 
 https://old.reddit.com/r/politics/comments/1oj4ez0/the_government_is_closed_the_president_is_mia/nm0eoqd/
 
+https://old.reddit.com/r/politics/comments/1oj4ez0/the_government_is_closed_the_president_is_mia/nm0vy81/
+
+https://old.reddit.com/r/politics/comments/1oj4ez0/the_government_is_closed_the_president_is_mia/nm0i2vx/
+
+https://old.reddit.com/r/news/comments/1ojaze0/pentagon_orders_states_national_guards_to_form/nm1oeqa/
+
+Russia won the information war since year 2013. Internet Research Agency... hearts and minds lost, self-harm of USA mindsets abound. We need to rescue the White House from Putin's Surkov monomyth mind-fucking.
+
+https://old.reddit.com/r/news/comments/1ojaze0/pentagon_orders_states_national_guards_to_form/nm23uua/
+
+Russia claims 5,000 patterns of anti-reality, change the filter bubble of media intake a little, and you still aren't engaging reality. I suggest as a solution everyone flock to dead author Neil Postman's teachings and get on the same page of media-induced mindsets / media echology self-awareness.
+
+https://old.reddit.com/r/news/comments/1ojaze0/pentagon_orders_states_national_guards_to_form/nm1wctk/
+
