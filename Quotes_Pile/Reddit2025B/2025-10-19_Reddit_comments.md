@@ -3085,3 +3085,19 @@ https://old.reddit.com/r/politics/comments/1oio4l9/trump_fires_entire_agency_ove
 
 Imagine if all the people spending free time and spare time on social media actually faced up to the behaviors of a 79 year old television addict and made Jen Senko a household name and started to study all together nonfiction fron Neil Postman.
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlyis8s/
+
+There is so much avoidance of the topics of Edward Bernays marketing, or the cult of workplace/etc. Consumerism. In 1975 USSR would purchasing a car and jewels be the same? Nigeria 1975? These things people look at... year 2024 and Palestine people behavior?
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlyifbw/
+
+Does she pull knifes on other people? Her friends? Her parents? Is there only one person in her entire lifethat she pulls a knife on? Why keep it secret, why not journal the whole event / date time and converation. People cover up their mistakes and seemt o have no desire to learn. Is she in the military, was she trained to kill people / murder in combat? Is "sweetst person in the world" not extreme, is it only towrds a single person - or at work is she sweet and winning awards for her behavior? How much time are you really spending with this person - do you work together every day or does she have a career and travels on business part of the month away, etc. A bi-polar brain doesn't behave only this way because of one single person.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlyvquf/
+
+So when a man, a husband goes MAGA in year 2022 and wants Putin and Trump to rule the world.. what medications fix that problem? When year 2022 men in Palestine go terrorism and want to attck Israel... what medication fix that problem? When Fox News audience promotes violence and hate aginst Mexicans... what medication fix for that problem. Yes, my comment is out of context, but taking a person out of conext of their society / religion / job / precise drugs they are taking / marketing and advertising they are manipulated with / etc / etc /etc. When people prize hate and prize drugs and may live in a war zone of Ukraine or Palestine ... or even be exposed to witnessing how people behve in Russia and Israel and Palestine... the consumption of information. They were only mqrried 4 years, was the dughter born in the mqrriage? Did the womnan's behavior change because of child-birth? Because of age, how old when married? Living in different climate / culture... did move from hot area in Jordan to rainy area in Seattle, USA? Do people think of these things or is it only because of the short social media patterns and short meaning of "forever marrige" social constructs? Does anybody teach any of marriage in school / or is marriage in USA 1935 entirely different from marrige in USA 2025 because of Christin Church and laws about women having their own bank accounts. https://www.usatoday.com/story/news/factcheck/2020/10/28/fact-check-9-things-women-couldnt-do-1971-mostly-right/3677101001/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlyql2r/
+
+
+
