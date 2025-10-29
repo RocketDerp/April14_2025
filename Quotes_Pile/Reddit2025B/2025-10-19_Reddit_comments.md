@@ -3287,3 +3287,16 @@ https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-des
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm33zo1/
 
 Still target fixated.
+
+https://old.reddit.com/r/clevercomebacks/comments/1ojdck8/epstein_files_fallout/nm33dtz/
+
+Self-harm to the USA has been the behavior top to bottom of society. People who prize hate and prize dehumanization in favor lust for systems / lust for machines / lust for control systems and power. It is like domestic Russia for the past 25 years under Putin, self-harm. Attraction to badness.
+
+https://old.reddit.com/r/clevercomebacks/comments/1ojdck8/epstein_files_fallout/nm2l040/
+
+Since year 2013 when the Internet Research Agency started infiltrating all media systems, it has been worse every day. People can not recognize the widespread avoidance of goodness. Hate is prized. Dehumanization is prized. Humanism is outright attacked. Elon Musk "mind virus" of empahty being attaked. People either do not grasp the wealth and power of these agressive men or understand the full meaning of attacking "empathy" itself. And that billionares are openly telling the public they manipulated "mind viruses" in society. Charlie Kirk was also opengly attacking empathy. How much more direct can the dehumanzation agenda be in language? Was climate hange denial, pro-polution, pro-measles, pro-disease not clear enough? https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm3d24x/
+
+Quantity over quality. Keeps fixated on the target.
+
