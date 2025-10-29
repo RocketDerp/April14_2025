@@ -1,4 +1,4 @@
-# Your Grammer, Your World Salad
+# Your Grammer, Your Word Salad
 
 If a handicapped person without legs runs in a marathon people cheer.     
 https://www.swxlocalsports.com/news/tekoa-native-susannah-scaroni-wins-boston-marathon-womens-wheelchair-division/article_4933e464-5325-567c-ac0c-525268e1e269.html
