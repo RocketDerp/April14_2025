@@ -42,7 +42,7 @@ This isn't a "word salad" issue, it is a problem of comprehension and understand
 
 If we can't even get on the page of problems from the 2,000 year old book that is printed all over the place on paper and has dedicated Church venues all over the palce, what hope do we have geetting on the same page of meaning and topics with Bluesky and Reddit comments?
 
-That's my langauge concern! Meaning! REAL WORLD. ../Reality/Substantive.md
+That's my langauge concern! Meaning! REAL WORLD. SEE_ALSO: [ScreenPlay Reality:Substantive](../Reality/Substantive.md)
 
 That's the HATE conflicts I see, the wealthy of the world programming machines of media, media devices, media networks, medium of delivery - to hammer economic prizing into minds and it's blowing up in our faces. The hate conflicts over media style / meme decoration / meme framing / colors and images on top of the words. Media ecology.
 
