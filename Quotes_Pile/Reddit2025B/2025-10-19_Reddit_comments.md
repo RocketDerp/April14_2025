@@ -3230,3 +3230,12 @@ https://old.reddit.com/r/nottheonion/comments/1oj46we/ice_invokes_halo_remake_se
 Media addict discussing Reddit media addicts subreddit. Mind blown to see Surkov governing in action. Fiction addiction, Halo is monomyth science fiction. Like Quran science fictin running Mecca / Saudi Arabia. Blowing up in our faces. Surkov monomyth patterns won.
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm16v75/
+
+https://old.reddit.com/r/CringeTikToks/comments/1oj5own/trump_i_met_with_uh_mr_toyota_and_we_had_an/nm0hh2b/
+
+The most upvoted / popular comment. No author names, no book quotes, no book titles. Just reactionary conditioned IRA and CA mindsets. Mind blown wide open. [The **OBVIOUS** of the mind exploit is the **Surkovian** methods. **Chess 1024 D that Russia plays**](/Grim_Blunt/Donald_Trump_is_so_Obvious.md)
+
+https://old.reddit.com/r/CringeTikToks/comments/1oj5own/trump_i_met_with_uh_mr_toyota_and_we_had_an/nm0iwmq/
+
+Mocking a Tony Clifton performance is not resisting a Tony Clifton performance. People are eating the Surkovian onions.
+
