@@ -3156,3 +3156,8 @@ Every child under Donald Trump role model since June 16, 2015 doesn't have that.
 https://old.reddit.com/r/Fauxmoi/comments/1oiqx0j/mandy_patinkin_zohran_mamdani_is_a_deeply/nlxwe3h/
 
 And everyday people on Reddit, they are all perfect. Where is this planet of non-assholes. Hate itself is the problem. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlzutnd/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlzw5ee/
+
