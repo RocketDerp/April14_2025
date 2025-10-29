@@ -197,3 +197,15 @@ Tuesday October 28, 2025 afternoon
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1oihr7m/democrats_finally_playing_hardball/
 
 Reddit declares that **finally someone is playing the game, hardball**. Entertainment addicts and sports-ball mentality. Entirely detached from reality. Amusement mill Reddit has been entertainment-washing Trump amusement-washing Trumpism / MAGA / Russin information warfare since 2014 when stories about Ukraine and new Kremlin media methods. People eat it up, addiction to sports-think amusements and images are the very mechanism of Putin and Trump power using Surkov techniques. A poster! Simualcra of resistance. Not educating people in Surkov techniques, nonfiction learning of how all this has go so far for USA addiction to a ballroom of entertainment / venue addiction / dancing images and presenttaion addictions.
+
+&nbsp;
+
+&nbsp;
+
+Wednesday, October 29, 2025 morning
+
+https://old.reddit.com/r/Fauxmoi/comments/1oj4zkm/kevin_mchale_is_everyone_just_super_fucking_racist/
+
+Front page of Reddit. Extremely short smplsitic Twitter message, Tweet-thinking tiny-short messaging mindsets. "EVERYONE is racist". This is taken to th front page of Reddit. Repeating over and over extremely simplsitic interpretations of the problem. Filter-bubble is the greater issue going on in October 2025. https://en.wikipedia.org/wiki/Filter_bubble - people in USA are suffering from EXTREME INFORMATION OVERLOAD, and have revereted to Twitter-thinnk mindsets, conditioned by the doctors / psychologists / psyciatrists of Cambridge Analytica. Bombarded by Levant conflicts of October 7 2023 Quran science fiction vs. Torah science fiction. Media ecology learning was abandoend, simple-think Twitter messaging ruling minds. Dr. Martin Luther King Jr's 1954 equation abandoned. Goodness itself not pirzed, hate is prized. We ar in a contest of "hate harder" triggered by the Russian Internet Research Agency infiltration of Reddit and Twitter and Facebook and EVERYWHERE since **year 2013**! https://www.bbc.com/news/technology-43301643 the simualcras of avoiding nonfiction and comprehension have taken over! People think mocking other people is resisting, it is exactly the OPPOSITE! Mocking is the very mindset self-harm Russia has induced in USA population since year 2013!
+
+
