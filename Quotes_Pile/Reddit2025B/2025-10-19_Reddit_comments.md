@@ -3229,3 +3229,4 @@ https://old.reddit.com/r/nottheonion/comments/1oj46we/ice_invokes_halo_remake_se
 
 Media addict discussing Reddit media addicts subreddit. Mind blown to see Surkov governing in action. Fiction addiction, Halo is monomyth science fiction. Like Quran science fictin running Mecca / Saudi Arabia. Blowing up in our faces. Surkov monomyth patterns won.
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm16v75/
