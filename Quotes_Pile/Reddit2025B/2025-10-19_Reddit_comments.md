@@ -3161,3 +3161,4 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divo
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlzw5ee/
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nlzx53m/
