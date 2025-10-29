@@ -990,3 +990,12 @@ It's not just a phrase. USA society lost the plot. Democracy does not work witho
 https://old.reddit.com/r/PoliticalHumor/comments/1oj6hsc/state_of_twitter_right_now/
 
 Amusmeent-washing humor-washing, framing as "politica entertaiment humor" (subreddit) the information war. Everything with Trump is amusement to death since JUNE 16, 2015, FOR OVER TEN YEARS. [Neil Postamn was correct in year 1985 about Reddit and Bluesky meme-washing entertainment-washing serious problems away to be ignored](../Specific/Postman_1985_Howdy_Doody.md) - and that was WITHOUT active measures! That in 1985 was describing the Reddit media ecology / media environment crisis WITHOUT active effort by Putin's army all over Reddit since year 2013. https://www.bbc.com/news/technology-43301643
+
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ojd332/that_is_the_true/
+
+That's why people like Trump. He provides endless entertainment and amusement. People love horror story films, it's Halloween. People were bored with nonfiction leaders. People who hate Trump prize hate, it's a total society that values hate.
