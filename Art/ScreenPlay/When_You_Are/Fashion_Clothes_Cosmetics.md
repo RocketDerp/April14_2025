@@ -2,6 +2,8 @@
 
 When I worked for Paul Allen Group in Bellevue Washington / NFL team owner / NBA team owner... there was the business card / job identity mask / brand / identity in Seattle.
 
+Even when it is a non-famous person, go to strip clubs and study how men behave. Look at the men around you and how they react to cosmetics / clothing / mask of the women working their hardest to draw attention and earn money. The effort in cosmetics. Study the post-Woodstock liberation 1970's acts / 1980's / 1990's / before the Internet could do images and live video easily. (1971 was a post-woodstock year to study in USA https://www.usatoday.com/story/news/factcheck/2020/10/28/fact-check-9-things-women-couldnt-do-1971-mostly-right/3677101001/ )
+
 &nbsp;
 
 Lecture I.1.2 - The Individual in Oriental Mythology     
