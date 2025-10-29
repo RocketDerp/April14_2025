@@ -3255,3 +3255,4 @@ Russia claims 5,000 patterns of anti-reality, change the filter bubble of media 
 
 https://old.reddit.com/r/news/comments/1ojaze0/pentagon_orders_states_national_guards_to_form/nm1wctk/
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm2u69m/
