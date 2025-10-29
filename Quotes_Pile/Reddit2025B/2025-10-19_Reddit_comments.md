@@ -3320,3 +3320,6 @@ https://old.reddit.com/r/politics/comments/1oj9be8/mike_johnson_says_republicans
 
 Self harm. People prize calling others: stupid, idiot, dumb, moron. Hate upon the injured is the prized game right now in year 2025 USA. It's all self-harm. Hate is self-harm.  We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm3kxkx/
+
+Still target fixated. Anti-intellectual, "TLDR" "ELI3" Twitter-think machine lust.
