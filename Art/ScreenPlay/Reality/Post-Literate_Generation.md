@@ -23,3 +23,6 @@ When the sidewalks are safe for "The Little Guy"
 
 Carpenter's metaphors:    
 https://youtu.be/yqpo9GqTaV8?t=662
+
+QAnon, Surkov year 2014 "But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - BBC, Adam Curtis, December 31, 2014 (NYE year 2014)         
+https://youtu.be/yqpo9GqTaV8?t=1857
