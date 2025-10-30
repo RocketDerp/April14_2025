@@ -1,6 +1,6 @@
 # Neil Postman Was Right in 1985
 
-Year 1985.
+Year 1985. Neil Postman was Correct in his analysis.
 
 BEFORE the November 2024 election. Before Kamala Harris was candidate for President.
 
