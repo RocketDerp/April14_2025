@@ -163,4 +163,5 @@ https://old.reddit.com/r/MurderedByWords/comments/1ojvvt8/a_cheap_shot_to_start_
 
 The context of this is that "God" is The Bible, Jesus / Levant book The Bible. John 1:1 verse 
 
-It is not personal. People are misreading a schience fiction book and that problem is being ignored. Anti-God is anti science fiction leadership, especially terrible interpretations of The Bible that ignore "1 John 3:17" verse. This is morality-washing. A simulacra of resistance.
+It is not personal. People are misreading a schience fiction book and that problem is being ignored. Anti-God is anti science fiction leadership, especially terrible interpretations of The Bible that ignore "1 John 3:17" verse. This is morality-washing. A simulacra of resistance. The context of "God" as being www.GreatSealUSA.com is also being ignored.  
+
