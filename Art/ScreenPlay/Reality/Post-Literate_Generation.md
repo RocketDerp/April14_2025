@@ -21,3 +21,5 @@ https://www.youtube.com/watch?v=XGQtq9PD9iA
 
 When the sidewalks are safe for "The Little Guy"
 
+Carpenter's metaphors:    
+https://youtu.be/yqpo9GqTaV8?t=662
