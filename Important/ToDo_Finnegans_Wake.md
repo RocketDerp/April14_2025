@@ -174,3 +174,10 @@ https://old.reddit.com/r/comedyheaven/comments/1ojwoai/lettus/
 The whole point of a note is to not have to repeat it verbally and give people a chance to find out quickly and exit to another food venue. Alas, word-choice like "food venue" is all people concern with, Spelling.  Reddit society prizes conformity and mockery as school is a factory of all spelling identical shunning-enforced mocking-enforced way.
 "Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why." - Letter to Fanny Guillermet (Zurich, 5 September 1918). Important context: October 30, 2025 when this made Reddit front page. Donald Trump language is the society role model of communications and Truth Social is the gold standard of what parents give to children for their future. Since June 16, 2015.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1ok090v/vance_publicly_expresses_disappointment_his_wife/
+
+JD Vance met the Pope in year 2025 with his power of the White House. Went to the funeral (IIRC). James Joyce's body of work from 1910's, 1920's 1930's is everything "Wake Woke" (Finnegan) wrong with JD Vance. He does not know the Hindu concepts in the Great Seal of the United States of America and grasp Romans 11:32 Bible verse and "1 John 4:20" themes of Joyce. Nor does he translate mythology to mythology on a world wide basis, Pale Blue Dot perspective.
