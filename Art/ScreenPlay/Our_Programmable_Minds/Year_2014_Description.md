@@ -20,7 +20,11 @@ Once people accept the media environment programming of politics being mocking, 
 
 "Russia-watcher Catherine Fitzpatrick, who documents Kremlin disinformation for InterpreterMag . com, says just as Moscow uses vague Internet laws to encourage self-censorship, trolls inhibit informed debate by using crude dialogue to change "the climate of discussion." "If you show up at The Washington Post or New Republic sites, where there's an article that's critical of Russia, and you see that there are 200 comments that sound like they were written by 12-year-olds, then you just don't bother to comment," she says.  "You don't participate. It's a way of just driving discussion away completely," she adds. "Those kinds of tactics are meant to stop democratic debate, and they work." - **year 2014** https://www.theatlantic.com/international/archive/2014/08/the-kremlins-troll-army/375932/
 
-It worked. Now all that remains is simulacra as Rick Riderick described in year 1993:
+It worked. For it to have been noticed, for the change to have been described, it was not that way before on **Internet media**. February 2014 was the Ukraine war invasion from Russia. Year 2013 was the London School of Economics Surkov presentation. https://www.theguardian.com/world/2013/may/08/vladimir-putin-cardinal-forced-government
+
+&nbsp;
+
+Now all that remains is simulacra, the age 12 mindsets, the abandonment of reason thinking... as Rick Riderick described in year 1993 on television:
 
 &nbsp;
 
