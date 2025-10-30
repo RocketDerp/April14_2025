@@ -1024,3 +1024,10 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ok4obu/owning_the_libs_ends
 
 "Leopards Ate My Face" (subreddit name) **translates to same concern** as "owning the libs" ("owning the conservatives" / liberals, one-bit logic plairty brain-rot out-group). So this is about a war of "owning" each other. All fed by Russian simualcra patterns of Cambridge Analytica out-group hate since year 2013. It's all peple in USA are concerned with, mocking Americans. Americans hate upon Americans and giggle and amuse themselves on meme mills Bluesky and Reddit about how funny it is to see USA people self-harm. No rescue from Putin's Internet Research Agency mind-fucking, just giggle LOL mindsets as conditioned. This is how Russia won / Surkov won since year 2013. Always messages of: *hate harder, mock harder, join the Totoal Mockery* created by the Kremlin. Anti-intellectual, anti-goodness, anti-empahty, anti-compassion, anti-rescue mindsets. Entertainment-washing of serious problems.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1ok0wsx/asmongold_says_america_is_white_peoples_land/
+
+This is where adult get educated. Learning and education. On Rush Limabaugh shows. Meme mills like Reddit. Adults don't learn from nonfiction books, they are attracted to media venues of fiction entertainment like Rush Limbaugh and Alex Jones shows. This is how Surkov won, Russia won, since year 2013. The abandonment of nonfiction as boring and nonfiction as unattractive.
