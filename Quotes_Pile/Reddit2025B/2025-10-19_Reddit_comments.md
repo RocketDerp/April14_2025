@@ -3362,7 +3362,7 @@ https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_t
 
 The low-effort "Epstein List" replies are becoming a common simualcra. The magic list of information alone in a ChatGPT / unreality world will be rejected. There are thousands of solid good reasons to point out why Trump isself-harm to the USA... but the population is so addicted to hate and mocking....
 
-https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4y4n2/'
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4y4n2/
 
 Reddit messages worshiping guns. Saying that it is a shame we aren't using guns to fix a Fox News cult problem and Reddit no-identity Russian invasion of messages problem.
 
