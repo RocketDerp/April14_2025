@@ -205,3 +205,10 @@ https://youtu.be/TZ0lZySsxpQ?t=180
 https://old.reddit.com/r/illinois/comments/1ok1rbh/pritzker_imagine_it_children_who_woke_up_that/
 
 Quote about USA Halloween "Woke Up", Wake, Finnegans Wake. Woke up Enter Shikari into a nightmare. https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173s
+
+&nbsp;
+
+&nbsp;
+
+Comparative Mythology. Trumpism CPTSD.     
+https://old.reddit.com/r/HistoryMemes/comments/1ok5v2b/every_empires_exit_strategy_in_one_chart/
