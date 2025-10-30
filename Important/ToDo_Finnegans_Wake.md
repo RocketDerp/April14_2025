@@ -165,3 +165,11 @@ The context of this is that "God" is The Bible, Jesus / Levant book The Bible. J
 
 It is not personal. People are misreading a schience fiction book and that problem is being ignored. Anti-God is anti science fiction leadership, especially terrible interpretations of The Bible that ignore "1 John 3:17" verse. This is morality-washing. A simulacra of resistance. The context of "God" as being www.GreatSealUSA.com is also being ignored.  
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/comedyheaven/comments/1ojwoai/lettus/
+
+The whole point of a note is to not have to repeat it verbally and give people a chance to find out quickly and exit to another food venue. Alas, word-choice like "food venue" is all people concern with, Spelling.  Reddit society prizes conformity and mockery as school is a factory of all spelling identical shunning-enforced mocking-enforced way.
+"Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why." - Letter to Fanny Guillermet (Zurich, 5 September 1918)
