@@ -75,3 +75,29 @@ Year 1982, before Malala.  "Any kid" lyrics
 My year 1982, age 13, teachers in Fort Wayne, Indiana. - Stephen Alfred Gutknecht      
 https://www.youtube.com/watch?v=ijjTQQ0dMoE
 
+&nbsp;
+
+&nbps;
+
+# Progress is VERY HARD
+
+That's the pont of this.
+
+"Deal me another hand lord, this one is very hard!!!!"
+
+So Hard.
+
+Slavery, hate. The 1954 Equation. February 28, 1954. Out-group hate equation!!!
+
+I'm not appologizing for humanity. I'm saying we did not KNOW until February 28, 1954. Until we had airporrts and Titanic shipwrecks of engine power resolved. When the Public Library of TWO WORLD WARS came togehter in early year **1954**. That is what I'm saying. We All, our smartest inclusve, are stupid. Enstine had to recall the nuclear bomb, letters to the White House about his failure to see the outcomes. Dated August 2, 1939. "Had I known that the Germans would not succeed in producing an atomic bomb, I would have never lifted a finger"
+
+IT IS FUCKING HARD! Ask FUCKING MALALA in Swat Valley Pakistan January 2009 BLOGS!!!!
+
+The monomyth meme pattern breakout is HARD, the jail break of the monomyth is HARD!!!!!
+
+Slavery, gender voting rights, native American Navajo Windtalkers translation!!!!! Ask the Germans and Japanese about the Windtalker codes!
+
+IT IS FUCKING HARD. Pale Blue Dot Sagan HARD!
+
+
+
