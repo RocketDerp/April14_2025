@@ -4,7 +4,7 @@
 
 # When Year 2013 came, Martin Luther King Jr. not comprehended
 
-&mbsp;
+&nbsp;
 
 # World of baddness, run by leaders cultivating badness
 
