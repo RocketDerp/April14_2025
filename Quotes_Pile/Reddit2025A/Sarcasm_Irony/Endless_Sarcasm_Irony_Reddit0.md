@@ -1031,3 +1031,12 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ok4obu/owning_the_libs_ends
 https://old.reddit.com/r/LivestreamFail/comments/1ok0wsx/asmongold_says_america_is_white_peoples_land/
 
 This is where adult get educated. Learning and education. On Rush Limabaugh shows. Meme mills like Reddit. Adults don't learn from nonfiction books, they are attracted to media venues of fiction entertainment like Rush Limbaugh and Alex Jones shows. This is how Surkov won, Russia won, since year 2013. The abandonment of nonfiction as boring and nonfiction as unattractive.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ojvpqa/jd_vance_says_only_really_terrible_people/
+
+Halloween mind-fuck timing. South Park in their face less than 2 months ago reminding JD Vance of the dog killing https://en.wikipedia.org/wiki/Got_a_Nut  . Reddit society falls for Tony Clifton actics of JD Vance and other media players around MAGA / Trump / Kremlin. Reddit society "eats the onion" tht it is **forgotten** and not a deliberate contradiction vaudville act, not a deliberate Kremlin media technique, that it is not symptom of JD Vance needing rescued from Putin's mental programming. Surkov won since year 2013. Reddit society blows thier minds on these media messages of paradox. Surkovian chess blows Reddit audience minds.
+
