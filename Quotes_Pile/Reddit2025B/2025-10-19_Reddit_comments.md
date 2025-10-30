@@ -3327,3 +3327,5 @@ Still target fixated. Anti-intellectual, "TLDR" "ELI3" Twitter-think machine lus
 https://old.reddit.com/r/explainitpeter/comments/1ojbdp5/i_dont_get_it_explain_it_peter/nm3h375/
 
 Media ecology lesson material ;)
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm41mpo/
