@@ -3400,3 +3400,19 @@ https://old.reddit.com/r/Adulting/comments/1ojkyju/real/nm48m5h/
 Every person thinks that their darkest behaviors are unique and that no other person has done dark things. They they all go to horror movies and war movies and act shocked at the beaviors of another nation or serial killers in another city. Snd people are killed, run over by cars, killed by machines all around them and they don't notice the dark behavior because their egoism (self-centered perspective) convinces them it is only them keeping secrets and not widespread network problem of humanity globally. That's a point Martin Luther King Jr. tried to make in many ways: ... ... ...       
 "For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr.
 
+https://old.reddit.com/r/pics/comments/1ojnvca/official_photo_of_trumpxi_meeting_in_busan_south/nm5jss0/
+
+The user profile says: Is Reddit Facebook now? yes. worse. Reddit people hide their rela names and real imags and prize anonymous abuse of others. The falsehoods and fiction addictions of facebook year 2016 are now common Reddit since year 2022. Really Reddit in year 2013 changed drastically with the IRA, and so did Facebook change in 2013. Reddit is still topic driven like Usenet (Facebook and Bluesky are not topic driven but account driven).... but the behavior of people prizing falsehoods, addictio to fiction, has taken over Reddit and Lemmy. The abandonment of nonfiction is widespared. 
+
+https://old.reddit.com/r/pics/comments/1ojnvca/official_photo_of_trumpxi_meeting_in_busan_south/nm4m4y4/
+
+The Reddit audience is thrilled to talk about Trump diapers and poop fetish topics. This is why Trump is in power, audiences addicted to amusement over Trump.
+
+https://old.reddit.com/r/pics/comments/1ojnvca/official_photo_of_trumpxi_meeting_in_busan_south/nm4oz5b/
+
+Goodness has been abandoned in favor of Reality TV yelling.
+
+https://old.reddit.com/r/pics/comments/1ojnvca/official_photo_of_trumpxi_meeting_in_busan_south/nm4iokw/
+
+People can not tell real pictures / reality on their meme mills / amusement sites like Reddit and Bluesky.
+
