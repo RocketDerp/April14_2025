@@ -181,3 +181,11 @@ The whole point of a note is to not have to repeat it verbally and give people a
 https://old.reddit.com/r/CringeTikToks/comments/1ok090v/vance_publicly_expresses_disappointment_his_wife/
 
 JD Vance met the Pope in year 2025 with his power of the White House. Went to the funeral (IIRC). James Joyce's body of work from 1910's, 1920's 1930's is everything "Wake Woke" (Finnegan) wrong with JD Vance. He does not know the Hindu concepts in the Great Seal of the United States of America and grasp Romans 11:32 Bible verse and "1 John 4:20" themes of Joyce. Nor does he translate mythology to mythology on a world wide basis, Pale Blue Dot perspective.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1ok3ict/im_quite_chuffed_by_this_information/
+
+Core concern of Finnegans Wake - Romans 11:32 inversion, "1 John 4:20" inversion.
