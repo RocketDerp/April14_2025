@@ -999,3 +999,11 @@ Amusmeent-washing humor-washing, framing as "politica entertaiment humor" (subre
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ojd332/that_is_the_true/
 
 That's why people like Trump. He provides endless entertainment and amusement. People love horror story films, it's Halloween. People were bored with nonfiction leaders. People who hate Trump prize hate, it's a total society that values hate.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/TopCharacterTropes/comments/1ojxrfe/hated_trope_whitewashing_atrocities_or_crimes_of/
+
+Tripe of Films and TV shows. but on Social media site Reddit, ENDLESSLY downplaying via humor, jokes, amusement mind-blowing. Comedy-washing, satire-washing, joke-washing, humor-washing, amusement-washing. Irony-washing. Anything and everything to avoid The 1954 Equation as a sustained and focused topic since February 28, 1954.
