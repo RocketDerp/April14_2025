@@ -3449,3 +3449,10 @@ https://old.reddit.com/r/worldnews/comments/1ok4kad/china_agrees_to_purchase_25_
 <img width="708" height="418" alt="image" src="https://github.com/user-attachments/assets/cfae2799-1562-47c7-ab69-1f2297267c82" /> Tiny-short messaging think. Twitter-think mindsets. Note the symbol at the end of the Reddit message, amusement and entertainment (laugh track for Reddit audience) at every single thing Donald Trump Reality TV "The Apprentice" entertainer does. The meme mill of Reddit constantly flocks to Trump images / messages / absurd sureal situation / symbolism shuffles. This is Reality memeland, Reality Reddit entertainment. Disposable commenting and reacting at the constant stimulation provided, the Trickle Down Antics, of billionares. An audience that abandoned all goodness in favor of having an entertainment leader to LOL LOL chuckle at all day and night with content. Media addicts running society. ... ... ...       
 “Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
 
+&nbsp;
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nma819u/?context=3
+
+Instantly replies. New Reddit account, very practiced. conceals their post and comment history  <img width="842" height="354" alt="image" src="https://github.com/user-attachments/assets/0a040018-5afa-45d0-881f-e812b0a6fa1d" />
+on a 1 month old account.
+
