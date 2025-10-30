@@ -20,3 +20,12 @@ I did not hashtag the opera, so linking it here.
 https://autistics.life/@RoundSparrow/115457576393270910      
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m4divx2he22s   
 
+&nbsp;
+
+### Help from Down Under
+
+Thursday October 30, 2025
+
+Popular culture, sell well   
+
+https://www.youtube.com/watch?v=5YvPyUhjnEw
