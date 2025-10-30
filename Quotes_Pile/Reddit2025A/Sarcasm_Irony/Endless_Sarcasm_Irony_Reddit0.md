@@ -1048,3 +1048,10 @@ https://old.reddit.com/r/videos/comments/1ok4c9z/magas_overwhelmingly_prefer_the
 
 This is the war against Reality. Russian war against Reality. Trump himself broadcast from Moscow. https://youtu.be/Lc6KVKzrf1A?t=100 November 9, 2013 from Russia broadcast, attackin USA technology of using website / Internet technology.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ok4ep9/this_mf_is_a_garbage_person/
+
+Font page of Reddit. Reddit society can't see We The People are in a media platform to media platform simulacra. A message feedback loop. Reddit title is calling Biden and Trump "garbage person", prizing hate. Hate for hate. Reddit cloud computing machines messaging that Trump Biden is **ugly**, etc. "Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe." - November 17, 1957. Altabama.
