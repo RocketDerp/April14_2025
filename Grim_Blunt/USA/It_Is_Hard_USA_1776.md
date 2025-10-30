@@ -62,4 +62,16 @@ Has history since year 1776 not proven the translation problems?
 
 5. Malala Swat Valley Internet blogging medium vs. Taliban Quran Mosque medium January 2009? Nonficiton vs. Quran science fiction?
 
-6. 
+&nbsp;
+
+&nbsp;
+
+# How hard it it?
+
+IT'S HARD 
+
+Year 1982, before Malala.  "Any kid" lyrics
+
+My year 1982, age 13, teachers in Fort Wayne, Indiana. - Stephen Alfred Gutknecht      
+https://www.youtube.com/watch?v=ijjTQQ0dMoE
+
