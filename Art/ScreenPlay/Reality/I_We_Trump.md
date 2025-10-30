@@ -6,6 +6,8 @@ https://old.reddit.com/r/therewasanattempt/comments/1okactt/to_deny_the_effect_a
 
 https://www.ndtv.com/world-news/donald-trump-bill-gates-climate-change-bill-gates-finally-admitted-he-was-wrong-donald-trump-on-climate-crisis-remarks-9541563
 
+https://www.cnn.com/2025/10/28/business/bill-gates-climate-change
+
 
 Bill Gates and Trump, We, I.
 
