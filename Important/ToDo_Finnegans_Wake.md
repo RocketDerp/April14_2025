@@ -189,3 +189,10 @@ JD Vance met the Pope in year 2025 with his power of the White House. Went to th
 https://old.reddit.com/r/CuratedTumblr/comments/1ok3ict/im_quite_chuffed_by_this_information/
 
 Core concern of Finnegans Wake - Romans 11:32 inversion, "1 John 4:20" inversion.
+
+&nbsp;
+
+&nbsp;
+
+Book "Too Late To Awaken"    
+https://youtu.be/TZ0lZySsxpQ?t=180
