@@ -39,3 +39,13 @@ This is a continuing theme in the Orient, in the farther Orient. You are not thi
 
 
 
+&nbsp;
+
+&nbsp;
+
+## Swat Valley Pakistan
+
+Where Hindu / Buddha and Levant Quran are part of the education of a school teacher.
+
+“We felt like the Taliban saw us as like little dolls to control, telling us what to do and how to dress. I thought if God wanted us to be like that He would not have made us all different.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013
