@@ -3369,3 +3369,34 @@ Reddit messages worshiping guns. Saying that it is a shame we aren't using guns 
 https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4m47m/
 
 Reddit prizes self-dehumanization, avoiding real names, real life. People wanted endless jokes and insults. To die for Infinite Jest V of talking about Trump's diapers, orange skin color, golf outings, funny speech, amusing dancing behaviors. Amusing Ourseles To Death. OPER_A Your Axe Belongs to a death-worship nation. https://www.youtube.com/watch?v=I0fGxujeJbY
+
+https://old.reddit.com/r/TikTokCringe/comments/1ojnh50/podcast_guests_have_a_fallout_during_a_debate/nm4g6ix/
+
+Laugh-washing, LOL-washing, chucklehead tactics, mockery-washing of topics. Just make everything a comedy and anything goes.Basis of Surkovian media methods. ... ... ...          
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/TikTokCringe/comments/1ojnh50/podcast_guests_have_a_fallout_during_a_debate/nm4g38v/
+
+Hate for hate, "fuck people", is exactly what people all agree on. Anti-empaty, anti-progress, hate all around. Media machine addicts fucking over human people instead of declaring the very media sickness of highs-speed communications prized over understanding. The performer on the microsphone is speed of media addict.
+
+https://old.reddit.com/r/TikTokCringe/comments/1ojnh50/podcast_guests_have_a_fallout_during_a_debate/nm4jtd5/
+
+Never ever, can't ever learn, give up on humans. Anti-education, anti-goodness, dehumanize.
+
+https://old.reddit.com/r/TikTokCringe/comments/1ojnh50/podcast_guests_have_a_fallout_during_a_debate/nm50by0/
+
+Yes, you can, you just don't do it with tiny-length low-effort commenting. You post videos like this and yuu discuss the problems of terrorism tactics and domination and you start seeing hate as a global problem of the human brain and not just your 1937 Germany "Nazi" flavor. Terrorists in Swat Valley Pakistan aren't Nazi and have the same issue, it is a mindset, not a geography place or Germany brand. Banning and dehumanizing people and having the largest prison systems (USA) doesn't fix hate problems. Putting every single person in prison or killing everyone isn't an acceptable answer to hate becoming popular itself. YOu have to stop making hate enteratinment and fun and address the "Amusnng OUrselves To Death" issue. Destroying all goodness on Earth because you don't want to take on egomania problems, want to run away from the humanism problem... we have to make the case for world peace. And USA was on the right path with Woodstock 1969 and MLK Jr.
+
+https://old.reddit.com/r/TikTokCringe/comments/1ojnh50/podcast_guests_have_a_fallout_during_a_debate/nm4ixkm/
+
+LOL-washing, LOL-drowning, "Amusing Ourselves To Death" is entertainment. We have all the technologies and society, but mindsets of terrorism and hate are rising up from Cambridge Analytica and Russian IRA outcomes.
+
+https://old.reddit.com/r/TikTokCringe/comments/1ojnh50/podcast_guests_have_a_fallout_during_a_debate/nm4p66x/
+
+He isn't weak. This use of "weak" around Trump and other people is a downplay tactic, denial tactic. Even sometimes when Malala calls Taliban "afraid" / extremists "afraid", we have to expand on context of that. They are afraid of goodnes on Earth, they are not afraid of world war and death - they aren't afraid of Heaven after death or Hell aftre death, they are afraid of life on Earth. There is an agression that transcends fear. There is a hate and murder/suicide that overpowers "weak".
+
+https://old.reddit.com/r/Adulting/comments/1ojkyju/real/nm48m5h/
+
+Every person thinks that their darkest behaviors are unique and that no other person has done dark things. They they all go to horror movies and war movies and act shocked at the beaviors of another nation or serial killers in another city. Snd people are killed, run over by cars, killed by machines all around them and they don't notice the dark behavior because their egoism (self-centered perspective) convinces them it is only them keeping secrets and not widespread network problem of humanity globally. That's a point Martin Luther King Jr. tried to make in many ways: ... ... ...       
+"For the person who hates, the beautiful becomes ugly and the ugly becomes beautiful. For the person who hates, the good becomes bad and the bad becomes good. For the person who hates, the true becomes false and the false becomes true. That's what hate does. You can't see right. The symbol of objectivity is lost." - Martin Luther King Jr.
+
