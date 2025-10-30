@@ -14,8 +14,10 @@ Trendy, trend chasing, Trending Twitter / Trending Bluesky / Trending TikTok
 
 ## Steely Dan Third World Man
 
-1977 interview with Marshall McLuhan     
+1977 interview with Marshall McLuhan (September 19, 1977)    
 1980 Steely Dan song    
 
 https://www.youtube.com/watch?v=XGQtq9PD9iA
+
+When the sidewalks are safe for "The Little Guy"
 
