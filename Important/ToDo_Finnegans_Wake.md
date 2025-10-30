@@ -195,4 +195,5 @@ Core concern of Finnegans Wake - Romans 11:32 inversion, "1 John 4:20" inversion
 &nbsp;
 
 Book "Too Late To Awaken"    
+Romans 11:13 ... Romans 11:32    
 https://youtu.be/TZ0lZySsxpQ?t=180
