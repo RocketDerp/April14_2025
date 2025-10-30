@@ -3329,3 +3329,43 @@ https://old.reddit.com/r/explainitpeter/comments/1ojbdp5/i_dont_get_it_explain_i
 Media ecology lesson material ;)
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nm41mpo/
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4l4va/
+
+Top voted comment. People behaving as if attracton to badness, anti-goodness, just started in year 2025 and this isn't the second time Trump is President. Recency bais abounds.
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4k63s/
+
+Ukraine war started in February 2014. Pandemic was warned about by Bill Gates in a Ted Talk in April 2015. The actual pandemic we all experienced. Recency bias abounds.
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4w8mo/
+
+A description of hyper-normalization / recency bias - other behaviors of joke-washing meme-washing serous problems into part of the meme pool of amusement thinking.
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4lqeh/
+
+Self-harm USA. Abandonment of goodness. Explains tne entire anti-rescue behavior. Hearts and minds programmed to wreck the world, runaway Surkov monomyth mindsets.
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4q6se/
+
+The entire USA society, not just MAGA, not just republicans, has faith in hate. *hate harder* behaviors to every problem.
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm535ec/
+
+USA society is unbound, unlike Russia, our Holywood entertainment and symbols were in minds far deeper. Products like Coke / Pepsi were known and tasted all over the world, unlike Russian products.
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4njbo/
+
+Climate change denial / pro-polution EPA / pro-disease CDC... the abnadonment of goodnes and *hate harder* values of society abound.
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4o3vx/
+
+The low-effort "Epstein List" replies are becoming a common simualcra. The magic list of information alone in a ChatGPT / unreality world will be rejected. There are thousands of solid good reasons to point out why Trump isself-harm to the USA... but the population is so addicted to hate and mocking....
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4y4n2/'
+
+Reddit messages worshiping guns. Saying that it is a shame we aren't using guns to fix a Fox News cult problem and Reddit no-identity Russian invasion of messages problem.
+
+https://old.reddit.com/r/worldnews/comments/1ojo0i1/president_directs_pentagon_to_start_testing/nm4m47m/
+
+Reddit prizes self-dehumanization, avoiding real names, real life. People wanted endless jokes and insults. To die for Infinite Jest V of talking about Trump's diapers, orange skin color, golf outings, funny speech, amusing dancing behaviors. Amusing Ourseles To Death. OPER_A Your Axe Belongs to a death-worship nation. https://www.youtube.com/watch?v=I0fGxujeJbY
