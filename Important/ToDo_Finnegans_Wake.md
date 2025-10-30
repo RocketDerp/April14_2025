@@ -172,4 +172,5 @@ It is not personal. People are misreading a schience fiction book and that probl
 https://old.reddit.com/r/comedyheaven/comments/1ojwoai/lettus/
 
 The whole point of a note is to not have to repeat it verbally and give people a chance to find out quickly and exit to another food venue. Alas, word-choice like "food venue" is all people concern with, Spelling.  Reddit society prizes conformity and mockery as school is a factory of all spelling identical shunning-enforced mocking-enforced way.
-"Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why." - Letter to Fanny Guillermet (Zurich, 5 September 1918)
+"Writing in English is the most ingenious torture ever devised for sins committed in previous lives. The English reading public explains the reason why." - Letter to Fanny Guillermet (Zurich, 5 September 1918). Important context: October 30, 2025 when this made Reddit front page. Donald Trump language is the society role model of communications and Truth Social is the gold standard of what parents give to children for their future. Since June 16, 2015.
+
