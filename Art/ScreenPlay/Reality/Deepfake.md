@@ -14,3 +14,20 @@ https://www.youtube.com/watch?v=EA0Bx2OeDj8
 Started with one year before the February 2014 Ukraine war by Russia.
 
 https://youtu.be/EA0Bx2OeDj8?t=380
+
+
+&nbsp;
+
+&nbsp;
+
+# Machine Funded Mistrel Show
+
+The machines are given money, the povery is being exploited for entertainment. Entertainment of seeing starving people in Palestine and USA. Compeittive USA free failures. The "losers", the bottom 20% of the bucket listings. The failures, the ones who should be killed off and stomped upon. ***PUNCHING DOWN*** on the bottom of society.
+
+Neil D Tyson... is a black man and the billionare machines of technology have created a Minstrel Show of this man with Deepfake Deep Learning technology. Old-school revival, those days are over a long time ago, but the AI training has no morality firmware updates to the logic logic logic binary of out-group Minstrel Show hate patterns of popularity / toxic pop culture.
+
+Women couldn't vote. Suffering / Sufferage movement / Neil D Tyson chicken branding logos / John 1:1 Tyson Chilcen / Windows 95 Word Ownership, Trademarks, Copyright is Brain Damage, Nina Paley Ted Talk.... 
+
+https://www.youtube.com/watch?v=wcud61ydCiA
+
+
