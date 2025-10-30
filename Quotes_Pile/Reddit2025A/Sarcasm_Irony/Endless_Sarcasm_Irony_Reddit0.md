@@ -1016,3 +1016,10 @@ https://old.reddit.com/r/CringeTikToks/comments/1ok29hn/mike_johnson_unlike_the_
 
 No, people are in no way waking up to the media ecology crisis of "LOL" (right on the Reddit posting is "LOL" laugh track). Neil Postman's 1985 "Amusing Ourselves To Death" book. People are amusement-washing humor-washing LOL-washing on Reddit. Mind-fucking themselves with Surkov information warfare on Reddit media venue. "The Media" is the mind-fuck of LOL amusement audience laugh track, to be constantly entertained and detached from reality. Putin won since year 2013 using LOL techniques. Denial abounds in USA.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ok4obu/owning_the_libs_ends_up_owning_herself/
+
+"Leopards Ate My Face" (subreddit name) translates to the "owning the libs". So this is about a war of "owning" each other. All fed by Russian simualcra patterns of Cambridge Analytica out-group hate since year 2013. It's all peple in USA are concerned with, mocking Americans. Americans hate upon Americans and giggle and amuse themselves on meme mills Bluesky and Reddit about how funny it is to see USA people self-harm. No rescue from Putin's Internet Research Agency mind-fucking, just giggle LOL mindsets as conditioned. This is how Russia won / Surkov won since year 2013.
