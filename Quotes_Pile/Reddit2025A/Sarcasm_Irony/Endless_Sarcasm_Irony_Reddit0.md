@@ -1007,3 +1007,12 @@ That's why people like Trump. He provides endless entertainment and amusement. P
 https://old.reddit.com/r/TopCharacterTropes/comments/1ojxrfe/hated_trope_whitewashing_atrocities_or_crimes_of/
 
 Tripe of Films and TV shows. but on Social media site Reddit, ENDLESSLY downplaying via humor, jokes, amusement mind-blowing. Comedy-washing, satire-washing, joke-washing, humor-washing, amusement-washing. Irony-washing. Anything and everything to avoid The 1954 Equation as a sustained and focused topic since February 28, 1954.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1ok29hn/mike_johnson_unlike_the_democrats_republicans_do/
+
+No, people are in no way waking up to the media ecology crisis of "LOL" (right on the Reddit posting is "LOL" laugh track). Neil Postman's 1985 "Amusing Ourselves To Death" book. People are amusement-washing humor-washing LOL-washing on Reddit. Mind-fucking themselves with Surkov information warfare on Reddit media venue. "The Media" is the mind-fuck of LOL amusement audience laugh track, to be constantly entertained and detached from reality. Putin won since year 2013 using LOL techniques. Denial abounds in USA.
+
