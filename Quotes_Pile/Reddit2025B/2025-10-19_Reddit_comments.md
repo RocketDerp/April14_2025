@@ -3442,3 +3442,10 @@ Reddit audience fixates on the upvoted popular Reddit headline "Trump", fixated 
 https://old.reddit.com/r/nottheonion/comments/1ok46ra/kim_kardashian_says_moon_landing_was_faked_says/nm88tqs/
 
 After making the front page of Reddit.. removed. War Against Relity by Russia, that has been waging since year 2013 - removed from Reddit front page. Age 45 adult gets information from Tik Tok (and Reddit, etc). This is a raging issue of not just age 79 Donald Trump, but the war against reality loss to Russia (Moon Landing not happening in 1969 is Anti-USA mind programming)... is not a serious topic. Onion-washing removed by moderators. Surkov won, Putin won the War Against NonFiction since year 2013.
+
+
+https://old.reddit.com/r/worldnews/comments/1ok4kad/china_agrees_to_purchase_25_million_metric_tons/nm7z6ho/
+
+<img width="708" height="418" alt="image" src="https://github.com/user-attachments/assets/cfae2799-1562-47c7-ab69-1f2297267c82" /> Tiny-short messaging think. Twitter-think mindsets. Note the symbol at the end of the Reddit message, amusement and entertainment (laugh track for Reddit audience) at every single thing Donald Trump Reality TV "The Apprentice" entertainer does. The meme mill of Reddit constantly flocks to Trump images / messages / absurd sureal situation / symbolism shuffles. This is Reality memeland, Reality Reddit entertainment. Disposable commenting and reacting at the constant stimulation provided, the Trickle Down Antics, of billionares. An audience that abandoned all goodness in favor of having an entertainment leader to LOL LOL chuckle at all day and night with content. Media addicts running society. ... ... ...       
+“Americans no longer talk to each other, they entertain each other. They do not exchange ideas, they exchange images. They do not argue with propositions; they argue with good looks, celebrities and commercials.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
