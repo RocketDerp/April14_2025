@@ -3593,3 +3593,19 @@ https://old.reddit.com/r/HistoryMemes/comments/1okyfa1/national_hero/nmed6j3/
 
 I have witnessed a few people like this in my life. 3 or more sex partners a day when they are on holiday / vacation, people who just instantly trust them. One was back in high shool, then one when I worked / lived in Dallas. And another in Arizona. People really don't get that certain personalities smash all customs and rules. And people don't seem to imagine that some people are like that. Who can instantly charm strangers. I've known salespeople I worked with that were that talented in selling computers / software apps / systems. And when Donald Trump started his charm in year 2013 with his trip to Moscow, I could see how attracted people were to instantly give over their future and intimate life just based on his mannerisms / gestures / smile / style / fashion.
 
+https://old.reddit.com/r/CringeTikToks/comments/1ol0sx5/trumps_agriculture_secretary_brooke_rollins_my/nmemuzl/
+
+Logging this message to see if it gets removed. New account this year.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ol0sx5/trumps_agriculture_secretary_brooke_rollins_my/nmenf5t/
+
+Reddit audience wants violence to silence people and as entertainment from USA government.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ol0sx5/trumps_agriculture_secretary_brooke_rollins_my/nmeqjwn/
+
+Russia War Against Reality mindsets. Entertainment addictions, sports mentality.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ol0sx5/trumps_agriculture_secretary_brooke_rollins_my/nmeojhm/
+
+The audience on Reddit prizes joke-washing above all else. The nation's faith is in mocking itself, humor itself, surreal comedy, absurd comedy, amusement-washing of all serious topics into content for reactions.
+
