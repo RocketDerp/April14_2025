@@ -3459,3 +3459,7 @@ on a 1 month old account.
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nmac74v/
 
 Response
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nmaf5qc/
+
+Response
