@@ -3476,3 +3476,15 @@ https://old.reddit.com/r/law/comments/1okqr7v/texas_police_showed_up_at_the_home
 
 Shallow and superficial. A wellness check doesn't deal with the dept of Fox News fiction addiction, Reddit ficiton addiction, Facebook fiction addiction, Bible science fiction addiction.
 
+https://old.reddit.com/r/technology/comments/1okso7z/jerome_powell_says_the_ai_hiring_apocalypse_is/nmcy3uy/
+
+<img width="1422" height="444" alt="image" src="https://github.com/user-attachments/assets/3ec0dcea-1860-42f0-8e90-e8aad17332b8" /> President Tony Clifton, the Kremlin and White House Surkov strategy. Humor-exploit, funny-exploit.
+
+https://old.reddit.com/r/technology/comments/1okso7z/jerome_powell_says_the_ai_hiring_apocalypse_is/nmczaet/
+
+https://old.reddit.com/r/technology/comments/1okso7z/jerome_powell_says_the_ai_hiring_apocalypse_is/nmcxrlq/
+
+Famous executives / business men like Bill Gates and Elon Musk invest heavy into artificial intelligence. It becomes a inner circle of the country club / expensive business hotels / trade shows / lunch meetings / social circles. It becomes a "trending" within the society of executives, who often even live in the same gated communities / area of town / economic neighborhoods (based on proximity to airport, luxury offices, school districts, etc).
+
+https://old.reddit.com/r/technology/comments/1okso7z/jerome_powell_says_the_ai_hiring_apocalypse_is/nmczj4x/
+
