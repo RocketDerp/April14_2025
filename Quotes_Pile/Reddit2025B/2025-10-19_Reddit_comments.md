@@ -3488,3 +3488,50 @@ Famous executives / business men like Bill Gates and Elon Musk invest heavy into
 
 https://old.reddit.com/r/technology/comments/1okso7z/jerome_powell_says_the_ai_hiring_apocalypse_is/nmczj4x/
 
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmd4rgx/
+
+“If we could learn to look instead of gawking,    
+We'd see the horror in the heart of farce,    
+If only we could act instead of talking,    
+We wouldn't always end up on our arse.   
+This was the thing that nearly had us mastered;   
+Don't yet rejoice in his defeat, you men!   
+Although the world stood up and stopped the bastard,   
+The bitch that bore him is in heat again.”   
+― Bertolt Brecht, The Resistible Rise of Arturo Ui    
+year 1941. German.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmcii41/
+
+[Everything Is Media Ecology](/Media_Ecology/Everything_is_ME.md). People consider everyday people boring. Especially now with cameras everywhere, there are many new styles of "engaging" people. Trump shows people flock to the most surreal and absurd antics of status symbol / governing icon shuffle.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmce6af/
+
+Yes. How many women do you see on social media promoting Malala? Competititon for status symbols of designer fashions, desirable travel destinations, other icons attract some women to the Putin prizing crowd. The idea of educating every person and world peace isn't just a boring conept to men. People want thier child to be oustanding and better, not the whole world to have peace and goodness. Competitive eduction drives those seeking high scores of power games. ... ... ...       
+"The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmcmou5/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmc9q3s/
+
+Conservatives are abusive to men and children. Prizing environment toxins / pollution / industry for children's future. Prizing disease spreading with the CDC changes. Prizing the population being addiction to fiction storytelling like The Bible and unable to grasp reality of science. These aren't just male behaviors. Conservative vs liberal seems like brainrot thinking. It is not what the Founding Fathers gave us for a thinking system in the Great Seal of the United States of America. Fiction vs. nonfiction is likely a better measure of the crisis than conservative vs. liberal.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmcaxw6/
+
+Bible science fiction readers who can't locate verse "1 John 4:20" and that there is no Hell, as God and Jesus are the very source of sins - Romans 11:32 verse
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmcfqh1/
+
+People say things like this about domestic relationships, family, one house. But not about their workplace where the boss man in USA thinks Fox News is nonfiction. Or living under Germany 1937 or USA 2025 or Palestine year 2024, or Ukraine year 2024.. or Sudan year 2024... or Swat Valley Pakistan yeaer 2009, etc, etc. People do not know how to address the mass man of society, especialy when it isn't just "the President" that they blame. But the addictions to fiction media, worship of guns (Taliban in Swat Valley) and violence, worship of machines over people. People cheering on the suffering of humans in anti-empathy anti-compassion Internet clubs like "Leopards Ate My Faces", adn "Liberals of Tik Tok" hate clubs. Living under Putin's Russia, Putin's USA, the constant hate messaging and mass dehumanization. The abadonment of love, the active measures to attack understanding and truth, the attacking of compassion. It's constantly sickening.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmc9ug9/
+
+Image addicts sum up a person's soul and brain with a single image of a face. Incredibly shallow and superficial consumption of a person as their image.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmd6qh3/
+
+But not the men? Only the women? Having studied autism teaching and support groups since year 2009, this kind of eye contact interpretation of "dead people" is a form of bigotry. Like only actresses in films and TV have "the right eyes" for superficial and shallow people and anyone whose eyes are non-conformign to the women held up as beauty are "dead" to people. That's often how shallow and superficial people behavre toward clothing and auotmobiles and houses - only attracted to symbols of wealth and "classy".
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmcbu07/
+
+prediction
