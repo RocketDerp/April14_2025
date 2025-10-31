@@ -3571,3 +3571,16 @@ https://old.reddit.com/r/LivestreamFail/comments/1okwl7r/hasan_gets_mad_at_a_vie
 
 The ever-shifting out-group hate, Overton window. the **faith in hate** that drives Trump Putin society since June 16, 2015. What Cambridge Analytica weaponized deep into minds, out-group hate patterns of every kind.
 
+https://old.reddit.com/r/politics/comments/1okvcp6/jpmorgan_flagged_1b_in_suspicious_epsteinlinked/nmdkgnw/
+
+The whole line of thinking, mindset, that people don't care is a failure of media ecology comprehension / literacy. People are attracted to Star Wars where entire planets are blown up and destroyed. People play video games of murder and killing. Trump is a media star. People are attracted to fiction storytelling that does all kinds of wild and unacceptable things in reality / nonfiction. That's the Russia War Against Reality since year 2013. To make people prize entertainment and acting, President Tony Clifton, over reality. People prize no-identity messages on Bluesky and Reddit and Twitter. People want a world of simualcra, simulation, fiction. Mythological leadership, Surkov governing. People keep commenting as if the attraction to sexual conquest and abuse of women isn't in fiction. And those sex workers / actors doing the sex films are having REAL sex for money. The attraction to the "forbidden" abuse of women is very real when people view all life through media content, detachment from nonfiction, detachment from real reality. Reality itself. Putin won, Surkov won, betting that people want entertainment of mocking Trump and insulting Trump for his antics more than anything else in the world. Putin won with this idea!
+
+https://old.reddit.com/r/politics/comments/1okvcp6/jpmorgan_flagged_1b_in_suspicious_epsteinlinked/nme0ja4/
+
+Prediction. Prizing mocking.
+
+https://old.reddit.com/r/politics/comments/1okvcp6/jpmorgan_flagged_1b_in_suspicious_epsteinlinked/nmdsgcd/
+
+<img width="924" height="588" alt="image" src="https://github.com/user-attachments/assets/4ea10564-ddab-438c-98ae-91d7928a9230" /> So entertaining, funny laugh track for Reddit audience. So thrilling to elevate these people to the top of every media system and media platform for entertainment and mockery. That's Trump and Putin's power, Surkov govenring exploits this in human brain that it is LOL funny to Reddit audiences. Funny symbolsim blows people's minds, that's the Surkov Kremlin realization 25 years ago. People in meme stupors, funny stupors, prize dehumanization and prize hate, addicted to the "funny". Putin has mastered David Foster Wallace's Infinite Jest V patterns in reality / real world. People prize this media and dicourse on Reddit platfforms / Bluesky, over and over about sex symbols of power. ... ... ...      
+“Everything in our background has prepared us to know and resist a prison when the gates begin to close around us . . . But what if there are no cries of anguish to be heard? Who is prepared to take arms against a sea of amusements? To whom do we complain, and when, and in what tone of voice, when serious discourse dissolves into giggles? What is the antidote to a culture's being drained by laughter?”
+― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
