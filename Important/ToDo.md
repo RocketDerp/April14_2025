@@ -1751,3 +1751,6 @@ https://old.reddit.com/r/nba/comments/1of5k55/jaylen_brown_on_sports_betting_tha
 
 Choice marriage honesty, to children on sex     
 https://old.reddit.com/r/funny/comments/1oht0jp/i_wasnt_in_your_vagina_thats_disgusting/
+
+Another choice marriage honesty:     
+https://old.reddit.com/r/anime_irl/comments/1ol0602/anime_irl/
