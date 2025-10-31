@@ -1038,7 +1038,11 @@ This is where adult get educated. Learning and education. On Rush Limabaugh show
 
 https://old.reddit.com/r/politics/comments/1ojvpqa/jd_vance_says_only_really_terrible_people/
 
-Halloween mind-fuck timing. South Park in their face less than 2 months ago reminding JD Vance of the dog killing https://en.wikipedia.org/wiki/Got_a_Nut  . Reddit society falls for Tony Clifton actics of JD Vance and other media players around MAGA / Trump / Kremlin. Reddit society "eats the onion" tht it is **forgotten** and not a deliberate contradiction vaudville act, not a deliberate Kremlin media technique, that it is not symptom of JD Vance needing rescued from Putin's mental programming. Surkov won since year 2013. Reddit society blows thier minds on these media messages of paradox. Surkovian chess blows Reddit audience minds.
+And again first thing Friday October 31 morning front page:
+
+https://old.reddit.com/r/nottheonion/comments/1oktcta/jd_vance_says_only_really_terrible_people/
+
+Halloween mind-fuck timing. South Park in their face less than 2 months ago reminding JD Vance of the dog killing https://en.wikipedia.org/wiki/Got_a_Nut  . Reddit society falls for Tony Clifton actics of JD Vance and other media players around MAGA / Trump / Kremlin. Reddit society "eats the onion" tht it is **forgotten** and not a deliberate [contradiction vaudville act](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html), not a deliberate Kremlin media technique, that it is not symptom of JD Vance needing rescued from Putin's mental programming. Surkov won since year 2013. Reddit society blows thier minds on these media messages of paradox. Surkovian chess blows Reddit audience minds.
 
 &nbsp;
 
