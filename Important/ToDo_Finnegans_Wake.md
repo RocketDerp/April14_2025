@@ -212,3 +212,12 @@ Quote about USA Halloween "Woke Up", Wake, Finnegans Wake. Woke up Enter Shikari
 
 Comparative Mythology. Trumpism CPTSD.     
 https://old.reddit.com/r/HistoryMemes/comments/1ok5v2b/every_empires_exit_strategy_in_one_chart/
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1oksf2d/in_1663_king_louis_xiv_launched_a_bold_plan_to/
+
+Choice marriage honesty, semi-arranged marriage, mail-order bridge catalog (not just one bride, but pick from the group). Exporting an education system / teaching values / language.
+
