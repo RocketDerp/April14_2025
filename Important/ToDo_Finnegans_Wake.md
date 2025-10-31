@@ -228,3 +228,11 @@ Choice marriage honesty, semi-arranged marriage, mail-order bridge catalog (not 
 https://old.reddit.com/r/CasualUK/comments/1ol1x9z/my_daughter_just_got_a_can_of_chicken_noodle_soup/nmeyvvb/
 
 Trick or treat Celtic origins. Finnegans Wake ... Celtic festival of Samhain, from which Halloween originated
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/humansarespaceorcs/comments/1ol4hrw/humans_are_obsessed_with_teaching_other_species/
+
+Tower of Babel common path for learners.
