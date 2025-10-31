@@ -3535,3 +3535,8 @@ But not the men? Only the women? Having studied autism teaching and support grou
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1okp5q3/usha_vance_before_and_after_spent/nmcbu07/
 
 prediction
+
+https://old.reddit.com/r/traumatizeThemBack/comments/1okpjds/lady_asked_why_im_letting_myself_go/nmc9ord/
+
+Shallowness and superficial prizing abounds. Alas, I didn't reseach if this is a true story / factual, or just anti-humanism messaging. I have known real men who talk this way about women and I've lived with 4 women in my life as an adult, and I've heard them describe women as being competitive about apperances with each other and insutling to each other. It depends on the places we have lived. When my wife Tristan and I lived in Arica, Chile - I noticed that people who lived in extreme poverty often seemed to take pride in wearing white or other clothing colors that had no stains or dirt on them... despite their housing situation not being poor. I'm clumsy with my motor skills / autism, so I'm always getting dirty and food or soething on my clothing ;) So I tend to notice when people put a lot of effort into not making mistakes with nice shoes or shirt / blouse / whatever.
+
