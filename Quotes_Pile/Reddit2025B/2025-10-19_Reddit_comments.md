@@ -3468,5 +3468,11 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divo
 
 Response
 
-
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nmakkr2/
+
+https://old.reddit.com/r/space/comments/1okntgt/mods_stop_removing_posts_calling_you_out_and/nmck6bb/
+
+https://old.reddit.com/r/law/comments/1okqr7v/texas_police_showed_up_at_the_home_of_a_disabled/nmcm4yr/
+
+Shallow and superficial. A wellness check doesn't deal with the dept of Fox News fiction addiction, Reddit ficiton addiction, Facebook fiction addiction, Bible science fiction addiction.
+
