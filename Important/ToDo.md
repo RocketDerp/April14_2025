@@ -1754,3 +1754,10 @@ https://old.reddit.com/r/funny/comments/1oht0jp/i_wasnt_in_your_vagina_thats_dis
 
 Another choice marriage honesty:     
 https://old.reddit.com/r/anime_irl/comments/1ol0602/anime_irl/
+
+&nbsp;
+
+&nbsp;
+
+Tactical cleverness      
+https://old.reddit.com/r/SipsTea/comments/1ol317b/how_to_win/
