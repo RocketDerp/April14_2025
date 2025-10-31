@@ -3651,3 +3651,10 @@ Cults of memes abound. Cults of media content, cults of Bible messages ("1 John 
 
 https://old.reddit.com/r/LivestreamFail/comments/1ol577n/hasan_claims_people_spreading_the_dog_abuse_story/nmfp1vm/
 
+https://old.reddit.com/r/KitchenConfidential/comments/1ol5nmt/i_need_to_show_everyone_what_i_just_got_on_my_mac/nmfwg5b/
+
+People just don't grasp how angry and hate-filled people come. People do not study media ecology. Media mania abounds in year 2025. Fox News entertainment causes extreme anger and self-harm. Reddit food media causes anger and hate
+
+https://old.reddit.com/r/memes/comments/1ol3pso/it_gets_tiresome/nmfg3po/
+
+Prizing hate, the power to message disappointment and hate. Which I am certainly not doing on this GitHub. The crisis defined by [Neil Postman's 1985 book "Amusing Ourselves To Death" about media ecology](https://en.wikipedia.org/wiki/Amusing_Ourselves_to_Death) has become a huge concern to socity... we are going into fiction / mythological mindsets and not in a good way. We are not going into fiction supperior to reality, creative goodness, we are going into the traditional Hell fiction, the metaphors of Hell. Abandoning goodness. I am a deperate man seeking any way to get people to listen to Malala year 2012 and year 2013 and see what Carl Sagan is saying in his Pale Blue Dot poem. OPERA_A REPEAT_TRACK_A Seeker https://www.youtube.com/watch?v=YKoItfmA90w  268,324 views February 29, 2012
