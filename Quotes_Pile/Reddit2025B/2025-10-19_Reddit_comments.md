@@ -3463,3 +3463,9 @@ Response
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nmaf5qc/
 
 Response
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1oitbd1/why_did_they_divorce_peter/nmaj01i/
+
+Response
+
+
