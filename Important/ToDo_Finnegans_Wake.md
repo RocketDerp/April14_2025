@@ -221,3 +221,10 @@ https://old.reddit.com/r/interestingasfuck/comments/1oksf2d/in_1663_king_louis_x
 
 Choice marriage honesty, semi-arranged marriage, mail-order bridge catalog (not just one bride, but pick from the group). Exporting an education system / teaching values / language.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CasualUK/comments/1ol1x9z/my_daughter_just_got_a_can_of_chicken_noodle_soup/nmeyvvb/
+
+Trick or treat Celtic origins. Finnegans Wake ... Celtic festival of Samhain, from which Halloween originated
