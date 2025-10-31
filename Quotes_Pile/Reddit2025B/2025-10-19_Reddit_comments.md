@@ -3623,3 +3623,21 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1ol1p8m/petahhhh/nmf6w8i/
 
 We do prize hate on Earth. And hate has been trending on social media since year 2013.
 
+https://old.reddit.com/r/worldnews/comments/1okypu9/al_qaeda_is_on_the_brink_of_taking_over_a_country/nmekzpw/
+
+Somebody gets it. And why Russia took the Arab Spring so damn seriously. ... ... ...      
+"His essay, written just after “The Arab Spring”, pointed to the anarchy and violence that erupted in Libya and Syria (much of it fueled in the social media), “as proof that a combination of carefully planted stories, outside pressure and political interference can destroy an adversary’s ability, or even the will to fight.", "His essay, written just after “The Arab Spring”, pointed to the anarchy and violence that erupted in Libya and Syria (much of it fueled in the social media), “as proof that a combination of carefully planted stories, outside pressure and political interference can destroy an adversary’s ability, or even the will to fight." https://www.sltrib.com/opinion/commentary/2018/02/17/commentary-russian-general-plots-our-cyber-downfall/
+
+https://old.reddit.com/r/worldnews/comments/1okypu9/al_qaeda_is_on_the_brink_of_taking_over_a_country/nmeg7kv/
+
+https://old.reddit.com/r/worldnews/comments/1okypu9/al_qaeda_is_on_the_brink_of_taking_over_a_country/nmeobtq/
+
+History is a nightmare when you are James Joyce realizing how far the Levant Bible has traveled to Dublin and nobody can find verse Romans 11:32 how John 1:1 is the very source of sin. It took time to travel to University in Italy, and to live in Paris, and labor away on those books to circle around in red ink the nightmares of history we have made in our gross misunderstanding of our inner-reaches of outer-space.
+
+https://old.reddit.com/r/worldnews/comments/1okypu9/al_qaeda_is_on_the_brink_of_taking_over_a_country/nmf2vur/
+
+“He believed that lack of education was the root of all of Pakistan’s problems. Ignorance allowed politicians to fool people and bad administrators to be re-elected.”
+― Malala Yousafzai, I Am Malala: The Story of the Girl Who Stood Up for Education and Was Shot by the Taliban. October 8, 2013.
+
+https://old.reddit.com/r/worldnews/comments/1okypu9/al_qaeda_is_on_the_brink_of_taking_over_a_country/nmf5mb3/
+
