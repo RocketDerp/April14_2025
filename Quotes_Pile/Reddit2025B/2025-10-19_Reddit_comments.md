@@ -3641,3 +3641,13 @@ https://old.reddit.com/r/worldnews/comments/1okypu9/al_qaeda_is_on_the_brink_of_
 
 https://old.reddit.com/r/worldnews/comments/1okypu9/al_qaeda_is_on_the_brink_of_taking_over_a_country/nmf5mb3/
 
+https://old.reddit.com/r/LivestreamFail/comments/1ol577n/hasan_claims_people_spreading_the_dog_abuse_story/nmfpxsh/
+
+Left vs. right brainrot. The only bar anyone has to measure is left vs. right. Goodness, abandoned. Nonfiction, abandoned. Understanding and comprhension abandoned. Just an entertainment left vs. entertainment right simulacra, Cambrige Analytica created left-right breeder reactor mindsets.
+
+https://old.reddit.com/r/LivestreamFail/comments/1ol577n/hasan_claims_people_spreading_the_dog_abuse_story/nmfl9m9/
+
+Cults of memes abound. Cults of media content, cults of Bible messages ("1 John 4:20" you have never seen god, never seen Jesus, only seen a storybook of poetry - described 2000 years ago in the Levant - cults of a fiction character / storytelling cults). Alas, the mob mentality toward one single man and one sog has taken on abuse behaviors itself. And the media venues of high speed reaction are a dynamic. People do shit for the lulz, for the LOL, for the mocking. Donadl Trump Truth Social sets the mdoel for success, total mockery. It staturates all media systems, all world press, has to bend towards the mocking and insuting and anti-reality. Blown out minds have context loss, holding context in this soup of Reddit Bluesky TikTok Twitch soup of icons and symbols...
+
+https://old.reddit.com/r/LivestreamFail/comments/1ol577n/hasan_claims_people_spreading_the_dog_abuse_story/nmfp1vm/
+
