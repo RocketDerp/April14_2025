@@ -3609,3 +3609,17 @@ https://old.reddit.com/r/CringeTikToks/comments/1ol0sx5/trumps_agriculture_secre
 
 The audience on Reddit prizes joke-washing above all else. The nation's faith is in mocking itself, humor itself, surreal comedy, absurd comedy, amusement-washing of all serious topics into content for reactions.
 
+https://old.reddit.com/r/todayilearned/comments/1ol1286/til_baby_driver_director_edgar_wright_wanted_to/nmf78pk/
+
+Anti-wiki anti-article anti-book.
+
+https://old.reddit.com/r/instant_regret/comments/1ol2cai/he_wanted_a_foot_rub_got_a_face_rub_instead/nmf2ej9/
+
+Dublin material.
+
+https://old.reddit.com/r/instant_regret/comments/1ol2cai/he_wanted_a_foot_rub_got_a_face_rub_instead/nmfcgz2/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1ol1p8m/petahhhh/nmf6w8i/
+
+We do prize hate on Earth. And hate has been trending on social media since year 2013.
+
