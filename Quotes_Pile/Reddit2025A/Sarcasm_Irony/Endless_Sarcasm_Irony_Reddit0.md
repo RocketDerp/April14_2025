@@ -1067,3 +1067,12 @@ Font page of Reddit. Reddit society can't see We The People are in a media platf
 https://old.reddit.com/r/clevercomebacks/comments/1okspc5/if_youre_sincere_implement_trumpcare/
 
 The paradox presented via Trump on social media: that "Biden economy" is responsible for economy and rising prices but not when Trump is in office is Trump responsible for the "Trump economy" and rising health care costs. Reddit users get their minds blown out by these Surkov media techniques, paradox messaging. It puts the Reddit audience into meme stupor, tiny-think reactionary mindsets, instead of asserting goodness like health care / housing / food with the January 1944 Second Bill of Rights in a complex well-thought-out package that also mentions the breeding ground for dictatorships... people just react to the low-effort of calling Trump stupid and dumb. Exactly what these Trump Surkov style messages do to audiences, blow the minds of people into simplsitic reation and waiting for the next Trump message  / antic  / action to react to.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1okwl7r/hasan_gets_mad_at_a_vietnamese_refugee_and_yells/
+
+Right on the front page of Reddit. Prizing hate. Block-happy, deport-happy, media blocking, immigrant blocking / deporting. People prize hate for one person or another, one out-group or another. it's a global problem and free speech media systems allow it be expressed in clear language like Truth Social does. ... ... ...      
+"Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe." - November 17, 1957. Altabama.
