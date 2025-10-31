@@ -1059,3 +1059,11 @@ This is the war against Reality. Russian war against Reality. Trump himself broa
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ok4ep9/this_mf_is_a_garbage_person/
 
 Font page of Reddit. Reddit society can't see We The People are in a media platform to media platform simulacra. A message feedback loop. Reddit title is calling Biden and Trump "garbage person", prizing hate. Hate for hate. Reddit cloud computing machines messaging that Trump Biden is **ugly**, etc. "Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe." - November 17, 1957. Altabama.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1okspc5/if_youre_sincere_implement_trumpcare/
+
+The paradox presented via Trump on social media: that "Biden economy" is responsible for economy and rising prices but not when Trump is in office is Trump responsible for the "Trump economy" and rising health care costs. Reddit users get their minds blown out by these Surkov media techniques, paradox messaging. It puts the Reddit audience into meme stupor, tiny-think reactionary mindsets, instead of asserting goodness like health care / housing / food with the January 1944 Second Bill of Rights in a complex well-thought-out package that also mentions the breeding ground for dictatorships... people just react to the low-effort of calling Trump stupid and dumb. Exactly what these Trump Surkov style messages do to audiences, blow the minds of people into simplsitic reation and waiting for the next Trump message  / antic  / action to react to.
