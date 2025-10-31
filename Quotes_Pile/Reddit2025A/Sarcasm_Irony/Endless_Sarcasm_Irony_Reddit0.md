@@ -1076,3 +1076,12 @@ https://old.reddit.com/r/LivestreamFail/comments/1okwl7r/hasan_gets_mad_at_a_vie
 
 Right on the front page of Reddit. Prizing hate. Block-happy, deport-happy, media blocking, immigrant blocking / deporting. People prize hate for one person or another, one out-group or another. it's a global problem and free speech media systems allow it be expressed in clear language like Truth Social does. ... ... ...      
 "Force begets force, hate begets hate, toughness begets toughness. And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe." - November 17, 1957. Altabama.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/goodnews/comments/1okspes/holy_cow_in_a_humiliating_reversal_rfk_jr_walks/
+
+Surkovian onion eating that these antics, nonsense, are accidental. It is how you mentally invade the audience, make the audience feel they are smarter than the icon / symbol of power. To create a total mockery between leader and audience. Surkovian governing. It isn't accidental that RFK Jr was put in his position to serve Kremlin / Putin. It's endless entertainment to Reddit audience who blows their minds on the pattern of messages. "Holy Cow" mind blown like a Chicago Cubs sports entertainment amusement event. Neil Postman's 1985 book "Amusing Ourselves To Death" explains this Reddit audience media behavior / addiciton to antics leaders. The constant stimulation of contradictory vaudeville performances politcs. Surkov won, Russia won. NATO lost.
+
