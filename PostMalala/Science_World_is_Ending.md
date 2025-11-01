@@ -1,5 +1,9 @@
 # Science World is Ending
 
+&nbsp;
+
+Halloween. Octobrer 31, 2025
+
 https://old.reddit.com/r/news/comments/1ol9jry/top_researchers_consider_leaving_us_amid_funding/
 
 “The boys learn the Quran by heart, rocking back and forth as they recite. They learn that there is no such thing as science or literature, that dinosaurs never existed and man never went to the moon.”
