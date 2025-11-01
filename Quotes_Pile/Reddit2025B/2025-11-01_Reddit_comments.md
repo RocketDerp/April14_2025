@@ -149,3 +149,11 @@ https://old.reddit.com/r/SideProject/comments/1o7ekiw/back_to_the_market_again/n
 
 This account devbydaydreamer creating this message is the post https://old.reddit.com/r/mildlyinfuriating/comments/1olqii1/my_companys_new_ai_payroll_bot_decided_i_dont/ that made it to the front page then removed by moderators. Very first day of creating account, starts commenting (to vote / save posts you have to create a login, most don't just jump into comment creation). A pattern over 18 days of jobs / human relationships / ChatGPT / A.I. topics. I looked for people on the frotn-page posting today calling it out as A.I. bait (overlord behaviors of A.I. or the specific company mentioned in the message, a A.I. competitor?). Even the username is sus for A.I. topics. The moderators did not seem to give any reason for why it was removed after being on front page of /r/All Reddit.
 
+https://old.reddit.com/r/PublicFreakout/comments/1olrzan/newsmax_airs_aigenerated_video_to_propagandize/nmjztvm/
+
+Reddit was ground zero in welcoming the Russian War Against Reality / Internet Research Agency. People think it is funny and entertaining and amusing to LOL LMAO at Donald Trump constantly. Flocking to every shit content to wrap it with humor coating and entertainment coating. No-identity low-effort disposable commenting prized over refined same-page Wiki style information. Everyoen scattered on a different posting and diffrent comment tree on Reddit never seeing eye to eye in filter bubbles. https://en.wikipedia.org/wiki/Filter_bubble Exploited by Putin. Everything is a game of cracking a joke against other people. Out-group mocking.
+
+https://old.reddit.com/r/PublicFreakout/comments/1olrzan/newsmax_airs_aigenerated_video_to_propagandize/nmjz392/
+
+Parents made Donald Trump a role model for business, Truth Social media role model, Twitter role model, Elon Musk Twitter role model. Parents made Trump the role model for all behavior and success. 
+
