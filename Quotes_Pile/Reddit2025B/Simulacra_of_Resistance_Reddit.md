@@ -219,3 +219,13 @@ https://old.reddit.com/r/PoliticalHumor/comments/1ojwp2z/ha_ha_ha_hahahaha/
 Outright joke-washing that this is a simulation via Fox News, Twitter, Reddit.
 
 
+&nbsp;
+
+&nbsp;
+
+Friday October 31, 2025 near midnight Halloween
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1olgadr/trump_supporting_mom_on_snap_in_the_fo_phase_as/
+
+There is a true reality beyond the simualcra. All the time wasted in the simulacra, Reddit ARG screen game, has a prices. It joke-washes, meme-washes, mocking-washes away goodness. People think it is a win that family won't love one another, that "finding out" that hate is popular on Reddit and in famlies is a "win". "Fukck Around find out" is a worship phrase of Reddit society / Reddit users - it means "dog eat dog", it means anti-forgiveness. Anti-MLK Jr reformation of the world. It means Putin is correct. As Ukraine "resisting" is "finding out" for Ukraine. As Palestine being wrecked is "finding out" about terrorism. All of humanity is fucking around with hate and finding out. What the FAFO prizes is both the self-harmof fucking raound and the self-harm of finding out. It isn't learning, it is prizing what billionares desire: a world of hostility and sohisticated traps by Rupert Murdoch and Elon Musk Twitter in year 2024 to mind-fuck people into self-harm o that poor povery-worshiping people on Reddit can "LOL LOL LOL" amusement-wash that bilionares fucked people over. It's irony-washing, entertainment-washing of the billionare media systems with Reddit adoption of Truth Social mocking of humanism. It's machine lust, anti-human, Reddit machine high speed message love.
+
