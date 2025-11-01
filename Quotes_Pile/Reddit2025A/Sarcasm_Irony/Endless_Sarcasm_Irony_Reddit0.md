@@ -1100,3 +1100,12 @@ Correct. Which is wh you need to stop stating the very superficial obvious about
 https://old.reddit.com/r/Fauxmoi/comments/1oladwj/jd_vance_tries_to_lean_into_one_of_his_many_memes/
 
 Right in the Reddit and Bluesky JD Vance couch chanting faces. All week the south park dog shooting and JD Vancehas been laying the Reddit audiene. Those who hate JD Vance are doing exsctly what Tony Clifton performncces thrive off, audience hate. Surkov won.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/UnderReportedNews/comments/1olntr2/jd_vance_criticized_snap_recipients_despite_once/
+
+What changed between then and now? 1. Wealth conentration. 2. Internet Research Agency year 2013. 3. Cambridge Analytia doctors altering mindsets. Bluesky and Reddit community reacts to the name "JD Vance" with couch mindsets... intead of social media society organizing / getting on the same page of the January 1944 Second Bill of Rights.
+
