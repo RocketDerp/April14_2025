@@ -140,3 +140,7 @@ MOYERS: Society has provided them no rituals by which they become members of the
 
 CAMPBELL: That’s exactly it. 
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1olqii1/my_companys_new_ai_payroll_bot_decided_i_dont/nmjublq/
+
+<img width="1272" height="394" alt="image" src="https://github.com/user-attachments/assets/565f4257-1a7a-4acb-aee0-2377a0ee47ec" /> Freshly coined Reddit account spreading mass dehumanization mockery-washing. All entertainment and ha ha amusement to people that billionaires are programming machines to further dehumanize people. Reddit eats it up out of touch device intimacy addiction to low-effort amusement mill (Reddit). ... ... ...        
+“Naturally, bureaucrats can be expected to embrace a technology that helps to create the illusion that decisions are not under their control. Because of its seeming intelligence and impartiality, a computer has an almost magical tendency to direct attention away from the people in charge of bureaucratic functions and toward itself, as if the computer were the true source of authority. A bureaucrat armed with a computer is the unacknowledged legislator of our age, and a terrible burden to bear.” ― Neil Postman, Technopoly: The Surrender of Culture to Technology, year 1992
