@@ -3676,3 +3676,7 @@ https://old.reddit.com/r/shittymoviedetails/comments/1olbzai/in_hocus_pocus_1993
 
 Popularity of popular. Image consumers, consumable images.
 
+https://old.reddit.com/r/shittymoviedetails/comments/1olbzai/in_hocus_pocus_1993_sarah_jessica_parker_is_so/nmhgwgh/
+
+Shallow, suprficial, mocking is prized. "Hot" rules people into Donald Trump leadership of society. ... ... ...          
+"If I were running 'The View,' I'd fire Rosie O'Donnell. I mean, I'd look at her right in that **fat, ugly face** of hers, I'd say, 'Rosie, you're fired.'" - year 2006. This kind of mindset is what attracted people to Donald J. Trump, "hot or not" binary logic. https://theweek.com/politics/things-donald-trump-has-said-about-women
