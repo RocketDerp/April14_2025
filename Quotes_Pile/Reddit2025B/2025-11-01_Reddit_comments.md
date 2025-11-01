@@ -180,3 +180,25 @@ Why do people bully and road rage in public....
 
 https://old.reddit.com/r/law/comments/1olxzpn/trump_administration_defies_court_orders_to/nmltdeb/
 
+https://old.reddit.com/r/MurderedByWords/comments/1olyzfu/valid_response_to_bigotry_and_racism/nmlht03/
+
+Some people like Malala hadn't had a bullet in their head. Pro-violence pro-hate messages on Reddit machines. MLK Jr shot, John Lennon shot. People who prize violence in the head to alter mindsets.
+
+https://old.reddit.com/r/MurderedByWords/comments/1olyzfu/valid_response_to_bigotry_and_racism/nmllsl1/
+
+Just like Fox News / Rupert Murdoch / Elon Musk Twitter/ Reddit. Media ecology. But the most popular comment isn't about media ecology and hate message, it's about physical violence promotion.
+
+https://old.reddit.com/r/MurderedByWords/comments/1olyzfu/valid_response_to_bigotry_and_racism/nmlkn4p/
+
+Mind-blowing humor to Reddit audiences. Amused. Everything to do with the Putin defeat of USA hearts and minds is amusement for Bluesky and Reddit audiences who prize memes and being amsued over rescuing people from Internet Research Agency mind-fucking.
+
+https://old.reddit.com/r/MurderedByWords/comments/1olyzfu/valid_response_to_bigotry_and_racism/nmm3in1/
+
+https://old.reddit.com/r/MurderedByWords/comments/1olyzfu/valid_response_to_bigotry_and_racism/nmljdcl/
+
+Continue to do everything possible with free time and spare time to comment on Reddit.... avoiding nonfiction learning of the Russian information war since year 2013.
+
+https://old.reddit.com/r/MurderedByWords/comments/1olyzfu/valid_response_to_bigotry_and_racism/nmloncu/
+
+<img width="1708" height="378" alt="image" src="https://github.com/user-attachments/assets/564647e5-d5dc-4063-a9e4-2db177b928ab" /> Anti-goodness abounds. Surkov won. Nobody defended or can name the Internet Research Agency and Cambridge Analytica.
+
