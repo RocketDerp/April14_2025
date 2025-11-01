@@ -63,3 +63,28 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1olmtvs/she_got_so_much_blo
 
 <img width="1132" height="544" alt="image" src="https://github.com/user-attachments/assets/37375fab-4cae-453a-8d6e-415c19bc284d" /> There you go. Joke-washing everything via Reddit the meme mill. Since June 16, 2015 endlessly amusement-washing USA into Hell mindsets. Surkov won, Cambridge Analytica mind-fucked the USA population into meme stupors / Amusing Ourselves to Death - Neil Postman 1985.
 
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1olmtvs/she_got_so_much_blowback_her_account_is_now/nmiybwy/
+
+Mock for Mock. Mocking for All. Always more mocking. Faith in mocking. Always more mass dehumanization. Since year 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1olmtvs/she_got_so_much_blowback_her_account_is_now/nmiyyf5/
+
+Faith in Hate. Out-group hate patterns. Since year 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1olmtvs/she_got_so_much_blowback_her_account_is_now/nmj07nv/
+
+This is what Reddit upvoted for. EVERY HOUR of EVERY DAY since year 2013. "What they", us vs. them. Abandonment of reality is what people on Reddit voted for November 1, 2025. Reddit vs. Twitter, people just don't GET IT. No rescue of Trump, no rescue of MAGA from Kremlin. Surkov won, Putin won. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1olmtvs/she_got_so_much_blowback_her_account_is_now/nmj69su/
+
+Since year 2013. Internet Research Agency won.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1olmtvs/she_got_so_much_blowback_her_account_is_now/nmj63nu/
+
+Don't believe anything at all. Abandonment of nonfiction.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1olmtvs/she_got_so_much_blowback_her_account_is_now/nmj1z0j/
+
+Liberal vs. Conservative brainrot is what it is. Founding Fathers did n<img width="1232" height="704" alt="image" src="https://github.com/user-attachments/assets/0d253efb-99a5-427c-8a6b-e26d044df085" />
+ot recommend this thinking system. The pyramid on the Great Seal of the United States of America has 13 steps upward, vertical, to **reason thinking**. Not conservative vs. liberal one-bit logic tinking patterns. OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=pP8iUyb9Gn8
+
