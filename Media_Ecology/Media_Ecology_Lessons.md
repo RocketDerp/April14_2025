@@ -947,3 +947,28 @@ https://www.youtube.com/watch?v=Gksxu-yeWcU
 
 https://www.youtube.com/watch?v=RNhiT-SmR1Q
 
+&nbsp;
+
+&nbsp;
+
+## Nonfiction is Unrealistic
+
+Nonfiction is Unrealistic    
+Nonfiction is Unpopular    
+Reality is Unpopular    
+Fixing Reality is Unpopular via media    
+
+https://old.reddit.com/r/AskHistorians/comments/1avo2ah/i_always_hear_that_amon_goeth_was_worse_in/kredjie/
+
+<img width="1436" height="704" alt="image" src="https://github.com/user-attachments/assets/90f600d3-f853-440d-8864-e10192c2ee87" />
+
+"It's a relatively common thing in media that "reality is unrealistic." Accurately showing Nazi criminals verges so far into absurdly, insanely, obviously evil and horrible actions that it comes off as a parody of how you'd criticize your enemies rather than an accurate depiction of their crimes. You risk breaking suspension of disbelief because the horrors inflicted on people by Nazi Germany were so beyond the pale that they go into cartoonish self-parody."
+
+...
+
+<img width="1266" height="1198" alt="image" src="https://github.com/user-attachments/assets/6a8ae368-179f-43dc-b4e0-d1a2e5e6c2d6" />
+
+"You said what I meant more clearly. Movie Amon already comes close to cartoonishly evil, but good acting and writing keeps his normal human qualities in view. In my opinion, this makes the character even more sinister, because it allows the possibility that "anyone" could be like Amon, given the "wrong" circumstances and choices.
+
+At the same time, Schindler's character shows how, even if your whole life you've basically been a crook, that you can choose to be good and do good things. A spying, womanizing, drunk, corrupt war profiteer like Schindler ends up crying while giving the literal clothes from his back to the people he risked his life to protect through the war? I've seen the move probably 10 times by now, that last scene still gets me."
+
