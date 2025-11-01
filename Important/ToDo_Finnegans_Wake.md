@@ -288,3 +288,9 @@ https://old.reddit.com/r/fixedbytheduet/comments/1olydwu/100_accurate/
 
 After the brawl and booze at Tim Finnegan's Wake.
 
+&nbsp;
+
+https://old.reddit.com/r/holdmycosmo/comments/1olvvl8/hmc_we_all_deserve_an_explanation_from_the_swedes/
+
+Ritual developers needed. Bonding rituals to make women ready for sex?
+
