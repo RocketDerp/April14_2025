@@ -270,3 +270,8 @@ This is the first time it's been done, and this is actually the ideal of marriag
 
 The point here is that it was not a marriage that began with physical sex; when she put her hair up, they were married.  Wolfram tells us that it starts in the spirit and is fulfilled in the flesh."
 
+&nbsp;
+
+<img width="2324" height="504" alt="image" src="https://github.com/user-attachments/assets/e1485826-8c2b-4582-a5d4-b5a44ab1feda" />
+
+"commonly a male name", you say. Well, I had a wife (woman) who was named "Tristan" ;) We had several interesting questions about her name in our TV travels in USA and our living in Arica, Chile. 
