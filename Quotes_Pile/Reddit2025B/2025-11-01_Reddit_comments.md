@@ -86,3 +86,57 @@ Don't believe anything at all. Abandonment of nonfiction.
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1olmtvs/she_got_so_much_blowback_her_account_is_now/nmj1z0j/
 
 <img width="1232" height="704" alt="image" src="https://github.com/user-attachments/assets/0d253efb-99a5-427c-8a6b-e26d044df085" />Liberal vs. Conservative brainrot is what it is. Founding Fathers did not recommend this thinking system. The pyramid on the Great Seal of the United States of America has 13 steps upward, vertical, to **reason thinking**. Not conservative vs. liberal one-bit logic thinking patterns. OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=pP8iUyb9Gn8
+
+https://old.reddit.com/r/meme/comments/1olmczj/silent_king_no_words_wasted/nmj5x7m/
+
+<img width="1034" height="368" alt="image" src="https://github.com/user-attachments/assets/63bbcaf7-e3ff-47b0-a969-565c1094c428" /> Anti-humanism logic. You know a person for months, spend time with thiem, and now you must dehumanize them. Mandatory dehumanization. Can't even treat them like a niext door neighbor or a peer at work or an employee or staff at the grocery store or coffee ship. You MUST MANDATORY no-communicate them, no writing, no conversation, deny thier existance. This "my ex lover" must be hated logic is very popular. And toxic as fuck. Did you commit to a lifetime of marriage and got a divorce? Nope. Just changed intimate partners so now MANDATORY NEVER A FRIEND. What hate-filled ass-backwards hate-prizing behavior. "DO NOT ENGAGE WITH ANYONE" like it is an enemy of your religion or enemy of your state, like it is terrorism or a serial killer. Such polarity logic. Friend or foe logic.
+
+https://old.reddit.com/r/meme/comments/1olmczj/silent_king_no_words_wasted/nmjaxtx/
+
+Exactly. What "games", the games I see is the words "DO NOT ENGAGE WITH ANYONE" anti-humanism machine logic. 
+
+https://old.reddit.com/r/meme/comments/1olmczj/silent_king_no_words_wasted/nmjmr2s/
+
+When people have attitudes of mandatory hate and mandatory "DO NOT ENGAGE WITH ANYONE" rules in their mind for casual hookups and dating, the entire society is a monster state. People who prize hate. Ghosting is what corporate America / busienssmen do to employees, no-contact. What USA is doing to immigrants, ghosting their past lives without due process. Compassionless, anti-forgiveness, punishment giving, mandatory dehumanization of an ex-lover society. Machine lover society with constant new software technology and hardware technology - but mandatory anti-love rulesets in people's minds: "DO NOT ENGAGE WITH ANYONE". George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+
+BILL MOYERS: One not only biologically but spiritually.
+
+JOSEPH CAMPBELL: **Primarily spiritually**. The biological is the distraction which may lead you to the wrong identification.
+
+MOYERS: Then the necessary function of marriage, perpetuating ourselves in children, is not the primary one.
+
+CAMPBELL: No, that’s really just the elementary aspect of marriage. There are two completely different stages of marriage. First is the youthful marriage following the wonderful impulse that nature has given us in the interplay of the sexes biologically in order to produce children. But there comes a time when the child graduates from the family and the couple is left. I’ve been amazed at the number of my friends who in their forties or fifties go apart. They have had a perfectly decent life together with the child, but they interpreted their union in terms of their relationship through the child. They did not interpret it in terms of their **own personal relationship to each other**.
+
+Marriage is a relationship. When you make the sacrifice in marriage, you’re sacrificing not to each other but to unity in a relationship. The Chinese image of the Tao, with the dark and light interacting—that’s the relationship of yang and yin, male and female, which is what a marriage is. And that’s what you have become when you have married. You’re no longer this one alone; your identity is in a relationship. Marriage is not a simple love affair, it’s an ordeal, and the **ordeal is the sacrifice of ego** to a relationship in which two have become one.
+
+MOYERS: So marriage is utterly incompatible with the idea of doing one’s own thing.
+
+CAMPBELL: It’s not simply one’s own thing, you see. It is, in a sense, doing one’s own thing, but the one isn’t just you, it’s the two together as one. And that’s a purely mythological image signifying the sacrifice of the visible entity for a transcendent good. This is something that becomes beautifully realized in the second stage of marriage, what I call the alchemical stage, of the two experiencing that they are one. If they are still living as they were in the primary stage of marriage, they will go apart when their children leave. Daddy will fall in love with some little nubile girl and run off, and Mother will be left with an empty house and heart, and will have to work it out on her own, in her own way.
+MOYERS: That’s because we don’t understand the two levels of marriage.
+
+CAMPBELL: You don’t make a commitment.
+
+MOYERS: We presume to—we make a commitment for better or for worse.
+
+CAMPBELL: That’s the remnant of a ritual.
+
+MOYERS: And the ritual has lost its force. The ritual that once conveyed an inner reality is now merely form. And that’s true in the rituals of society and in the **personal rituals** of marriage and religion.
+
+CAMPBELL: How many people before marriage receive spiritual instruction as to what the marriage means? You can stand up in front of a judge and in ten minutes get married. The marriage ceremony in India lasts three days. That couple is glued.
+
+MOYERS: You’re saying that marriage is not just a social arrangement, it’s a spiritual exercise.
+
+CAMPBELL: It’s primarily a spiritual exercise, and the society is supposed to help us have the realization. Man should not be in the service of society, society should be in the service of man. When man is in the service of society, **you have a monster state, and that’s what is threatening the world at this minute** (year 1986).
+
+MOYERS: What happens when a society no longer embraces a powerful mythology?
+
+CAMPBELL: What we’ve got on our hands. If you want to find out what it means to have a society without any rituals, read the New York Times. (ROUNDSPARROW: This interview was in year 1986, update to November 2025 - the front page of Reddit and Bluesky)
+
+MOYERS: And you’d find?
+
+CAMPBELL: The news of the day, including destructive and violent acts by young people who don’t know how to behave in a civilized society.
+
+MOYERS: Society has provided them no rituals by which they become members of the tribe, of the community. All children need to be twice born, to learn to function rationally in the present world, leaving childhood behind. I think of that passage in the [first book of Corinthians](https://biblehub.com/1_corinthians/13-11.htm): “When I was a child, I spake as a child, I understood as a child, I thought as a child: but when I became a man, I put away childish things.”
+
+CAMPBELL: That’s exactly it. 
+
