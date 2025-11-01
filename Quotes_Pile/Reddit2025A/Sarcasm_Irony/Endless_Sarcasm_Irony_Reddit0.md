@@ -1085,3 +1085,11 @@ https://old.reddit.com/r/goodnews/comments/1okspes/holy_cow_in_a_humiliating_rev
 
 Surkovian onion eating that these antics, nonsense, are accidental. It is how you mentally invade the audience, make the audience feel they are smarter than the icon / symbol of power. To create a total mockery between leader and audience. Surkovian governing. It isn't accidental that RFK Jr was put in his position to serve Kremlin / Putin. It's endless entertainment to Reddit audience who blows their minds on the pattern of messages. "Holy Cow" mind blown like a Chicago Cubs sports entertainment amusement event. Neil Postman's 1985 book "Amusing Ourselves To Death" explains this Reddit audience media behavior / addiciton to antics leaders. The constant stimulation of contradictory vaudeville performances politcs. Surkov won, Russia won. NATO lost.
 
+&nbsp;
+
+&npsp;
+
+https://old.reddit.com/r/complaints/comments/1ol7xkm/look_at_the_facts_charlie_kirk_was_not_a_good/
+
+Correct. Which is wh you need to stop stating the very superficial obvious about Charlie Kirk and teach remedial morality. Bible verse "1 John 3:17" should be front in center about teaching love vs. hate. Reddit audience keeps blowing minds into meme-think Twitter-think simplicity. The problem is the widespread inversion of morality, goodness from badness. People are attracted to badness and this attraction needs to be discussed and become a topic itself. Not just to people, but content, anonymous Reddit message content, etc. Popularity itself has become badness / toxic.
+
