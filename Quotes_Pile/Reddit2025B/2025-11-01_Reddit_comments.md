@@ -9,3 +9,10 @@ The downvote-disagree behavior of Reddit. Which triggers their magic secret spam
 https://old.reddit.com/r/interestingasfuck/comments/1oljgav/women_from_the_tai_dam_ethnic_group_in_vietnam/nmilkm1/
 
 "points at USA" from a newly created Reddit account.
+
+https://old.reddit.com/r/Dashcamindia/comments/1olh4u4/two_wheelers_and_their_risk_perception_on_the/nmhzhc1/
+
+Machine lovers cheering on the harm of humans by machine users.
+
+https://old.reddit.com/r/Dashcamindia/comments/1olh4u4/two_wheelers_and_their_risk_perception_on_the/nmi4b79/
+
