@@ -8,3 +8,4 @@ The downvote-disagree behavior of Reddit. Which triggers their magic secret spam
 
 https://old.reddit.com/r/interestingasfuck/comments/1oljgav/women_from_the_tai_dam_ethnic_group_in_vietnam/nmilkm1/
 
+"points at USA" from a newly created Reddit account.
