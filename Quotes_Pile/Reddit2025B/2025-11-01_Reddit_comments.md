@@ -85,6 +85,4 @@ Don't believe anything at all. Abandonment of nonfiction.
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1olmtvs/she_got_so_much_blowback_her_account_is_now/nmj1z0j/
 
-Liberal vs. Conservative brainrot is what it is. Founding Fathers did n<img width="1232" height="704" alt="image" src="https://github.com/user-attachments/assets/0d253efb-99a5-427c-8a6b-e26d044df085" />
-ot recommend this thinking system. The pyramid on the Great Seal of the United States of America has 13 steps upward, vertical, to **reason thinking**. Not conservative vs. liberal one-bit logic tinking patterns. OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=pP8iUyb9Gn8
-
+<img width="1232" height="704" alt="image" src="https://github.com/user-attachments/assets/0d253efb-99a5-427c-8a6b-e26d044df085" />Liberal vs. Conservative brainrot is what it is. Founding Fathers did not recommend this thinking system. The pyramid on the Great Seal of the United States of America has 13 steps upward, vertical, to **reason thinking**. Not conservative vs. liberal one-bit logic thinking patterns. OPERA_A REPEAT_TRACK https://www.youtube.com/watch?v=pP8iUyb9Gn8
