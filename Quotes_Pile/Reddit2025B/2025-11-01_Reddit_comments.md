@@ -16,3 +16,6 @@ Machine lovers cheering on the harm of humans by machine users.
 
 https://old.reddit.com/r/Dashcamindia/comments/1olh4u4/two_wheelers_and_their_risk_perception_on_the/nmi4b79/
 
+https://old.reddit.com/r/Dashcamindia/comments/1olh4u4/two_wheelers_and_their_risk_perception_on_the/nmhxcbe/
+
+Machine lovers cheering on the harm of humans by machine users.
