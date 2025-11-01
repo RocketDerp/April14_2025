@@ -3671,3 +3671,8 @@ https://old.reddit.com/r/shittymoviedetails/comments/1olbzai/in_hocus_pocus_1993
 
 Comprehending Donald Trump. Attraction to crazy / 'wild and crazy' as thrilling. Comprehending the appeal of President Tony Clifton character as a leader signal. The sexual attraction the Reddit and Bluesky audience has to diaper poop signals to enteertainment-wash amusement-wash Russian infomation warfare away, to avoid nonfiction learning of Surkovian methods of governing. The sex appeal of Trump, elder abuse, the hate thy Allah / Hate thy Jesus / Hate thy Yaweh symbolism of poop diaper attraction Reddit socity has FOR OVER TEN YEARS AND FOUR MONTHS endlessly amusement-washing Donald J. Trump as a "LOL cow to milk" for memes and amusements. ... ... ...      
 "As I write, the President of the United States is a former Hollywood movie actor. One of his principal challengers in 1984 was once a featured player on television’s most glamorous show of the 1960’s, that is to say, an astronaut. Naturally, a movie has been made about his extraterrestrial adventure. Former nominee George McGovern has hosted the popular television show “Saturday Night Live.” So has a candidate of more recent vintage, the Reverend Jesse Jackson." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business. Chapter 1: The Medium is The Metaphor. Page 26 of 291 pages (modern edition with context intro). 
+
+https://old.reddit.com/r/shittymoviedetails/comments/1olbzai/in_hocus_pocus_1993_sarah_jessica_parker_is_so/nmhzne6/
+
+Popularity of popular. Image consumers, consumable images.
+
