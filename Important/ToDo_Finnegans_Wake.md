@@ -249,3 +249,22 @@ https://old.reddit.com/r/TwentiesIndia/comments/1olg3v8/going_to_share_this_on_m
 https://old.reddit.com/r/KidsAreFuckingStupid/comments/1olgo5i/speaks_for_itself/
 
 Choice marriage honesty / parenting honesty / about not losing custody. High speed car racing, boat racing, on mootorcycle, roller coaster, etc.
+
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1oljgav/women_from_the_tai_dam_ethnic_group_in_vietnam/
+
+Choice marriage honesty / rituals. Joseph Campbell talked about european women wearing hair up as signal. 
+
+Transformations of Myth Through Time. 
+
+"When Parzival comes back, Condwiramurs has put her hair up in the way of a married woman.  They're married.  This is marriage for love, the mind's love, the love of character, the love of quality, and they go to bed.  Well, he doesn't know anything, and she doesn't know much more, and so they just lie there.  As Wolfram says, "Not many a lady nowadays would have been satisfied with such a night."  And then there was the second night, and there was the third night, and then Parzival thought, " Oh, yes, mother told me."  So Wolfram says, "If you'll pardon me for letting you know, they interlaced arms and legs and thought, 'This is what we should have been doing all the time,' and the marriage was consummated."  No priest.  The answer:  marriage is the confirmation of love, and sexual love is the sacramentalization of marriage.  That's bringing the two terms together.
+
+This is the first time it's been done, and this is actually the ideal of marriage in our world today - marriage for love.  This is the most difficult kind of marriage, because the whole basis of it is relationship, person to person, not to this function, that function, or another.
+
+The point here is that it was not a marriage that began with physical sex; when she put her hair up, they were married.  Wolfram tells us that it starts in the spirit and is fulfilled in the flesh. 
+
+page 252
