@@ -977,3 +977,14 @@ https://old.reddit.com/r/AskHistorians/comments/1avo2ah/i_always_hear_that_amon_
 
 At the same time, Schindler's character shows how, even if your whole life you've basically been a crook, that you can choose to be good and do good things. A spying, womanizing, drunk, corrupt war profiteer like Schindler ends up crying while giving the literal clothes from his back to the people he risked his life to protect through the war? I've seen the move probably 10 times by now, that last scene still gets me."
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+### Messaging Media Ecology
+
+https://old.reddit.com/r/todayilearned/comments/1oloevw/til_the_first_message_sent_over_the/
+
+Typographic man. "Woman addressed here – a type of Issy – **was previously** A-B-C-minded, that is, simple." https://johngordonfinnegan.weebly.com/book-ii/chapter-2-section-2
