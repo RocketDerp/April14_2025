@@ -275,3 +275,9 @@ The point here is that it was not a marriage that began with physical sex; when 
 <img width="2324" height="504" alt="image" src="https://github.com/user-attachments/assets/e1485826-8c2b-4582-a5d4-b5a44ab1feda" />
 
 "commonly a male name", you say. Well, I had a wife (woman) who was named "Tristan" ;) We had several interesting questions about her name in our RV travels in USA and our living in Arica, Chile. 
+
+&nbsp;
+
+https://old.reddit.com/r/StandUpComedy/comments/1olm3hj/im_not_bitter/
+
+Mandatory ex-lover hate, college years, freedom of women. Extremely rare throughout human history anywhere on Earth for women to have freedom to dump a man. Mandatory hate programming, laugh-washing, amusement-washing of prizing hate. November 1, 2025 under Donald Trump role model on front page of Reddit.
