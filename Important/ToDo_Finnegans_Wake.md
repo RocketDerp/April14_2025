@@ -281,3 +281,10 @@ The point here is that it was not a marriage that began with physical sex; when 
 https://old.reddit.com/r/StandUpComedy/comments/1olm3hj/im_not_bitter/
 
 Mandatory ex-lover hate, college years, freedom of women. Extremely rare throughout human history anywhere on Earth for women to have freedom to dump a man. Mandatory hate programming, laugh-washing, amusement-washing of prizing hate. November 1, 2025 under Donald Trump role model on front page of Reddit.
+
+&nbsp;
+
+https://old.reddit.com/r/fixedbytheduet/comments/1olydwu/100_accurate/
+
+After the brawl and booze at Tim Finnegan's Wake.
+
