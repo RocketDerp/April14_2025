@@ -945,13 +945,18 @@ https://www.youtube.com/watch?v=Gksxu-yeWcU
 
 ### You can't photograph the monster
 
+I made a horror game that's IMPOSSIBLE to SCREENSHOT!        
 https://www.youtube.com/watch?v=RNhiT-SmR1Q
 
-&nbsp;
+Motion itself being often how humans and other animals on planet Earth detect a threat / predator. Camouflage in fur / feathers / clothing / fish colour and shapes... and without movement, a still photograph, people can't spot the movement of the threat. Ambush or "sit-and-wait" predators, where immobility is key to their hunting strategy.
+
+"Terrestrial examples include leopards and jaguars, whose spotted coats blend into dappled light; owls with mottled feathers mimicking tree bark; the masquerading praying mantis and crab spider that resemble flora; chameleons that alter their appearance to match surroundings; and vine snakes that mimic branches. In aquatic environments, mastery of camouflage is evident in octopuses and cuttlefish, which dynamically change their skin pattern and texture; the highly venomous stonefish and scorpionfish that blend perfectly with the seafloor; frogfish that use a lure while remaining hidden; the well-camouflaged alligator snapping turtle; and the flattened, fringed tasselled wobbegong shark. All these species rely heavily on immobility and effective disguise to facilitate their ambush hunting strategies."
 
 &nbsp;
 
-## Nonfiction is Unrealistic
+&nbsp;
+
+### Nonfiction is Unrealistic
 
 Nonfiction is Unrealistic    
 Nonfiction is Unpopular    
