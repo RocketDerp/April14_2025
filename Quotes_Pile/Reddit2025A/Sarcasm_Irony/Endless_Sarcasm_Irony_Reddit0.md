@@ -1093,3 +1093,10 @@ https://old.reddit.com/r/complaints/comments/1ol7xkm/look_at_the_facts_charlie_k
 
 Correct. Which is wh you need to stop stating the very superficial obvious about Charlie Kirk and teach remedial morality. Bible verse "1 John 3:17" should be front in center about teaching love vs. hate. Reddit audience keeps blowing minds into meme-think Twitter-think simplicity. The problem is the widespread inversion of morality, goodness from badness. People are attracted to badness and this attraction needs to be discussed and become a topic itself. Not just to people, but content, anonymous Reddit message content, etc. Popularity itself has become badness / toxic.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1oladwj/jd_vance_tries_to_lean_into_one_of_his_many_memes/
+
+Right in the Reddit and Bluesky JD Vance couch chanting faces. All week the south park dog shooting and JD Vancehas been laying the Reddit audiene. Those who hate JD Vance are doing exsctly what Tony Clifton performncces thrive off, audience hate. Surkov won.
