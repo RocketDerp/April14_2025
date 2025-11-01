@@ -157,3 +157,6 @@ https://old.reddit.com/r/PublicFreakout/comments/1olrzan/newsmax_airs_aigenerate
 
 Parents made Donald Trump a role model for business, Truth Social media role model, Twitter role model, Elon Musk Twitter role model. Parents made Trump the role model for all behavior and success. 
 
+https://old.reddit.com/r/clevercomebacks/comments/1olt7vr/were_not_on_the_same_planet/nmk8uyu/
+
+What I say about meme sellouts, meme junkies... spending all their spare time and free time feeding the Trump inferno of vanity and anti-goodness. Social device touch addicts, people who wroship Trump images FOR OVER TEN YEARS AND FOUR MONTHS, EVERY DAY NOT JUST ELECTION DAYS, EVERY DAY OF THE YEAR: Trump images to mock, insult. Addicts to entertainment, addicts to mocking, addicts to hate messages, addicts to "Trickle Down Bling Bling" from the rich and famous for video games / scoail media content / GTA6 bling bling images. ANYTHING to avoid nonfiction learning about media addiction, media ecology, Surkovian governing, Russian information warfare since June 16, 2015.
