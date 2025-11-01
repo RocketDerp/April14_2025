@@ -236,3 +236,12 @@ Trick or treat Celtic origins. Finnegans Wake ... Celtic festival of Samhain, fr
 https://old.reddit.com/r/humansarespaceorcs/comments/1ol4hrw/humans_are_obsessed_with_teaching_other_species/
 
 Tower of Babel common path for learners.
+
+&nbsp;
+
+&nbsp;
+
+Choice marriage honesty, arrnaged marriage honesty     
+Tristan and Isolde and King Mark and being given a bride.    
+
+https://old.reddit.com/r/TwentiesIndia/comments/1olg3v8/going_to_share_this_on_my_familys_whatsapp_group/
