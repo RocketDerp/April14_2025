@@ -245,3 +245,7 @@ Choice marriage honesty, arrnaged marriage honesty
 Tristan and Isolde and King Mark and being given a bride.    
 
 https://old.reddit.com/r/TwentiesIndia/comments/1olg3v8/going_to_share_this_on_my_familys_whatsapp_group/
+
+https://old.reddit.com/r/KidsAreFuckingStupid/comments/1olgo5i/speaks_for_itself/
+
+Choice marriage honesty / parenting honesty / about not losing custody. High speed car racing, boat racing, on mootorcycle, roller coaster, etc.
