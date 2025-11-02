@@ -95,7 +95,7 @@ def convert_html_to_md(div):
         errorCountB += 1
         return ""
 
-     if "You must be at least eighteen years old to view this content." in div:
+    if "You must be at least eighteen years old to view this content." in div:
          print("over age 18, missing comment?")
          errorCountB += 1
          return ""
