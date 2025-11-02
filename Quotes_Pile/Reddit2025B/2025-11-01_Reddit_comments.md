@@ -304,3 +304,7 @@ https://old.reddit.com/r/news/comments/1omo4lv/us_family_moved_to_russia_to_esca
 
 Exactly. Bad information, bad understanding, bad comprehension. A society that prizes low-effort disposble commenting and fast reactionary upvoting / like counting / ReTweeting over Wiki style refined and validated information.
 
+https://old.reddit.com/r/news/comments/1omo4lv/us_family_moved_to_russia_to_escape_liberal/nmr1flk/
+
+<img width="824" height="544" alt="image" src="https://github.com/user-attachments/assets/b2ecdbc6-effe-47c8-8733-debd9e8e083a" /> *Research* since year 2013 has come to mean in mainstream / everyday society: Popularity, appealing, attractive, desirable content. Popularity itself is toxic. Look at Twiter, look at Trump, look at Fox News ratings, look at Reddit avoidance of nonfiction and serious topics that are important and being avoided. If not amusement wrapped / candy coated for meme visuals and mindsets, it is ignored. Fiction addicton drives society now.
+
