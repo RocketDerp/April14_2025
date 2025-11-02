@@ -204,3 +204,16 @@ https://old.reddit.com/r/MurderedByWords/comments/1olyzfu/valid_response_to_bigo
 
 https://old.reddit.com/r/ExplainTheJoke/comments/1om0r7j/why/nmma8z7/
 
+https://old.reddit.com/r/law/comments/1omg0os/fbi_ousts_leader_as_patel_fumes_over_attention_to/nmp3yll/
+
+It's self-harm. People are still thinking in terms of A vs. B, team sports mentality, that there is a winner. This is all anti-goodness. It is the aftermath of Russia's Internet Research Agency invasion of media, Cambridge Analytica aftermath, etc. People have gone into reactionary mindsets, only concerned to see others suffer ("Leopards eating MAGA faces" cheering, "Liberal suffering, Liberal tears" cheering, "Blocked and deproted by I.C.E." cheering).  ... ... ...     
+“Science is more than a body of knowledge; it is **a way of thinking**. I have a (year 1995) foreboding of an America in my children’s or grandchildren’s time—when the United States is a service and information economy; when nearly all the key manufacturing industries have slipped away to other countries; when awesome technological powers are in the hands of a very few, and no one representing the public interest can even grasp the issues; when the people have lost the ability to set their own agendas or knowledgeably question those in authority; when, clutching our crystals and nervously consulting our horoscopes, our critical faculties in decline, unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the **30-second** sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of [celebration of ignorance](https://www.youtube.com/watch?v=wcY-x1VuWtE). As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/law/comments/1omg0os/fbi_ousts_leader_as_patel_fumes_over_attention_to/nmpeghi/
+
+Note the absence of link, author name, author titles, book titles, etc.
+
+https://old.reddit.com/r/law/comments/1omg0os/fbi_ousts_leader_as_patel_fumes_over_attention_to/nmp241i/
+
+Implying that people are insane in groups. But this topic of mob mentality / group sanity is not taken seriously. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
