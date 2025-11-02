@@ -917,8 +917,10 @@ Today 2025-11-02
 
 3. "But those movies were about the \*act\* ofgoing to the movies."
 
-Regarding number 3, are the asterisks intentional or supposed to be italic / underline?
+Regarding number 3, are the asterisks intentional or supposed to be italic / underline? There are a huge number of spacing problems in this story. "Roger Ebert's estate was worth approximately
+$9 million at the time of his death in 2013." Were these old 1990's reviews published on the website when he was still alive in year 2013 or earlier? 
 
+Also consider that halloween films tend to get passed down for holiday rewatch... and people may pass down their favorite reviewer. So there is sill an audience for a 1996 film review. Somewhat sad that such glaring publishing mistakes are not cleaned up for Halloween 2025.
 
 &nbsp;
 
