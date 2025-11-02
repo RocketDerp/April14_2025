@@ -95,6 +95,10 @@ def convert_html_to_md(div):
         errorCountB += 1
         return ""
 
+     if "You must be at least eighteen years old to view this content." in div:
+         print("over age 18, missing comment?")
+         errorCountB += 1
+         return ""
 
     try:
         md_text = convert_to_markdown(div);
@@ -208,7 +212,7 @@ def fetch_comment_data(url, idx=None, args=None):
         html_filename = os.path.join(save_html_folder, f"{idx}_{comment_id}.html")
 
         if check_saved_first and os.path.exists(html_filename):
-            print(f"[cached] Using saved HTML for {url}")
+            print(f"[cached] Using saved HTML for {url} file {html_filename}")
             with open(html_filename, "r", encoding="utf-8") as f:
                 html_text = f.read()
 
