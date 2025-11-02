@@ -283,3 +283,24 @@ https://old.reddit.com/r/explainitpeter/comments/1omkxrq/explain_it_peter/nmq372
 
 It is fake quote. And it is signed like a signature. The abandonment of **reality / real / truth*. Frotn page of Reddit. Sarcasm-washing, mocking-washing has been foundation of Surkovian information warfare. Trivializing the Tower of Babel issue, trivializing the Wiki need for *same page* information in society, by saying mocking is a valid excuse to produce fake quotes in the name that every person can obivously see it is fake / satire. **NO, DONALD TRUMP IS EVIDENCE THAT PEOPLE CAN NOT DISTINGUISH FACTUAL QUOTES, TRUMP TRUSTS PUTIN**. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/news/comments/1omo4lv/us_family_moved_to_russia_to_escape_liberal/nmqq6u5/
+
+https://old.reddit.com/r/news/comments/1omo4lv/us_family_moved_to_russia_to_escape_liberal/nmqr7vq/
+
+6 month old Reddit account, "quote me". Anti-rescue anti-empathy messages. Let the IRA and CA win.
+
+https://old.reddit.com/r/news/comments/1omo4lv/us_family_moved_to_russia_to_escape_liberal/nmqtvmp/
+
+https://old.reddit.com/r/news/comments/1omo4lv/us_family_moved_to_russia_to_escape_liberal/nmqyv7n/
+
+4 month old Reddit account. In a toxic society, kick the people who make mistakes down. This family isn't the ringleaders or the instigators. Putin is.
+
+https://old.reddit.com/r/news/comments/1omo4lv/us_family_moved_to_russia_to_escape_liberal/nmqvfvk/
+
+Yes. Watching the abandonment of goodness in favor of out-group punching down on the less educated and less intelligent to create a society 100% with faith in hate and mocking... is harder. "I think being intelligent and watching all this is harder." - there is an absence of humanity pride, Pale Blue Dot pride as people on Earth. ... ... ...      
+“There are no passengers on spaceship earth. We are all crew” - Marshall McLuhan. 1960 report to the National Educational Broadcasters Association.
+
+https://old.reddit.com/r/news/comments/1omo4lv/us_family_moved_to_russia_to_escape_liberal/nmqo9d7/
+
+Exactly. Bad information, bad understanding, bad comprehension. A society that prizes low-effort disposble commenting and fast reactionary upvoting / like counting / ReTweeting over Wiki style refined and validated information.
+
