@@ -294,3 +294,8 @@ https://old.reddit.com/r/holdmycosmo/comments/1olvvl8/hmc_we_all_deserve_an_expl
 
 Ritual developers needed. Bonding rituals to make women ready for sex?
 
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1omhhe2/oc_kid_logic_continues_to_baffle_the_mind/
+
+Language Tower of Babel conflicts    
