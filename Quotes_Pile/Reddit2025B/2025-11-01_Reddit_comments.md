@@ -244,3 +244,13 @@ People can't tell real from fake, reality.
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1omf89z/i_dont_know_about_you_but_this_feels_racist_for/nmp3c1z/
 
 UK band that influenced my youth... marketed it! “Maximum R&B” as The Who coined it in the mid‑1960s... Bo Diddley, James Brown (pre-funk era), Martha and the Vandellas. OPERA_A https://www.youtube.com/watch?v=eUmiJQU1KBE  173,756 views  February 28, 2020
+
+https://old.reddit.com/r/AdviceAnimals/comments/1omgjhw/who_wants_cake/nmp60rp/
+
+Reddit society is meme-washing this with the image of the posting. Turning it into amusement / enteratinment. Entertaiment-washing, amusement-washing. Joining in with the Kremlin Total Mockery as has been the case since June 16, 2015 (and earlier). People won't take nonfiction learning of mass mind manipulation seriously. Published January 2015, before Trump started run for office in June 2015: ... ... ...      
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/ At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
+https://old.reddit.com/r/AdviceAnimals/comments/1omgjhw/who_wants_cake/nmpj0q6/
+
+Reddit meme addicts unable to imagine their own compusive attraction to Reddit trash media has been a warfare technique by Putin. This Reddit comment... people unable to imagine absurd surreal is a formal technique of Tony Clifton acting, Surkovian leadership. Calling Tony Clifton a bad performer is not resisting Tony Clifton acts. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
