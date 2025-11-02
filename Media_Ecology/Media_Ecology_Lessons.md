@@ -1006,3 +1006,12 @@ What this means for this lesson: a radio made in Japan and sold to the USA consu
 #### EXMPLE: Poland and USA F.M. radio differences
 
 https://youtu.be/zVTkzx0IA1c?t=467
+
+&nbsp;
+
+&nbsp;
+
+### Entertainment / Stimulation
+
+Harvard professor Arthur C. Brooks: You need to be bored.    
+https://www.youtube.com/watch?v=orQKfIXMiA8
