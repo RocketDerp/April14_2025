@@ -257,25 +257,29 @@ Reddit meme addicts unable to imagine their own compusive attraction to Reddit t
 https://old.reddit.com/r/whatisit/comments/1omdxwx/black_oily_stuff_coming_out_of_the_ground/nmpbhkd/
 
 <img width="1188" height="796" alt="image" src="https://github.com/user-attachments/assets/a3304701-725f-4e06-9da7-72deb9f46ac6" /> I'm not against this at all. I am against HATE prizing over it. That's a core self-awareness of Finnegans Wake (year 1924 onward) is that language "laws" of John 1:1 are not to be dictated by *language clergy*, authority of The Church. That Romans 11:32 Bible verse is we are *forced* to create our own Tower of Babel by the very mechanism of sharing The Bible / Torah (and later Quran, Book of Mormon, all MonoMyth (Joyce, not Campbell) patterns of Hollywood, books, etc). OPERA_A https://youtu.be/TV3vT5nW_I4?t=149
-Adam Harvey (JoyceGeek), "and exites to be a reference to the
+Adam Harvey (JoyceGeek), "and exigeats (spelling? exigeants? in JoyceGeek's context meaning is "enthusiasts") to be a reference to the
 Tower of Babel from The Book of Genesis
 11: 1-9 in which God punishes Mankind's
-tower building huus by forcing everyone
+tower building hubris by forcing everyone
 to speak in different languages and not
 understand each other. Now, actually the
-Bible doesn't use the word punish and I
-think Joyce may have taken note of this
-because if anything Finnegan's wake is a
+Bible doesn't use the word "punish" and I
+think Joyce may have taken note of this.
+Because, if anything, Finnegans Wake is a
 a celebration of the confounding of
 tongues described in the Bible. And
 really think about it: **why shouldn't we
 celebrate** the fact that each of us can
-express ourselves and formulate our own
-ideas and **our own individual and
+express ourselves and **formulate our own
+ideas** and **our own individual and
 idiosyncratic idioms** well take. For
 example the word Thunder um now we all
 know what the phenomenon that word
 describes is but isn't it amazing how
 many different ways we humans have of
 giving that concept expression."
+
+https://old.reddit.com/r/explainitpeter/comments/1omkxrq/explain_it_peter/nmq3722/
+
+It is fake quote. And it is signed like a signature. The abandonment of **reality / real / truth*. Frotn page of Reddit. Sarcasm-washing, mocking-washing has been foundation of Surkovian information warfare. Trivializing the Tower of Babel issue, trivializing the Wiki need for *same page* information in society, by saying mocking is a valid excuse to produce fake quotes in the name that every person can obivously see it is fake / satire. **NO, DONALD TRUMP IS EVIDENCE THAT PEOPLE CAN NOT DISTINGUISH FACTUAL QUOTES, TRUMP TRUSTS PUTIN**. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
