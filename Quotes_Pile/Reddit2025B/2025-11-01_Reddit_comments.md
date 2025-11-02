@@ -202,3 +202,5 @@ https://old.reddit.com/r/MurderedByWords/comments/1olyzfu/valid_response_to_bigo
 
 <img width="1708" height="378" alt="image" src="https://github.com/user-attachments/assets/564647e5-d5dc-4063-a9e4-2db177b928ab" /> Anti-goodness abounds. Surkov won. Nobody defended or can name the Internet Research Agency and Cambridge Analytica.
 
+https://old.reddit.com/r/ExplainTheJoke/comments/1om0r7j/why/nmma8z7/
+
