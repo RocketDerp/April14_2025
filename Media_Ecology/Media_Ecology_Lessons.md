@@ -907,6 +907,19 @@ https://archive.vanityfair.com/article/2009/1/the-devil-at-37000-feet
 
 I spot errors on October 23, 2025: "They were stickand-rudder men" "training is classroomand simulator-based." "He said, “Twentyfive-oh-five. That’s why I write it down.”" - is that last one style or error?
 
+1995 review from Roger Ebert (when he was still alive)    
+https://www.rogerebert.com/reviews/scream-1996    
+Today 2025-11-02
+
+1. "they went to the movies in “TheLast Picture Show” and the heroes"
+
+2. "Insteadof leaving it to the audience to anticipate the horror clichés"
+
+3. "But those movies were about the \*act\* ofgoing to the movies."
+
+Regarding number 3, are the asterisks intentional or supposed to be italic / underline?
+
+
 &nbsp;
 
 &nbsp;
