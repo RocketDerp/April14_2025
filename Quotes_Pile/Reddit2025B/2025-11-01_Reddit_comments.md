@@ -308,3 +308,15 @@ https://old.reddit.com/r/news/comments/1omo4lv/us_family_moved_to_russia_to_esca
 
 <img width="824" height="544" alt="image" src="https://github.com/user-attachments/assets/b2ecdbc6-effe-47c8-8733-debd9e8e083a" /> *Research* since year 2013 has come to mean in mainstream / everyday society: Popularity, appealing, attractive, desirable content. Popularity itself is toxic. Look at Twiter, look at Trump, look at Fox News ratings, look at Reddit avoidance of nonfiction and serious topics that are important and being avoided. If not amusement wrapped / candy coated for meme visuals and mindsets, it is ignored. Fiction addicton drives society now.
 
+https://old.reddit.com/r/technology/comments/1omsbe6/reddit_ceo_steve_huffman_becomes_a_billionaire/nmrw53p/
+
+https://old.reddit.com/r/technology/comments/1omsbe6/reddit_ceo_steve_huffman_becomes_a_billionaire/nmrw1mc/
+
+https://old.reddit.com/r/technology/comments/1omsbe6/reddit_ceo_steve_huffman_becomes_a_billionaire/nmrzyd0/
+
+https://old.reddit.com/r/technology/comments/1omsbe6/reddit_ceo_steve_huffman_becomes_a_billionaire/nmsaoib/
+
+https://old.reddit.com/r/technology/comments/1omsbe6/reddit_ceo_steve_huffman_becomes_a_billionaire/nmrufx5/
+
+https://old.reddit.com/r/technology/comments/1omsbe6/reddit_ceo_steve_huffman_becomes_a_billionaire/nmrzaw4/
+
