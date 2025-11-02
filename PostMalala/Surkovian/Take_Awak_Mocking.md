@@ -6,11 +6,13 @@
 
 3. Always Total Mockery
 
+&nbsp;
+
 # Feedback loops
 
 https://old.reddit.com/r/politics/comments/1om57gi/trump_79_claims_its_illegal_for_latenight_host_to/
 
-The HyperRealtiiy is mocking itself. Donald Trump is the master of all humanmocking. The most successful creator of mockery as media environments.
+The HyperRealtiiy is mocking itself. Donald Trump is the master of all human mocking. The most successful creator of mockery as media environments.
 
 » All media work us over completely. They are so pervasive in their personal, political, economic, aesthetic, psychological, moral, ethical, and social consequences that they leave no part of us untouched, unaffected, unaltered. The medium is the message. Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments. «    
 Marshall McLuhan, Quentin Fiore     
@@ -39,3 +41,8 @@ Was Hitler such a person? https://youtu.be/9PPg4LHuMnc?t=329
 
 "Totally dedicated to power" https://youtu.be/9PPg4LHuMnc?t=369
 
+# Mind blowing Donald Trump
+
+Trump blows minds. He drives people into the least possible mental states. Prizing speed and loss of identity.
+
+People compusively mock Trump. People ae thrilled, excited, **attracted to** mocking.
