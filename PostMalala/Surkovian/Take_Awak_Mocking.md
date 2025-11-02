@@ -14,6 +14,7 @@ Reddit front page. Sunday, November 2, 2025 early morning in USA.
 (The king of "late night comedy", Saturday Night Live time period / hangover)     
 https://old.reddit.com/r/politics/comments/1om57gi/trump_79_claims_its_illegal_for_latenight_host_to/       
 **"Trump, 79, Claims It’s ‘Illegal’ for Late-Night Host to Mock Him"**    
+NOTE: Even after 11 hours from creation, this Reddit posting was still on the front page.   
 
 The HyperRealtiiy is mocking itself. Donald Trump is the master of all human mocking. The most successful creator of mockery as media environments.
 
