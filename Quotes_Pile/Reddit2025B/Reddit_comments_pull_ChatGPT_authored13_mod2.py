@@ -15,6 +15,15 @@ from bs4 import NavigableString, Tag
 import traceback
 from html_to_markdown import convert_to_markdown
 
+# ToDo:
+#   I overlooked that ChatGPT's code put the index in the filename of the saved HTML.
+#   Now I have a large library of files in that convention. 
+#   This is fragile and there is is no good reason for it. The ID of the Reddit comment is good enough
+#   for the filename. Current scheme would not allow inserting a new comment entry into source file
+#   in the middle, as the index could would be off.
+#   
+#   NSFW postings comment links error the code. I've just been interactively ending the error timing.
+#
 
 # Global variables
 
