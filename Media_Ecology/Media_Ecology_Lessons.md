@@ -988,3 +988,21 @@ At the same time, Schindler's character shows how, even if your whole life you'v
 https://old.reddit.com/r/todayilearned/comments/1oloevw/til_the_first_message_sent_over_the/
 
 Typographic man. "Woman addressed here – a type of Issy – **was previously** A-B-C-minded, that is, simple." https://johngordonfinnegan.weebly.com/book-ii/chapter-2-section-2
+
+&nbsp;
+
+&nbsp;
+
+### F.M. Radio
+
+F.M. Radio for music, sports, entertainment.
+
+The range is not very long. Typically 80 miles or less on a car radio / portable radio. Often only 40 miles in expereince. Even worse inside houses / office buildings. They would cut out.
+
+You would not be able to listen in USA to London F.M. radio. Same with broadcast television. The antenna built into a portable television set, "rabit ears", could not pick up teleivision from a city 150 miles away.
+
+What this means for this lesson: a radio made in Japan and sold to the USA consumer in year 1971 would have channels / frequencies that are not the same all across the world. So carrying that radio on a vacation or business trip could result in it being useless to listen to music or such in other nations.
+
+#### EXMPLE: Poland and USA F.M. radio differences
+
+https://youtu.be/zVTkzx0IA1c?t=467
