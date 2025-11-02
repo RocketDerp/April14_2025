@@ -1,5 +1,7 @@
 # Meaning of Politics
 
+Vlad Vexler Chat      
+Is Trumpism Too Far Gone to Save U.S. Democracy?    
 https://www.youtube.com/watch?v=GoO3_EaoE6Y
 
 Hello very beautiful community. I wanted
