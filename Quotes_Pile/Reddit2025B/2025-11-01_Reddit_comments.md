@@ -228,3 +228,19 @@ The whole "science" issue often means pure logic. And the logical case canbe mad
 https://old.reddit.com/r/todayilearned/comments/1omevw5/til_one_of_the_earliest_and_most_notorious_uses/nmpf05d/
 
 The commercial, trademarked, branding and owning of a word. Ih my life since the 1986, the common language word "Windows" has taken on an entirely different meaning. Film and book titles really like to be short and often non-description to be 'catchy" / "viral" too. Huge wealth and doctorate educate talent goes into picking titles / names / words / brands that lodge into as many target minds / audience minds / consumer minds as possible.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1omf89z/i_dont_know_about_you_but_this_feels_racist_for/nmovb8o/
+
+["Everything Is Media Ecology"](/Media_Ecology/Everything_is_ME.md)
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1omf89z/i_dont_know_about_you_but_this_feels_racist_for/nmpf3b1/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1omf89z/i_dont_know_about_you_but_this_feels_racist_for/nmox4af/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1omf89z/i_dont_know_about_you_but_this_feels_racist_for/nmp7pri/
+
+People can't tell real from fake, reality.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1omf89z/i_dont_know_about_you_but_this_feels_racist_for/nmp3c1z/
+
+UK band that influenced my youth... marketed it! “Maximum R&B” as The Who coined it in the mid‑1960s... Bo Diddley, James Brown (pre-funk era), Martha and the Vandellas. OPERA_A https://www.youtube.com/watch?v=eUmiJQU1KBE  173,756 views  February 28, 2020
