@@ -254,3 +254,28 @@ https://old.reddit.com/r/AdviceAnimals/comments/1omgjhw/who_wants_cake/nmpj0q6/
 
 Reddit meme addicts unable to imagine their own compusive attraction to Reddit trash media has been a warfare technique by Putin. This Reddit comment... people unable to imagine absurd surreal is a formal technique of Tony Clifton acting, Surkovian leadership. Calling Tony Clifton a bad performer is not resisting Tony Clifton acts. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
 
+https://old.reddit.com/r/whatisit/comments/1omdxwx/black_oily_stuff_coming_out_of_the_ground/nmpbhkd/
+
+<img width="1188" height="796" alt="image" src="https://github.com/user-attachments/assets/a3304701-725f-4e06-9da7-72deb9f46ac6" /> I'm not against this at all. I am against HATE prizing over it. That's a core self-awareness of Finnegans Wake (year 1924 onward) is that language "laws" of John 1:1 are not to be dictated by *language clergy*, authority of The Church. That Romans 11:32 Bible verse is we are *forced* to create our own Tower of Babel by the very mechanism of sharing The Bible / Torah (and later Quran, Book of Mormon, all MonoMyth (Joyce, not Campbell) patterns of Hollywood, books, etc). OPERA_A https://youtu.be/TV3vT5nW_I4?t=149
+Adam Harvey (JoyceGeek), "and exites to be a reference to the
+Tower of Babel from The Book of Genesis
+11: 1-9 in which God punishes Mankind's
+tower building huus by forcing everyone
+to speak in different languages and not
+understand each other. Now, actually the
+Bible doesn't use the word punish and I
+think Joyce may have taken note of this
+because if anything Finnegan's wake is a
+a celebration of the confounding of
+tongues described in the Bible. And
+really think about it: **why shouldn't we
+celebrate** the fact that each of us can
+express ourselves and formulate our own
+ideas and **our own individual and
+idiosyncratic idioms** well take. For
+example the word Thunder um now we all
+know what the phenomenon that word
+describes is but isn't it amazing how
+many different ways we humans have of
+giving that concept expression."
+
