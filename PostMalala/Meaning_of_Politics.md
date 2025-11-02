@@ -79,7 +79,7 @@ We also aspire to bring it about that
 we're at least in principle committed to
 helping all citizens when they run into
 contingent
-]kinds of uh misfortune that are not
+kinds of uh misfortune that are not
 their fault.
 
 3:28      
