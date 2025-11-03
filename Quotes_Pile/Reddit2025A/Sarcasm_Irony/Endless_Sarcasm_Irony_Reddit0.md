@@ -1133,3 +1133,10 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ondpct/trump_voter_who_mock
 
 "takes up so much space in your head", yes - billionares have minf-fucked the population into addiction to Trump. Doctors from Cambridge Analytica. Reddit eats it up, prizes the hate leadership of Trump and flocks to Trump's hate. Hate and mass dehumaization are common ground for the USA, every person prizing out-group hate. The 1954 Equation avoided. Same with Palestine and Israel, prizing of hate itself. Hate vs. hate.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1oneugp/raju_last_week_you_were_very_critical_of_biden/
+
+Raju: Last week, you were very critical of Biden, you said he didn’t even know who he was pardoning. On 60 minutes, Trump admitted not knowing he pardoned a Crypto billionaire guilty of money laundering…Johnson: “I don’t know anything about it.” - Reddit audience *cringe-washing*, everything cringe is roller coaster thrill emotions, amusemeent entertainment addicts who eat the Surkovian onion. President Tony Clifton is so *cringe* on stage!
