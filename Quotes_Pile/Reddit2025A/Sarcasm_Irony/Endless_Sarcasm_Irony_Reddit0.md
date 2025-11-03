@@ -1114,3 +1114,12 @@ What changed between then and now? 1. Wealth conentration. 2. Internet Research 
 https://old.reddit.com/r/CringeTikToks/comments/1onb9s7/reminder_grocery_prices_are_up_since_trump_took/
 
 Reddit society will jump on dementia-washing... ignoring the Fox News problem since year 1996. People live in alternate information realities. Russian informaton warfare learning ignored. Disposable commenting society people not see that Fox News is sustained problem tht requires sustained focus of social media society.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1onbzju/take_the_bet_laura_if_you_are_so_sure/
+
+Yes, civilization Jihad is real. Abandonment of scieence in favor of fiction is real. Civiliation jihad from Levant religions: look at Mexico City before the year 1492. The language and native Americas religion were both wrecked. Spanish was brought from Europe to Mexico. Roman Catholic religion was brought along with the Bibe storytelling. People do not study nonfiction on these subjects. After September 11, 2001 - wealthy Suadi Arabian Bin Laden said. "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life."- Al-Jazeera interview, (21 October 2001), "Bin Laden"
+
