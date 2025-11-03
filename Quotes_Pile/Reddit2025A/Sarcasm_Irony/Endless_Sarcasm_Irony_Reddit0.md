@@ -1109,3 +1109,8 @@ https://old.reddit.com/r/UnderReportedNews/comments/1olntr2/jd_vance_criticized_
 
 What changed between then and now? 1. Wealth conentration. 2. Internet Research Agency year 2013. 3. Cambridge Analytia doctors altering mindsets. Bluesky and Reddit community reacts to the name "JD Vance" with couch mindsets... intead of social media society organizing / getting on the same page of the January 1944 Second Bill of Rights.
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1onb9s7/reminder_grocery_prices_are_up_since_trump_took/
+
+Reddit society will jump on dementia-washing... ignoring the Fox News problem since year 1996. People live in alternate information realities. Russian informaton warfare learning ignored. Disposable commenting society people not see that Fox News is sustained problem tht requires sustained focus of social media society.
