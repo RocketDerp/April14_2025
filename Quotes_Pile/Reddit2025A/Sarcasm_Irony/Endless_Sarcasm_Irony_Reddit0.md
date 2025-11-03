@@ -1150,3 +1150,6 @@ https://old.reddit.com/r/BikiniBottomTwitter/comments/1onc9uv/sorry_joe_you_dont
 Reddit society doesn't grasp the Joe Rogan media ecology that normalizes badness, Reddit society itself can't be serious and sustain focus on impotant topics in adiction to mockery-washing. The whole nation has been sliding down into Hell mindsets, it isn't only Joe Rogan, isn't only Fox News, isn't only Twitter... it is all inclusive media audience, We The People, audience is the crisis. Sponge Bob entertinmeant-washing of Rogan. One entertainment-washing hand washes all the entertainment-washing hands.
 
 
+https://old.reddit.com/r/PoliticalHumor/comments/1ond0xv/is_it_a_lie_or_is_it_a_dementia/
+
+A vs. B, both sides. It's entertainment A and entertainment B for the USA nation of media addicts who won't face up to nonfiction learning of media ecology.
