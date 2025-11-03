@@ -1147,6 +1147,6 @@ Raju: Last week, you were very critical of Biden, you said he didn’t even know
 
 https://old.reddit.com/r/BikiniBottomTwitter/comments/1onc9uv/sorry_joe_you_dont_just_get_to_come_back_after/
 
-Reddit society doesn't grasp the Joe Rogan media ecology that normalizes badness, Reddit society itself can't be serious and sustain focus on impotant topics in adiction to mockery-washing. The whole nation has been sliding down into Hell mindsets, it isn't only Joe Rogan, isn't only Fox News, isn't only Twitter... it is all inclusive media audience, We The People, audience is the crisis.
+Reddit society doesn't grasp the Joe Rogan media ecology that normalizes badness, Reddit society itself can't be serious and sustain focus on impotant topics in adiction to mockery-washing. The whole nation has been sliding down into Hell mindsets, it isn't only Joe Rogan, isn't only Fox News, isn't only Twitter... it is all inclusive media audience, We The People, audience is the crisis. Sponge Bob entertinmeant-washing of Rogan. One entertainment-washing hand washes all the entertainment-washing hands.
 
 
