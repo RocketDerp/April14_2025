@@ -1139,4 +1139,14 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1ondpct/trump_voter_who_mock
 
 https://old.reddit.com/r/CringeTikToks/comments/1oneugp/raju_last_week_you_were_very_critical_of_biden/
 
-Raju: Last week, you were very critical of Biden, you said he didn’t even know who he was pardoning. On 60 minutes, Trump admitted not knowing he pardoned a Crypto billionaire guilty of money laundering…Johnson: “I don’t know anything about it.” - Reddit audience *cringe-washing*, everything cringe is roller coaster thrill emotions, amusemeent entertainment addicts who eat the Surkovian onion. President Tony Clifton is so *cringe* on stage!
+Raju: Last week, you were very critical of Biden, you said he didn’t even know who he was pardoning. On 60 minutes, Trump admitted not knowing he pardoned a Crypto billionaire guilty of money laundering…Johnson: “I don’t know anything about it.” - Reddit audience *cringe-washing*, everything cringe is roller coaster thrill emotions, amusemeent entertainment addicts who eat the Surkovian onion. President Tony Clifton is so *cringe* when performing on stage!
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1onc9uv/sorry_joe_you_dont_just_get_to_come_back_after/
+
+Reddit society doesn't grasp the Joe Rogan media ecology that normalizes badness, Reddit society itself can't be serious and sustain focus on impotant topics in adiction to mockery-washing. The whole nation has been sliding down into Hell mindsets, it isn't only Joe Rogan, isn't only Fox News, isn't only Twitter... it is all inclusive media audience, We The People, audience is the crisis.
+
+
