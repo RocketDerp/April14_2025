@@ -299,3 +299,9 @@ Ritual developers needed. Bonding rituals to make women ready for sex?
 https://old.reddit.com/r/comics/comments/1omhhe2/oc_kid_logic_continues_to_baffle_the_mind/
 
 Language Tower of Babel conflicts    
+
+&nbsp;
+
+https://old.reddit.com/r/onejob/comments/1on8g6o/in_english_it_says_look_right_but_in_chinese_it/
+
+More Tower of Babel, left vs. right
