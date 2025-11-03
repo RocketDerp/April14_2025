@@ -1123,3 +1123,13 @@ https://old.reddit.com/r/clevercomebacks/comments/1onbzju/take_the_bet_laura_if_
 
 Yes, civilization Jihad is real. Abandonment of scieence in favor of fiction is real. Civiliation jihad from Levant religions: look at Mexico City before the year 1492. The language and native Americas religion were both wrecked. Spanish was brought from Europe to Mexico. Roman Catholic religion was brought along with the Bibe storytelling. People do not study nonfiction on these subjects. After September 11, 2001 - wealthy Suadi Arabian Bin Laden said. "I tell you, freedom and human rights in America are doomed. The U.S. government will lead the American people in — and the West in general — into an unbearable hell and a choking life."- Al-Jazeera interview, (21 October 2001), "Bin Laden"
 
+&nbsp;
+
+&nbsp;
+
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1ondpct/trump_voter_who_mockingly_said_all_of_your/
+
+
+"takes up so much space in your head", yes - billionares have minf-fucked the population into addiction to Trump. Doctors from Cambridge Analytica. Reddit eats it up, prizes the hate leadership of Trump and flocks to Trump's hate. Hate and mass dehumaization are common ground for the USA, every person prizing out-group hate. The 1954 Equation avoided. Same with Palestine and Israel, prizing of hate itself. Hate vs. hate.
+
