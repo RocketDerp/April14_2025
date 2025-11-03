@@ -320,3 +320,43 @@ https://old.reddit.com/r/technology/comments/1omsbe6/reddit_ceo_steve_huffman_be
 
 https://old.reddit.com/r/technology/comments/1omsbe6/reddit_ceo_steve_huffman_becomes_a_billionaire/nmrzaw4/
 
+https://old.reddit.com/r/NoFilterNews/comments/1ona2zh/trump_loses_cool_as_hes_grilled_on_60_minutes_but/nmvcr98/
+
+Trump impresses upvoters / people reprogramming their mind EVERY DAY to Trump behaviors. Even when Trump didn't win and Biden took office, the trend of Trump role model / behavior model for communications and anti-comprehension continued. This isn't an election issue, this is a war of All against All issue. Underage nonvoters included. Russia won, Surkov won, since year 2013.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ona2zh/trump_loses_cool_as_hes_grilled_on_60_minutes_but/nmv9fe9/
+
+Media addicted audience craves more Trump content. Not to remove Trump, but because mocking and insulting is the addiction that Trump feeds.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ona2zh/trump_loses_cool_as_hes_grilled_on_60_minutes_but/nmvwq8w/
+
+Reddit is the joke-washing meme-washing humor-washing amusement-washing center with tiny low-effort commenting messages.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ona2zh/trump_loses_cool_as_hes_grilled_on_60_minutes_but/nmvb8tz/
+
+"No Filter News" has censored my comments. Junk disposable commenting addicts will not mount a rescue and turnaround of loss to Russia. IRA won since year 2013.
+
+https://old.reddit.com/r/law/comments/1oncz1e/new_trump_rule_declares_most_public_service_work/nmvzw41/
+
+Bible literacy on verse "1 John 3:17" ... 
+
+https://old.reddit.com/r/politics/comments/1oncoe3/snap_update_usda_tells_grocery_stores_not_to_give/nmvslet/
+
+Prizing cruelness and prizing hate has been adopted in USA since year 2013. Surkov won.
+
+https://old.reddit.com/r/politics/comments/1oncoe3/snap_update_usda_tells_grocery_stores_not_to_give/nmvr3z8/
+
+Inverting MonoMyth OpCode warfare by Surkov students.
+
+https://old.reddit.com/r/politics/comments/1oncoe3/snap_update_usda_tells_grocery_stores_not_to_give/nmvwveh/
+
+<img width="884" height="440" alt="image" src="https://github.com/user-attachments/assets/e09c9a4f-182b-41b0-b6a8-ba2739afbe28" /> There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1oncoe3/snap_update_usda_tells_grocery_stores_not_to_give/nmvuy31/
+
+Prizing team sports of out-group hate.
+
+https://old.reddit.com/r/politics/comments/1oncoe3/snap_update_usda_tells_grocery_stores_not_to_give/nmvz8fv/
+
+Year 2013 onward, Surkov won.
+
