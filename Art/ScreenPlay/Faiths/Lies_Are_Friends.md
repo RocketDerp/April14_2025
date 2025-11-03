@@ -29,3 +29,17 @@ Hey, I am all for celebration of Santa and Easter bunny deception. Not so much w
 
 “One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to **reject any evidence of the bamboozle**. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.”
 ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, **1995**
+
+&nbsp;
+
+# Lies about Hate
+
+And don't get me wrong on the subject of lies, the payload of lies...
+
+The lies people tell each other about hate are not as hidden as people think. The racism, sexism, behind-back bad-mouthing / hate actions / hate choices - are obvious in all the nations I have lived. 
+
+I'm talking about crafted hate people tell strategicly to employees, customers, neighbors, business partners, religion partners, audiences, consumers, strangers. The faith in withholding understanding.
+
+Perhaps that is why I got into being a technical writer and teacher of computers early. Closed source manipulation under the covers. Witnessing FUD in corporations. Halloween documents. Team OS/2 manipulation by Microsofot / anti-IBM partnership by Microsoft.
+
+The lies about hate, hate-filled marriages, parents who hate their children. I've seen that all over in my travels and experience.  It really isn't hard to see people abusing their children via systems. In November 2025 as I wrote this, parents think Charlie Kirk and Donald Trump who trust Putin are ideal creators of future. And actively insult and mock MLK Jr.
