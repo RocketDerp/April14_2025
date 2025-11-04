@@ -11,3 +11,10 @@ https://www.youtube.com/watch?v=XLjqNQB-SGw&t=350s
 
 
 Anti-Malala answer. Anti-Joyce answer. I have been living under religion facism my entire life with Levant Jesus and Allah "Judgement Day"... and bullets don't kill science fiction storytelling of Bible and Torah.
+
+&nbsp;
+
+Politics = persuade people     
+https://youtu.be/XLjqNQB-SGw?t=588
+
+Nobody seems to care about governing? Leadership? Just mind-fucking?
