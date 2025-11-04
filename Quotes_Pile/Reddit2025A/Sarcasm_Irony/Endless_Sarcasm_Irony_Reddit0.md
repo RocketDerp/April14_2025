@@ -1165,3 +1165,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1onqr3m/house_speaker_mike_johns
 
 Paradox messages. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" (via media, via information) described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1onwx6z/stephen_miller_on_the_democratic_party_we_are/
+
+Stephen Miller is exploiting the incredibly bad faith that the IRA and CA seeded since year 2013. Prizing of hate, prizing of mass dehumanization. The lies that I see all over Reddit that people took "The High Road". The high road is quoting MLK Jr and expounding on the ideas. The high road is Second Bill of Rights from January 1944, not chanting Luigi all year 2025. People behave as if the high road is worthless, below goodness. The only persistent faith is mocking and insulting. Once hate and mockery goes on long enough, it stopps mattering who starated it except for learning how to stop it. The attraction to hate has been so powerful. There is a fundmanetal failure of media ecology self-awaeness that high-speed reactions hvae tkane over behaviors.
+
