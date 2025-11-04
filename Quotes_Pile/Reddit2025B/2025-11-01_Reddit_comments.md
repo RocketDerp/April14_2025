@@ -578,3 +578,8 @@ CAMPBELL: We need myths that will identify the individual not with his local gro
 MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/politics/comments/1oobs1p/trump_says_hell_defy_court_order_and_wont_give/nn35400/
+
+Reddit machine lovers creating anti-humanism messages. Give up, unsolved problem of humanity, don't even try messaging. Give up on education, give up on teaching, anti-Malala messaging. Messages to accept that the Russian IRA and CA problems are unsolvable, do not rescue people from systems.
+
