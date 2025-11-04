@@ -592,3 +592,16 @@ Entertainment, Reality TV master of ceremony. It's the main draw, amusement-wash
 https://old.reddit.com/r/Music/comments/1oodfdr/trump_white_house_under_fire_for_using_taylor/nn39t8d/
 
 It means simulacra of resistance. That the opposition is "winning" the meme game. Inside a filter-bubble.
+
+https://old.reddit.com/r/complaints/comments/1ooi4hg/im_tired_of_double_standards/nn4j84o/
+
+Everything is wrapped, meme decorated, mind-fuck packaged. Reddit society constantly asserts that "milking the LOL cow of Trump and Putin" is more important than goodness. That LOL is worth death for. Goodness isn't defended, LOL is what gets defended.
+
+https://old.reddit.com/r/complaints/comments/1ooi4hg/im_tired_of_double_standards/nn4hj22/
+
+The brainrot that team sports mentality brings. What Cambridge Analytica doctors managed to do with mind-fuck goodness out of people. Pepole don't even know why good is good anymore.
+
+https://old.reddit.com/r/complaints/comments/1ooi4hg/im_tired_of_double_standards/nn4nzk4/
+
+No quotes, no author names, no links, no book titles. As if this problem just came up today and "original" disposable commenting is to be prized above getting on the same page.
+
