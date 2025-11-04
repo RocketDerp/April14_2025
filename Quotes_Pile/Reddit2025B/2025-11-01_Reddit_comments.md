@@ -466,3 +466,48 @@ https://old.reddit.com/r/CringeTikToks/comments/1onwx6z/stephen_miller_on_the_de
 
 Minds of Reddit audience find all this amusing with fiction-washing. Harry Potter fanfiction content. Anything to avoid nonfiction learning of media ecology.
 
+https://old.reddit.com/r/goodnews/comments/1oo648u/next_mayor_of_nyc/nn2baoi/
+
+Media addicts waiting for their next episode of poltical entertainment. ... ... ...      
+"All that has happened is that the public has **adjusted to incoherence** and been amused into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the **Western democracies will dance and dream themselves into oblivion** than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and **narcoticized by technological** diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” **Big Brother turns out to be Howdy Doody**." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
+
+https://old.reddit.com/r/goodnews/comments/1oo648u/next_mayor_of_nyc/nn21v6w/
+
+The social media upvoting simulacra.
+
+https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenerated_footage_of_poor/nn1dxw5/
+
+Fiction outsells nonfiction. The cult of monomyth fiction storytelling of Rupert Murdoch is not taken seriously. Why did Reddit society not make Jen Senko a household name since year 2015? https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad People choose to mock and insult cults instead of rescue real people.
+
+https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenerated_footage_of_poor/nn20bhu/
+
+It means there are predictable pattetrns of the falsehoods people accept. Even 2,000 years ago in the Levant, it was clear via "1 John 4:20' that people were falling in love with science fiction characters and hate upon humans.
+
+https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenerated_footage_of_poor/nn1i708/
+
+Reddit community avoids author names, sourcing quotes, nonfiction in general. Anti-Wiki values of prizing disposable low-effot commenting. The speed of HDTV FoX News and speed of Reddit commenting is prized over Wiki refinement of human understanding translated to world languages.
+
+https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenerated_footage_of_poor/nn1xjcc/
+
+The Fall is that people think feeeding lies isn't self-harm to everyone. That there is a winner poisoning the world.
+
+https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenerated_footage_of_poor/nn1o3sj/
+
+Media ecology lessons.
+
+https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenerated_footage_of_poor/nn1wmva/
+
+Same as Redddit society and Bluesky society. Memes and entertainment / amusement allows anything. In a fiction story, characters can promote terrible ideas and evil.
+
+https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenerated_footage_of_poor/nn1ru7t/
+
+Profile of this user metnions religion and completely does not grasp that fiction, Star Wars, is religion. Hamlet's Ghost, religion. All fiction storytelling. Fame any entertainment show as SNL "Weekend Update" amuseemnt comedy - and you can say anything. The comedy fiction loophole is the entire game. Amusement mills like Reddit are cults of fiction addicts.
+
+https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenerated_footage_of_poor/nn1wwtp/
+
+Popularity is toxic. Punching down on the poor is popularity. Every time people prize the rich getting richer. Sports fanatics, amusement fanatics, music fanatics. 
+
+https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenerated_footage_of_poor/nn2b1rj/
+
+Note the account username. LOL-washing amusement-washing venue.
+
