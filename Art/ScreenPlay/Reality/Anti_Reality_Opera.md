@@ -13,3 +13,8 @@ People obsserve and crack joke that the word is being repuprosed and rewritten. 
 https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/
 
 I think Abbott needs rescued from CA and IRA.
+
+https://old.reddit.com/r/MurderedByWords/comments/1ooeajc/i_cant_believe_this_is_real/
+
+Reddit community can't believe the reality / real of Murdoch, Putin and Musk and Trump information warfare.
+
