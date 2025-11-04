@@ -539,3 +539,23 @@ Satire-washing everything to do with Russia defeat of USA mindsets. Amusement-wa
 https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/nn2cin9/
 
 <img width="934" height="270" alt="image" src="https://github.com/user-attachments/assets/a3ebb4a3-cd36-4968-b470-3245e5c5dd59" /> Community "not The Onion" satire-washing mill. Comedy 101. Skip ahead to Comedy 930, Surkovian Russia year 1999 onward. How Surkov students defeated the US with comedy-washing surreal heart of Russia amusement-washing brain exploits. Death by LOL. See also: Comedy 210 - Neil Postman's 1985 book "Amusing Ourselves To Death". Commedy as the faith people will die for. *Joke society, ha ha ha, lol lol*.
+
+https://old.reddit.com/r/politics/comments/1oo7mf9/trump_79_threatened_invasion_of_key_us_ally_after/nn2dy8f/
+
+<img width="1060" height="662" alt="image" src="https://github.com/user-attachments/assets/4cd27e88-5dc1-4d2e-b38c-edcd738bc4ab" />
+Everything is media ecology. Fiction vs. nonfiction. Reddit is even worse. No real faces, no real names.
+
+https://old.reddit.com/r/politics/comments/1oo7mf9/trump_79_threatened_invasion_of_key_us_ally_after/nn2j15n/
+
+And Reddit and Bluesky are all part of that feedback loop. Levant has been in feedback loops of media for thousands of years. People do not take nonfiction story of media ecology seriously. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+
+JOSEPH CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. **It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future**.
+
+MOYERS: What kind of new myth do we need?
+
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+
+MOYERS: There is something about that on the Great Seal of the United States.
+
+CAMPBELL: That’s what the Great Seal is all about.
