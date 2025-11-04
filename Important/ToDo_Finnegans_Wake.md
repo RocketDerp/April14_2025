@@ -305,3 +305,9 @@ Language Tower of Babel conflicts
 https://old.reddit.com/r/onejob/comments/1on8g6o/in_english_it_says_look_right_but_in_chinese_it/
 
 More Tower of Babel, left vs. right
+
+&nbsp;
+
+https://old.reddit.com/r/science/comments/1oo5xk4/the_japanese_are_having_less_and_less_sex_around/
+
+Choice marriage honesty, age 30 virgin due to society change. not war, but peace and business.
