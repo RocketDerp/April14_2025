@@ -360,3 +360,36 @@ https://old.reddit.com/r/politics/comments/1oncoe3/snap_update_usda_tells_grocer
 
 Year 2013 onward, Surkov won.
 
+https://old.reddit.com/r/news/comments/1onk8vv/snap_benefits_will_restart_but_will_be_half_the/nmymy9l/
+
+https://old.reddit.com/r/news/comments/1onk8vv/snap_benefits_will_restart_but_will_be_half_the/nmy2qgt/
+
+https://old.reddit.com/r/news/comments/1onk8vv/snap_benefits_will_restart_but_will_be_half_the/nmxnt61/
+
+Bible literacy on verse "1 John 3:17" ... 
+
+https://old.reddit.com/r/news/comments/1onk8vv/snap_benefits_will_restart_but_will_be_half_the/nmxyvhk/
+
+https://old.reddit.com/r/news/comments/1onk8vv/snap_benefits_will_restart_but_will_be_half_the/nmxl45e/
+
+logic
+
+https://old.reddit.com/r/news/comments/1onk8vv/snap_benefits_will_restart_but_will_be_half_the/nmyjs19/
+
+https://old.reddit.com/r/news/comments/1onppq4/jury_selection_begins_for_dc_man_charged_with/nmyhm4e/
+
+The three symbol reacton is incredibly popular on this Reddit posting, getting huge engagement and popularity. The Reddit audience is thrilled and amused at the situation, entertainment-washing everything around Putin and Trump FOR OVER TEN YEARS AND FOUR MONTHS. Mindows blown into meme stupors by Surkov antics politics methods. Endless rounds of entertainment for meme devices. ... ... ...         
+“When a population becomes distracted by trivia, when cultural life is redefined as a perpetual round of entertainments, when serious public conversation becomes a form of baby-talk, when, in short, a people become an audience, and their public business a vaudeville act, then a nation finds itself at risk; culture-death is a clear possibility.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, 1985
+
+https://old.reddit.com/r/politics/comments/1onekvf/trump_readies_us_troops_for_ground_invasion_in/nmwiq2c/
+
+There is a constant messaging to avoid studying mass mind / mob mentality / group thinking and attribute it to only one single person. Mass man (Univesity of Toronto Marshall McLuhan's term) is entirely ignored despite it being a huge aspect of Reddit media ecology.
+
+https://old.reddit.com/r/politics/comments/1onekvf/trump_readies_us_troops_for_ground_invasion_in/nmw80y5/
+
+There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1onekvf/trump_readies_us_troops_for_ground_invasion_in/nmx6o50/
+
+It is, but people don't want to study media ecology of high-speed information systems. This topic of mob mentality / group sanity is not taken seriously. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
