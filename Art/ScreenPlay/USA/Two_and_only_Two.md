@@ -30,3 +30,22 @@ We did our best with wrong answers, wrong thinking.
 The Great Seal of The United States of America sides are none of the logic-thing "both sides of the story" (witnesses can all be wrong in their interpretation, no matter if 2 or 3).
 
 If anyting: Fiction vs. nonfiction. Goodness vs. badness. Morality of good and bad. And Putin Trump prize badness.
+
+&nbsp;
+
+&nbsp;
+
+## Left vs. Right
+
+We in USA were given by the founding fathers a system of 13 steps up a pyramid. Not left. Not right. Vertical.
+
+This is not some minor technicality to me.
+
+Deseperate to make sense of left vs. right.    
+https://youtu.be/XLjqNQB-SGw?t=234     
+"The Existential Crisis of Ezra Klein"
+
+I have much of the same citicism of Levant Clergy... Satan vs. Jesus.    
+Satan is not a team option! There needs to be zero people on team Satan.    
+Demolition of an obsolete building does not require evil.   
+
