@@ -52,3 +52,8 @@ Demolition of an obsolete building does not require evil.
 Why is Steve Shives name on this? https://youtu.be/XLjqNQB-SGw?t=350    
 Isn't Shives the guy that defends bullying and abuse as a way to deal with nonconformists?    
 https://www.youtube.com/watch?v=9Trg6Q3dwFg    
+
+&nbsp;
+
+Future Heaven     
+https://youtu.be/XLjqNQB-SGw?t=4135
