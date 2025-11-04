@@ -511,3 +511,28 @@ https://old.reddit.com/r/technology/comments/1oo3yz7/fox_news_falls_for_aigenera
 
 Note the account username. LOL-washing amusement-washing venue.
 
+https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/nn25cos/
+
+Exactly. Rewriting language and rewriting reality. ... ... ...      
+"But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable." - [December 31, 2014. BBC, Adam Curtis](https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html).
+
+https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/nn1zrmi/
+
+Donald Trump talking point about I.Q.
+
+https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/nn21hbg/
+
+https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/nn1yezx/
+
+https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/nn20sxi/
+
+There are patterns of the nonsense. This is broadcast media on multiple media venues. Like "moon landing was faked", these are rarely original ideas, there is a media ecology study to what is appealing. The flaws in the human brain that Cambridge Analytica mapped out and exploited.
+
+https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/nn1z4yy/
+
+The faith that has let Russia win an information war against USA. People who are attracted to Reddit for the sheer suffering of MAGA to Putin's mind-fucking.
+
+https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/nn1yh41/
+
+Satire-washing everything to do with Russia defeat of USA mindsets. Amusement-washing, comedy-washing serious problems of Kremlin information warfare defeating minds.
+
