@@ -536,3 +536,6 @@ https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_
 
 Satire-washing everything to do with Russia defeat of USA mindsets. Amusement-washing, comedy-washing serious problems of Kremlin information warfare defeating minds.
 
+https://old.reddit.com/r/nottheonion/comments/1oo7kud/greg_abbott_threatens_100_tariff_on_new_yorkers/nn2cin9/
+
+<img width="934" height="270" alt="image" src="https://github.com/user-attachments/assets/a3ebb4a3-cd36-4968-b470-3245e5c5dd59" /> Community "not The Onion" satire-washing mill. Comedy 101. Skip ahead to Comedy 930, Surkovian Russia year 1999 onward. How Surkov students defeated the US with comedy-washing surreal heart of Russia amusement-washing brain exploits. Death by LOL. See also: Comedy 210 - Neil Postman's 1985 book "Amusing Ourselves To Death". Commedy as the faith people will die for. *Joke society, ha ha ha, lol lol*.
