@@ -17,4 +17,10 @@ Anti-Malala answer. Anti-Joyce answer. I have been living under religion facism 
 Politics = persuade people     
 https://youtu.be/XLjqNQB-SGw?t=588
 
-Nobody seems to care about governing? Leadership? Just mind-fucking?
+Nobody seems to care about governing? Leadership? Just mind-fucking? Convincing people. Not reality, but mind exploiting, advertising?
+
+&nbsp;
+
+"Haven of Hatred"     
+https://youtu.be/XLjqNQB-SGw?t=1656
+
