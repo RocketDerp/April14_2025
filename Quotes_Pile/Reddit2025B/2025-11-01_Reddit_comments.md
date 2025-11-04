@@ -583,3 +583,12 @@ https://old.reddit.com/r/politics/comments/1oobs1p/trump_says_hell_defy_court_or
 
 Reddit machine lovers creating anti-humanism messages. Give up, unsolved problem of humanity, don't even try messaging. Give up on education, give up on teaching, anti-Malala messaging. Messages to accept that the Russian IRA and CA problems are unsolvable, do not rescue people from systems.
 
+https://old.reddit.com/r/Music/comments/1oodfdr/trump_white_house_under_fire_for_using_taylor/nn4466d/
+
+https://old.reddit.com/r/Music/comments/1oodfdr/trump_white_house_under_fire_for_using_taylor/nn38637/
+
+Entertainment, Reality TV master of ceremony. It's the main draw, amusement-washing for Putin's IRA outcomes.
+
+https://old.reddit.com/r/Music/comments/1oodfdr/trump_white_house_under_fire_for_using_taylor/nn39t8d/
+
+It means simulacra of resistance. That the opposition is "winning" the meme game. Inside a filter-bubble.
