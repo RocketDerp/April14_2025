@@ -1180,3 +1180,12 @@ Stephen Miller is exploiting the incredibly bad faith that the IRA and CA seeded
 https://old.reddit.com/r/clevercomebacks/comments/1oo2zw6/just_reject_their_reality_and_make_up_your_own/
 
 Reddit audience can't name the "War Against Reality" desribed September 9, 2014 onward by Russia. IRA right on Reddit.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1oo6zy0/unreal_literally/
+
+Unreality paradox on front page of Reddit. Will be joke-washed meme-washed by touch device addicts. Note the tiny-short posting title that does not convery topic of organized war of unreality. Reddit audience can't name the "War Against Reality" desribed September 9, 2014 onward by Russia. IRA right on Reddit.
+
