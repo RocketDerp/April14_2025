@@ -18,3 +18,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1ooeajc/i_cant_believe_this_is
 
 Reddit community can't believe the reality / real of Murdoch, Putin and Musk and Trump information warfare.
 
+https://old.reddit.com/r/PoliticalHumor/comments/1oocxdi/many_people_are_tweeting_it/
+
+Twitter sets Reality. November 4, 2025 front page and people keep forgetting this problem of Reddit and Twitter high-speed media overwriting reality.
