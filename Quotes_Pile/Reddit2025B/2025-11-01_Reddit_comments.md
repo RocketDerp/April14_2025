@@ -448,3 +448,21 @@ https://old.reddit.com/r/technology/comments/1onyf6o/tech_youtuber_irate_as_ai_w
 
 https://old.reddit.com/r/technology/comments/1onyf6o/tech_youtuber_irate_as_ai_wrongfully_terminates/nn14fe7/
 
+https://old.reddit.com/r/CringeTikToks/comments/1onwx6z/stephen_miller_on_the_democratic_party_we_are/nn0kop0/
+
+Parents since June 16, 2015 made Donald Trump a role model of success and social media.
+
+https://old.reddit.com/r/CringeTikToks/comments/1onwx6z/stephen_miller_on_the_democratic_party_we_are/nn0unbh/
+
+People dismiss goodness as "purity tests" and other bullshit. The entire society has embraced information machine lust and love and won't even discuss the problem. Neil Postman was correct in year 1985.
+
+https://old.reddit.com/r/CringeTikToks/comments/1onwx6z/stephen_miller_on_the_democratic_party_we_are/nn10ik5/
+
+<img width="1052" height="448" alt="image" src="https://github.com/user-attachments/assets/42b3096d-3cc2-4f3d-b0fb-214c5d799f6d" /> Reality is a horror show of fiction addicts wrecking the USA. People prizing disposable commenting. Note the lakc of link, book title, author name, quotes. "LOL" laugh track for Reddit audience.
+
+https://old.reddit.com/r/CringeTikToks/comments/1onwx6z/stephen_miller_on_the_democratic_party_we_are/nn0gdsa/
+
+https://old.reddit.com/r/CringeTikToks/comments/1onwx6z/stephen_miller_on_the_democratic_party_we_are/nn02zfp/
+
+Minds of Reddit audience find all this amusing with fiction-washing. Harry Potter fanfiction content. Anything to avoid nonfiction learning of media ecology.
+
