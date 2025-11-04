@@ -6,7 +6,7 @@ People who are so limited in their thinking that there is only one answer.
 
 @DiegoMorales-wn1jp  3 hours ago 28 upvotes      
 "There is no right way to be a fascist.   
-But there is a right way to deal with fascists."
+But there is a right way to deal with fascists."     
 https://www.youtube.com/watch?v=XLjqNQB-SGw&t=350s
 
 
