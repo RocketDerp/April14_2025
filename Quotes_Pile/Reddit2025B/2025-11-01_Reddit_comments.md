@@ -393,3 +393,39 @@ https://old.reddit.com/r/politics/comments/1onekvf/trump_readies_us_troops_for_g
 
 It is, but people don't want to study media ecology of high-speed information systems. This topic of mob mentality / group sanity is not taken seriously. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
 
+https://old.reddit.com/r/CringeTikToks/comments/1onqr3m/house_speaker_mike_johnson_when_asked_why_the/nmyqtu8/
+
+No links, no quotes, no author names, no book titles...
+
+https://old.reddit.com/r/CringeTikToks/comments/1onqr3m/house_speaker_mike_johnson_when_asked_why_the/nmyyai9/
+
+https://old.reddit.com/r/CringeTikToks/comments/1onqr3m/house_speaker_mike_johnson_when_asked_why_the/nmyp9re/
+
+Tiny-short message. Complete denial of the Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/CringeTikToks/comments/1onqr3m/house_speaker_mike_johnson_when_asked_why_the/nmyqh9x/
+
+Reddit prizes disposable low-effort commenting abvoe refined Wiki style *please get on the same page* focus.
+
+https://old.reddit.com/r/CringeTikToks/comments/1onqr3m/house_speaker_mike_johnson_when_asked_why_the/nmyypzm/
+
+Irony poisoning, irony-washing. Fiction storytelling methods outsell nonfiction serious sustained focus. It became a contest of who can be the most entertaining and amusing to mock and insult.
+
+https://old.reddit.com/r/CringeTikToks/comments/1onqr3m/house_speaker_mike_johnson_when_asked_why_the/nmyrpfb/
+
+Comedy-washing is what Reddit society prizes. Entertainment-washing, amusement-washing. Neil Postman's 1985 book "Ausing Ourselves To Death" avoided as it is nonfiction and serious. "Almost"... this Reddit comment is [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/CringeTikToks/comments/1onqr3m/house_speaker_mike_johnson_when_asked_why_the/nmz85ah/
+
+Reddit auidence mind blown by Surkov governing methods. Unable to engage nonfiction learning of how Putin and Surkv ran Russia for over 25 years.
+
+https://old.reddit.com/r/CringeTikToks/comments/1onqr3m/house_speaker_mike_johnson_when_asked_why_the/nmys5m8/
+
+It's entertainment. It is a society in love with the touch deevice vibrations and feedbacks that Putin has created since year 2013. ... ... ...       
+“We were keeping our eye on 1984. When the year came and the prophecy didn't, thoughtful Americans sang softly in praise of themselves. The roots of liberal democracy had held. Wherever else the terror had happened, we, at least, had not been visited by Orwellian nightmares.
+
+But we had forgotten that alongside Orwell's dark vision, there was another - slightly older, slightly less well known, equally chilling: Aldous Huxley's Brave New World. Contrary to common belief even among the educated, Huxley and Orwell did not prophesy the same thing. Orwell warns that we will be overcome by an externally imposed oppression. But in Huxley's vision, no Big Brother is required to deprive people of their autonomy, maturity and history. As he saw it, people will come to love their oppression, to adore the technologies that undo their capacities to think.
+
+What Orwell feared were those who would ban books. What Huxley feared was that there would be no reason to ban a book, for there would be no one who wanted to read one. Orwell feared those who would deprive us of information. Huxley feared those who would give us so much that we would be reduced to passivity and egoism. Orwell feared that the truth would be concealed from us. Huxley feared the truth would be drowned in a sea of irrelevance. Orwell feared we would become a captive culture. Huxley feared we would become a trivial culture, preoccupied with some equivalent of the feelies, the orgy porgy, and the centrifugal bumblepuppy. As Huxley remarked in Brave New World Revisited, the civil libertarians and rationalists who are ever on the alert to oppose tyranny "failed to take into account man's almost infinite appetite for distractions." In 1984, Orwell added, people are controlled by inflicting pain. In Brave New World, they are controlled by inflicting pleasure. In short, Orwell feared that what we fear will ruin us. Huxley feared that what we desire will ruin us.
+
+This book is about the possibility that Huxley, not Orwell, was right.” ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, year 1985
