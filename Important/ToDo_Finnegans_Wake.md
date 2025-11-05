@@ -311,3 +311,7 @@ More Tower of Babel, left vs. right
 https://old.reddit.com/r/science/comments/1oo5xk4/the_japanese_are_having_less_and_less_sex_around/
 
 Choice marriage honesty, age 30 virgin due to society change. not war, but peace and business.
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1oojk2y/til_the_mbabram_a_formally_isolated_and_now/
