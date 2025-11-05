@@ -1189,3 +1189,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1oo6zy0/unreal_literally/
 
 Unreality paradox on front page of Reddit. Will be joke-washed meme-washed by touch device addicts. Note the tiny-short posting title that does not convery topic of organized war of unreality. Reddit audience can't name the "War Against Reality" desribed September 9, 2014 onward by Russia. IRA right on Reddit.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/nottheonion/comments/1ope4i7/greene_says_she_no_longer_believes_qanon/
+
+QAnon on front page of Reddit. But people do not discuss nonfiction learning of media cults. There is no "Q" person for people to fall in love with. It is a Bible verse "1 John 4:20" situation of people in love with a fiction character. So many of our society problems fall around this kind of *blind faith* issue spelledout in "1 John 4:20"
+
