@@ -700,3 +700,12 @@ https://old.reddit.com/r/pics/comments/1op799n/oc_a_temporary_sign_is_displayed_
 
 Reddit audience is constantly amusement-washing Donald Trump. Endless entertainment from the Reality TV star.
 
+https://old.reddit.com/r/PublicFreakout/comments/1op8jou/johnson_if_we_lose_the_majority_they_will_try_to/nn9r67x/
+
+<img width="1306" height="488" alt="image" src="https://github.com/user-attachments/assets/0256e80c-578b-446d-9c0a-e28dd2d20c63" />
+
+https://old.reddit.com/r/PublicFreakout/comments/1op8jou/johnson_if_we_lose_the_majority_they_will_try_to/nn9ork7/
+
+https://old.reddit.com/r/okbuddycinephile/comments/1opbagn/i_had_to_double_check_if_this_was_a_parody/nnajp4g/
+
+With my autism language issues, I double words like this "the the".
