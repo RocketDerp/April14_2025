@@ -714,3 +714,40 @@ https://old.reddit.com/r/nottheonion/comments/1ope4i7/greene_says_she_no_longer_
 
 QAnon is fiction addiction, monomyth fiction storytelling. Donald Trump and Putin lead with fiction storytelling, Fox News leads with fiction storytelling. Saudi Arabia Mecca leads with fiction storytelling. The Founding Fathers of the United States of America did not want fiction storytelling to be the method of leadership. ... ... ...     
 "the entire philosophy the early republic was based upon. And how utterly deplorable and regrettable and terrible it is that all of this has been virtually totally forgotten by our days. And that we have held, The American People, have held in their very hands, handed to them by people like Franklin and Jefferson and all kinds of others... One of the most splendid treasures of spiritual philosophy - applicable to all manner of human purposes. And we have discarded it. And we are running around like beggars, the world over, picking up crumbs from every kind of anarchists, Marxists, this thing, fascists, this thing that thing, all over the world. All of which, put together, could never come close to the psychological spiritual wisdom that was given to us to begin with... and that we have simply forgotten about and thrown away. And how incredibly unfortunate and terrible this is." https://youtu.be/08R1kPdfrHA?t=4427 - Dr. Stephan A. Hoeller, year 1987
+
+https://old.reddit.com/r/complaints/comments/1op6y59/let_me_get_this_straight_texas_redistricting_is_a/nnaznmy/
+
+Which is why I turn to the doctors of Cambridge Analytica and the Russian Internet Research Agency. Inverted values in the minds.
+
+https://old.reddit.com/r/complaints/comments/1op6y59/let_me_get_this_straight_texas_redistricting_is_a/nn9uwp4/
+
+Tiny-short message, Twitter-think. Prizing MAGA / Prizing Trump Truth Social insults. The reform has to be huge or no lessons learned at all. We need multiple chocies of good ideas, not Maximum Putinization.
+
+https://old.reddit.com/r/complaints/comments/1op6y59/let_me_get_this_straight_texas_redistricting_is_a/nnaea21/
+
+I witness this too.
+
+https://old.reddit.com/r/complaints/comments/1op6y59/let_me_get_this_straight_texas_redistricting_is_a/nnaumxy/
+
+Yes. The anti-citation, anti-link, anti-quote of exactly what the problems are with California. A lot of anti-California messages from disposable comment prizing people.
+
+https://old.reddit.com/r/CringeTikToks/comments/1op86zm/armed_israeli_settlers_draining_palestinian_water/nn9p55e/
+
+Superficial shallow concerns. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1op86zm/armed_israeli_settlers_draining_palestinian_water/nn9u9hi/
+
+Fiction vs nonfiction.
+
+https://old.reddit.com/r/CringeTikToks/comments/1op86zm/armed_israeli_settlers_draining_palestinian_water/nnapy2o/
+
+https://old.reddit.com/r/CringeTikToks/comments/1op86zm/armed_israeli_settlers_draining_palestinian_water/nn9qf1j/
+
+https://old.reddit.com/r/CringeTikToks/comments/1op86zm/armed_israeli_settlers_draining_palestinian_water/nn9sc3g/
+
+https://old.reddit.com/r/CringeTikToks/comments/1op86zm/armed_israeli_settlers_draining_palestinian_water/nnatqix/
+
+There is nobody forcing people to have favorite music bands or film directors. Fiction addiction is a global problem. Human mind issue. Reddit users prize disposable commenting above Wiki refinment of information.
+
+https://old.reddit.com/r/CringeTikToks/comments/1op86zm/armed_israeli_settlers_draining_palestinian_water/nnasibk/
+
