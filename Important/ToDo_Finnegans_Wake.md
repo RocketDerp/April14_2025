@@ -320,3 +320,9 @@ https://old.reddit.com/r/todayilearned/comments/1oojk2y/til_the_mbabram_a_formal
 
 Being honest about your parenting and marriage.     
 https://old.reddit.com/r/comics/comments/1op9fh5/real_talk_gator_days/
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1opeli2/a_cowboys_fan_poured_his_deceased_cousins_ashes/
+
+Sports fanatics death ritual. People think religion is stuck in 2,000 year old Bible. Media of sports entertainment.    
