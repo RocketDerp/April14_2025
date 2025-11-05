@@ -315,3 +315,8 @@ Choice marriage honesty, age 30 virgin due to society change. not war, but peace
 &nbsp;
 
 https://old.reddit.com/r/todayilearned/comments/1oojk2y/til_the_mbabram_a_formally_isolated_and_now/
+
+&nbsp;
+
+Being honest about your parenting and marriage.     
+https://old.reddit.com/r/comics/comments/1op9fh5/real_talk_gator_days/
