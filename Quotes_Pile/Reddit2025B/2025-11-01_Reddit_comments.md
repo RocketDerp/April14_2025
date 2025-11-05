@@ -605,3 +605,59 @@ https://old.reddit.com/r/complaints/comments/1ooi4hg/im_tired_of_double_standard
 
 No quotes, no author names, no links, no book titles. As if this problem just came up today and "original" disposable commenting is to be prized above getting on the same page.
 
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8fapl/
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8q11h/
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8vgr4/
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8m6hn/
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8o5o8/
+
+Minds blown by humor, funny.
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8r2n3/
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn995da/
+
+So few recognize it, a lot of Pollyanna attitudes that long-term damage hasn't been done.
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn94bi6/
+
+The society in total is in crisis. Fiction addiction seeded by CA and IRA. People are entirely addicted to the mocking and sports mentality politics has become. Full entertainment / amusement driving society.
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8nlgc/
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn94xbs/
+
+Reddit society loves it the more wild and crazy the White House behaves, it gives content to mock and insult.
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn90j5x/
+
+Endless entertainment to a society that has abandoned nonfiction learning as boring.
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8qaep/
+
+Recently created Reddit account messaging that self-harm to USA is good. No desire to reform education and media ecology - just to punish on one single topic of the month.
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn96qvg/
+
+The whole liberal vs. conservative has become brainrot. Democracy based on *hate harder* is self-destructive. All the media messages of hate against the out-groups has wrecked every area of society. Blaming Russia / Blaming Putin was a chance to come together, now children are raised to prize hate and failure in relationships. Trump as a role model of leadership.
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8p25x/
+
+As a speices, we still can't grasp the translation of Bible and Quran to Hamlet's Ghost and Star Wars "Force Ghost" and will not come to terms with nonfiction addictions in modern form. Religions are not superantural, and we won't face up to media cult behaviors. Social media did not organize and confront Fox News.
+
+https://old.reddit.com/r/NoFilterNews/comments/1op250g/2026_will_be_a_blood_bath_maga_says_warning_signs/nn8pyo7/
+
+Manipulating people with falsehoods or unreality. Maybe there will be fallsehoods that having a job will become a voting requirement or other such changes. The pro-suffering pro-starvation movement all year 2025 has gotten big audiences, big media ratings.
+
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1op6sr5/women_tried_to_run_after_phone_repair/nn9jro3/
+
+It sells, popular to punch down on the troubled people.
+
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1op6sr5/women_tried_to_run_after_phone_repair/nn9jgy7/
+
+Technology lovers. They can relate how a mobile phone is prized more than human persons working as employees.
+
