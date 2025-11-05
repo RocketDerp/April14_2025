@@ -696,3 +696,7 @@ The experience of write-only commenting on Reddit. Where people don't read and a
 
 https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn8root/
 
+https://old.reddit.com/r/pics/comments/1op799n/oc_a_temporary_sign_is_displayed_outside_of_the/nn9f94h/
+
+Reddit audience is constantly amusement-washing Donald Trump. Endless entertainment from the Reality TV star.
+
