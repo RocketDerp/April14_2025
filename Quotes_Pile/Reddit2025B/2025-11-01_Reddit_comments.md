@@ -661,3 +661,38 @@ https://old.reddit.com/r/WatchPeopleDieInside/comments/1op6sr5/women_tried_to_ru
 
 Technology lovers. They can relate how a mobile phone is prized more than human persons working as employees.
 
+https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn8s5f4/
+
+Extremely popular (upvoted) tiny-short length message, Twitter-length comment. No quote, no date cited, no link. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn95tf2/
+
+Everything Trumpism is amusement for Reddit audience members. FOR OVER TEN YEARS AND FOUR MONTHS, endless mocking and amusements. No other social change in society has been as stimulating. Constant entertainment for audience.
+
+https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn8v3tb/
+
+The media addicts of Reddit have no idea how Trumpism media ecology works on Reddit audience. Refusing to learn nonfiction about *why* Trump has so much power - media systems. Not "The Media", 'The Mainstraem Media", but Reddit itself. The touch device itself. ... ... ...         
+“The medium does things to people. And they’re always completely unaware of this. They don’t really notice the new medium that is roughing them up. They think of the old medium because the old medium is always the content of the new medium. As movies are tend to be the content of TV, and as books used to be the content—novels used to be the content—of movies.” — Marshall McLuhan. “This is Marshall McLuhan: The Medium is the Massage”, an experimental documentary produced by Ernest Pintoff and Guy Fraumeni, narrated by actor Edward Binnes and broadcasted on NBC TV (19 March 1967). https://youtu.be/cFwVCHkL-JU?t=195
+
+https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn8yh2f/
+
+This is a fundamental idea in democracy. We The People elect leaders. In many ways, terrorists take note that killing the ppulation is how you address a democracy. We do not teach media ecology, Marshall McLuhan's "mass man" concepts to every person. We are suffering from not grasping our own behaviors to a Reality TV superstar. And how Putin and Surkov have run Russia for over 25 years.
+
+https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn92er6/
+
+Fiction addicts. Entertainment addicts who mock and insult serious subjects and serious people. Taking impotant matters seriously about politics, taking Russian information warfare seriously, is mocked. Amusement and mockery leadership is what Trump provides to the audience, to the society.
+
+https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn8pq8y/
+
+Cheering on harm to "enemies of the state", when that's now defined to be the opposition to Fox News HDTV media. Opposition to Newsmax fiction is *enemy of the state* now. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn8tkcc/
+
+This Reddit comment... people unable to imagine absurd surreal is a formal technique of Tony Clifton acting, Surkovian leadership. Calling Tony Clifton a bad performer is not resisting Tony Clifton acts. [Surkovian Onion Eating. thinking this is observable but accidental, and not part of a year 2013 onward Russian information war](../Reddit2025A/Surkovian_Onion_Eating.md). That absurd surreal mind blowing isn't the most sophisticated information warfare and population control devised
+
+https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn8pmns/
+
+The experience of write-only commenting on Reddit. Where people don't read and analyze what is said by peers or imagine that low-effort commenting is exactly what others are doing at the same time.
+
+https://old.reddit.com/r/CringeTikToks/comments/1op44pm/trump_its_time_for_republicans_to_do_what_they/nn8root/
+
