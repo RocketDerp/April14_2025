@@ -898,3 +898,8 @@ https://old.reddit.com/r/NoFilterNews/comments/1oq0w33/panic_spreading_through_g
 
 Look at the mockery username. *Hate harder* contest messaging. Always more mocking and insulting.
 
+https://old.reddit.com/r/mildlyinfuriating/comments/1oq9mwb/15_years_in_and_my_wife_still_doesnt_understand/nnhdut4/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1oq9mwb/15_years_in_and_my_wife_still_doesnt_understand/nnhbr2d/
+
+Don't love stupid people. We are investing in technology to make ourselves dumber as Carl Sagan said in 1995. Personally I do not enjoy where everything is a sneak attackand trick and Donald Trump is what parents since June 2015 is a role model. And sport stars and all the media labor that goes into stardom icons.
