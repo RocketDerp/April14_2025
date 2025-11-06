@@ -823,3 +823,26 @@ https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of
 
 Science fiction retcon.
 
+https://old.reddit.com/r/CringeTikToks/comments/1opmp51/trump_said_he_wants_to_arrest_mamdani/nncnl82/
+
+I remember the Internet Research Agency and Cambridge Analytica induced hate patterns, the flocking to fiction. I remember the abandonment of nonfiction since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1opmp51/trump_said_he_wants_to_arrest_mamdani/nncua4a/
+
+Yes. The country abnadoned goodness itself. People should be halting social media entertainment, halting engagement of sports entertainment, calling for people to be serious and compile a list of grievances against King / Prince. Instead, it is amusment-washed on Reddit comments with diaper-washing baby-washing chid-washing... repeating the idea that children are not reponsible for their actions. The comment section is full of dementia-washing. This topic is not dementia, this is anti-democracy at core, anti-goodness.
+
+https://old.reddit.com/r/CringeTikToks/comments/1opmp51/trump_said_he_wants_to_arrest_mamdani/nncr9mq/
+
+Yes. Mockery-washing, LOL-washing, milking Trump as a meme for never-ending jokes. That's the very technique of power of antics politicis, Surkovian governing. Entertainment.
+
+https://old.reddit.com/r/CringeTikToks/comments/1opmp51/trump_said_he_wants_to_arrest_mamdani/nncp0mu/
+
+Abandon human persons, give up on people. Machine lover messages. Don't rescue people from Russia's Internet Research Agency programming. Just chuckle at it all as entertainment. FOR OVEER TEN YEARS AND FOUR MONTHS, that is what people are srious about. LOL / chucklehead nation.
+
+https://old.reddit.com/r/CringeTikToks/comments/1opmp51/trump_said_he_wants_to_arrest_mamdani/nncs1jx/
+
+No links, no quotes, no author names, no book titles.
+
+https://old.reddit.com/r/CringeTikToks/comments/1opmp51/trump_said_he_wants_to_arrest_mamdani/nnctnyc/
+
+It is what people crave now. Tiny-short video clips and messages. Drowning in fragmented bits of infrormation.
