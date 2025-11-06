@@ -869,3 +869,15 @@ At least someone brought in the tax dollars topic.
 https://old.reddit.com/r/MurderedByWords/comments/1oprpha/are_we_so_far_gone_that_a_politician_acting/nne06vp/
 
 Exactly. He is being measured as a source of entertainment and content. Not for policy and reason thinking.
+
+https://old.reddit.com/r/GetNoted/comments/1opu5gz/american_thanksgiving_dinner_is_smaller_than_that/nne3mk1/
+
+Cult. No quotes, no book author names, no book titles, no links. The "cult" is to fiction storytelling, and in fiction addiction (Bible science fiction for example, L Ron Hubbard science fiction as another example) reality doesn't have to follow rules. There are only rules of popularity and attraction in fiction.
+
+https://old.reddit.com/r/GetNoted/comments/1opu5gz/american_thanksgiving_dinner_is_smaller_than_that/nnebv0a/
+
+Of course Walmart is part of the system. Trump picked it for a reason.
+
+https://old.reddit.com/r/GetNoted/comments/1opu5gz/american_thanksgiving_dinner_is_smaller_than_that/nnesih7/
+
+It all changed in year 2013... The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
