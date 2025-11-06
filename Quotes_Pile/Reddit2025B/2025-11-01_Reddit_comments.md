@@ -789,3 +789,37 @@ https://old.reddit.com/r/spreadsmile/comments/1opbdwr/buying_stuff_from_someone_
 
 https://old.reddit.com/r/spreadsmile/comments/1opbdwr/buying_stuff_from_someone_with_no_customers/nnbwc0t/
 
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nncsdmf/
+
+Romans 11:32 ++
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nndexh1/
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nnd5cuq/
+
+"1 John 4:20" - Love of God is wrong test.
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nncw1ga/
+
+Mercy is the outcome of all Romans 11:32
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nnd3oa8/
+
+In Joseph Campbell's view, evil is part of life and accept and celebrate life the way it is. In Martin Luther King Jr's view and Malala's view, we are to sacrifice in teaching lessons with dialog and languge (as Jesus did, a dialog and language creator) to convince others to create Heaven on Earth.
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nncwcru/
+
+Hence why we need to teach Bible verse Romans 11:32 - Judas would be granted mercy.
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nncufkc/
+
+Superstar.
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nncyt58/
+
+Yes. Key understanding and part of the opera.
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nndbz5z/
+
+Science fiction retcon.
+
