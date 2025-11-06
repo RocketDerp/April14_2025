@@ -332,3 +332,8 @@ Sports fanatics death ritual. People think religion is stuck in 2,000 year old B
 Year 1972     
 Romans 11:32 abounds   
 https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/
+
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1opv492/dream_on_little_sister_oc/      
+Tunisian artist woman, comic   
