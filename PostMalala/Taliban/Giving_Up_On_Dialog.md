@@ -7,7 +7,7 @@ Year 2021
 
 https://www.theguardian.com/books/2025/oct/14/finding-my-way-by-malala-yousafzai-review-growing-up-in-public
 
-Was it every really a belief? "Now do as you wish" sounded like murder and rape in year 2013 book tour and book.
+Was it ever really a belief? "Now do as you wish" sounded like murder and rape in year 2013 book tour and book.
 
 &nbsp;
 
