@@ -751,3 +751,11 @@ There is nobody forcing people to have favorite music bands or film directors. F
 
 https://old.reddit.com/r/CringeTikToks/comments/1op86zm/armed_israeli_settlers_draining_palestinian_water/nnasibk/
 
+https://old.reddit.com/r/popculturechat/comments/1opfvil/sydney_sweeney_and_scooter_braun_share_a_very/nnbqwa7/
+
+People are living in denial. "Grab them by the pussy" *October suprirse* gained support in year 2016. Hate itself is popular. Pop culture is toxic.
+
+https://old.reddit.com/r/popculturechat/comments/1opfvil/sydney_sweeney_and_scooter_braun_share_a_very/nnblaey/
+
+Toxic is popular. Donald Trump has the largest hate club in human history. People can not resist the hate!
+
