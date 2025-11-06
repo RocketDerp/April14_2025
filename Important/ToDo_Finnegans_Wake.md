@@ -337,3 +337,9 @@ https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of
 
 https://old.reddit.com/r/comics/comments/1opv492/dream_on_little_sister_oc/      
 Tunisian artist woman, comic   
+
+&nbsp;
+
+Carl Sagan, Copyright is Brain Damage     
+Apple computer rights to use his name for computer    
+https://old.reddit.com/r/todayilearned/comments/1oq6pfd/til_that_carl_sagans_team_wanted_to_include_here/
