@@ -885,3 +885,7 @@ It all changed in year 2013... The Russian "War Against Reality" described Septe
 https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nnfgyzd/
 
 Romans 11:32 Bible verse. A tiny-short message of Reddit that did not reference the off-Reddit citation of verse in The Bible book (off-Reddit).
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nnfmqd9/
+
+Wants to ignore Romans 11:32 again, very popular.
