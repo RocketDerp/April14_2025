@@ -784,3 +784,8 @@ Eating right out of the Tony Clifton performance.
 https://old.reddit.com/r/news/comments/1opg94j/dot_will_cut_traffic_10_percent_at_40_airports/nnbbvc3/
 
 Parents have made Donald Trump a role model for children.
+
+https://old.reddit.com/r/spreadsmile/comments/1opbdwr/buying_stuff_from_someone_with_no_customers/nnbj84k/
+
+https://old.reddit.com/r/spreadsmile/comments/1opbdwr/buying_stuff_from_someone_with_no_customers/nnbwc0t/
+
