@@ -866,3 +866,6 @@ https://old.reddit.com/r/MurderedByWords/comments/1oprpha/are_we_so_far_gone_tha
 
 At least someone brought in the tax dollars topic.
 
+https://old.reddit.com/r/MurderedByWords/comments/1oprpha/are_we_so_far_gone_that_a_politician_acting/nne06vp/
+
+Exactly. He is being measured as a source of entertainment and content. Not for policy and reason thinking.
