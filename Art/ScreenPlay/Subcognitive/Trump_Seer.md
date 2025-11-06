@@ -21,5 +21,6 @@ You abandoned your Great Seal of the United States of America.
 
 https://www.youtube.com/watch?v=26wcn45Uowo
 
-Trump is your signal, We The People are last to know of our own media addiction.  We The People are the fools who trusted Trump, and Trump trusted Putin. The monomyth was cracked by Surkov.
+Trump is your signal, We The People are last to know of our own media addiction.  We The People are the fools who trusted Trump, and Trump trusted Putin. The monomyth was cracked by Surkov. Our faith in mocking, our faith in mocking MAGA, our faith in mocking Trump, that is what Trump saw before all others. Surkov techniques of mocking media adictions with media adiction. 
+
 
