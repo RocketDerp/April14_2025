@@ -770,3 +770,17 @@ https://old.reddit.com/r/MadeMeSmile/comments/1op83nm/when_brazilian_tv_caught_t
 https://old.reddit.com/r/MadeMeSmile/comments/1op83nm/when_brazilian_tv_caught_this_young_fans_emotions/nn9p76h/
 
 https://old.reddit.com/r/MadeMeSmile/comments/1op83nm/when_brazilian_tv_caught_this_young_fans_emotions/nnb3ifs/
+
+https://old.reddit.com/r/news/comments/1opg94j/dot_will_cut_traffic_10_percent_at_40_airports/nnbjgo1/
+
+A nation of never-ending mocking.
+
+https://old.reddit.com/r/news/comments/1opg94j/dot_will_cut_traffic_10_percent_at_40_airports/nnbs8k8/
+
+https://old.reddit.com/r/news/comments/1opg94j/dot_will_cut_traffic_10_percent_at_40_airports/nnbgkh0/
+
+Eating right out of the Tony Clifton performance.
+
+https://old.reddit.com/r/news/comments/1opg94j/dot_will_cut_traffic_10_percent_at_40_airports/nnbbvc3/
+
+Parents have made Donald Trump a role model for children.
