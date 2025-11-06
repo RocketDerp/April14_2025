@@ -7,3 +7,6 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3m4y6rrb4wc2v
 
 The Forest for the Trees. The Total Mock-ery. Trump Sees.   
 
+Trump sees star-struck. Trump can see the mass mind.  Trump sees how Tony Clifton audinence reacts. Eating out of the hands of Tony Clifton performances.
+
+Bill Moyers: “Jesus had the eye,” he said. “What a magnificent reality he saw in the mustard seed.” He would quote the words of Jesus from the gospel of John — “Truly, truly, I say unto you, unless a grain of wheat falls into the earth and dies, it remains alone; but if it dies, it bears much fruit” — and in the next breath, the Koran: “Do you think that you shall enter the Garden of Bliss without such trials as came to those who passed away before you?” 
