@@ -759,3 +759,14 @@ https://old.reddit.com/r/popculturechat/comments/1opfvil/sydney_sweeney_and_scoo
 
 Toxic is popular. Donald Trump has the largest hate club in human history. People can not resist the hate!
 
+https://old.reddit.com/r/law/comments/1opegf9/the_supreme_courts_tariffs_arguments_were_a/nnb6a82/
+
+https://old.reddit.com/r/law/comments/1opegf9/the_supreme_courts_tariffs_arguments_were_a/nnbkt57/
+
+https://old.reddit.com/r/law/comments/1opegf9/the_supreme_courts_tariffs_arguments_were_a/nnayf8i/
+
+https://old.reddit.com/r/MadeMeSmile/comments/1op83nm/when_brazilian_tv_caught_this_young_fans_emotions/nn9l163/
+
+https://old.reddit.com/r/MadeMeSmile/comments/1op83nm/when_brazilian_tv_caught_this_young_fans_emotions/nn9p76h/
+
+https://old.reddit.com/r/MadeMeSmile/comments/1op83nm/when_brazilian_tv_caught_this_young_fans_emotions/nnb3ifs/
