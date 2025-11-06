@@ -881,3 +881,7 @@ Of course Walmart is part of the system. Trump picked it for a reason.
 https://old.reddit.com/r/GetNoted/comments/1opu5gz/american_thanksgiving_dinner_is_smaller_than_that/nnesih7/
 
 It all changed in year 2013... The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nnfgyzd/
+
+Romans 11:32 Bible verse. A tiny-short message of Reddit that did not reference the off-Reddit citation of verse in The Bible book (off-Reddit).
