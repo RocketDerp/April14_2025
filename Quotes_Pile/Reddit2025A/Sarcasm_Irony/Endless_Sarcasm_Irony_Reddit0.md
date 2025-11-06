@@ -1197,3 +1197,11 @@ https://old.reddit.com/r/nottheonion/comments/1ope4i7/greene_says_she_no_longer_
 
 QAnon on front page of Reddit. But people do not discuss nonfiction learning of media cults. There is no "Q" person for people to fall in love with. It is a Bible verse "1 John 4:20" situation of people in love with a fiction character. So many of our society problems fall around this kind of *blind faith* issue spelledout in "1 John 4:20"
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1opxa4p/people_have_forgotten_history/
+
+Low-effort simulacra on Reddit front page. "Murdered By Words!!!" of Truth Social prized  values: insulting, mocking. Make a low-effort statement, people "defeat it" with low-effort reply.
+
