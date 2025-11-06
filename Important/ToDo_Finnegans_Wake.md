@@ -326,3 +326,9 @@ https://old.reddit.com/r/comics/comments/1op9fh5/real_talk_gator_days/
 https://old.reddit.com/r/TikTokCringe/comments/1opeli2/a_cowboys_fan_poured_his_deceased_cousins_ashes/
 
 Sports fanatics death ritual. People think religion is stuck in 2,000 year old Bible. Media of sports entertainment.    
+
+&nbsp;
+
+Year 1972     
+Romans 11:32 abounds   
+https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/
