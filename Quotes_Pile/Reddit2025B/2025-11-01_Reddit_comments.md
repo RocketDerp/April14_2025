@@ -893,3 +893,8 @@ Wants to ignore Romans 11:32 again, very popular.
 https://old.reddit.com/r/NoFilterNews/comments/1oq0w33/panic_spreading_through_gop_after_doj_reveals/nng1n3g/
 
 But that's the topic that paralizes We The People. Our nation of junk media addicts, Reality TV addicts, who mock and insult Presidnt Tony Clifton day after day FOR OVER TEN YEARS AND FOUR MONTHS. Poop diaper mindset is what Trump provides for the audience. "No Filter News!" the big turds of Media Addict Society.
+
+https://old.reddit.com/r/NoFilterNews/comments/1oq0w33/panic_spreading_through_gop_after_doj_reveals/nnfq3x6/
+
+Look at the mockery username. *Hate harder* contest messaging. Always more mocking and insulting.
+
