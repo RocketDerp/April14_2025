@@ -13,3 +13,4 @@ James Joyce ARG
 
 Which fiction metaphors did they die for?  
 
+Seams / Lines / Gaps / Continental Divides / Oceans in-between   
