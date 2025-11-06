@@ -1761,3 +1761,9 @@ https://old.reddit.com/r/anime_irl/comments/1ol0602/anime_irl/
 
 Tactical cleverness      
 https://old.reddit.com/r/SipsTea/comments/1ol317b/how_to_win/
+
+&nbsp;
+
+https://old.reddit.com/r/memes/comments/1opqtf7/why_do_we_accept_this/
+
+The "Adults in the room", parents, made Donald Trump media star a role model for all other media stars and influencers and children. There is no call for remedial morality, just perpetual rounds of back and forth groups calling other groups dumb / stupid / moron / idiot oveer and over since June 2015.
