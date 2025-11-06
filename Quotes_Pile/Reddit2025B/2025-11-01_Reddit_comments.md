@@ -903,3 +903,19 @@ https://old.reddit.com/r/mildlyinfuriating/comments/1oq9mwb/15_years_in_and_my_w
 https://old.reddit.com/r/mildlyinfuriating/comments/1oq9mwb/15_years_in_and_my_wife_still_doesnt_understand/nnhbr2d/
 
 Don't love stupid people. We are investing in technology to make ourselves dumber as Carl Sagan said in 1995. Personally I do not enjoy where everything is a sneak attackand trick and Donald Trump is what parents since June 2015 is a role model. And sport stars and all the media labor that goes into stardom icons.
+
+https://old.reddit.com/r/NoFilterNews/comments/1oq0w33/panic_spreading_through_gop_after_doj_reveals/nnfvlwa/
+
+"This isn't news", "We all know". In the addiction to fiction, goodness doesn't matter. Ivanka wouldn't speak up. And it isn't about wealth. Rock stars and film stars and TV stars and sports stars - I had a large school class in Fort Wayne, Indiana - and you could hear girls in class bragging about sports stars men taking their virginity. Bragging about older men. You could ask the girls and they would talk to you about it. Most boys just didn't talk to girls / women and sure as hell didn't listen to women. People are attracted to popularity. Popularity is business, an industry. There are promoters, public relations, Edward Bernays students. Boys are attracted to sports in my 1985 first year in high school because it draws the girls in Indiana. NFL football / NBA basketball stardom was a path many children were fed, into the supply chain. Trump isn't wrong about being a star / icon. 
+
+https://old.reddit.com/r/NoFilterNews/comments/1oq0w33/panic_spreading_through_gop_after_doj_reveals/nnfogka/
+
+Access to all the private messages and deleted messages of Twitter is probably more revealing. Many famous people.
+
+https://old.reddit.com/r/NoFilterNews/comments/1oq0w33/panic_spreading_through_gop_after_doj_reveals/nnfs21a/
+
+A fact Malala isn't facing up to about the Taliban in her youth. Even where there is education, in the USA and London, this goes on. Fucking LOOK at The Beatles audience, Elvis audience! Parents GIVE AWAY young girls to power / stardom. OPERA_A "Pete based the idea for the song on a real incident at a Doors concert, where an eager fan got a, well, gash across her face." The rock band is SPELLING It OUT. Sally Tommy https://www.youtube.com/watch?v=YjbKH4_roG4 
+
+https://old.reddit.com/r/NoFilterNews/comments/1oq0w33/panic_spreading_through_gop_after_doj_reveals/nnhtmt7/
+
+New account, "the dems". Fiction flockers.
