@@ -846,3 +846,23 @@ No links, no quotes, no author names, no book titles.
 https://old.reddit.com/r/CringeTikToks/comments/1opmp51/trump_said_he_wants_to_arrest_mamdani/nnctnyc/
 
 It is what people crave now. Tiny-short video clips and messages. Drowning in fragmented bits of infrormation.
+
+https://old.reddit.com/r/MurderedByWords/comments/1oprpha/are_we_so_far_gone_that_a_politician_acting/nndn6ag/
+
+This Reddit context is terrible. That you can never learn from mistakes. To write off people permanently. That people are born bad and can't be changed with education and teaching. Anti-Malala statement.
+
+https://old.reddit.com/r/MurderedByWords/comments/1oprpha/are_we_so_far_gone_that_a_politician_acting/nndvuia/
+
+The "free" busses are paid for by taxes, they aren't being paid for by the mayor. The whole idea is ignroance being celebrated by Reddit. Carl Sagan was a New York boy. ... ... ...      
+"unable to distinguish between what feels good and what’s true, we slide, almost without noticing, back into superstition and darkness. The dumbing down of America is most evident in the slow decay of substantive content in the enormously influential media, the 30-second sound bites (now down to 10 seconds or less), lowest common denominator programming, credulous presentations on pseudoscience and superstition, but especially a kind of celebration of ignorance. As I write, the number-one videocassette rental in America is the movie Dumb and Dumber. “Beavis and Butthead” remain popular (and influential) with young TV viewers. The plain lesson is that study and learning—not just of science, but of anything—are avoidable, even undesirable.” ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995
+
+https://old.reddit.com/r/MurderedByWords/comments/1oprpha/are_we_so_far_gone_that_a_politician_acting/nneecdp/
+
+https://old.reddit.com/r/MurderedByWords/comments/1oprpha/are_we_so_far_gone_that_a_politician_acting/nndp3o7/
+
+NYU, Manhattan, Neil Postman... 
+
+https://old.reddit.com/r/MurderedByWords/comments/1oprpha/are_we_so_far_gone_that_a_politician_acting/nne8mh7/
+
+At least someone brought in the tax dollars topic.
+
