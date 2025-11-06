@@ -889,3 +889,7 @@ Romans 11:32 Bible verse. A tiny-short message of Reddit that did not reference 
 https://old.reddit.com/r/todayilearned/comments/1opmb8l/til_there_is_a_gospel_of_judas_not_found_in_the/nnfmqd9/
 
 Wants to ignore Romans 11:32 again, very popular.
+
+https://old.reddit.com/r/NoFilterNews/comments/1oq0w33/panic_spreading_through_gop_after_doj_reveals/nng1n3g/
+
+But that's the topic that paralizes We The People. Our nation of junk media addicts, Reality TV addicts, who mock and insult Presidnt Tony Clifton day after day FOR OVER TEN YEARS AND FOUR MONTHS. Poop diaper mindset is what Trump provides for the audience. "No Filter News!" the big turds of Media Addict Society.
