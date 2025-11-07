@@ -12,7 +12,7 @@ https://old.reddit.com/r/pluribustv/comments/1oqkfok/pluribus_1x02_pirate_lady_p
 
 https://old.reddit.com/r/pluribustv/comments/1oqkfok/pluribus_1x02_pirate_lady_postepisode_discussion/nnjk1fg/
 
-You think humanity is sane, the real world is sane? War and Putin and RFK Jr and Trump prized leaders?
+You think humanity is sane, the real world is sane? War and Putin and RFK Jr and Trump prized leaders? https://youtu.be/tj9Nht-0Y3w?t=227
 
 https://old.reddit.com/r/pluribustv/comments/1oqkfok/pluribus_1x02_pirate_lady_postepisode_discussion/nnjtcxf/
 
