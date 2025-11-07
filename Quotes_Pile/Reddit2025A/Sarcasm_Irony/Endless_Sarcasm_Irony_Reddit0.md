@@ -1205,3 +1205,10 @@ https://old.reddit.com/r/MurderedByWords/comments/1opxa4p/people_have_forgotten_
 
 Low-effort simulacra on Reddit front page. "Murdered By Words!!!" of Truth Social prized  values: insulting, mocking. Make a low-effort statement, people "defeat it" with low-effort reply.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1oqqlkq/oklahoma_is_actually_50th_in_education_48th_would/
+
+Always more mocking, always more insulting, always more hate. Instead of teaching remedial morality and asserting goodness, Reddit front page and Twitter culture / social media society prize men insulting and attacking men. The worst mindsets, sports-think smorts mentality, insult-driven "diss track" winning isn't winning at all.  
