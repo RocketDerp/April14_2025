@@ -992,3 +992,16 @@ https://old.reddit.com/r/politics/comments/1oqbcb6/judge_orders_trump_administra
 https://old.reddit.com/r/politics/comments/1oqbcb6/judge_orders_trump_administration_to_deliver_full/nnif8i8/
 
 Remedial morality lessons.
+
+https://old.reddit.com/r/news/comments/1oqajqc/house_cleaner_fatally_shot_in_indiana_after/nnhiptb/
+
+https://old.reddit.com/r/news/comments/1oqajqc/house_cleaner_fatally_shot_in_indiana_after/nnhpn9f/
+
+https://old.reddit.com/r/news/comments/1oqajqc/house_cleaner_fatally_shot_in_indiana_after/nnimcqg/
+
+https://old.reddit.com/r/news/comments/1oqajqc/house_cleaner_fatally_shot_in_indiana_after/nnimzfe/
+
+https://old.reddit.com/r/news/comments/1oqajqc/house_cleaner_fatally_shot_in_indiana_after/nnhgkyy/
+
+https://old.reddit.com/r/news/comments/1oqajqc/house_cleaner_fatally_shot_in_indiana_after/nnhu992/
+
