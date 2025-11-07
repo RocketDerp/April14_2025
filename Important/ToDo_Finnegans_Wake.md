@@ -349,3 +349,10 @@ https://old.reddit.com/r/todayilearned/comments/1oq6pfd/til_that_carl_sagans_tea
 James Joyce, dot    
 https://www.youtube.com/watch?v=9PdLLs_DYsc&t=222s
 https://old.reddit.com/r/jamesjoyce/comments/1oqiscx/still_no_dot_at_the_end_of_ithaca_in_a_2025/
+
+&nbsp;
+
+https://old.reddit.com/r/ExtraFabulousComics/comments/1or2ra9/making_comics/
+
+How much time wasted on misreading Joyce? "Love one another"   
+Minds takes reprogramming, but chase real love too.    
