@@ -9,3 +9,9 @@
 ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 59
 
 year 1995 media 10-second sound bites == year 2025 Bluesky and Twitter media reaction comments / images.
+
+&nbsp;
+
+# Nation of Suckers
+
+"Finding the occasional straw of truth awash in a great ocean of confusion and bamboozle requires vigilance, dedication and courage. But if we don’t practise these tough habits of thought, we cannot hope to solve the truly serious problems that face us and we risk becoming a nation of suckers" ― Carl Sagan, The Demon-Haunted World: Science as a Candle in the Dark, 1995, page 82
