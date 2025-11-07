@@ -1229,3 +1229,11 @@ https://old.reddit.com/r/TikTokCringe/comments/1oqrkch/absolute_facts/
 
 I agree with most of what is said, except "always fuck the law", we need to refom laws, get rid of outdated and over-reaching laws, and all better understand the laws. Wiki style system for practical understanding of the motivations behind laws and the problems with them. A focus on progress and goodness. The way he says "I feel like I'm taking to my self" is core, people are all on different pages of social media (TikTik the origin of this posting video?) in filter-bubbles and have no sense of common goodness. What Neil Postman said about education and needing a common narative. The IRA and CA mind-fucked eveyrone into scattered often superficial and shallow focus, not deeper focus on common direction. We are sheep, face up that sheep is good, if we aren't all marching into self-destruction and hate. If we are progress, all aboard the train / sheep line.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/
+
+Steve Bannon, Cambridge Analytica... social media society won't stay focused on the nonfiction books. Two books with "Plot to Break America" in the title of one published in year 2019. People don't stand up for nonfiction. MLK Jr. pointed out that humanity hasn't learned to be just and true, and fiction addiction drowns out serious topics.
+
