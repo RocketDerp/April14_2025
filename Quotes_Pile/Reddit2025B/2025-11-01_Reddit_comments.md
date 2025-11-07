@@ -1008,3 +1008,12 @@ https://old.reddit.com/r/news/comments/1oqajqc/house_cleaner_fatally_shot_in_ind
 https://old.reddit.com/r/okbuddycinephile/comments/1oqfj3t/favorite_ragebaiter_whos_also_an_actor/nninlw2/
 
 Media addiction leadership.
+
+https://old.reddit.com/r/popculturechat/comments/1oqkysh/hollywood_star_jeremy_renner_54_accused_of_vile/nnkvzcz/
+
+Meme addicts / actor news readers, consider this "smart" commenting.
+
+https://old.reddit.com/r/popculturechat/comments/1oqkysh/hollywood_star_jeremy_renner_54_accused_of_vile/nnkg8al/
+
+No quotes, no book titles, no author names. Left vs. right is brainot. People try to cram every human behavior issue into this binary. It is used to mask serious problems like: people unable to distinguish mass mind from personal mind / mass man behaviors / mob mentality behaviors; fiction from nonfiction and the difficulty of getting on the smae page with each other over reality itself.
+
