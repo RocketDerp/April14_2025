@@ -986,3 +986,9 @@ CAMPBELL: We need myths that will identify the individual not with his local gro
 MOYERS: There is something about that on the Great Seal of the United States.
 
 CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/politics/comments/1oqbcb6/judge_orders_trump_administration_to_deliver_full/nnidmhz/
+
+https://old.reddit.com/r/politics/comments/1oqbcb6/judge_orders_trump_administration_to_deliver_full/nnif8i8/
+
+Remedial morality lessons.
