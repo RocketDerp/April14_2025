@@ -1212,3 +1212,11 @@ Low-effort simulacra on Reddit front page. "Murdered By Words!!!" of Truth Socia
 https://old.reddit.com/r/clevercomebacks/comments/1oqqlkq/oklahoma_is_actually_50th_in_education_48th_would/
 
 Always more mocking, always more insulting, always more hate. Instead of teaching remedial morality and asserting goodness, Reddit front page and Twitter culture / social media society prize men insulting and attacking men. The worst mindsets, sports-think smorts mentality, insult-driven "diss track" winning isn't winning at all.  
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/GreatBritishMemes/comments/1oqo7yy/the_comment_section_after_posting_about_farage/
+
+People can't even NAME the fucking "Internet Research Agency" and link factual authors and articles on it. It's just a bunch of people with low-effort commenting. No serious effort to organize and learn nonfiction on the subject.
