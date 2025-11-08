@@ -1100,3 +1100,7 @@ Cambridge Analytica since year 2013.
 https://old.reddit.com/r/technology/comments/1orpfbj/a_new_report_shows_x_is_amplifying_farright/nnrijq6/
 
 Failure to teach media ecology (Neil Postman, Marshall McLuhan)...
+
+https://old.reddit.com/r/technology/comments/1orpfbj/a_new_report_shows_x_is_amplifying_farright/nnrj3k5/
+
+<img width="1506" height="446" alt="image" src="https://github.com/user-attachments/assets/4c3de0ab-3b87-4c10-aff4-88a3143f4872" /> Describing how Donlad Trump leads a nation Mocking / Mockery / Snark. Snark-washing away goodness since year 2013. Covid was late 2019... this problem goes back to the worship of LOL at Trump. Neil Postman's Amusing Ourselves To Death.
