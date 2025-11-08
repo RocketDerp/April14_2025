@@ -1017,3 +1017,71 @@ https://old.reddit.com/r/popculturechat/comments/1oqkysh/hollywood_star_jeremy_r
 
 No quotes, no book titles, no author names. Left vs. right is brainot. People try to cram every human behavior issue into this binary. It is used to mask serious problems like: people unable to distinguish mass mind from personal mind / mass man behaviors / mob mentality behaviors; fiction from nonfiction and the difficulty of getting on the smae page with each other over reality itself.
 
+https://old.reddit.com/r/todayilearned/comments/1oqxvdf/til_that_after_rome_declared_war_on_carthage_3rd/nnmsl7p/
+
+https://old.reddit.com/r/todayilearned/comments/1oqxvdf/til_that_after_rome_declared_war_on_carthage_3rd/nnnorkc/
+
+We are drowning in information, we can't all keep up on Tower of Babel with machines pumping media constantly.
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nnmmb66/
+
+Yes, The Bible has been used to justify dictatorships and slavery.
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nnmye5n/
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nnmwwjy/
+
+No links, no author name, no book title.
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nnn9eat/
+
+Levant God, Levant religion.
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nno0izz/
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nnndb2r/
+
+Everyone is reacting to out-groups now. Russian IRA and CA seeded all kinds of mind-fuck patterns. People seem unwilling to see the forest for the trees, the forest of constant reactionary thinking. I try to emphasize dead authors on paper books and people can't even see the avoidance of it other than as a high-speed TCP/IP reaction. There is no desire to stick to goodness / good ideas.
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nnm7nwi/
+
+The abadonment of communications. It happens in families, happens in marriages. You see it mentioned all the time around MAGA, families that disown and end communications.
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nnmfpjn/
+
+Describing the self-harm behaviors and prizing of hate. Prizing of mass dehumanization. 
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nnnfxl5/
+
+https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_institutions_of/nnmu9lz/
+
+Fiction storytelling outsells nonfiction. People consider nonfiction unattractive, tedious, boring.
+
+https://old.reddit.com/r/politics/comments/1oqwfmi/republican_insider_admits_party_is_now_open_to/nnlsqv3/
+
+Short tiny-length message, most upvoted / popular, saying that information about reality and truth of the situation is worthless. We are drowning in low-effort memes and junk messages, and the first order of business is to message that reality and factually are unwelcome / waste of time.
+
+https://old.reddit.com/r/politics/comments/1oqwfmi/republican_insider_admits_party_is_now_open_to/nnmopla/
+
+Year 2007 Reddit account
+
+https://old.reddit.com/r/politics/comments/1oqwfmi/republican_insider_admits_party_is_now_open_to/nnnhlnu/
+
+Media ecology change, secret encoding to everywhere in promoting out-group hate patterns. Putin won, Russia won, Surkov won. Since year 2013.
+
+https://old.reddit.com/r/politics/comments/1ormhzb/trump_is_pushing_us_toward_a_crash_it_could_be/nnr3mby/
+
+Alas, people don't post links, don't quote books, don't name book titles, author names. The popular way to learn is high-speed commenting on Bluesky, Reddit, etc. People are unwilling to *get on the same page* Wiki style and declare sober and serious that some topics are more important to repeat and teach. Alas, fiction is far more entertainming and low-effort memes drown understanding. We do not stand up for knowledge that is improtant, people race to report some 97 year old famous actor died of natural causes like it's the most important thing to focus on. The medium, the method of delivery, creates understanding interference patterns.
+
+https://old.reddit.com/r/politics/comments/1ormhzb/trump_is_pushing_us_toward_a_crash_it_could_be/nnqyf23/
+
+Amusement-washing, satire-washing. People can not resist the charming communications style of Donald Trump. Reddit is a factory of "milking the LOL cow" of Trump for entertainment and amusement. Neil Postman was correct in his 1985 book about this behavior being USA downfall.
+
+https://old.reddit.com/r/politics/comments/1ormhzb/trump_is_pushing_us_toward_a_crash_it_could_be/nnrxllf/
+
+Reddit message from account 15 years ago. Before the IRA. Back in 2010, the Arab Spring days of Reddit. 
+
+https://old.reddit.com/r/politics/comments/1ormhzb/trump_is_pushing_us_toward_a_crash_it_could_be/nnr18bg/
+
+What people LOVE is the name-calling poop diaper fetish topics of Trump. Preisdent Tony Clifton audience members who prize mocking and insulting. These are not resisting a Tony Clifton show. Surkov won, since year 2013.
+
