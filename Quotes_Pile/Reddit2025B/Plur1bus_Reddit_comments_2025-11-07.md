@@ -48,3 +48,6 @@ The James Joyce subreddit has brought up the topic of Pluribus
 
 https://old.reddit.com/r/pluribustv/comments/1orijd2/as_an_astrochemistry_major/nnquea0/
 
+https://old.reddit.com/r/pluribustv/comments/1orh5hk/radio_astronomer_here_just_saying_i_screamed_when/nnrac30/
+
+Conformity enforcer. Laws of John 1:1 
