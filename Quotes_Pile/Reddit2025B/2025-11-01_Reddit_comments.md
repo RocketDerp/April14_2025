@@ -1085,3 +1085,18 @@ https://old.reddit.com/r/politics/comments/1ormhzb/trump_is_pushing_us_toward_a_
 
 What people LOVE is the name-calling poop diaper fetish topics of Trump. Preisdent Tony Clifton audience members who prize mocking and insulting. These are not resisting a Tony Clifton show. Surkov won, since year 2013.
 
+https://old.reddit.com/r/news/comments/1ornb27/i_just_hit_somebody_video_appears_to_show_driver/nnr4qry/
+
+Media addiciton runs society. A media addict, Donald Trump, has been made leader of society / role model. Elon Musk got so sucked into Twitter that he purchased it.
+
+https://old.reddit.com/r/TikTokCringe/comments/1oqzllo/woman_allegedly_hits_and_kills_pedestrian_while/nnmm91k/
+
+Like sportsball addicts, the whole consumerism of sports, people beg you to join in their watching addictions. A society of people who prize entertainment and amusement so much they want everyone else in on it. How does a sports star earning millions a year solve any real world problem? Rectangle simulation fields? People ignoring their own children watching an army of sports doctors serve one wealthy person. Just like people flock to Donald Trump. And many people are motivated by sports mistakes / bloopers / NASCAR wrecks / Donald Trump bunders... hate watching to see people "LOL fail"
+
+https://old.reddit.com/r/technology/comments/1orpfbj/a_new_report_shows_x_is_amplifying_farright/nnrik1r/
+
+Cambridge Analytica since year 2013.
+
+https://old.reddit.com/r/technology/comments/1orpfbj/a_new_report_shows_x_is_amplifying_farright/nnrijq6/
+
+Failure to teach media ecology (Neil Postman, Marshall McLuhan)...
