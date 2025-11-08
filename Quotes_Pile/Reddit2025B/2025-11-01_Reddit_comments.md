@@ -1104,3 +1104,9 @@ Failure to teach media ecology (Neil Postman, Marshall McLuhan)...
 https://old.reddit.com/r/technology/comments/1orpfbj/a_new_report_shows_x_is_amplifying_farright/nnrj3k5/
 
 <img width="1506" height="446" alt="image" src="https://github.com/user-attachments/assets/4c3de0ab-3b87-4c10-aff4-88a3143f4872" /> Describing how Donlad Trump leads a nation Mocking / Mockery / Snark. Snark-washing away goodness since year 2013. Covid was late 2019... this problem goes back to the worship of LOL at Trump. Neil Postman's Amusing Ourselves To Death.
+
+https://old.reddit.com/r/news/comments/1oruw8f/dhs_head_reportedly_authorized_purchase_of_10/nnsxr6r/
+
+<img width="894" height="376" alt="image" src="https://github.com/user-attachments/assets/55ebb503-a04d-40ec-99e4-7086cef1d6d6" />
+Reddit audiences adore the Surkov student methods. Constant entertainment and amusement at calling the government dumb / stupid / moron / idiot. Surkov realized that people prize insulting above all else. That people will die for metaphors / die for mythology content. People could be posting the Wikipedia link to the Second Bill of Rights from January 1944 and say: the prediction made in 1944 was correct! Instead, people worship Lugi for sneak attack manipulative gun murders in December 2024. Gun worship is so much more entrtaining to media addicted society.
+
