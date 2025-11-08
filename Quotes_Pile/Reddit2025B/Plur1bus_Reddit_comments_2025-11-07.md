@@ -26,4 +26,19 @@ https://old.reddit.com/r/pluribustv/comments/1oqkfok/pluribus_1x02_pirate_lady_p
 
 https://old.reddit.com/r/pluribustv/comments/1oqkfok/pluribus_1x02_pirate_lady_postepisode_discussion/nnjwyqq/
 
-the aliens knew 12 would remain? 12 appostes plus jesus is build into earth's DNA?
+the aliens knew 12 would remain? 12 appostes plus Jesus is built into earth's DNA? - The film Prometheus has themes of Jesus being invovled in outside aliens. https://screenrant.com/prometheus-alien-movie-best-fan-theories-list/
+
+https://old.reddit.com/r/pluribustv/comments/1orf496/things_arent_what_they_seem/nnppohd/
+
+Are they harmless? Is is factually true?
+
+https://old.reddit.com/r/pluribustv/comments/1orf496/things_arent_what_they_seem/nnq6oo6/
+
+https://old.reddit.com/r/pluribustv/comments/1ori374/she_is_not_immune/nnq7h9w/
+
+She gets black-out drunk in her house, the whiskey bottle.
+
+https://old.reddit.com/r/pluribustv/comments/1ori374/she_is_not_immune/nnqd7l6/
+
+12 appostles to Jesus, feedback loops.
+
