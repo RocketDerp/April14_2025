@@ -51,3 +51,11 @@ https://old.reddit.com/r/pluribustv/comments/1orijd2/as_an_astrochemistry_major/
 https://old.reddit.com/r/pluribustv/comments/1orh5hk/radio_astronomer_here_just_saying_i_screamed_when/nnrac30/
 
 Conformity enforcer. Laws of John 1:1 
+
+https://old.reddit.com/r/pluribustv/comments/1orvdiu/carols_ego_in_revolt_against_the_universe/nnsudab/
+
+There are people who seem incredibly threatned by the idea of world peace.
+
+https://old.reddit.com/r/pluribustv/comments/1oryfeo/what_if_carol_is_inside_a_dream/nntflu2/
+
+Now we are coooking as James Joyce author and "Work In Progress" ;)
