@@ -45,3 +45,6 @@ https://old.reddit.com/r/pluribustv/comments/1ori374/she_is_not_immune/nnqd7l6/
 https://old.reddit.com/r/jamesjoyce/comments/1or08bk/anyone_watch_pluribus/nnom8it/
 
 The James Joyce subreddit has brought up the topic of Pluribus
+
+https://old.reddit.com/r/pluribustv/comments/1orijd2/as_an_astrochemistry_major/nnquea0/
+
