@@ -1237,3 +1237,10 @@ https://old.reddit.com/r/politics/comments/1oqxjuq/bannon_tells_gop_seize_the_in
 
 Steve Bannon, Cambridge Analytica... social media society won't stay focused on the nonfiction books. Two books with "Plot to Break America" in the title of one published in year 2019. People don't stand up for nonfiction. MLK Jr. pointed out that humanity hasn't learned to be just and true, and fiction addiction drowns out serious topics.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/agedlikemilk/comments/1orr0jg/his_words_against_his/
+
+Surkovian cotradictory media methods blow the minds out of Reddit audience. People LOL LOL LMAO into a meme stupor. Constnatly stimulated by Surkov message patterns.
