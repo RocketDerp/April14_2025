@@ -136,3 +136,12 @@ brickne3 2007-04-28 (reddit has only been around for 20 years, old account)
 &nbsp;
 
 "I feel like at this point even those of us who have seen more normal presidencies have all been traumatised by this shit for so long that it's caused all of us some kind of mass brain trauma/PTSD/something. It can't be healthy to be exposed to this insanity constantly, and it didn't just start with Trump either."
+
+&nbsp;
+
+&nbsp;
+
+Saturday November 8, 2025
+
+The grim future, the patterns unfolding, the road ahead.    
+https://old.reddit.com/r/complaints/comments/1orumug/i_cant_do_3_more_years_of_trump_do_the_right/
