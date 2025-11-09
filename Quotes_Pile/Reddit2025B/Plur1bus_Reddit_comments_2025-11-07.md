@@ -76,3 +76,6 @@ https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_sce
 
 "Did not watch the show" - uh yha. Two people can read James Joyce's Finnegans Wake and not get the same meaning and information from it! Same with Bible / Quran / Torah and other monomyth stories.
 
+https://old.reddit.com/r/pluribustv/comments/1os9342/carols_alcoholism_and_subsequent_anger_issues_are/nnvoze5/
+
+ALL RIGHT! YES! SOMEONE IS ON BOARD!
