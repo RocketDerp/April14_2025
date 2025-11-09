@@ -71,3 +71,8 @@ https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_sce
 https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_scene_of_ep2_with_the/nnv8xy2/
 
 https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_scene_of_ep2_with_the/nnv7h0r/
+
+https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_scene_of_ep2_with_the/nnvc7lk/
+
+"Did not watch the show" - uh yha. Two people can read James Joyce's Finnegans Wake and not get the same meaning and information from it! Same with Bible / Quran / Torah and other monomyth stories.
+
