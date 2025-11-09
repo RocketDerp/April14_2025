@@ -1146,3 +1146,6 @@ https://old.reddit.com/r/politics/comments/1osiy6x/republicans_push_to_strip_zoh
 
 Entertainment focus. It is this attitude from media audience for sports drama. It is abandonment of nonfiction learning in favor of sports / game mentality toxic competition to "own" the others / out-groups.
 
+https://old.reddit.com/r/PoliticalHumor/comments/1oshusn/bob_can_i_bet_0/nnx5vdx/
+
+Elvery god damn antic Trump pulls / just his appearance, is entertainment thrills to the population. We The People have sold our nation out for Reality TV bullshit mocking.
