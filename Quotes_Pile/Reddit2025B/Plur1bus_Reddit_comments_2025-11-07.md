@@ -67,3 +67,5 @@ How far is the War Against Reality going these days?
 https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_scene_of_ep2_with_the/nnv5xu0/
 
 ...
+
+https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_scene_of_ep2_with_the/nnv8xy2/
