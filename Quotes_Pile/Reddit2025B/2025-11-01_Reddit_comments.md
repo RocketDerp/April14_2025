@@ -1110,3 +1110,26 @@ https://old.reddit.com/r/news/comments/1oruw8f/dhs_head_reportedly_authorized_pu
 <img width="894" height="376" alt="image" src="https://github.com/user-attachments/assets/55ebb503-a04d-40ec-99e4-7086cef1d6d6" />
 Reddit audiences adore the Surkov student methods. Constant entertainment and amusement at calling the government dumb / stupid / moron / idiot. Surkov realized that people prize insulting above all else. That people will die for metaphors / die for mythology content. People could be posting the Wikipedia link to the Second Bill of Rights from January 1944 and say: the prediction made in 1944 was correct! Instead, people worship Lugi for sneak attack manipulative gun murders in December 2024. Gun worship is so much more entrtaining to media addicted society.
 
+https://old.reddit.com/r/LivestreamFail/comments/1os73en/kick_streamer_jackie_gets_into_a_car_crash_on/nnv5zyx/
+
+Every day I can go to social media message systems and see people calling everyone else idiots / dumb / stupid / moron. And people can't connect the dots that people prize low-quality entertainment as daily learning. Drowning in video clips and messages that put every person on different pages, and often low-effort understanding and comprehension. People are far more attracted to unique and unusual images and events than common ground important mutual understanding (such as sharing best practices on driving a car). The ohly thing people seem to all agree on is calling every other person idiots. 
+
+https://old.reddit.com/r/LivestreamFail/comments/1os73en/kick_streamer_jackie_gets_into_a_car_crash_on/nnvcdwu/
+
+Media addiction itself drives manic behavior. Media mania. Have people still not taken serious in USA the Fox News audience behaviors since year 1996?
+
+https://old.reddit.com/r/LivestreamFail/comments/1os73en/kick_streamer_jackie_gets_into_a_car_crash_on/nnv5kdm/
+
+We live in media addiction times.
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1os5iew/and_just_like_that_its_over/nnv7xc2/
+
+Yes. People prize low-effort commenting so they create 50 low-effort comments to avoid actually understanding and comprehending real world / reality itself. Nonfiction.
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1os5iew/and_just_like_that_its_over/nnvdjqf/
+
+Remembers it being posted many times, but not much else.
+
+https://old.reddit.com/r/CrazyFuckingVideos/comments/1os5iew/and_just_like_that_its_over/nnveroz/
+
+More people observing that reality / real is difficult to recognize now.
