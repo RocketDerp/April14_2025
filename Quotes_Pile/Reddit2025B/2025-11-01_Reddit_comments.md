@@ -1151,3 +1151,7 @@ https://old.reddit.com/r/PoliticalHumor/comments/1oshusn/bob_can_i_bet_0/nnx5vdx
 Elvery god damn antic Trump pulls / just his appearance, is entertainment thrills to the population. We The People have sold our nation out for Reality TV bullshit mocking.
 
 https://old.reddit.com/r/politics/comments/1osknvh/trump_promises_2000_payments_to_most_americans/nny8mfw/
+
+https://old.reddit.com/r/news/comments/1osopqm/usda_tells_states_to_undo_efforts_to_issue_full/nnym64m/
+
+This is the aftermath of Cambridge Analytica mindset changes, IRA. People are in out-group hate feedback loops. The lessons of MLK Jr. abandoned. Neil Postman's media ecology nightmares realized.
