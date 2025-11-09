@@ -1149,3 +1149,5 @@ Entertainment focus. It is this attitude from media audience for sports drama. I
 https://old.reddit.com/r/PoliticalHumor/comments/1oshusn/bob_can_i_bet_0/nnx5vdx/
 
 Elvery god damn antic Trump pulls / just his appearance, is entertainment thrills to the population. We The People have sold our nation out for Reality TV bullshit mocking.
+
+https://old.reddit.com/r/politics/comments/1osknvh/trump_promises_2000_payments_to_most_americans/nny8mfw/
