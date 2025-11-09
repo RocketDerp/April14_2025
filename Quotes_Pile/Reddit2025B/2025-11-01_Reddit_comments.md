@@ -1133,3 +1133,16 @@ Remembers it being posted many times, but not much else.
 https://old.reddit.com/r/CrazyFuckingVideos/comments/1os5iew/and_just_like_that_its_over/nnveroz/
 
 More people observing that reality / real is difficult to recognize now.
+
+https://old.reddit.com/r/politics/comments/1osiy6x/republicans_push_to_strip_zohran_mamdani_of_us/nnxmi0q/
+
+Sports-mentality of why spreading a disease is embraced, why self-harm is cheered on.
+
+https://old.reddit.com/r/politics/comments/1osiy6x/republicans_push_to_strip_zohran_mamdani_of_us/nny6fpe/
+
+As long as there is a religion out-group. Levant monomyth. Torah vs. Quran vs. Bible. Even within Bible, Catholic vs. Protestant. Within Quran, Shia vs. Sunni. It's self-harm brain gap that people don't even recognize. Scince fiction monomyth vs. science fiction monomyth. Media story vs. media story. Fox News media storytellling vs. science reality.
+
+https://old.reddit.com/r/politics/comments/1osiy6x/republicans_push_to_strip_zohran_mamdani_of_us/nnxcnzl/
+
+Entertainment focus. It is this attitude from media audience for sports drama. It is abandonment of nonfiction learning in favor of sports / game mentality toxic competition to "own" the others / out-groups.
+
