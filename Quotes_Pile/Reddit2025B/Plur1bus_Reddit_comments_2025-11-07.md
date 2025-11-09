@@ -69,3 +69,5 @@ https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_sce
 ...
 
 https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_scene_of_ep2_with_the/nnv8xy2/
+
+https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_scene_of_ep2_with_the/nnv7h0r/
