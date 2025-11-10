@@ -99,3 +99,17 @@ https://old.reddit.com/r/CuratedTumblr/comments/1o4ww3t/sources/
 https://old.reddit.com/r/BikiniBottomTwitter/comments/1o9tcyu/connecting_a_chin_for_each_day/
 
 Sponge Bob... https://www.wendysueswanson.com/fast-paced-media-and-4-year-olds-cartoons-on-the-brain/
+
+&nbsp;
+
+&nbsp;
+
+# November 10, 2025
+
+Monday November 10, 2025 situation    
+
+I agree, "We The People" have not stood up to Fox News (support Jen Senko), we did not stand up to the media addiction / Rescue MAGA / Russian information war. Putin won. People are entertained by Trump, entertainment wins. "No Kings" expressed emotion but it did not present a plan to take on Surkov information warfare / IRA / Fox News addiction / media ecology crisis. People don't even recognize we are in Neil Postman's 1985 book "Amusing Ourself To Death" situation around a entertiner (Realty TV The Apprentice). People are standing up to name-call and insult Trump (fat, diaper poop, orange skin, speeaks funny, all caps Twitter, idiot, dumb, stupid, moron). None of this addresses Surkov information warfare since year 2013. People are inside the simulation, not calling out the origins of the simulation.
+
+https://old.reddit.com/r/politics/comments/1otiwkw/senator_who_caved_on_shutdown_says_standing_up_to/
+
+
