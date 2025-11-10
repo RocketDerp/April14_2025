@@ -1030,3 +1030,13 @@ https://youtu.be/zVTkzx0IA1c?t=467
 
 Harvard professor Arthur C. Brooks: You need to be bored.    
 https://www.youtube.com/watch?v=orQKfIXMiA8
+
+&nbsp;
+
+&nbsp;
+
+### Easy way to get thanks
+
+Giving thanks for something that did not happen. How certain audiences behave.
+
+https://youtu.be/TiGvrnzYsSM?t=62
