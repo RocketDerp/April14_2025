@@ -1155,3 +1155,18 @@ https://old.reddit.com/r/politics/comments/1osknvh/trump_promises_2000_payments_
 https://old.reddit.com/r/news/comments/1osopqm/usda_tells_states_to_undo_efforts_to_issue_full/nnym64m/
 
 This is the aftermath of Cambridge Analytica mindset changes, IRA. People are in out-group hate feedback loops. The lessons of MLK Jr. abandoned. Neil Postman's media ecology nightmares realized.
+
+https://old.reddit.com/r/news/comments/1osvyif/bbc_director_resigns_over_editing_of_trump_speech/no0h9rw/
+
+Treating people like children frees them of responsibility. Children are cast as innocent. People constantly call 79 year old Trump a baby / child. They don't see the programming they are parroting. Entertainment-washing, amusement-washing, morality-washing serious stiuations all the time. People are more serous about talking about a fiction TV show like Breaking Bad than they are about factual reality.
+
+https://old.reddit.com/r/news/comments/1osvyif/bbc_director_resigns_over_editing_of_trump_speech/no0b6q4/
+
+https://old.reddit.com/r/news/comments/1osvyif/bbc_director_resigns_over_editing_of_trump_speech/no0d8j0/
+
+https://old.reddit.com/r/news/comments/1osvyif/bbc_director_resigns_over_editing_of_trump_speech/no06mda/
+
+https://old.reddit.com/r/news/comments/1osvyif/bbc_director_resigns_over_editing_of_trump_speech/no08mpd/
+
+https://old.reddit.com/r/news/comments/1osvyif/bbc_director_resigns_over_editing_of_trump_speech/no0agjo/
+
