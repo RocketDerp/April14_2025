@@ -1170,3 +1170,17 @@ https://old.reddit.com/r/news/comments/1osvyif/bbc_director_resigns_over_editing
 
 https://old.reddit.com/r/news/comments/1osvyif/bbc_director_resigns_over_editing_of_trump_speech/no0agjo/
 
+https://old.reddit.com/r/politics/comments/1osz2hl/senate_reaches_deal_on_ending_the_shutdown/no1nwtx/
+
+Never, forever and ever.
+
+https://old.reddit.com/r/politics/comments/1osz2hl/senate_reaches_deal_on_ending_the_shutdown/no12iyi/
+
+https://old.reddit.com/r/politics/comments/1osz2hl/senate_reaches_deal_on_ending_the_shutdown/no0ujyy/
+
+https://old.reddit.com/r/politics/comments/1osz2hl/senate_reaches_deal_on_ending_the_shutdown/no14od3/
+
+Russia didn't just manipulte the minds of MAGA and Republicans. 
+
+https://old.reddit.com/r/politics/comments/1osz2hl/senate_reaches_deal_on_ending_the_shutdown/no0us4v/
+
