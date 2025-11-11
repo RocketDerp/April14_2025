@@ -79,3 +79,8 @@ https://old.reddit.com/r/pluribustv/comments/1os5vtr/i_didnt_get_the_opening_sce
 https://old.reddit.com/r/pluribustv/comments/1os9342/carols_alcoholism_and_subsequent_anger_issues_are/nnvoze5/
 
 ALL RIGHT! YES! SOMEONE IS ON BOARD!
+
+https://old.reddit.com/r/pluribustv/comments/1otmiq6/mark_336/no5w88e/
+
+Bible verse
+
