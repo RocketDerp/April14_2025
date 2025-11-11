@@ -36,3 +36,44 @@ https://old.reddit.com/r/politics/comments/1ou7svh/trump_79_claims_nobody_knows_
 If Trump is so dumb, why can nobody on Reddit turn to Neil Postmn's 1985 book and how it describes Donald Trump as President? I have personally met a dozen *more dumb* people in just the past week! These words "dumb", "stupid", are not describing the Fox News audience, low-effort commeeting Reddit audience, all the topics of Marshall McLuhan's teching! The MEDIUM is the dumbing down, a mob mentality of dumb induced by fiction media attraction, as [Carl Sagan wrote in his book in year 1995 (a decade after Postman's book)](/Quotes_Pile/Carl_Sagan_Quotes.md). ... ... ...       
 "For all his perspicacity, George Orwell would have been stymied by this situation; there is nothing “Orwellian” about it. The President does not have the press under his thumb. The New York Times and The Washington Post are not Pravda; the Associated Press is not Tass. And there is no Newspeak here. Lies have not been defined as truth nor truth as lies. **All that has happened is that the public has adjusted to incoherence and been amused** into indifference. Which is why Aldous Huxley would not in the least be surprised by the story. Indeed, he prophesied its coming. He believed that it is far more likely that the Western democracies will dance and dream themselves into oblivion than march into it, single file and manacled. Huxley grasped, as Orwell did not, that it is not necessary to conceal anything from a public insensible to contradiction and narcoticized by technological diversions. Although Huxley did not specify that television would be our main line to the drug, he would have no difficulty accepting Robert MacNeil’s observation that “Television is the soma of Aldous Huxley’s Brave New World.” [Big Brother turns out to be Howdy Doody](https://en.wikipedia.org/wiki/Howdy_Doody)." ― Neil Postman, Amusing Ourselves to Death: Public Discourse in the Age of Show Business, **year 1985**
 
+https://old.reddit.com/r/ThatsInsane/comments/1ou8zpo/a_full_auto_integrally_surpressed_glock_44_looks/noabev1/
+
+To a "guns are *cool, man*" chucklehead, everything is a joke. Anti-reality of saying it is $200 worth of ammo makes people LOL into a meme stupor. Surkov information warfare, Donald Trump and others dong Tony Clifton performances, blows out mids into joke mindsets / detachment from real reality of life on Earth. We are LIVING INSIDE Neil Postman's 1985 book "Amusing Ourselves To Death with high speed meedi systems, Reddit, Bluesky, TikTok".
+
+https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noamsq0/
+
+I have witnessed many times on Reddit over the decades... people *complaining* that there is not enough advertising and marketing in USA. I used to watch Roger Ebert every week on TV in the 1980's and 1990's to get an idea of interesting films, and I asked people, world of mouth, and researched films before I went. Active seeking. Not letting a marketing trailers. It's like purchasing a video game pre-release based on marketing trailers. It's nonsense! People have no concept that REDDIT ITSELF, authentic users / word of mouth (not fake bots / accounts paid to promote) anymore. And it shows. Peeople trend-chase popularity.
+
+https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noaecik/
+
+Advertising addicts. It explains so much about Trump USA.
+
+https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noaotvd/
+
+People on Reddit love it that society is Hell under constant Trump nonsense. This is Hell. I do not like it.
+
+https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noajtp6/
+
+Media ecology self-awareness. Rare.
+
+https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noaofm7/
+
+Reddit fiction vs. Fox News fiction. Reddit audience vs. Fox News audience.
+
+https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noai6qa/
+
+There are examples of legendary long-term good films were flops at the cinema. There are so many choices of entertainment these days (people are so constantly entertained by Trump White House / Kremlin, video games, ARG).
+
+https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noaolv3/
+
+USA has lost mind. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noah0dc/
+
+Hate motivates, Trump spins hate patterns all over audiences. Tony Clifton shows do that.
+
+https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the_producers_thought_itd_be_a/noafixb/
+
+More cravings for advertisements and marketing. People will go to the next Reddit posting how billionares run the world, then comment about how bad it is that there isn't enough billioanre money spent on advertising a film. People CRAVE billionare society without any self-awareness. When Luigi murders someone with sneak-attack and gun worship December 4, 2024 everyone says helath care is important - but then huge amounts of spare time / free time goes into far less important topics. People do not see they are wasting the power of the pepole. Trump knows how to get crowds to flock to topics, but We the People avoid nonfiction goodness on serious topics (health care). People will not turn to serious nonfiction books and just have smoking Luigi gun worship messages all year 2025. Reddit society eats out of the hands of Trump. Media addicts all. No assertion of goodness, call for sustained focus. ... ... ...     
+“The three Ds—delay, deny, defend—are at the heart of how insurance companies maximize their profits at the expense of their customers.” ― Jay M. Feinman, Delay, Deny, Defend: Why Insurance Companies Don't Pay Claims and What You Can Do About It
+
