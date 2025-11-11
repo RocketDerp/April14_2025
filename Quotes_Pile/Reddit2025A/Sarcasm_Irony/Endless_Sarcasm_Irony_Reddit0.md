@@ -1253,3 +1253,11 @@ https://old.reddit.com/r/CuratedTumblr/comments/1ou81w1/i_had_a_dream_that_i_was
 
 The way white older men are behaving in the USA towards the future of their family (and society)... the anti-love anti-compassion anti-empathy signals by Elon Musk, who claims taht billionaires actively manipulate "mind virus", woke / dream / American Dream / anti MLK Jr "I have a dream"... at a James Joyce media ecology / Pink Floyd "Welcome To The Machine" - we tolkd you wahat to dream level... is this evidence of the Internet Research Agency and Cambridge Analytica payloads? The self-harm programming into minds?
 
+&nbsp;
+
+&nbspl
+
+https://old.reddit.com/r/clevercomebacks/comments/1ou68r1/paperwork_potus_47_style/
+
+it is RIGHT THERE staring Reddit audience in the face! That everything is Twitter, everything is Truth Social, everything is the Reddit audience posting Twitter content on Reddit! [Everything is fucking Media Ecology about Fox News audience / MAGA / Newsmax audience / Trump audience!](/Media_Ecology/Everything_is_ME.md). Alas, the compusive flocking (mass man) of Reddit audience won't face up to Neil Postman's 1985 book.
+
