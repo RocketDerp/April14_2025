@@ -77,3 +77,8 @@ https://old.reddit.com/r/shittymoviedetails/comments/1ou9fta/in_christy_2025_the
 More cravings for advertisements and marketing. People will go to the next Reddit posting how billionares run the world, then comment about how bad it is that there isn't enough billioanre money spent on advertising a film. People CRAVE billionare society without any self-awareness. When Luigi murders someone with sneak-attack and gun worship December 4, 2024 everyone says helath care is important - but then huge amounts of spare time / free time goes into far less important topics. People do not see they are wasting the power of the pepole. Trump knows how to get crowds to flock to topics, but We the People avoid nonfiction goodness on serious topics (health care). People will not turn to serious nonfiction books and just have smoking Luigi gun worship messages all year 2025. Reddit society eats out of the hands of Trump. Media addicts all. No assertion of goodness, call for sustained focus. ... ... ...     
 “The three Ds—delay, deny, defend—are at the heart of how insurance companies maximize their profits at the expense of their customers.” ― Jay M. Feinman, Delay, Deny, Defend: Why Insurance Companies Don't Pay Claims and What You Can Do About It
 
+https://old.reddit.com/r/politics/comments/1oucdr8/confused_trump_79_demands_troop_deployment_over/nobkh3a/
+
+https://old.reddit.com/r/politics/comments/1ou76rl/trumps_rage_over_shutdown_boils_over_in_rant_that/nobv6od/
+
+Surkov governing.
