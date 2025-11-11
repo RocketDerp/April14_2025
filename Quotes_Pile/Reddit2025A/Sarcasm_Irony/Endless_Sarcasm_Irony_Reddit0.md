@@ -1244,3 +1244,12 @@ Steve Bannon, Cambridge Analytica... social media society won't stay focused on 
 https://old.reddit.com/r/agedlikemilk/comments/1orr0jg/his_words_against_his/
 
 Surkovian cotradictory media methods blow the minds out of Reddit audience. People LOL LOL LMAO into a meme stupor. Constnatly stimulated by Surkov message patterns.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1ou81w1/i_had_a_dream_that_i_was_a_woman_beating_my/
+
+The way white older men are behaving in the USA towards the future of their family (and society)... the anti-love anti-compassion anti-empathy signals by Elon Musk, who claims taht billionaires actively manipulate "mind virus", woke / dream / American Dream / anti MLK Jr "I have a dream"... at a James Joyce media ecology / Pink Floyd "Welcome To The Machine" - we tolkd you wahat to dream level... is this evidence of the Internet Research Agency and Cambridge Analytica payloads? The self-harm programming into minds?
+
