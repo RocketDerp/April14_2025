@@ -82,3 +82,7 @@ https://old.reddit.com/r/politics/comments/1oucdr8/confused_trump_79_demands_tro
 https://old.reddit.com/r/politics/comments/1ou76rl/trumps_rage_over_shutdown_boils_over_in_rant_that/nobv6od/
 
 Surkov governing.
+
+https://old.reddit.com/r/TikTokCringe/comments/1ouiy1z/americans_should_definitely_watch_this_right_now/noc9jm3/
+
+Michael Moore's film put forth the case that the DNC screwed Sanders, and Sanders sort of went along with it by quitting at the convention. I can't recall people bringing up Moore's film.
