@@ -87,3 +87,15 @@ Bible verse
 https://old.reddit.com/r/pluribustv/comments/1otn2g5/wondering_if_the_scientists_on_this_subreddit/no805i8/
 
 The ELIZA effect.
+
+https://old.reddit.com/r/pluribustv/comments/1ough2t/why_is_the_hive_mind_only_affected_by_carols/nobiujg/
+
+I think 2025 society has a very warped sense of defending the status quo. Putin and Trump running circles around USA. Trump not only being POTUS once, but now twice. Putin has had a war going since February 2014. The Middle East Palestine / Israel conflict has people all over the world in tears that humanity hasn't found better solution to terrorism. Trump is threatening to take over Canada, Panama, Greenland, etc. Pultin relases videos of London being drowned with nuclear bomb technology. To declare that humanity has good emotonal regulation... there is a fucking reason Carol has a machine regulating her car driving booze level.
+
+https://old.reddit.com/r/pluribustv/comments/1ough2t/why_is_the_hive_mind_only_affected_by_carols/nobhpdv/
+
+Carol is a "Karen"...
+
+https://old.reddit.com/r/pluribustv/comments/1ough2t/why_is_the_hive_mind_only_affected_by_carols/noc30hz/
+
+Mark 3:36 Bible verse
