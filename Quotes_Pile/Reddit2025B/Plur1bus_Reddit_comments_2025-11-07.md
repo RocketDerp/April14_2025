@@ -84,3 +84,6 @@ https://old.reddit.com/r/pluribustv/comments/1otmiq6/mark_336/no5w88e/
 
 Bible verse
 
+https://old.reddit.com/r/pluribustv/comments/1otn2g5/wondering_if_the_scientists_on_this_subreddit/no805i8/
+
+The ELIZA effect.
