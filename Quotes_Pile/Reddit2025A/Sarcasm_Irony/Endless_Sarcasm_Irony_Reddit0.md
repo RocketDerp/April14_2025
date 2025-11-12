@@ -1268,3 +1268,11 @@ it is RIGHT THERE staring Reddit audience in the face! That everything is Twitte
 https://old.reddit.com/r/law/comments/1outcnn/prominent_conservative_judge_resigns_calling/
 
 Yep. And his uniqueness blows the minds of Bluesky and Reddit audiences. His style / fashion / mojo / labedo is such a source of amusment and mocking, minds get blown into simple-think reaction patterns. CA and IRA worsened all that too.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1ov41uy/im_tired_of_bailing_out_idiots/
+
+Meme experts of the world, high speed meme consumers of Reddit, are tired of fighting a information war against Russia that they can't even name or recognize. *Give up on nonfiction, give up on Fox News problem, give up on Facebook rescue, give up on MLK Jr teaching*. Exactly how Russia won since year 2013. The IRA came, kicked the USA into self-centered attacking other Americans... and nobody took on the media ecology techniques that Surkov exploited.
