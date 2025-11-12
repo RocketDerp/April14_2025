@@ -127,3 +127,11 @@ Lots of fun at Finnegans Wake, Babel Tower Climb.
 https://old.reddit.com/r/pluribustv/comments/1ovbma0/about_the_rest_of_the_noninfected_one_that_dont/noho97t/
 
 Lots of "plot hole" claims after 2 episodes of a new show.
+
+https://old.reddit.com/r/pluribustv/comments/1otn2g5/wondering_if_the_scientists_on_this_subreddit/noi5fi2/
+
+Reply to "Power of Myth"
+
+https://old.reddit.com/r/pluribustv/comments/1ove181/helen_in_the_public_house_brings_up_finnegans/noieuys/
+
+Do you speak English,motherfucker? Read Joyce?
