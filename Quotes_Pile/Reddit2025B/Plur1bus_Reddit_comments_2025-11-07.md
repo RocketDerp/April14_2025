@@ -99,3 +99,16 @@ Carol is a "Karen"...
 https://old.reddit.com/r/pluribustv/comments/1ough2t/why_is_the_hive_mind_only_affected_by_carols/noc30hz/
 
 Mark 3:36 Bible verse
+
+https://old.reddit.com/r/pluribustv/comments/1oup3og/in_now_understand_how_clark_kent_had_everybody/nod8ckd/
+
+Entire posting is about the media ecology of book reading *The Wake* vs. speed-watching a film. This show is made for rewatch / replay / rewind.
+
+https://old.reddit.com/r/pluribustv/comments/1ov761s/tonal_whiplash/nogq384/
+
+Finnegans Wake, Helen quit reading in graduate school.
+
+https://old.reddit.com/r/pluribustv/comments/1ov761s/tonal_whiplash/nogqsy8/
+
+Finnegans Wake page 3, people quit.
+
