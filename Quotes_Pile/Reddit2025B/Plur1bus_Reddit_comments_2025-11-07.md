@@ -115,3 +115,7 @@ Finnegans Wake page 3, people quit.
 https://old.reddit.com/r/pluribustv/comments/1ovawyz/what_do_you_think_is_happening_in_the_karolina/nohhkb1/
 
 Unreality warfare? Drunk Carol audience member? Joke / humor?
+
+https://old.reddit.com/r/pluribustv/comments/1ovawyz/what_do_you_think_is_happening_in_the_karolina/nohhoyo/
+
+Another person suggests joke.
