@@ -100,3 +100,11 @@ https://old.reddit.com/r/politics/comments/1ov9zem/white_house_outs_unnamed_vict
 https://old.reddit.com/r/todayilearned/comments/1ov6n4s/til_philip_pullman_was_accused_of_being_the_most/nogo6as/
 
 James Joyce has the Romans 11:32 tailpipe bomb to Bible verse "1 John 4:20" concerns.
+
+https://old.reddit.com/r/PublicFreakout/comments/1ov5ziq/idf_rapists_who_were_on_leaked_video_gangraping_a/nogma90/
+
+To many people, humanity is an out-group team sport and dominating the failures / non-winner is their desire in life.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1ovd2jo/no_debate_no_publicity_just_gone/noipjoz/
+
+Everyone in USA flocking to the shallow and superficial mindset pools crafted by IRA and CA since year 2013.
