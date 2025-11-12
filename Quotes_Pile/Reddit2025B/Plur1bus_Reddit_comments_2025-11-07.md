@@ -119,3 +119,11 @@ Unreality warfare? Drunk Carol audience member? Joke / humor?
 https://old.reddit.com/r/pluribustv/comments/1ovawyz/what_do_you_think_is_happening_in_the_karolina/nohhoyo/
 
 Another person suggests joke.
+
+https://old.reddit.com/r/pluribustv/comments/1ovbma0/about_the_rest_of_the_noninfected_one_that_dont/nohmc7v/
+
+Lots of fun at Finnegans Wake, Babel Tower Climb.
+
+https://old.reddit.com/r/pluribustv/comments/1ovbma0/about_the_rest_of_the_noninfected_one_that_dont/noho97t/
+
+Lots of "plot hole" claims after 2 episodes of a new show.
