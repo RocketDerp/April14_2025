@@ -97,6 +97,4 @@ Social media thinks that media didn't bring it to the front page of social media
 
 https://old.reddit.com/r/politics/comments/1ov9zem/white_house_outs_unnamed_victim_in_bombshell/nohgt67/
 
-https://old.reddit.com/r/pluribustv/comments/1ove181/helen_in_the_public_house_brings_up_finnegans/noieuys/
 
-Do you speak English,motherfucker? Read Joyce?
