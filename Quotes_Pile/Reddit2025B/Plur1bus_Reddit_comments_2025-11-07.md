@@ -147,3 +147,14 @@ https://old.reddit.com/r/pluribustv/comments/1ove181/helen_in_the_public_house_b
 https://old.reddit.com/r/pluribustv/comments/1ove181/helen_in_the_public_house_brings_up_finnegans/noijbm4/
 
 Block-happy media ecoloyg, Wake media ecology.
+
+https://old.reddit.com/r/pluribustv/comments/1ovguno/what_if_literally_everything_is_fake/noiqwnc/
+
+Proving humanity has free will in the first place.... https://www.youtube.com/watch?v=TI5FMj5D9zU
+
+https://old.reddit.com/r/pluribustv/comments/1ovguno/what_if_literally_everything_is_fake/noiu259/
+
+https://old.reddit.com/r/pluribustv/comments/1ovhpdj/pluribus_as_a_critique_of_paradise/noj5zw9/
+
+Wanted to capture the posting message.
+
