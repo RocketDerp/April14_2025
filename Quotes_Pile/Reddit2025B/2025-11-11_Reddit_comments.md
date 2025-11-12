@@ -97,4 +97,6 @@ Social media thinks that media didn't bring it to the front page of social media
 
 https://old.reddit.com/r/politics/comments/1ov9zem/white_house_outs_unnamed_victim_in_bombshell/nohgt67/
 
+https://old.reddit.com/r/todayilearned/comments/1ov6n4s/til_philip_pullman_was_accused_of_being_the_most/nogo6as/
 
+James Joyce has the Romans 11:32 tailpipe bomb to Bible verse "1 John 4:20" concerns.
