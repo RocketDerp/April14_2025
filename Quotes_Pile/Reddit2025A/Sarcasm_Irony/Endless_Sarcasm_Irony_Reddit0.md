@@ -1261,3 +1261,10 @@ https://old.reddit.com/r/clevercomebacks/comments/1ou68r1/paperwork_potus_47_sty
 
 it is RIGHT THERE staring Reddit audience in the face! That everything is Twitter, everything is Truth Social, everything is the Reddit audience posting Twitter content on Reddit! [Everything is fucking Media Ecology about Fox News audience / MAGA / Newsmax audience / Trump audience!](/Media_Ecology/Everything_is_ME.md). Alas, the compusive flocking (mass man) of Reddit audience won't face up to Neil Postman's 1985 book.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1outcnn/prominent_conservative_judge_resigns_calling/
+
+Yep. And his uniqueness blows the minds of Bluesky and Reddit audiences. His style / fashion / mojo / labedo is such a source of amusment and mocking, minds get blown into simple-think reaction patterns. CA and IRA worsened all that too.
