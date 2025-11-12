@@ -141,3 +141,5 @@ https://old.reddit.com/r/pluribustv/comments/1ove181/helen_in_the_public_house_b
 Multiple interpretations of story, Finnegans Wake itself.
 
 https://old.reddit.com/r/pluribustv/comments/1ove181/helen_in_the_public_house_brings_up_finnegans/noihfvi/
+
+https://old.reddit.com/r/pluribustv/comments/1ove181/helen_in_the_public_house_brings_up_finnegans/noii4w1/
