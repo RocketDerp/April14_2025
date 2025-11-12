@@ -117,4 +117,7 @@ https://old.reddit.com/r/law/comments/1ovez9s/epstein_files_live_updates_gop_law
 
 https://old.reddit.com/r/Fauxmoi/comments/1ovabrh/ariana_greenblatt_likes_instagram_post_comparing/nohizp3/
 
+https://old.reddit.com/r/Fauxmoi/comments/1ovf1zq/1992_footage_shows_trump_epstein_and_ghislaine/noieg7u/
+
+The only real questions left are why so many people since year 2013 can't focus on serious topics they claim are important. Neil Postman's 1985 answers it, IRA and CA answer it. Everyone latched on the most banal and superficial mocking, blowing their minds out on insulting and mockery.
 
