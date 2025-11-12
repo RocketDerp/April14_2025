@@ -108,3 +108,13 @@ To many people, humanity is an out-group team sport and dominating the failures 
 https://old.reddit.com/r/PoliticalHumor/comments/1ovd2jo/no_debate_no_publicity_just_gone/noipjoz/
 
 Everyone in USA flocking to the shallow and superficial mindset pools crafted by IRA and CA since year 2013.
+
+https://old.reddit.com/r/law/comments/1ovez9s/epstein_files_live_updates_gop_lawmakers_release/noicr2k/
+
+Year 2018... when it was disclosed BEFORE the December 2019 COVID-19 pandemic that Russia was mind-fucking people since year 2014. https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/law/comments/1ovez9s/epstein_files_live_updates_gop_lawmakers_release/noivefd/
+
+https://old.reddit.com/r/Fauxmoi/comments/1ovabrh/ariana_greenblatt_likes_instagram_post_comparing/nohizp3/
+
+
