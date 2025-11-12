@@ -90,3 +90,13 @@ Michael Moore's film put forth the case that the DNC screwed Sanders, and Sander
 https://old.reddit.com/r/TikTokCringe/comments/1ouiy1z/americans_should_definitely_watch_this_right_now/nocetew/
 
 I do not agree. If there is design, it is Rupert Murdoch fiction storytelling and Putin IRA fiction storytelling. I think it's self-harm. I think expectations of 25% growth every year for corporations and stock market is unrealistic and we have been eating and wrecking our seedcorn, children's future. Climate change, housing, marriages (housing). I think Neil Postman's 1985 book "Amusing Ourselves To Death" is correct. This isn't design since 1985, it's an addiction behavior to sports / entertainment. And people won't stand up for goodness because mocking and insulting Trump is entertainment. Goodness is boring, nonfiction is boring to people.
+
+https://old.reddit.com/r/politics/comments/1ov9zem/white_house_outs_unnamed_victim_in_bombshell/nohntms/
+
+Social media thinks that media didn't bring it to the front page of social media. Russia won, Surkov won since year 2013. USA population doesn't get the first fucking thing about media ecology. Minds are blown out on Reddit in mocking and insulting, Trump runs circles around Reddit society.
+
+https://old.reddit.com/r/politics/comments/1ov9zem/white_house_outs_unnamed_victim_in_bombshell/nohgt67/
+
+https://old.reddit.com/r/pluribustv/comments/1ove181/helen_in_the_public_house_brings_up_finnegans/noieuys/
+
+Do you speak English,motherfucker? Read Joyce?
