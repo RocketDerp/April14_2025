@@ -1284,3 +1284,11 @@ Meme experts of the world, high speed meme consumers of Reddit, are tired of fig
 https://old.reddit.com/r/MurderedByWords/comments/1ovapbf/what_fucking_bible_are_you_reading/
 
 Front page of Reddit, we have a Bible literacy crisis, and people (We The People, rescue USA) won't take it serious and start teaching remedial Bible lessons on social media.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1ow7l5z/seriously_what_more_do_you_need_to_see_from_this/
+
+Reddit audience mind blown by "WTF" all the time. But fails to see the billionares (Rupert Murdoch, Twitter Musk, Reddit owners) are blowing the minds via Fox News, Facebook, etc. Media addicts can't see the addiction to having an anemy. The addiction to out-group hate in the Levant religion clergy / venues.
