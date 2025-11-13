@@ -1040,3 +1040,15 @@ https://www.youtube.com/watch?v=orQKfIXMiA8
 Giving thanks for something that did not happen. How certain audiences behave.
 
 https://youtu.be/TiGvrnzYsSM?t=62
+
+&nbsp;
+
+&nbsp;
+
+# Surfing the Mass Man minds
+
+Marshall McLuhan's "Mass Man".
+
+Surfing mass man. What McLuhan had to say about advertising / marketing.  
+
+https://old.reddit.com/r/KitchenConfidential/comments/1ow6t3v/well_it_was_fun_while_it_lasted/
