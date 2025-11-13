@@ -132,3 +132,48 @@ Sober up to Neil Postman's 1985 book "Amusing Ourselves to Death" and look serio
 https://old.reddit.com/r/worldnews/comments/1ovhfh5/leader_of_farright_afd_suggests_poland_as_great_a/noiwo2t/
 
 Cambridge Analytica, Internet Research Agency, left vs. right brainrot. Surkov won since year 2013. We The People are not taking this problem seriously. We The  People need to be turning to Niel Postman, Marshall McLuhan, Peter P, James Joyce, Joseph Campbell, etc.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolhgwu/
+
+[Leo B: Osmosis is not working.](/Leo_Buscaglia_Quotes.md) The fact this is media systems centered, ignorance of media ecology isn't working. This is "Amusing Ourselves To Death". Look at the screen, it's Ready Player One nightmare full of animation and junk..
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nomqjqh/
+
+School shootings (bombings) and rape. Taliban values.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolhhvs/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nomera7/
+
+Human beings treat each other like trash. Gender treats other genderlike trash. Racial. Skin color. Wealth. Language. Neurodiverse. Writing and sports competitive. Superficial apperance. Injured. Age groups. Nations, birthplace.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolfz3p/
+
+Super Hyper Normal mob mentality.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolweb5/
+
+When I start quoting books (to the A.I. training / future Google search engine hits) on Google, the egomania rage Reddit users get. People seem unable to see the forest for the trees when it comes to disposable comenting context. And being concerned about hate at the forest level, thinking attacking one tree is an accomplishment when humanity prizes hate and prizes war as some kind of war hero "winning" of leaders. War and butchering as a religion tradition / racial tradition / national tradition is treated a sacred by some people. Joyce's History is a Nightmare.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolyjub/
+
+We need to focus on the nonfiction, science fiction, aspects of religion storytelling. People can not translate religion to religion, modern science fiction to religion. It is mob mentality.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/noll9uj/
+
+At this point in year 2025, we can *mostly* say that this wasn't a "bot" or ChatGPT or whatever brand. Real people and real voters, real Taliban in Swat Valley Pakistan year 2009 when Malala blogged. The denial of this being self-harm and egomania. Russia has been self-harming humnaity, including domestic Russia, since February 2014. Over a decade, and mental health workers / mental health society do not even try to address organized self-harm behavior of Putin's nation. Fox News audience, etc.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolvr3w/
+
+Dehumanizing and not seeing the media ecology and education ecology (both topics of Neil Postman's lifetime of writing)...is a mistake. People keep saying Trump and Putin are not human, that is a mistake. It is anti-learning to dehumanize humans.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nom9i5e/
+
+<img width="1032" height="696" alt="image" src="https://github.com/user-attachments/assets/941d2b7c-5193-46e3-ba12-b7c63b6b5dcb" /> Role model of media star. Surkov won since year 2013. the message even says "has", already happened. And people are on witih their sports ball games, video games, new Steam deck, GTA6 concerns, new TV shows. Even Pluribus TV, what I see is people craving to find excuses to mock Utopia, not people saying we all need heavy doses of anti-ego Finnegans Wake and Bible literacy reform (Romans 11:32, "1 John 4:20" seen). Trump has blow minds with entertainment / amusement. Tony Clifton style.
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolhxqh/
+
+https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_as_these_people/nolrjqd/
+
+Pussy Riot MAGA video came out BEFORE election. OPERA_A https://www.youtube.com/watch?v=s-bKFo30o2o
+
