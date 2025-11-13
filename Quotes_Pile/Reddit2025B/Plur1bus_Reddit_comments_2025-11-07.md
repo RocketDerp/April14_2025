@@ -167,3 +167,11 @@ https://old.reddit.com/r/pluribustv/comments/1ovbbp9/does_carol_have_no_friends_
 https://old.reddit.com/r/pluribustv/comments/1ovos3y/there_is_no_way_the_noninfected_would_be_that/nokenqo/
 
 The confidence that it is forever impossible to remove a person / unplug from The Matrix.
+
+https://old.reddit.com/r/pluribustv/comments/1ovwwus/my_thoughts_as_a_microbial_scientist/nolyv1c/
+
+Capture this post. The medical science stuff will probably get blogged / attention / videos. The blunder, very human. Umbilicle point as Campbells says. Eve eating the fruit, breaking the rules.
+
+https://old.reddit.com/r/pluribustv/comments/1ovwwus/my_thoughts_as_a_microbial_scientist/nomfkk8/
+
+Radio signal secrecy topic.
