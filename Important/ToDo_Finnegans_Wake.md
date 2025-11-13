@@ -356,3 +356,11 @@ https://old.reddit.com/r/ExtraFabulousComics/comments/1or2ra9/making_comics/
 
 How much time wasted on misreading Joyce? "Love one another"   
 Minds takes reprogramming, but chase real love too.    
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/HistoryMemes/comments/1ovsdh3/balkans_vs_arab_world/
+
+Tower of Babel. Arab Spring. Rajaa.
