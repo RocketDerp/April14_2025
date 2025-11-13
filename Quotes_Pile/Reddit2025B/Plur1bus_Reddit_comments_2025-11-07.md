@@ -164,3 +164,6 @@ Tower of Babel hate-warrior. Plain spoken Joseph Campbell language not good enou
 
 https://old.reddit.com/r/pluribustv/comments/1ovbbp9/does_carol_have_no_friends_or_loved_ones_left_on/nojrk5n/
 
+https://old.reddit.com/r/pluribustv/comments/1ovos3y/there_is_no_way_the_noninfected_would_be_that/nokenqo/
+
+The confidence that it is forever impossible to remove a person / unplug from The Matrix.
