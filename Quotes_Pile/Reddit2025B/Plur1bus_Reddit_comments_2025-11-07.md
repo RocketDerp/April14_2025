@@ -158,3 +158,6 @@ https://old.reddit.com/r/pluribustv/comments/1ovhpdj/pluribus_as_a_critique_of_p
 
 Wanted to capture the posting message.
 
+https://old.reddit.com/r/pluribustv/comments/1ovbbp9/does_carol_have_no_friends_or_loved_ones_left_on/noji6wf/
+
+Tower of Babel hate-warrior. Plain spoken Joseph Campbell language not good enough.
