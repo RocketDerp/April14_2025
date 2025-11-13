@@ -177,3 +177,35 @@ https://old.reddit.com/r/CringeTikToks/comments/1ovted6/we_breathe_the_same_air_
 
 Pussy Riot MAGA video came out BEFORE election. OPERA_A https://www.youtube.com/watch?v=s-bKFo30o2o
 
+https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgiving_with_trump_during/nomh1kh/
+
+People openly block each other, with loud pride, on meme sites. People can't even communicate in public. If there was a "kill with space laser gun" button for FREE, to press, next to the "block" button on Bluesky and Reddit, it would be a bloodbath. If there was no cost, penalty, punishment or time to file paperwork for killing a person over egoism / egomania on meme devices. Meme mania runs this nation, Trump is a HDTV addict. He can'tstand "fake news" egomania / filter-bubble any more than many Bluesky users. There is no morality preaching going to front page of USA because it all would get blocked. TRUMP defines morality for all ages. Rupert Murdoch defines morality.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgiving_with_trump_during/non0b0s/
+
+Celebration of Ignorance.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgiving_with_trump_during/nomhewz/
+
+Everyone knows Putin manipulated minds, but nobody can name Russia's Internet Research Agency and describe what they did! People know predatory Fox News alters minds and behaiors, but nobody can name Neil Postman's relevant books. People do not take media ecology seriously. Despite every adedict holding a touch device with intimate love.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgiving_with_trump_during/nomwl9g/
+
+<img width="1112" height="488" alt="image" src="https://github.com/user-attachments/assets/cdb95307-34d3-4293-bbbc-4bdc5f93057a" /> Why vote for the bad guy? Because Internet Research Agency and Cambridge Analytica convinced people, won hearts and minds, that entertainment prizing and winning by insult and mocking was the best thing ever created. High speed meme delivery systems. Reddit-society "milks the LOL cow" of Donald Trump constantly for amusement.
+
+https://old.reddit.com/r/NoFilterNews/comments/1ovzwoo/epstein_spent_thanksgiving_with_trump_during/nomjf5x/
+
+<img width="1184" height="362" alt="image" src="https://github.com/user-attachments/assets/4106cd37-5eab-431e-a529-c00e5bc3bf87" /> People *defend* Trump because he entertains constantly. Trump provides constant stimulation to meme devices. No information network in human history has ever been created to delivery so much worship of antics. Insulting, mocking, mockery. High speed meme delivery systems. Reddit-society "milks the LOL cow" of Donald Trump constantly for amusement. Neil Postman's 1985 book, media ecology, is correct!
+
+https://old.reddit.com/r/CringeTikToks/comments/1ow4f7x/host_of_the_whatever_podcast_gets_big_mad_when_a/nondyrb/
+
+Reddit society avoids Malala. Year 2013 Malala was onthe world stage, **so was Trump - doing a sex show in Moscow** November 8, 2013. Reddit flox to the sex man having meltdowns, just like this frontpage Reddt clip just now. "The extremists are afraid of books and pens. The power of education frightens them. They are afraid of women. The power of the voice of women frightens them." - July 12, 2013 https://malala.org/news-and-voices/malala-un-speech
+
+https://old.reddit.com/r/StandUpComedy/comments/1ow115s/what_not_to_say_to_a_disabled_comedian/nomu110/
+
+Try having autism and speaking to an audience on Bluesky or Reddit, nothing is authentic to people who bleieve you fake your thinking differences and interpertation differnces and faked your world travel to live in South America, Africa, Middle East. Like I faked my secondmarriage, people do not engage with factual reality. Fox News nation, meme nation, Twitter nation, Reddit hive mind thinking nation. Trump rules via Surkov techniques... beause nonfiction and reality is no longer popular since year 2013.
+
+https://old.reddit.com/r/SipsTea/comments/1ow0lzo/nailed_it/nomngrd/
+
+<img width="1036" height="552" alt="image" src="https://github.com/user-attachments/assets/534ccfd6-3619-44d3-a45a-6445dbfcf090" /> Moron trolling. Hate output. ["Operation Matthew 4:19"](/Operation_Matthew_4_19_on_monday_2024-03-31.md) since year 2013 against the USA. People eat that shit up, Kremlin meme enthuiasts. Everything is egomania of peer to peer insulting and mocking others as morons / stupid / dumb / idioit. Constant faith in calling Trump a moron,eatingthe Surkovian onions and Tony Clifton performances. People can not resist *milking the insult cow* of Trump. Golf outings, diaper poop, orange skin, they never get enough entertainment off Trump / MAGA. Infinite Jest since  June 16, 2015. Impossible someone can be so bad (Tony Clifton at Harrah's Reno clip). No one can be that backwards in reading Bible verse "1 John 4:20" and "1 John 3:17" - denial abounds.
+
