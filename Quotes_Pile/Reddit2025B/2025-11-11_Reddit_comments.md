@@ -121,3 +121,14 @@ https://old.reddit.com/r/Fauxmoi/comments/1ovf1zq/1992_footage_shows_trump_epste
 
 The only real questions left are why so many people since year 2013 can't focus on serious topics they claim are important. Neil Postman's 1985 answers it, IRA and CA answer it. Everyone latched on the most banal and superficial mocking, blowing their minds out on insulting and mockery.
 
+https://old.reddit.com/r/pcmasterrace/comments/1ovgm36/we_finally_got_it/noj3z73/
+
+https://old.reddit.com/r/pcmasterrace/comments/1ovgm36/we_finally_got_it/noji1jh/
+
+https://old.reddit.com/r/news/comments/1ovo4er/deal_to_end_longest_government_shutdown_in/nok9na7/
+
+Sober up to Neil Postman's 1985 book "Amusing Ourselves to Death" and look seriously at what "meme life" has done to society. Trump entertains mocking people into stupors of constantly reacting to President Tony Clifton antics and communications.
+
+https://old.reddit.com/r/worldnews/comments/1ovhfh5/leader_of_farright_afd_suggests_poland_as_great_a/noiwo2t/
+
+Cambridge Analytica, Internet Research Agency, left vs. right brainrot. Surkov won since year 2013. We The People are not taking this problem seriously. We The  People need to be turning to Niel Postman, Marshall McLuhan, Peter P, James Joyce, Joseph Campbell, etc.
