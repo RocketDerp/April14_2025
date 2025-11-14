@@ -209,3 +209,31 @@ https://old.reddit.com/r/SipsTea/comments/1ow0lzo/nailed_it/nomngrd/
 
 <img width="1036" height="552" alt="image" src="https://github.com/user-attachments/assets/534ccfd6-3619-44d3-a45a-6445dbfcf090" /> Moron trolling. Hate output. ["Operation Matthew 4:19"](/Operation_Matthew_4_19_on_monday_2024-03-31.md) since year 2013 against the USA. People eat that shit up, Kremlin meme enthuiasts. Everything is egomania of peer to peer insulting and mocking others as morons / stupid / dumb / idioit. Constant faith in calling Trump a moron,eatingthe Surkovian onions and Tony Clifton performances. People can not resist *milking the insult cow* of Trump. Golf outings, diaper poop, orange skin, they never get enough entertainment off Trump / MAGA. Infinite Jest since  June 16, 2015. Impossible someone can be so bad (Tony Clifton at Harrah's Reno clip). No one can be that backwards in reading Bible verse "1 John 4:20" and "1 John 3:17" - denial abounds.
 
+https://old.reddit.com/r/PoliticalHumor/comments/1ow3qmh/trump_dismisses_criticism_for_not_meeting_with/nonizss/
+
+The core of Surkov population exploitatio. Mind-fucking the mass mind / hive mind. Reddit eats it up. Reddit makes it into a contest of popularity in out-satire Trump, to satire-wash Trump as a source of amusement and entertainment. Compulsive satire addicts society.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1ow3qmh/trump_dismisses_criticism_for_not_meeting_with/non8zz3/
+
+Blown minds on Reddit audience by a short tiny message. How Russia won the information war, blowing minds into meme stupors. "Amusing Ourselves To Death" 1985 theory proven.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1ow3qmh/trump_dismisses_criticism_for_not_meeting_with/nonjuti/
+
+Rescue Ivanka, save the world. Save the Putin cheerleaders, save the world.
+
+https://old.reddit.com/r/worldnews/comments/1owdxph/trump_administration_designates_4_leftwing/nopew13/
+
+Reddit audience throws out the most simple tiny-short messages on cults. Absence of details on cults. No author names, no book titles, no links, not even a quote. Just serious claims without being serious about them. This has been going on for over a decade. Millions of disposable low-effort commenting and back to memes and entertainment amusements as usual.
+
+https://old.reddit.com/r/worldnews/comments/1owdxph/trump_administration_designates_4_leftwing/nopl773/
+
+The distraction is the new Steam Deck from valve, hanger GTA6 delays, sports ball games, kitten images every hour on /r/All - the distraction is the touchm media devices.
+
+https://old.reddit.com/r/worldnews/comments/1owdxph/trump_administration_designates_4_leftwing/nopdn8y/
+
+Only one signal man, fixated. This problem goes way beyond one single person. Cambridge Analytica and Internet Research Agency...
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1owcrfq/yep_its_my_fault_but_damn_theyre_coming_for_me/nop7dwi/
+
+The Twitter posting image: I get that every single person in the USA hates. That hate is our national religion. I get that hate is what matters most.
+
