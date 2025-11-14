@@ -378,3 +378,9 @@ The Reality of Reality TV. The reality of seeking popularity (TV) and needing mo
 https://old.reddit.com/r/Fauxmoi/comments/1oww1br/melinda_french_gates_says_her_divorce_from_bill/
 
 Choice marriage honesty of rich and famous people often not keeping secrets due to press coverage / fame. Romans 11:32 sin bravely. People not forgiving. Teaching socieety a lesson.
+
+&nbsp;
+
+https://old.reddit.com/r/Music/comments/1ox4u5i/bad_bunny_shares_defiant_declaration_to_ice_after/
+
+Using NYC Neil Postman, NYC Howard Bloom, Texan Rick Roderick of Duke University, etc.
