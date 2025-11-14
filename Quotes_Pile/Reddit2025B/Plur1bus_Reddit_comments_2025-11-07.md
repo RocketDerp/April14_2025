@@ -367,3 +367,7 @@ CAMPBELL: Yes, but what is unfortunate for us is that a lot of the **people who 
 BILL MOYERS: We have none of those rites today, do we?
 
 JOSEPH CAMPBELL: I’m afraid we don’t. So the youngsters invent them themselves, and you have **these raiding gangs**, and so forth — that is self-rendered initiation.
+
+https://old.reddit.com/r/pluribustv/comments/1ox9g28/prediction_the_hive_is_going_to_turn_hostile_by/now4kmf/
+
+Invoke a nonfiction serious book on Reddit, and you get people insulting nonfiction authors. Fiction addiction rules society. People want hate-inspiring content, Walter White Health Care cancer treatment and Rupert Murdoch Fox News media!
