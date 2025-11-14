@@ -1308,3 +1308,12 @@ Blows out minds, puts people into silly gigles. Meme stupor induced. Reddit audi
 https://old.reddit.com/r/Funnymemes/comments/1owwhw1/the_best_of_both_worlds/
 
 All over this github you will see me making this point: Year 2012, year 2013 Malala on the world stage for 18 months. Malala Swat Valley Pakistan "trailer park" book published October 8, 2013 - one month later... November 8, 2013 Trump is in Moscow for Miss Universe showing off hot girls who live poor and are serving white male Putina nd Trump. Society seriously cares about "Epstein List" because it is private jets, rich white men, sex affairs. Malala as a social media assertion is avoided. And MALALA deals with terrorism (October 7, 2023 a decade after her book), reformof Islam, Iran women, abortion rights (pro abortion on Malala fund website) for adult women, etc, ,etc, etc. Pro-science education. Not just SEX, but giving blog voices to young girls to DEFEND against the wealth lords like Musk / Putin / Trump / Murdoch! But Reddit can not see this addiciton to rich white men mocking and all the repetition essaging over "Epsten" - and not giving even MORE SERIOUS attention to Malala's girls. People are attracted to the the entertainment Tony Clifton amusement "milking the LOL cow" of Trump more than dealing with the power imbalance between trailer park and NYC penthouse kids.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ox5iey/this_math_aint_mathing/
+
+People eat this shit as amuseement material every day. They grin an beg for more of this shit to LOL milk. It isn't funny! This is everything Neil Postman wrote about in 1985 book "Amusing Ourselves To Death", it is not amusing! This is Finnegans Wake media ecology, year 1924 onward. This is Tower of Babel in your face. People are living different realites based on the filter bubble ofmedia they consume. There is no winning with child sex, this is all about media consumption. The AUDIENCE of voters isn't all having sex with thier 13 year olds, or it isn't being documented? But one thing IS DOCUMENTED - the *media ratings* of Reddit, Facebook, Bluesky, Fox News, Church donations. People are all getting widly conflicting views of language itself.
+
