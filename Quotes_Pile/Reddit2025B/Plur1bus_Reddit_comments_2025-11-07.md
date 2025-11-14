@@ -351,3 +351,19 @@ Media ecology of Reddit upvoting metaphor!!!!
 https://old.reddit.com/r/pluribustv/comments/1ox9utd/theory_the_reason_why_they_will_move_heaven_and/novslr4/
 
 My own comment.
+
+https://old.reddit.com/r/pluribustv/comments/1ox9g28/prediction_the_hive_is_going_to_turn_hostile_by/novxf67/
+
+A media addict who doesn't care if Trump and Putin rule the world and The Lord of the Rings inspires people to join Sauron. That the media clergy of science fiction (Bible is science fiction) teaches equality of good and evil and choose whichever you wish.
+
+I think the real world is proving the Skywalker Ranch 1985 / 1986 / 1987 lessons correct that were filmed by George Lucas. Published in 1988, "The Power Of Myth".
+
+Notable that Bill Moyers worked staff in the White House, studied the meaning of Pluribus. He isn't just any interviewer.
+
+BILL MOYERS: No, but given the absence of initiation rituals, which have largely disappeared from our society, the world of imagination as projected on that screen serves, even if in a faulty way, to tell that story, doesn’t it?
+
+CAMPBELL: Yes, but what is unfortunate for us is that a lot of the **people who write these stories do not have the sense of their responsibility.** These stories are making and breaking lives. But the movies are made simply to make money. The kind of **responsibility that goes into a priesthood** with a ritual is not there. That is one of our problems today.
+
+BILL MOYERS: We have none of those rites today, do we?
+
+JOSEPH CAMPBELL: I’m afraid we don’t. So the youngsters invent them themselves, and you have **these raiding gangs**, and so forth — that is self-rendered initiation.
