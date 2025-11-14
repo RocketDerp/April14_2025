@@ -347,3 +347,7 @@ Joyce... History is a Nightmware... Wake.
 https://old.reddit.com/r/pluribustv/comments/1ox3hbo/probably_the_most_accurate_part_of_ep_3/noukltr/
 
 Media ecology of Reddit upvoting metaphor!!!!
+
+https://old.reddit.com/r/pluribustv/comments/1ox9utd/theory_the_reason_why_they_will_move_heaven_and/novslr4/
+
+My own comment.
