@@ -285,3 +285,33 @@ Connecting with the real world more...
 https://old.reddit.com/r/pluribustv/comments/1owq4im/carol_dui_boozer_public_house_episode_1_finnegans/noskeg3/
 
 Woke to the media ecology. This show will have waves of Reddit users / repeat cycles.
+
+https://old.reddit.com/r/pluribustv/comments/1owwnkh/hiveminds_advocate_the_hivemind_are_conscious/not42nj/
+
+The posting this comment is on is worth a capture. I think many people don't really see how much technology alone creats a hive mind / how different life is from year 1850 to 2025. 
+
+https://old.reddit.com/r/pluribustv/comments/1owxsi8/why_isnt_carol_more_curious/notawzt/
+
+People watching a TV show for entertainment are very disconnected from the reality of *living that character*. People try to *read* Finnegans Wake, not **EXPERIENCE***. Campbell, The Power Of Myth: "The mystery has been reduced to a set of concepts and ideas, and emphasizing these concepts and ideas can short-circuit the transcendent, connoted experience. An intense experience of mystery is what one has to regard as the ultimate religious experience."
+
+https://old.reddit.com/r/pluribustv/comments/1owxsi8/why_isnt_carol_more_curious/notdy7l/
+
+Post-satire, post-irony, satire-poisoning.  The year 1940 film with Charlie Chaplin, The Great Dictator. It comes to mind in better-written words than my own: "I don’t want to rule or conquer anyone. I should like to help everyone - if possible - Jew, Gentile - black man - white. We all want to help one another. Human beings are like that. We want to live by each other’s happiness - not by each other’s misery. We don’t want to hate and despise one another. In this world there is room for everyone. And the good earth is rich and can provide for everyone. The way of life can be free and beautiful, but we have lost the way. Greed has poisoned men’s souls, has barricaded the world with hate, has goose-stepped us into misery and bloodshed. We have developed speed, but we have shut ourselves in. Machinery that gives abundance has left us in want. Our knowledge has made us cynical. Our cleverness, hard and unkind. We think too much and feel too little. More than machinery we need humanity. More than cleverness we need kindness and gentleness."
+
+https://old.reddit.com/r/pluribustv/comments/1owxsi8/why_isnt_carol_more_curious/notju3i/
+
+Not only hates her book, mocks her audience, manipulates the bookstore at the airport. Taking pills and boozing.
+
+https://old.reddit.com/r/pluribustv/comments/1owxsi8/why_isnt_carol_more_curious/notex1u/
+
+yes. millitant. 
+
+https://old.reddit.com/r/pluribustv/comments/1owxsi8/why_isnt_carol_more_curious/notckhm/
+
+<img width="950" height="326" alt="image" src="https://github.com/user-attachments/assets/678deafc-ebfe-46b0-9f3b-ca20deb39f2f" /> YES! EXACTLY! At 23 minutes into episode 1, at the Public House bar, the book by James Joyce is introduced by Helen. There is no begin or end to Finnegans Wake, you are thrown into the deep end of the swimming pool. You are not told who the characters are, who is speaking, etc.
+
+Helen then goes into the parking lot, opens LOL social media, and falls backwards and cracks her head like Tim Finnegan.
+
+Finnegans Wake is the most powerful book ever created by humanity about media ecology. It is a slap in the audience face in episode 1. It ends the whole world. This story is about a **book author and a book publisher, married Helen and Carol.**
+
+"Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan (University of Toronto), Newsweek Magazine, p.56, February 28, 1966
