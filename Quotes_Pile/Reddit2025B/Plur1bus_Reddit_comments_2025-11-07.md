@@ -323,3 +323,8 @@ Betty White, Mr. Walter White, The Stand from Stephen King virus outbreak and as
 https://old.reddit.com/r/pluribustv/comments/1owz220/im_sure_this_has_been_discussed_and_maybe_obvious/notp0sh/
 
 Criticism of the Reddit audience.
+
+https://old.reddit.com/r/pluribustv/comments/1ox012q/how_exactly_did_the_virus_spread/notqypj/
+
+Everything is timing / countdown.
+
