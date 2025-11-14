@@ -183,3 +183,102 @@ Published August 2000: "Howard Bloom's Global Brain argues that life has evolved
 https://old.reddit.com/r/pluribustv/comments/1ove181/helen_in_the_public_house_brings_up_finnegans/noojqk8/
 
 Great contribution. But I can not reply because the egomania in the Reddit hive mind who was there yesterday blocked the entire thread from me replying. Whe ONE PERSON blocks you on Reddit, you can not reply to the ENTIRE hive mind in that thread.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/nor3mfk/
+
+Literary. Stairway to heaven, "sometimes words have two meanings". Jean Eardman's Coach With The Six Insides, sometimes Finnegans Wake has 20 or more meanings. Book publisher, book writer, McLuhan read / Reddit.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqv2mm/
+
+Carol fucks with the book retailer in the airport, manipulates them, low-level workers have to deal with that shit.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqtqlt/
+
+Does this tie into the Ukraine song (confirm?) at end?
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/nor2l7q/
+
+Helen already uploaded it to the hive mind.... the unpolished / unedited.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqxz8w/
+
+Like some parasides do to hosts in nature.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/nor3c0a/
+
+Yep. A guilded cage / prison.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/norbfyf/
+
+James Joyce style.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/nore01t/
+
+USA supply chain metaphors of real-world experience with pandemic / Egypt canal jam.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqtolu/
+
+Hostility and insulting as a mode of communications, media ecology. Romans 11:32
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqzm68/
+
+Donald Trump! Putin! Russia! Pussy Riot song "Police State", about how the women are so happy!
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqobf2/
+
+Trolling... Bible verse Matthew 4:19 hive mind of Jesus, human tradition of cult Bible science fiction
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqxu5u/
+
+Yes. Someone made a mistake / error. Techical error.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/nor6bob/
+
+Frozen eggs, they have her genetics - was it part of the RNA origins?
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/nor3aep/
+
+The 7-episode reviews (released before episode 1 without specific spoilers) imply that there is some darkness. 
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/nor2tey/
+
+The annimated TV series "The Critic"
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqoy15/
+
+Helen about Finnegans Wake... if your book makes zero people happy....
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqvjz5/
+
+Finnegans Wake, McLuhan, media ecology
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/norfq75/
+
+True. Hive mind has a silent communications network.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/nor7orv/
+
+LSD and Finnegans Wake
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqt8o1/
+
+She doesn't believe the power grid is real other people, that real hand grenade is provided, that real goodness exists in the world.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/norki50/
+
+<img width="1016" height="430" alt="image" src="https://github.com/user-attachments/assets/a0dc56c1-72d0-47e9-8207-0499b9ed7157" /> A Reddit users recognizing the "Celebration of Ignorance" that Carl Sagan warned about in 1995. The anti Finnegans Wake. It is also Reddit culture for some people to latch onto a show and hang around on Reddit for days after the episode and read... rewatch....
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqsvnv/
+
+The backdoor into the hive mind.
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqys78/
+
+Reddit hivemind is superfical / high speed prized over Wikipedia style refinement of information and packaged for sharing with others openly in edited form. Carol's unpolished / unedited Bitter book...
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/noqz7gd/
+
+https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episode_discussion/nor1o3u/
+
+Connecting with the real world more...
+
