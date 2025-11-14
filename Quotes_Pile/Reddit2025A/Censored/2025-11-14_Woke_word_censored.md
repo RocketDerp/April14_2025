@@ -4,13 +4,13 @@ Story to go along with this.
 
 1. I posted the comment message without the final sentence, it was published.
 
-2. I even got 1 upvote on the message,which I can see, 2 points total in including my own self-upvote.
+2. I even got 1 upvote on the message, which I can see, 2 points total in including my own self-upvote.
 
 3. I edited the message 3  minutes later and added the final sentence
 
-4. The message was removed from publication / censored.
+4. The instant my edit was saved to server, the comment message was removed from publication / censored.
 
-5. I reaalized on this one which keyword triggered the automatic unpublishing. I duplicated the message by changing  "Woke" to "W0ke" with zero, that was published.
+5. I reaalized on this one specific comment which keyword triggered the automatic unpublishing. I duplicated the message (fresh new comment  at root of thread tree) except changing "Woke" to "W0ke" with zero, that was published. Bypassing the unpublish keyword filters.
 
 https://old.reddit.com/r/pluribustv/comments/1ox9utd/theory_the_reason_why_they_will_move_heaven_and/novslr4/
 
