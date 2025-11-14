@@ -1292,3 +1292,11 @@ Front page of Reddit, we have a Bible literacy crisis, and people (We The People
 https://old.reddit.com/r/AdviceAnimals/comments/1ow7l5z/seriously_what_more_do_you_need_to_see_from_this/
 
 Reddit audience mind blown by "WTF" all the time. But fails to see the billionares (Rupert Murdoch, Twitter Musk, Reddit owners) are blowing the minds via Fox News, Facebook, etc. Media addicts can't see the addiction to having an anemy. The addiction to out-group hate in the Levant religion clergy / venues.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/AdviceAnimals/comments/1owcsz7/its_just_getting_silly_at_this_point/
+
+Blows out minds, puts people into silly gigles. Meme stupor induced. Reddit audience can not see the amusement exploit of Surkov governing.
