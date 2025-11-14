@@ -335,3 +335,15 @@ Media ecology math. How many can win the olympics every  4 years? how many numbe
 https://old.reddit.com/r/pluribustv/comments/1ox3mu5/carol_was_happy/noul116/
 
 Our measures of the subjective. The most autistic. The most self-centered, the most egotistical. Critical thinking of Carol.
+
+https://old.reddit.com/r/pluribustv/comments/1ox3hbo/probably_the_most_accurate_part_of_ep_3/nouh2rr/
+
+<img width="790" height="388" alt="image" src="https://github.com/user-attachments/assets/13566267-c1bf-4a99-8d3f-af69c9169c6d" /> 23 minutes into episode 1 of this show: Finnegans Wake. Sarcasmoverload, Tower of Babel conflicts. What kind of American free thinker takes a loaded gun and points it at a hive mind having already atacked that hive mind twice into killing millions of people. Oh, play with guns, guns are toys, military are toys. People do not get what the show is saying. In Stephen King's "The Stand" show about Americans after a virus spreads over a society, a free thinking man wishes for a nuke bomb and gets one! Carol also playing with a loaded gun while boozing and taking drugs.
+
+https://old.reddit.com/r/pluribustv/comments/1ox3hbo/probably_the_most_accurate_part_of_ep_3/nourwwj/
+
+Joyce... History is a Nightmware... Wake.
+
+https://old.reddit.com/r/pluribustv/comments/1ox3hbo/probably_the_most_accurate_part_of_ep_3/noukltr/
+
+Media ecology of Reddit upvoting metaphor!!!!
