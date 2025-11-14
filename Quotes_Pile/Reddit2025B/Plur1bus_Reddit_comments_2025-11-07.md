@@ -320,3 +320,6 @@ https://old.reddit.com/r/pluribustv/comments/1owzk88/betty_white/notnmo6/
 
 Betty White, Mr. Walter White, The Stand from Stephen King virus outbreak and asking for a bomb for Vegas...
 
+https://old.reddit.com/r/pluribustv/comments/1owz220/im_sure_this_has_been_discussed_and_maybe_obvious/notp0sh/
+
+Criticism of the Reddit audience.
