@@ -282,3 +282,6 @@ https://old.reddit.com/r/pluribustv/comments/1owjpca/pluribus_1x03_grenade_episo
 
 Connecting with the real world more...
 
+https://old.reddit.com/r/pluribustv/comments/1owq4im/carol_dui_boozer_public_house_episode_1_finnegans/noskeg3/
+
+Woke to the media ecology. This show will have waves of Reddit users / repeat cycles.
