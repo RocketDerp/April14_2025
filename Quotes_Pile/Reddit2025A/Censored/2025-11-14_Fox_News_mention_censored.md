@@ -20,7 +20,7 @@ What kind of American person takes a loaded gun into their house, assumes it is 
 
 Sarcasm-poisoning / irony-poisoning is Fox News culture. Gun worship / weapon worship USA American stereotype. 
 
-Helen claims to be such an expert in satire, but only wants English speakers. Very American immigrant attitude. She knows Spanish to hate and curse people. Very American attitude of dominating immigrants.
+Carol claims to be such an expert in satire, but only wants English speakers. Very American immigrant attitude. She knows Spanish to hate and curse people. Very American attitude of dominating immigrants.
 
 Don't even get me started about minute 23 of episode one and Finnegans Wake language and sarcasm. 
 
