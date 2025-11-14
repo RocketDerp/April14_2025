@@ -240,3 +240,7 @@ The Twitter posting image: I get that every single person in the USA hates. That
 https://old.reddit.com/r/politics/comments/1owceck/trumps_handling_of_the_epstein_case_might_be_the/nop1tkt/
 
 Nixon was not an *entertainer*, he didn't thrill people with Tony Clifton performances. Neil Postman's 1985 book "Amusing Ourselves To Death" explains this, and Surkov information warfare advanced it much further.
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1owjbc4/more_of_this_pls/noqidfa/
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1owjbc4/more_of_this_pls/noqk69o/
