@@ -244,3 +244,7 @@ Nixon was not an *entertainer*, he didn't thrill people with Tony Clifton perfor
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1owjbc4/more_of_this_pls/noqidfa/
 
 https://old.reddit.com/r/BlackPeopleofReddit/comments/1owjbc4/more_of_this_pls/noqk69o/
+
+https://old.reddit.com/r/agedlikemilk/comments/1ox16zo/photo_of_donald_trump_reaching_for_bill_clintons/nou27lx/
+
+Reddit audience has been extremely ttracted to private jets, sex acts, poop diaper, rich wealthy white men sex actio. Super stars grab them by the pussy. Reddit audience very avoidant of giving little girl bloggers voices, Malala in "trailer park" Swat Valley Pakistan poverty. Not rich white Putin icons. 
