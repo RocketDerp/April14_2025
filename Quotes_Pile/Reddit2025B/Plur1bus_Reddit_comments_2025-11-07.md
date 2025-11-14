@@ -328,3 +328,10 @@ https://old.reddit.com/r/pluribustv/comments/1ox012q/how_exactly_did_the_virus_s
 
 Everything is timing / countdown.
 
+https://old.reddit.com/r/pluribustv/comments/1ox3mu5/carol_was_happy/nouk7e2/
+
+Media ecology math. How many can win the olympics every  4 years? how many number one songs and books can there be? Every writer / athlete / publisher has some injury or excuse why they are not first palce - but simple reality is in a world of over 8 billion people - how maby can actually BE number 1. The maths of household names and maths of ranking "best". You will see TV show fandom constantly saying x show deserved all these awards. The math does not check out. There is a lacking of counting of media ecology. Some books are written that are not understood or appreciated for decades. Until a farmer digs them up during World War Two in Egypt.... Nag Hamond Library. The Pluribus story makes this point... we do not know HOW long Keppler-22B has been sending the signal. Perhaps waiting there for thousads of years for us to listen. Countdowns abound.
+
+https://old.reddit.com/r/pluribustv/comments/1ox3mu5/carol_was_happy/noul116/
+
+Our measures of the subjective. The most autistic. The most self-centered, the most egotistical. Critical thinking of Carol.
