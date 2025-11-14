@@ -364,3 +364,12 @@ Minds takes reprogramming, but chase real love too.
 https://old.reddit.com/r/HistoryMemes/comments/1ovsdh3/balkans_vs_arab_world/
 
 Tower of Babel. Arab Spring. Rajaa.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1owt09p/modern_reality_shows/    
+
+The Reality of Reality TV. The reality of seeking popularity (TV) and needing money (getting paid to be on TV).  Choice marriage honesty. How people are not woke that these issues are going on behind closed doors in their city, and how media changes behavior. Campbell ou Joyce: "was that same number again, 1132, right out of the Good Book! Joyce had taken that paradox of the Christian faith as the motto of the greatest masterwork of his life. And there he describes ruthlessly the depths of the private and public monstrosities of human life and action in the utterly sinful course of human history. It’s all there—told with love."
+
