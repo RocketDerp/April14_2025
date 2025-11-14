@@ -315,3 +315,8 @@ Helen then goes into the parking lot, opens LOL social media, and falls backward
 Finnegans Wake is the most powerful book ever created by humanity about media ecology. It is a slap in the audience face in episode 1. It ends the whole world. This story is about a **book author and a book publisher, married Helen and Carol.**
 
 "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan (University of Toronto), Newsweek Magazine, p.56, February 28, 1966
+
+https://old.reddit.com/r/pluribustv/comments/1owzk88/betty_white/notnmo6/
+
+Betty White, Mr. Walter White, The Stand from Stephen King virus outbreak and asking for a bomb for Vegas...
+
