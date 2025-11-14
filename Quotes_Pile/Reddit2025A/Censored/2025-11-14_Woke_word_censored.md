@@ -14,7 +14,7 @@ https://old.reddit.com/r/pluribustv/comments/1ox9utd/theory_the_reason_why_they_
 
 Seems the word "Woke" is an automatic message censorship on this subreddit. These removals are silent. I have to use another Internet connection to confirm if the actual comment is published or unpublished after every edit. Reddit servers manipulate the user who creates the comment to see the message as published. You have to check from another connection to Reddit to confirm it wasn't censored.
 
-
+This kind of censorship is garbage, you waste a whole bunch of time confirming your message isn't secretly censored. You have to go outside the network to confirm it actually is published to other people. And you know other people must be getting their messages pulled without even realizing it.
 
 
 &nbsp;
