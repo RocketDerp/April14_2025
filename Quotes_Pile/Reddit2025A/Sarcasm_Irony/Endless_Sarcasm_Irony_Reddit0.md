@@ -1300,3 +1300,11 @@ Reddit audience mind blown by "WTF" all the time. But fails to see the billionar
 https://old.reddit.com/r/AdviceAnimals/comments/1owcsz7/its_just_getting_silly_at_this_point/
 
 Blows out minds, puts people into silly gigles. Meme stupor induced. Reddit audience can not see the amusement exploit of Surkov governing.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Funnymemes/comments/1owwhw1/the_best_of_both_worlds/
+
+All over this github you will see me making this point: Year 2012, year 2013 Malala on the world stage for 18 months. Malala Swat Valley Pakistan "trailer park" book published October 8, 2013 - one month later... November 8, 2013 Trump is in Moscow for Miss Universe showing off hot girls who live poor and are serving white male Putina nd Trump. Society seriously cares about "Epstein List" because it is private jets, rich white men, sex affairs. Malala as a social media assertion is avoided. And MALALA deals with terrorism (October 7, 2023 a decade after her book), reformof Islam, Iran women, abortion rights (pro abortion on Malala fund website) for adult women, etc, ,etc, etc. Pro-science education. Not just SEX, but giving blog voices to young girls to DEFEND against the wealth lords like Musk / Putin / Trump / Murdoch! But Reddit can not see this addiciton to rich white men mocking and all the repetition essaging over "Epsten" - and not giving even MORE SERIOUS attention to Malala's girls. People are attracted to the the entertainment Tony Clifton amusement "milking the LOL cow" of Trump more than dealing with the power imbalance between trailer park and NYC penthouse kids.
