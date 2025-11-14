@@ -237,3 +237,6 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1owcrfq/yep_its_my_fault_but
 
 The Twitter posting image: I get that every single person in the USA hates. That hate is our national religion. I get that hate is what matters most.
 
+https://old.reddit.com/r/politics/comments/1owceck/trumps_handling_of_the_epstein_case_might_be_the/nop1tkt/
+
+Nixon was not an *entertainer*, he didn't thrill people with Tony Clifton performances. Neil Postman's 1985 book "Amusing Ourselves To Death" explains this, and Surkov information warfare advanced it much further.
