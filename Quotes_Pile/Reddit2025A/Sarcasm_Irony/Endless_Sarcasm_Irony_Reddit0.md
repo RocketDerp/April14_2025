@@ -1332,3 +1332,12 @@ Entertainment-washing "milking the Trump LOL cow" for meme thrills, miling Epste
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1oxauzl/how_is_it_a_hoax_if_theyre_conducting_a_real/
 
 Another front page example. "Hoax" means war agaisnt reality. Addiction to fiction, addiction to entertaining Reality TV (which is fiction) is driving society. Trump is the center of attention because he provides constant drama / fiction storytelling / sex acts / abuse to discuss. Goodness has been abandoned since June 16, 2015. Reddit society is full of people who can't resist mocking President Tony Clifton acts / contradictions / Surkov governing techniques. The only stable thing being produced is high-speed media systems, "the media", Reddit media, Bluesky media, constantly talkinga bout the bewildering anti-reality warfare Putin and Trump have created. What's being avoided is asserting goodness. Luigi 11 months ago murdering someone in Manhattan hasn't addressed health care. People won't quote nonfiction books about helath insurance and health care as much as they will repeat low-effort Luigi with guns / Luigi with a cigarette meme-think. It's all entertainment / amusement. Neil Postman's 1985 book "Amusing Ourselves To Death" is reality that people need to face up or we just keep racing to the bottom of junk information content on high-speed systems. The notificatio and back and forth likes / uvpotes / commenting is consuming society. Touch machine devices are getting the love, not poor and "least of these" humans. The rich famous people are the cneter of media attention / social media attention / Reddit attention. The power is in the media addictions itself. Trump knew this in yeaer 2013, Putin and Surkov knew this 25 years ago.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/UnderReportedNews/comments/1oxs30g/sad_sad_man/
+
+Another indication of upside down / ass-backwards Bible reading. But wrap it in more meme vanues. Don't rescue Donald Trump and MAGA from Russian mind-fuck. Milk the amusement out of Trump bieng mind-fucked by Putin. Surkov won. IRA and CA won. The behavior regarding cheering on abusing children and homeless isn't just one single person. Morality crisis is entire nation.
+
