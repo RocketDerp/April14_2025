@@ -276,3 +276,11 @@ Celebration of Ignorance. Celebrating the conflicts. People thrilled to mock and
 https://old.reddit.com/r/interesting/comments/1oxmz10/an_italian_pizza_restaurant_owner_is_fuming_at_16/noyzcbv/
 
 We have a global, Pale Blue Dot, egoism issue.
+
+https://old.reddit.com/r/Music/comments/1oxsjgt/taylor_swifts_silence_on_the_trump_administration/noza2r5/
+
+King of Pop media, Trump. Pop Culture King.
+
+https://old.reddit.com/r/Music/comments/1oxsjgt/taylor_swifts_silence_on_the_trump_administration/noze15x/
+
+Hate and dehumanization anre proven systems. Trump won, Putin won.
