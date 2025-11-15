@@ -248,3 +248,22 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1owjbc4/more_of_this_pls/n
 https://old.reddit.com/r/agedlikemilk/comments/1ox16zo/photo_of_donald_trump_reaching_for_bill_clintons/nou27lx/
 
 Reddit audience has been extremely ttracted to private jets, sex acts, poop diaper, rich wealthy white men sex actio. Super stars grab them by the pussy. Reddit audience very avoidant of giving little girl bloggers voices, Malala in "trailer park" Swat Valley Pakistan poverty. Not rich white Putin icons. 
+
+https://old.reddit.com/r/law/comments/1ox117k/trump_says_hes_asking_justice_department_to/notzbk3/
+
+Surkovian information warfare methods. Surkovian governing. These patterns blow the minds of social media consumers. People can't name "Surkov".
+
+https://old.reddit.com/r/pics/comments/1oxjl4o/i_think_i_saw_ted_cruz_at_the_puerto_vallarta/noy9o4w/
+
+Reddit audience endlessly spends time around images of the wealthy and powerful saying they aree bad, but won't criticize society. Too preachy, too moral. Mocks children all the time, children like Malala for pointing out that children don't have voices in society. The voices in society are on Reddit mocking and insulting goodness / avoiding goodness / anything but asserting goodness. The asserting goodness is gun worship of Luigi all year 2025, murder thrills, USA gun worship. The freedom to be hate-filled monsters as leaders (like Ted Cruz and his wife), the freedom to be Reddit machinel lovers. The fundamental attraction to badness. Not to measure our known problemof electing and upvoting such leaders on Reddit and as politicians. Not tounderstand why society flocks to such messengers/representatives... but as entertainment and amusement sources. Nothing can overcome this attraction force.  "Ted Cruz first became a significant source of widespread cliche mocking and internet memes around the time he gained national political prominence, with a notable peak during his 2016 presidential campaign."
+
+https://old.reddit.com/r/politics/comments/1oxf9xm/trump_withdraws_support_for_marjorie_taylor_greene/nowtnlb/
+
+Highly upvoted (popular Reddit) comment, tiny-short, out-group thrills to see Americans self-harm. Russia won, Surkov won, since March 2013. People endlessly prizing the anti-progress Putin outcomes. Not to say Russia is "winning", Putin has prized the same badnessin domestic Russia. Goodness itself abandoned. Nonfiction learning, comprehesion, understanding abandoned.  The language of hate prizing and mindsets of self-harm as long as others prize hate in mob mentality...abounds.
+
+https://old.reddit.com/r/politics/comments/1oxf9xm/trump_withdraws_support_for_marjorie_taylor_greene/nox6nhs/
+
+This is the social power of the biggest star of media in all history. This is the messages eveyone wanted to share, the mindsets that have gotten all the exercise. Worship of high speed message delivery about this content. Mocking Tony Clifton actors, mocking antics politics, is not resisting antics politics. Surkov understood this 25 years ago and was able to addict a nation to this via IRA and CA since year 2013. Neil Postman was correct about these exploitable technology outcomes in 1985, 1992... Rick Roderick was correct in 1993. People are going to look at the real world, reality outside the high-speed media systems, and possibly become very violent over not understanding and grasping how sports mentality of out-group mocking and messaging / informing junk created a mess. Maybe some sincere, honest, goodness oriented people will rise to lead the whole world away from here... but the rest of the world has been given a 'rich king' nation to blame for everything. Trump bragging, our super-hero save the world media entertainment - has drowned out Dr. Martin Luther King Jr's reforms. And people werenot intertested in passing down what MLK Jr had to say about hate and poverty of the spirit.
+
+
+
