@@ -288,3 +288,20 @@ Hate and dehumanization anre proven systems. Trump won, Putin won.
 https://old.reddit.com/r/travel/comments/1oxp6va/just_spent_3_weeks_in_egypt_im_never_coming_back/noyur02/
 
 The Pluribus problem is global. Except in USA, it's Rupert Murdoch media networks, Elon Musk media networks pumping Truth Social media network as the role model to admire and worship. It's more distance, strategic space bombing of minds,vs.Egypt it is more personal. The problem of oute-group hate is global. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). This whole human attitude of screw-over outsiders / love your family but compete in grifting and  manipulating "the others"....
+
+https://old.reddit.com/r/Unexpected/comments/1oxt9sj/this_guy_revealed_the_truth/nozjexl/
+
+It's like when people say only for domestic Russia that Putin creates anti-reality, only for his home people. Nope. We are in the Global Village. What works local is being combined into a weaponized package.
+
+https://old.reddit.com/r/Unexpected/comments/1oxt9sj/this_guy_revealed_the_truth/np0h5q1/
+
+On a site that prizes anything entertaining and amusement.
+
+https://old.reddit.com/r/antiwork/comments/1oxuf62/the_way_we_live_is_not_natural/nozqmnr/
+
+ToDo: insert Maslow quote from Campbell. Great Seal Pluribus has nothing to do with those things.
+
+https://old.reddit.com/r/antiwork/comments/1oxuf62/the_way_we_live_is_not_natural/nozq091/
+
+Correct. You don't create metaphorsof Eden if you already had it. You have to build it.
+
