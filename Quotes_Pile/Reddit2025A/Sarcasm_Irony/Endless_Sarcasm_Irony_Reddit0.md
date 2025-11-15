@@ -1317,3 +1317,10 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ox5iey/this_math_aint_math
 
 People eat this shit as amuseement material every day. They grin an beg for more of this shit to LOL milk. It isn't funny! This is everything Neil Postman wrote about in 1985 book "Amusing Ourselves To Death", it is not amusing! This is Finnegans Wake media ecology, year 1924 onward. This is Tower of Babel in your face. People are living different realites based on the filter bubble ofmedia they consume. There is no winning with child sex, this is all about media consumption. The AUDIENCE of voters isn't all having sex with thier 13 year olds, or it isn't being documented? But one thing IS DOCUMENTED - the *media ratings* of Reddit, Facebook, Bluesky, Fox News, Church donations. People are all getting widly conflicting views of language itself.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/lgbt/comments/1ox64o3/i_dont_wanna_trivialise_all_the_stuff_happening/
+
+Entertainment-washing "milking the Trump LOL cow" for meme thrills, miling Epsten sex abuse for amusement. Neil Postman's 1985 book about high-speed media "Amusing Ourselves To Death" society. Claims that it isn't trivializing it seem insincere when since year 2013 Malala has been asking the whole world to stop avoiding direct attention and focus on young girls. (Reallly since January 2009, but Malala became famous in 2012, book published 2013). People keep asserting sex photos of old white men instead of empowering education and giving power to the least empored people to grow We The People power globally.
