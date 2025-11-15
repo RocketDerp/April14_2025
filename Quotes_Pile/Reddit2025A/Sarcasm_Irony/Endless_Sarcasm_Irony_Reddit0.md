@@ -1341,3 +1341,10 @@ https://old.reddit.com/r/UnderReportedNews/comments/1oxs30g/sad_sad_man/
 
 Another indication of upside down / ass-backwards Bible reading. But wrap it in more meme vanues. Don't rescue Donald Trump and MAGA from Russian mind-fuck. Milk the amusement out of Trump bieng mind-fucked by Putin. Surkov won. IRA and CA won. The behavior regarding cheering on abusing children and homeless isn't just one single person. Morality crisis is entire nation.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1oxtee2/oh_myyyyy/
+
+Trump is in no way lazy about dominating words. Taking words right out of the mass mind / mass man / hive mind of USA and making thme his own. Trump rewrites meaning and language. Reddit eats it up. This isn't defending! Finnegans Wake is defending! Putin and Surkov have run circles around USA since year 2013.
