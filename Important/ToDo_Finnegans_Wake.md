@@ -392,3 +392,8 @@ https://youtu.be/RRh3r_AhUw0?t=402
 Alan Wake 2 redeems the first, so Game Dungeon review being so negative....   
 Is "Alan Wake" like Finnegans Wake media ecology. The writer's idea of a writer.    
 Dream character / TV produced within a video game creator.    
+
+&nbsp;
+
+Syntax format laws of language. 's on Finnegans. Computers can reformat source code for viewers.  
+https://old.reddit.com/r/ProgrammerHumor/comments/1oxnzd2/seekhelpplease/
