@@ -1045,10 +1045,21 @@ https://youtu.be/TiGvrnzYsSM?t=62
 
 &nbsp;
 
-# Surfing the Mass Man minds
+### Surfing the Mass Man minds
 
 Marshall McLuhan's "Mass Man".
 
 Surfing mass man. What McLuhan had to say about advertising / marketing.  
 
 https://old.reddit.com/r/KitchenConfidential/comments/1ow6t3v/well_it_was_fun_while_it_lasted/
+
+&nbsp;
+
+&nbsp;
+
+### Low-effort prompts
+
+Low-effort prompting
+
+https://youtu.be/rGremoYVMPc?t=125
+
