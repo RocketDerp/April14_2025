@@ -384,3 +384,11 @@ Choice marriage honesty of rich and famous people often not keeping secrets due 
 https://old.reddit.com/r/Music/comments/1ox4u5i/bad_bunny_shares_defiant_declaration_to_ice_after/
 
 Using NYC Neil Postman, NYC Howard Bloom, Texan Rick Roderick of Duke University, etc.
+
+&nbsp;
+
+https://youtu.be/RRh3r_AhUw0?t=402
+
+Alan Wake 2 redeems the first, so Game Dungeon review being so negative....   
+Is "Alan Wake" like Finnegans Wake media ecology. The writer's idea of a writer.    
+Dream character / TV produced within a video game creator.    
