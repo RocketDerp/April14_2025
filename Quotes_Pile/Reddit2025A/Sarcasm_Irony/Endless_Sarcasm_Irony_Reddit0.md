@@ -1348,3 +1348,11 @@ Another indication of upside down / ass-backwards Bible reading. But wrap it in 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1oxtee2/oh_myyyyy/
 
 Trump is in no way lazy about dominating words. Taking words right out of the mass mind / mass man / hive mind of USA and making thme his own. Trump rewrites meaning and language. Reddit eats it up. This isn't defending! Finnegans Wake is defending! Putin and Surkov have run circles around USA since year 2013.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/cursedcomments/comments/1oxqh1a/cursed_powerscaling/
+
+Trump is worshiped, Trump is a role model. My god pepole have no sense of how long they have flocked to "milk the LOL cow" of Trump since June 16, 2015. The endless "joke milking" / "amusmenet milking" of Trump. Morality-milking. People suck off the teet of Trump providing values. The core fiaths people prize are: hate, dehumanization, mocking, high-speed meme delivery, low-effort Twitter commenting, "for the lulz" addiction.
