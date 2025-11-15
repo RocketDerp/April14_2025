@@ -389,3 +389,32 @@ https://old.reddit.com/r/pluribustv/comments/1oxcmeo/carol_would_have_written_so
 https://old.reddit.com/r/pluribustv/comments/1oxyo23/theory_consequence_of_freeing_the_hive_and_carols/np0mrtu/
 
 I'm linking my own comment to capture the post too. The post presents a theory that humanity is already dead, something is lost, can't be recovered.
+
+https://old.reddit.com/r/pluribustv/comments/1oxykgk/so_were_supposed_to_believe_the_hive_mind_has/np0k32c/
+
+Yes. Murdering 13 for greater good. Automobile wrecks alone kill way more than that. People dangerous with machines, like Carol thinks loaded guns are a toy to play with while drunk in her house... pointing it to an African immigrant she disagrees with.
+
+https://old.reddit.com/r/antiwork/comments/1oxuf62/the_way_we_live_is_not_natural/np0a1ao/
+
+Yep. ant hills are natural. Poison plants are natural. The show says zoo animals interaction issues to raise this point. This show is (not only) about creating genetic engineered life, rewriting nature.
+
+https://old.reddit.com/r/antiwork/comments/1oxuf62/the_way_we_live_is_not_natural/noztc5w/
+
+Themes of Finnegans Wake.
+
+https://old.reddit.com/r/antiwork/comments/1oxuf62/the_way_we_live_is_not_natural/noztc1h/
+
+Interesting that so many of our lead characters are middle aged women...
+
+https://old.reddit.com/r/antiwork/comments/1oxuf62/the_way_we_live_is_not_natural/np0byyc/
+
+But hostile planets can beam signals, Kepler 22B, nuclear bombs can be created in New Mexico next to Carol and impact your village in Africa. And Ubuntu tradition out of Africa is generally good policy. Humans developed writing systems. And Reddit users interact by the millions. As do book authors and book publishers to their fandom.
+
+https://old.reddit.com/r/pluribustv/comments/1oxzf7r/opinion_assimilation_is_annihilation/np0stz6/
+
+Me on the posting itself, that's Carol's idea, that the hive mind is death for Helen. Not a complete capture.
+
+https://old.reddit.com/r/pluribustv/comments/1oxzelh/is_the_hivemind_going_through_childhood/np0tcql/
+
+Yes, and like Carol's book title Bitter Pupa, we do not know the stages of development of the hive mind, future rewites now that RNA / DNA changes can be spread. For all we know, another signal is waiting to be discovered.
+
