@@ -265,5 +265,14 @@ https://old.reddit.com/r/politics/comments/1oxf9xm/trump_withdraws_support_for_m
 
 This is the social power of the biggest star of media in all history. This is the messages eveyone wanted to share, the mindsets that have gotten all the exercise. Worship of high speed message delivery about this content. Mocking Tony Clifton actors, mocking antics politics, is not resisting antics politics. Surkov understood this 25 years ago and was able to addict a nation to this via IRA and CA since year 2013. Neil Postman was correct about these exploitable technology outcomes in 1985, 1992... Rick Roderick was correct in 1993. People are going to look at the real world, reality outside the high-speed media systems, and possibly become very violent over not understanding and grasping how sports mentality of out-group mocking and messaging / informing junk created a mess. Maybe some sincere, honest, goodness oriented people will rise to lead the whole world away from here... but the rest of the world has been given a 'rich king' nation to blame for everything. Trump bragging, our super-hero save the world media entertainment - has drowned out Dr. Martin Luther King Jr's reforms. And people werenot intertested in passing down what MLK Jr had to say about hate and poverty of the spirit.
 
+https://old.reddit.com/r/interesting/comments/1oxmz10/an_italian_pizza_restaurant_owner_is_fuming_at_16/noyq35u/
 
+Roman empire interpretation of Christianity taken to modern media. Hate thy enemy / hate thy neighbor.
 
+https://old.reddit.com/r/interesting/comments/1oxmz10/an_italian_pizza_restaurant_owner_is_fuming_at_16/noz2pd4/
+
+Celebration of Ignorance. Celebrating the conflicts. People thrilled to mock and mockery. Favorite activity to do.
+
+https://old.reddit.com/r/interesting/comments/1oxmz10/an_italian_pizza_restaurant_owner_is_fuming_at_16/noyzcbv/
+
+We have a global, Pale Blue Dot, egoism issue.
