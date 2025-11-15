@@ -305,3 +305,6 @@ https://old.reddit.com/r/antiwork/comments/1oxuf62/the_way_we_live_is_not_natura
 
 Correct. You don't create metaphorsof Eden if you already had it. You have to build it.
 
+https://old.reddit.com/r/LivestreamFail/comments/1oxy8wo/jack_doherty_has_been_arrested_in_miami_on/np1h35u/
+
+Brain rot Fox News (Jen Senko not promoted by social media society), Florida role model of media Donald Trump, on and on.
