@@ -8,8 +8,15 @@ https://www.nbcnews.com/health/health-news/autism-spectrum-disorder-genetic-anal
 
 &nbsp;
 
+# Autism USA experience
+
 The experience of autism. Why is RFK Jr creating nonsense about it?
 
 https://old.reddit.com/r/CuratedTumblr/comments/1owlm0v/im_just_too_different/     
 
 <img width="642" height="767" alt="image" src="https://github.com/user-attachments/assets/fb0295d6-f8d1-4232-94d9-619e171a5f66" />
+
+https://old.reddit.com/r/BrandNewSentence/comments/1oxe4d4/im_autistic_you_didnt_specifically_invite_me_like/
+
+<img width="755" height="767" alt="image" src="https://github.com/user-attachments/assets/a865853e-aa9d-464e-bb16-ea6f3f1e0ab7" />
+
