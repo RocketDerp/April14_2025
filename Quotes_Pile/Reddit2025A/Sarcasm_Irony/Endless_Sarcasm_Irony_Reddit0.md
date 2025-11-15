@@ -1356,3 +1356,11 @@ Trump is in no way lazy about dominating words. Taking words right out of the ma
 https://old.reddit.com/r/cursedcomments/comments/1oxqh1a/cursed_powerscaling/
 
 Trump is worshiped, Trump is a role model. My god pepole have no sense of how long they have flocked to "milk the LOL cow" of Trump since June 16, 2015. The endless "joke milking" / "amusmenet milking" of Trump. Morality-milking. People suck off the teet of Trump providing values. The core fiaths people prize are: hate, dehumanization, mocking, high-speed meme delivery, low-effort Twitter commenting, "for the lulz" addiction.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1oxt1l6/trump_makes_bizarre_claim_london_is_so_dangerous/
+
+Anti-NATO and Reddit community stil can't connect the dots to year 2013 onward War Against Reality by Surkov and Putin. People just see tree after tree, but no forest. Bizarre, unreal, ficiton addicts give each episode ratings and reviews as entertainment, not as a wrecking of the world through organized information warfare. Surkov won, Russia won. Reddit audience amusement-washes entertainment-wraps all this as content to mock.
