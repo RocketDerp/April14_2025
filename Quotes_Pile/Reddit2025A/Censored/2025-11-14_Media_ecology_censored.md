@@ -39,7 +39,7 @@ Just like the Middle East 3 major religions that all mock each other.
 
 Science Fiction Quran mocking Science Fiction Torah. It's in the world news a lot lately. Abandonment of compassion and equality and goodness itself in favor of favorite fiction story factions.
 
-Reddit vs. Twitter, Fox News vs. MSNBC. Fiction vs. fiction vs. fiction. Alternate Viennese, alternate realities. All celebrating their independent fictions and avoidance of serious nonfiction that that Sagan quote spelled out in year 1995.
+Reddit vs. Twitter, Fox News vs. MSNBC. Fiction vs. fiction vs. fiction. Alternate universes, alternate realities. All celebrating their independent fictions and avoidance of serious nonfiction as that Sagan quote spelled out in year 1995.
 
 &nbsp;
 
