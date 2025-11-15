@@ -385,3 +385,7 @@ https://old.reddit.com/r/pluribustv/comments/1oxcmeo/carol_would_have_written_so
 New Mexico cults, New Mexico authored atomic bomb that Carol asks about, New Mexico science of meth drug perfect science, New Mexico that hates Mexicans of Mexico. New Mexico where prop guns / prop weapons are confused on book authoring movie sets. New Mexico where you invite an Africa stranger into your house, booze up and pop heavy pills, and play with guns. New Mexico where you attack an African in front of your house and kill millions with the butterfly effect. Drunken wild west indeepndence. On the frontier, Carol's house of airport world wide pirate book publication, right next to the untamed frontier. Going wilding. New Mexico, where satire-washing and amusement-washing and entertainment-washing of the cancer health care crisis / meth drug crisis / loaded proop weapon crisis / boozing crisis / egomania crisis.... /s satire.
 
 https://old.reddit.com/r/pluribustv/comments/1oxcmeo/carol_would_have_written_something_with_a_few/noyxmzx/
+
+https://old.reddit.com/r/pluribustv/comments/1oxyo23/theory_consequence_of_freeing_the_hive_and_carols/np0mrtu/
+
+I'm linking my own comment to capture the post too. The post presents a theory that humanity is already dead, something is lost, can't be recovered.
