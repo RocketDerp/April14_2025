@@ -284,3 +284,7 @@ King of Pop media, Trump. Pop Culture King.
 https://old.reddit.com/r/Music/comments/1oxsjgt/taylor_swifts_silence_on_the_trump_administration/noze15x/
 
 Hate and dehumanization anre proven systems. Trump won, Putin won.
+
+https://old.reddit.com/r/travel/comments/1oxp6va/just_spent_3_weeks_in_egypt_im_never_coming_back/noyur02/
+
+The Pluribus problem is global. Except in USA, it's Rupert Murdoch media networks, Elon Musk media networks pumping Truth Social media network as the role model to admire and worship. It's more distance, strategic space bombing of minds,vs.Egypt it is more personal. The problem of oute-group hate is global. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). This whole human attitude of screw-over outsiders / love your family but compete in grifting and  manipulating "the others"....
