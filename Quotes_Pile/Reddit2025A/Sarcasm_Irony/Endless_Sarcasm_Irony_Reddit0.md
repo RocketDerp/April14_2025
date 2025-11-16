@@ -1387,4 +1387,5 @@ Surkov governing. Russian governing methods. "Politics has got to feel like the 
 
 https://old.reddit.com/r/pics/comments/1oyjzad/8_years_ago_trumps_drinking_water_method_went/
 
-TOP of front page Sunday morning. Church. Worship, Jesus of "LOL cow milking". Reddit is ground zero for the worship of the entertainment of President Tony Clifton imags / language / style / fashion. An daudience who wreck the nation, wreck the world, just to have images to satire-wash amusement-wash "for the lulz"... the ONLY thing Trump is excellent at is turning every American into a compusive mocking insult name-calling enthusiast. Media addicts.
+TOP of front page Sunday morning. Church. Worship, Jesus of "LOL cow milking". Reddit is ground zero for the worship of the entertainment of President Tony Clifton imags / language / style / fashion. An audience of image lovers who wreck the nation, wreck the world, just to have images to satire-wash amusement-wash "for the lulz"... the ONLY thing Trump is excellent at is turning every American into a compusive mocking insult name-calling enthusiast. Media addicts. Neil Postman's 1985 book "Amusing Ourselves To Death" is Reddit community.
+
