@@ -1372,3 +1372,11 @@ Anti-NATO and Reddit community stil can't connect the dots to year 2013 onward W
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1oy1ixa/we_all_knew_it_would_end_this_way_prepare/
 
 Which is why I keep observing how low the bar is. Getting rid of Trump for Trump sex crimes doesn't deal with MAGA / JD Vance / Putin. People believe nonsense on all media platforms. Fox News since year 1996. People have to actually desire reform of media consumerism / values / moralty. Bible litercy that can't find verse "1 John 3:17" and apply it to Trump / Musk / Murdoch.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1oy6u3d/ufc_fighter_rejects_white_house_cage_match_hunger/
+
+Surkov governing. Russian governing methods. "Politics has got to feel like the movies".
