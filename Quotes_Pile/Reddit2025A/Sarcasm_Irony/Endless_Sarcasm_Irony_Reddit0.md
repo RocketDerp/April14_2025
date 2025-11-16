@@ -1389,3 +1389,10 @@ https://old.reddit.com/r/pics/comments/1oyjzad/8_years_ago_trumps_drinking_water
 
 TOP of front page Sunday morning. Church. Worship, Jesus of "LOL cow milking". Reddit is ground zero for the worship of the entertainment of President Tony Clifton imags / language / style / fashion. An audience of image lovers who wreck the nation, wreck the world, just to have images to satire-wash amusement-wash "for the lulz"... the ONLY thing Trump is excellent at is turning every American into a compusive mocking insult name-calling enthusiast. Media addicts. Neil Postman's 1985 book "Amusing Ourselves To Death" is Reddit community.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1oynit2/trump_who_mocked_bidens_use_of_autopen_caught/
+
+Top of front page on Sunday on Reddit. And peole STILL WILL NOT GET it that the Surkov technique of blowing the minds of citizens / population mind-blowing control is to play Tony Clifton acts. Boasting and bragging that Tony Clifton has sold more albums than Elvis, etc, etc. FOR TEN YEARS AND FIVE MONTHS THIS HAS RULED USA SOCIETY. Faith in mocking, mock for mock, mock mock mockery! Surkov won! Nobody can escape the TOTAL MOCKERY that Putin and Trump created! High speed media system reactionary mindsets rule the society!
