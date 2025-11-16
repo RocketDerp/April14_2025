@@ -471,3 +471,11 @@ The dense part of Finnegans Wake is near the center of the book. Starting with t
 https://old.reddit.com/r/pluribustv/comments/1oyo2ku/did_they_change_zosias_name_from_ana/np752i7/
 
 Her sunken dream.
+
+https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np7niy6/
+
+By Helen's on definition before her death. If you can make one single person happy... your story...
+
+https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np7n81x/
+
+Fonding Fathers phrase is a cult. Simple short-length message calling people stupid.
