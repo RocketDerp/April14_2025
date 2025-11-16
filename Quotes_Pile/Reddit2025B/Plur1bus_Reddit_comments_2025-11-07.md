@@ -483,3 +483,7 @@ Fonding Fathers phrase is a cult. Simple short-length message calling people stu
 https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np7o0ro/
 
 Helen falls and dies after touching the social media device and audience messages.
+
+https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np7pkjy/
+
+Yes. it is not only Reddit.
