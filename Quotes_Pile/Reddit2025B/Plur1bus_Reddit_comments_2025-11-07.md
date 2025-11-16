@@ -442,3 +442,10 @@ https://old.reddit.com/r/pluribustv/comments/1oyprkl/why_does_everyone_think_car
 
 Asking questions like this on Reddit is still alive, everyone isn't going to Google A. I. or ChatGPT...
 
+https://old.reddit.com/r/pluribustv/comments/1oyqasa/the_city_shut_down_makes_no_sense_dont_these/np62a43/
+
+...
+
+https://old.reddit.com/r/pluribustv/comments/1oyqwxr/the_theme_of_having_everything_you_want_going/np67gny/
+
+...
