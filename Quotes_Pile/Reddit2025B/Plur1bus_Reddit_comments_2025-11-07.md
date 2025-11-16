@@ -463,3 +463,7 @@ https://old.reddit.com/r/pluribustv/comments/1oyt6mf/how_do_you_describe_pluribu
 Spiler-proof show.
 
 https://old.reddit.com/r/pluribustv/comments/1oyt6mf/how_do_you_describe_pluribus_to_someone_without/np6sk3h/
+
+https://old.reddit.com/r/pluribustv/comments/1oyuuld/spoilers_i_think_bloodsong_of_wycaro_ch_16/np71fzt/
+
+The dense part of Finnegans Wake is near the center of the book. Starting with the density in 1924.
