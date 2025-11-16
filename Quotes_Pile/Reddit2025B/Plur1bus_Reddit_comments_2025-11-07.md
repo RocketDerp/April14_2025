@@ -421,3 +421,8 @@ Yes, and like Carol's book title Bitter Pupa, we do not know the stages of devel
 https://old.reddit.com/r/pluribustv/comments/1ox3mu5/carol_was_happy/np511ge/
 
 Low-effort hyper-banal lives on. Reddit society will banalize (Rick Roderick 1993 lectures https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/ ) the most serious social criticism of White Suburb (Subdivision, Subreddit) morality.
+
+https://old.reddit.com/r/pluribustv/comments/1oynlxn/peak_dialogue_s01e03_spoiler/np5i7jb/
+
+Terrorists against world peace and Founding Fthers ideals, Saudi Arabia / Iran calling USA "the great Satan" for creating the hive mind idea back in year 1776 era.
+
