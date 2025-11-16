@@ -449,3 +449,17 @@ https://old.reddit.com/r/pluribustv/comments/1oyqasa/the_city_shut_down_makes_no
 https://old.reddit.com/r/pluribustv/comments/1oyqwxr/the_theme_of_having_everything_you_want_going/np67gny/
 
 ...
+
+https://old.reddit.com/r/pluribustv/comments/1oyo2ku/did_they_change_zosias_name_from_ana/np6fkrw/
+
+The touch device is new, media ecoloyg new.
+
+https://old.reddit.com/r/pluribustv/comments/1oyo2ku/did_they_change_zosias_name_from_ana/np6glud/
+
+media ecology itself is new. Joyce is the root of the McLuhan and Postman and Campbell tree.
+
+https://old.reddit.com/r/pluribustv/comments/1oyt6mf/how_do_you_describe_pluribus_to_someone_without/np6nbhy/
+
+Spiler-proof show.
+
+https://old.reddit.com/r/pluribustv/comments/1oyt6mf/how_do_you_describe_pluribus_to_someone_without/np6sk3h/
