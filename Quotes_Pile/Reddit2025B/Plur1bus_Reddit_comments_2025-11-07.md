@@ -495,3 +495,8 @@ Sheltered Reddit audience.
 https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np815lx/
 
 Spongebob audience fan.
+
+https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np82hea/
+
+Spongebob audience behaviors on real audience criticism of romanticizing the Founding Fathers Latin phrase.
+
