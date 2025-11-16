@@ -426,3 +426,6 @@ https://old.reddit.com/r/pluribustv/comments/1oynlxn/peak_dialogue_s01e03_spoile
 
 Terrorists against world peace and Founding Fthers ideals, Saudi Arabia / Iran calling USA "the great Satan" for creating the hive mind idea back in year 1776 era.
 
+https://old.reddit.com/r/pluribustv/comments/1oyo2ku/did_they_change_zosias_name_from_ana/np5ntvt/
+
+<img width="320" height="692" alt="image" src="https://github.com/user-attachments/assets/c01c9d62-04ee-4c30-b06b-60d7cd8b3ff0" /> Read the posting itself. Humm. Ana, ALP in Finnegans Wake.
