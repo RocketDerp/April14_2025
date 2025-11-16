@@ -437,3 +437,8 @@ Low-effort commting on Reddit is so normal.
 https://old.reddit.com/r/pluribustv/comments/1oyo2ku/did_they_change_zosias_name_from_ana/np5sabc/
 
 Time for Steely Dan, the high-power steem powered Dildo metaphor of metaphors.
+
+https://old.reddit.com/r/pluribustv/comments/1oyprkl/why_does_everyone_think_carol_is_an_alcoholic/np5yl5x/
+
+Asking questions like this on Reddit is still alive, everyone isn't going to Google A. I. or ChatGPT...
+
