@@ -491,3 +491,7 @@ Yes. it is not only Reddit.
 https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np803cy/
 
 Sheltered Reddit audience.
+
+https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np815lx/
+
+Spongebob audience fan.
