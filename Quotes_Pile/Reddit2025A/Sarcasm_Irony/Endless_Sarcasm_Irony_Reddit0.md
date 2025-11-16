@@ -1364,3 +1364,11 @@ Trump is worshiped, Trump is a role model. My god pepole have no sense of how lo
 https://old.reddit.com/r/politics/comments/1oxt1l6/trump_makes_bizarre_claim_london_is_so_dangerous/
 
 Anti-NATO and Reddit community stil can't connect the dots to year 2013 onward War Against Reality by Surkov and Putin. People just see tree after tree, but no forest. Bizarre, unreal, ficiton addicts give each episode ratings and reviews as entertainment, not as a wrecking of the world through organized information warfare. Surkov won, Russia won. Reddit audience amusement-washes entertainment-wraps all this as content to mock.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1oy1ixa/we_all_knew_it_would_end_this_way_prepare/
+
+Which is why I keep observing how low the bar is. Getting rid of Trump for Trump sex crimes doesn't deal with MAGA / JD Vance / Putin. People believe nonsense on all media platforms. Fox News since year 1996. People have to actually desire reform of media consumerism / values / moralty. Bible litercy that can't find verse "1 John 3:17" and apply it to Trump / Musk / Murdoch.
