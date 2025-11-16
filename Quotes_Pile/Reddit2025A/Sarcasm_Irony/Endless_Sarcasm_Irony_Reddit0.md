@@ -1396,3 +1396,9 @@ TOP of front page Sunday morning. Church. Worship, Jesus of "LOL cow milking". R
 https://old.reddit.com/r/politics/comments/1oynit2/trump_who_mocked_bidens_use_of_autopen_caught/
 
 Top of front page on Sunday on Reddit. And peole STILL WILL NOT GET it that the Surkov technique of blowing the minds of citizens / population mind-blowing control is to play Tony Clifton acts. Boasting and bragging that Tony Clifton has sold more albums than Elvis, etc, etc. FOR TEN YEARS AND FIVE MONTHS THIS HAS RULED USA SOCIETY. Faith in mocking, mock for mock, mock mock mockery! Surkov won! Nobody can escape the TOTAL MOCKERY that Putin and Trump created! High speed media system reactionary mindsets rule the society!
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1oymhpp/double_standards/
+
+More Surkov. Evidence of blown minds.
