@@ -418,3 +418,6 @@ https://old.reddit.com/r/pluribustv/comments/1oxzelh/is_the_hivemind_going_throu
 
 Yes, and like Carol's book title Bitter Pupa, we do not know the stages of development of the hive mind, future rewites now that RNA / DNA changes can be spread. For all we know, another signal is waiting to be discovered.
 
+https://old.reddit.com/r/pluribustv/comments/1ox3mu5/carol_was_happy/np511ge/
+
+Low-effort hyper-banal lives on. Reddit society will banalize (Rick Roderick 1993 lectures https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/ ) the most serious social criticism of White Suburb (Subdivision, Subreddit) morality.
