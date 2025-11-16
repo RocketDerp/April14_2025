@@ -487,3 +487,7 @@ Helen falls and dies after touching the social media device and audience message
 https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np7pkjy/
 
 Yes. it is not only Reddit.
+
+https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_mind/np803cy/
+
+Sheltered Reddit audience.
