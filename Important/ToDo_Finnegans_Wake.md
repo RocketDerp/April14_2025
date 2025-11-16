@@ -397,3 +397,12 @@ Dream character / TV produced within a video game creator.
 
 Syntax format laws of language. 's on Finnegans. Computers can reformat source code for viewers.  
 https://old.reddit.com/r/ProgrammerHumor/comments/1oxnzd2/seekhelpplease/
+
+&nbsp;
+
+https://youtu.be/RfZlH8I7zqc?t=408
+
+Hamlet's Ghost, Star Wars Force Ghosts, Angels. "1 John 4:20"
+
+Bible verse "1 John 4:20" - you have never SEEN Jesus. Force ghosts. It's a fiction character in a book. "I love Jesus" is WRONG. - "1 John 4:20"
+
