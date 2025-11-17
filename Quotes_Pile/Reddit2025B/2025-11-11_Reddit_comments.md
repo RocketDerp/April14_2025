@@ -354,3 +354,7 @@ Anti-Rescue. Putin won, Surkov won, since year 2013.
 https://old.reddit.com/r/ProgressiveHQ/comments/1ozg1qx/one_for_the_history_books/npba00g/
 
 That's why people on Reddit are attracted to Trump. The constant Tony Clifton juxtoposition / paradox / inverted symbolism. This has gone on for OVER TEN YEARS AND FIVE MONTHS. Trump is not a coward and weak about waving around badness symbolism. This flag is a technical glitch, I doubt it was planned or oganized, but people WANT him to be a bad-ass so they can mock and insult him. But Trump and Putin know this power of attracting hate / power of concentrating hate.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ozmtor/the_fact_that_this_must_be_said_is_horrifying/npcog7a/
+
+This is why I constantly emphasize Malala January 2009 blog, her year 2012 shooting, her year 2013 book. We are not taking serious matters seriously. We are fighitng for Putin wealth lords, we are not fighting for goodness. People odn't even seem to recognize what goodness means! Nonfiction education, understanding the world, teaching children to be better than previous generations (progress itself). Instaed, we let predaotry billionares run all our media systems like Radio Mullah in Swat Valey, Pakistan and Mecca run by wealth lords. We are dominating people with badness, trickle down content / trickle down advertising and marketing for badness.
