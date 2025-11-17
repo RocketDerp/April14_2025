@@ -533,3 +533,6 @@ https://old.reddit.com/r/pluribustv/comments/1ozi2jo/if_all_the_world_best_game_
 
 The Reddit hive mind behavior.
 
+https://old.reddit.com/r/pluribustv/comments/1ozhvol/is_carol_starting_to_care_more_about_zosia_than/npbqncm/
+
+Curb her temper? Boozing and drugs and thratening an African immigrant to USA. Setting off a bomb.
