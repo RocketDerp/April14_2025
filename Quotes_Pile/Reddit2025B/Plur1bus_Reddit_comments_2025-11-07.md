@@ -519,3 +519,17 @@ The previous mocking user blocked, so I can't reply. A mock and block tactic tha
 https://old.reddit.com/r/pluribustv/comments/1oyu3ik/1x03_blows_the_lid_wide_open_on_story_potential/np76bkt/
 
 Yes. Sarcasm does not excuse taking a loaded weapon and pointing it at someone and dong murder-suicide. Carol is deathy afraid of the hive mind, and plays dumb that they would not give a rael Air Force One or a real loaded gun.
+
+https://old.reddit.com/r/pluribustv/comments/1ozi8lg/i_told_my_son_about_the_show_and_he_had_a_theory/npbor8i/
+
+The technology change to Earth / humans is massive. So many misunderstandings and poor information has been recognized. Having framed it as invasive / alien / disease - a cure is now to keep the best of the changes and restore what people like Carol prize. It is still early in the show, and what may seem stable in the values and hive behavior may be infiltrated / temporary stage. It has always bothered me that people don't recognize the entertainmennt addiction of Star Wars and Star Trek alawys havig wars / enemy. Like the universe never escapes humnan hate. A dog that attacks and always prizes hate would be put to death in many Earth culutres. But Rupert Murdoch people who prize hate and attack other groups of humans is treated as normal. Ad evolving technology to Star Wars level of blowing up entire planets with weapon systems is considred progress of humanity. MLK Jr even talked about breaking the chain of hate for the entire universe. Boy, that would be hard to sell as entertaining to audiences, but it isn't an unknown human ideal. ... ... ...        
+"And it is all a descending spiral, ultimately ending in destruction for all and everybody. Somebody must have sense enough and morality enough to cut off the chain of hate and the chain of evil in the universe."
+
+https://old.reddit.com/r/pluribustv/comments/1ozi2jo/if_all_the_world_best_game_devs_were_brainwashed/npbo4qt/
+
+The artificial intelligence model that is not original theory. 
+
+https://old.reddit.com/r/pluribustv/comments/1ozi2jo/if_all_the_world_best_game_devs_were_brainwashed/npbprsr/
+
+The Reddit hive mind behavior.
+
