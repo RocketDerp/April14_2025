@@ -503,3 +503,12 @@ Spongebob audience behaviors on real audience criticism of romanticizing the Fou
 https://old.reddit.com/r/pluribustv/comments/1oyz3dt/1x03_survival_instinct/np8afxa/
 
 Finnegans Wake lessons to the audience. Bible literacy lessons to The Audience. Sin isn't sin, Romans 11:32 - the source of sin is The Creator / God. Humans did not create sin, God did. James Joyce 1132 themes.
+
+https://old.reddit.com/r/pluribustv/comments/1oyz3dt/1x03_survival_instinct/np83edw/
+
+Bingo. Carol is baiting a trap for her enemy. The audience is drowning in sarcasm / satire in USA society. If Carol does not trust the hive mind, why invite it into her house for drinks. When you invite someone into your home office for drinks ih the middle of the night and put a loaded gun on the table... and you attempt a murder/suicide...
+
+https://old.reddit.com/r/pluribustv/comments/1oyz3dt/1x03_survival_instinct/np88qms/
+
+And EVEN AFTER she blows up the house, the hive mind still says they would give her another bomb. Sarcasm is poisoned, Irony is poisoned.
+
