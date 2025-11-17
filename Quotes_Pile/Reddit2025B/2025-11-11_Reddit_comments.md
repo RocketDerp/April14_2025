@@ -308,3 +308,9 @@ Correct. You don't create metaphorsof Eden if you already had it. You have to bu
 https://old.reddit.com/r/LivestreamFail/comments/1oxy8wo/jack_doherty_has_been_arrested_in_miami_on/np1h35u/
 
 Brain rot Fox News (Jen Senko not promoted by social media society), Florida role model of media Donald Trump, on and on.
+
+https://old.reddit.com/r/technology/comments/1oygsx4/metas_top_ai_researchers_is_leaving_he_thinks/np563pb/
+
+https://old.reddit.com/r/TikTokCringe/comments/1oz1bna/just_saw_this_drop_on_a_russian_discord_server/np8f9jw/
+
+How Russia wrecked a nation, feedback loops of A mocks B, B mocks A, etc, etc. People will embrace ANY idea and put it into their mind if it is "milking a LOL cow", and Trump provides constant sitmulation entertainment amusement.
