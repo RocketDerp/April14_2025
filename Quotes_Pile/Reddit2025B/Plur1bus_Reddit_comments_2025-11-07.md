@@ -538,3 +538,7 @@ https://old.reddit.com/r/pluribustv/comments/1ozhvol/is_carol_starting_to_care_m
 Curb her temper? Boozing and drugs and thratening an African immigrant to USA. Setting off a bomb.
 
 https://old.reddit.com/r/pluribustv/comments/1ozhvol/is_carol_starting_to_care_more_about_zosia_than/npbvv45/
+
+https://old.reddit.com/r/okbuddypluribus/comments/1o1zag1/reminder_to_tag_spoilers/niq1p9a/
+
+A mocking subreddit, that has a zero-tolerance policy on spoilers. What a mockery of society Reddit and social media has become. Non-person someone from society for a spoiler. 
