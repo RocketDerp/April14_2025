@@ -314,3 +314,24 @@ https://old.reddit.com/r/technology/comments/1oygsx4/metas_top_ai_researchers_is
 https://old.reddit.com/r/TikTokCringe/comments/1oz1bna/just_saw_this_drop_on_a_russian_discord_server/np8f9jw/
 
 How Russia wrecked a nation, feedback loops of A mocks B, B mocks A, etc, etc. People will embrace ANY idea and put it into their mind if it is "milking a LOL cow", and Trump provides constant sitmulation entertainment amusement.
+
+https://old.reddit.com/r/technology/comments/1oz2387/fcc_chairman_reposts_us_presidents_call_for_nbc/np8k8vl/
+
+Poople can't even communicate on social media without blocking. Trump's behaivor of "Fake News" and demaniding people be taken off the air is the same attitude. Nobody is asserting goodness, morality is in the toilet in favor of prizing hate.
+
+https://old.reddit.com/r/technology/comments/1oz2387/fcc_chairman_reposts_us_presidents_call_for_nbc/np8nf2o/
+
+Cult claims without any book quotes, author names, etc. It's just an insult. People don't want to engage nonficiton learning and sustained focus on these issues. Media ecology lessons. Even on the Pluribis topics, people just view these problems as entertainment and not something of human progress and a wall we have to climb over (Joyce: nightmare of history).
+
+https://old.reddit.com/r/technology/comments/1oz2387/fcc_chairman_reposts_us_presidents_call_for_nbc/np8o9jz/
+
+One of the points people don't get about Donald Trump and failed casinos. Trump wasn't in casinos for the math house advantage. Trump's attraction is the media. The entertainment learning, the Tony Clifton casho lounge acts. Reddit users do not see the constant attraction to Trump as a source of mocking and insulting, a "LOL cow" to milk.
+
+https://old.reddit.com/r/technology/comments/1oz2387/fcc_chairman_reposts_us_presidents_call_for_nbc/np8ktum/
+
+Social media users prize blocking people. Bluesky people never seem as thrilled as when they publish a block list and call for mass book burning / newsletter burning of those they disagree with. Machine power of media machines, media mania.
+
+https://old.reddit.com/r/technology/comments/1oz2387/fcc_chairman_reposts_us_presidents_call_for_nbc/np8qzv2/
+
+<img width="1320" height="318" alt="image" src="https://github.com/user-attachments/assets/87a6768c-9a72-4bc6-a6f2-0e69ebcacb37" /> Exactly. Dog eat dog Russia values. Surkov won. People in USA have resisted the nonfiction learning about these topics, people have not resisted embracing the hate and dehumanization.
+
