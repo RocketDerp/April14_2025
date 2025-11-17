@@ -335,3 +335,19 @@ https://old.reddit.com/r/technology/comments/1oz2387/fcc_chairman_reposts_us_pre
 
 <img width="1320" height="318" alt="image" src="https://github.com/user-attachments/assets/87a6768c-9a72-4bc6-a6f2-0e69ebcacb37" /> Exactly. Dog eat dog Russia values. Surkov won. People in USA have resisted the nonfiction learning about these topics, people have not resisted embracing the hate and dehumanization.
 
+https://old.reddit.com/r/pics/comments/1ozefkw/president_trump_walking_past_the_flag_at_the/npb1vkq/
+
+The symbolism of Trump Tower NYC, his house, height. Sitting on a chair on top, you are at 666 feet. How can you not notice this neight number when designing it, choosing how many floors and their height? Being a symbol of a badd-ass.
+
+https://old.reddit.com/r/politics/comments/1ozdpjb/trump_launches_latenight_posting_spree_after/npbkeuy/
+
+The proven way to win debate in social media society. Insulting and mocking.
+
+https://old.reddit.com/r/politics/comments/1ozdpjb/trump_launches_latenight_posting_spree_after/npb9680/
+
+Reddit audience convinces itself it is physical disorder. That all of MAGA / Fox News Audience is "sundowning". That way the addictions to fiction content aren't addressed. Trump being "insane" is being unusual / distinctive. That's what draws the Reddit audience on ANY topic. A kiten with distinctive body pose or fur color... front page of Reddit. A sports clip with distinctive movements, front page of Reddit. Donald Trump and his skin color gets constant attention. Disctinctive, eye catching, behavior that stands out. Outstanding Trump. People are not attracted to promoting the Second Bill of Rights from January 1944, that'd dictictive better - but people are attracted to mocking / insutling / badness that Trump provides. Mocking a Tony Clifton performance is not resisting a Tony Clifton performance. Trump grasps SNL.
+
+https://old.reddit.com/r/complaints/comments/1ozi28o/republicans_removed_trumps_name_from_the_epstein/npbok7w/
+
+Anti-Rescue. Putin won, Surkov won, since year 2013.
+
