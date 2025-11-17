@@ -500,3 +500,6 @@ https://old.reddit.com/r/pluribustv/comments/1oyxo1e/why_do_we_romanticize_hive_
 
 Spongebob audience behaviors on real audience criticism of romanticizing the Founding Fathers Latin phrase.
 
+https://old.reddit.com/r/pluribustv/comments/1oyz3dt/1x03_survival_instinct/np8afxa/
+
+Finnegans Wake lessons to the audience. Bible literacy lessons to The Audience. Sin isn't sin, Romans 11:32 - the source of sin is The Creator / God. Humans did not create sin, God did. James Joyce 1132 themes.
