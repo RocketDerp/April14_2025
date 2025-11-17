@@ -515,3 +515,7 @@ And EVEN AFTER she blows up the house, the hive mind still says they would give 
 https://old.reddit.com/r/pluribustv/comments/1oynlxn/peak_dialogue_s01e03_spoiler/np99fha/
 
 The previous mocking user blocked, so I can't reply. A mock and block tactic that prevents any reply in the thread, even to other people. It is lost on many people on Reddit that this is a topic of the show  / hive mind. People who can't even have conversations without needing to lifetime block other people in the world. Finnegans Wake at 23 minutes into Episode One of Pluribus... the Tower of Babel conflicts.
+
+https://old.reddit.com/r/pluribustv/comments/1oyu3ik/1x03_blows_the_lid_wide_open_on_story_potential/np76bkt/
+
+Yes. Sarcasm does not excuse taking a loaded weapon and pointing it at someone and dong murder-suicide. Carol is deathy afraid of the hive mind, and plays dumb that they would not give a rael Air Force One or a real loaded gun.
