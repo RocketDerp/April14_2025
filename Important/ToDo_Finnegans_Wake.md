@@ -406,3 +406,8 @@ Hamlet's Ghost, Star Wars Force Ghosts, Angels. "1 John 4:20"
 
 Bible verse "1 John 4:20" - you have never SEEN Jesus. Force ghosts. It's a fiction character in a book. "I love Jesus" is WRONG. - "1 John 4:20"
 
+&nbsp;
+
+https://old.reddit.com/r/oddlyspecific/comments/1ozesxl/hellfuck/
+
+The kind of langauge woke of Finnegans Wake. Trying to comprehend and understand people and how it ties to history and real world and why people use and abuse languages. Reality of real-world experiences, fabric of reality itself.
