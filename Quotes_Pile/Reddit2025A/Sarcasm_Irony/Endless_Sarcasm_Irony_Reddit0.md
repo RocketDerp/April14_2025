@@ -1407,3 +1407,9 @@ https://old.reddit.com/r/clevercomebacks/comments/1ozj82q/a_billionaires_guide_t
 
 All over Reddit and Bluesky, I see the atittude that speaking out of turn, writing comments or posting on social media - that are wrong should be banned / blocked / prevented. Which is the same sort of message billionares are feeding about protesting being bad. Messaging against the crowd is reated as bad. MLK Jr made a huge point of this. "Human salvation lies in the hands of the creatively maladjusted." - good from bad. If a billionare is promoting goodness, I'm not against it, but they almost always are not. I'm also not in favor of protests that promote badness. The Beatles song "Revolution", if you have minds that hate...
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1ozhf1r/maga_world_celebrates_trump_ending_coffee_and/
+
+Surkov technique. Simulation / simulacra. People prize fiction stroytelling over nonfiction reality. Reddit audience inclusive, who calls out tree by tree without naming Surkov and Putin's techniques.
+
