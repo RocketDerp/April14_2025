@@ -1413,3 +1413,10 @@ https://old.reddit.com/r/politics/comments/1ozhf1r/maga_world_celebrates_trump_e
 
 Surkov technique. Simulation / simulacra. People prize fiction stroytelling over nonfiction reality. Reddit audience inclusive, who calls out tree by tree without naming Surkov and Putin's techniques.
 
+&nbsp;
+
+
+https://old.reddit.com/r/MurderedByWords/comments/1ozn790/andrew_tate_declares_he_is_no_longer_attracted_to/
+
+Are the billionare women like Taylor Swift and Oprah wrecking the world... or Putin / Trump / Rupert Murdoch / Elon Mustk Twitter / Mark Z Facebook? Why oh why can people not let Malala's year 2013 book speak, even if she had outgrown that phase. There is so much taking of edication seriously in Malala's October 8, 2013 book. Andrew Tate / Joe Rogan... to what ends? Maximum Putinism. Maximum Taliban. USA has a crisis: Hillary Cliton and Kamala Harris and even what was said OUT LOUD this past weekend about women and domination mentality: https://www.cnn.com/2025/11/15/politics/michelle-obama-woman-president-not-ready
+
