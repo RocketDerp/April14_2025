@@ -358,3 +358,8 @@ That's why people on Reddit are attracted to Trump. The constant Tony Clifton ju
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1ozmtor/the_fact_that_this_must_be_said_is_horrifying/npcog7a/
 
 This is why I constantly emphasize Malala January 2009 blog, her year 2012 shooting, her year 2013 book. We are not taking serious matters seriously. We are fighitng for Putin wealth lords, we are not fighting for goodness. People odn't even seem to recognize what goodness means! Nonfiction education, understanding the world, teaching children to be better than previous generations (progress itself). Instaed, we let predaotry billionares run all our media systems like Radio Mullah in Swat Valey, Pakistan and Mecca run by wealth lords. We are dominating people with badness, trickle down content / trickle down advertising and marketing for badness.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1ozmtor/the_fact_that_this_must_be_said_is_horrifying/npcsicf/
+
+Globally. The Taliban blowing up schools so little girl Malala can't learn in January 2009. Indoctrination into a male elder domination of Taliban / Swat Valley Pakistna. Exactly what is bieng "conserved" here?
+
