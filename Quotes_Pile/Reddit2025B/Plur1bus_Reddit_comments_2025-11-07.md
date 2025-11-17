@@ -542,3 +542,18 @@ https://old.reddit.com/r/pluribustv/comments/1ozhvol/is_carol_starting_to_care_m
 https://old.reddit.com/r/okbuddypluribus/comments/1o1zag1/reminder_to_tag_spoilers/niq1p9a/
 
 A mocking subreddit, that has a zero-tolerance policy on spoilers. What a mockery of society Reddit and social media has become. Non-person someone from society for a spoiler. 
+
+https://old.reddit.com/r/okbuddypluribus/comments/1oz9abw/why_doesnt_the_hivemind_die_from_cringe_if_it/npa7luc/
+
+The "cringe" Tower of Babel aspects of the story. The cringe-washing / amusement-washing that goes on with terrible world leaders.
+
+https://old.reddit.com/r/okbuddypluribus/comments/1oyqk67/pluribus_episode_4_carol_commits_genocide/np6oe4m/
+
+https://old.reddit.com/r/okbuddypluribus/comments/1oyqk67/pluribus_episode_4_carol_commits_genocide/np6uld0/
+
+Mass man / media mass man (Marshall McLuhan) is even more confusing to people. Putin / Surkov power.
+
+https://old.reddit.com/r/okbuddypluribus/comments/1oyqk67/pluribus_episode_4_carol_commits_genocide/np8jed2/
+
+The number of seasons is a huge factor. Even things that are revealed as hard rules may change.
+
