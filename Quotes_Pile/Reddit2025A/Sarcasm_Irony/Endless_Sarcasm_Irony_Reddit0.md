@@ -1402,3 +1402,8 @@ Top of front page on Sunday on Reddit. And peole STILL WILL NOT GET it that the 
 https://old.reddit.com/r/complaints/comments/1oymhpp/double_standards/
 
 More Surkov. Evidence of blown minds.
+
+https://old.reddit.com/r/clevercomebacks/comments/1ozj82q/a_billionaires_guide_to_citizenship/
+
+All over Reddit and Bluesky, I see the atittude that speaking out of turn, writing comments or posting on social media - that are wrong should be banned / blocked / prevented. Which is the same sort of message billionares are feeding about protesting being bad. Messaging against the crowd is reated as bad. MLK Jr made a huge point of this. "Human salvation lies in the hands of the creatively maladjusted." - good from bad. If a billionare is promoting goodness, I'm not against it, but they almost always are not. I'm also not in favor of protests that promote badness. The Beatles song "Revolution", if you have minds that hate...
+
