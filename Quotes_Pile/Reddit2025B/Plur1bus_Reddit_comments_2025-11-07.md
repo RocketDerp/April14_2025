@@ -512,3 +512,6 @@ https://old.reddit.com/r/pluribustv/comments/1oyz3dt/1x03_survival_instinct/np88
 
 And EVEN AFTER she blows up the house, the hive mind still says they would give her another bomb. Sarcasm is poisoned, Irony is poisoned.
 
+https://old.reddit.com/r/pluribustv/comments/1oynlxn/peak_dialogue_s01e03_spoiler/np99fha/
+
+The previous mocking user blocked, so I can't reply. A mock and block tactic that prevents any reply in the thread, even to other people. It is lost on many people on Reddit that this is a topic of the show  / hive mind. People who can't even have conversations without needing to lifetime block other people in the world. Finnegans Wake at 23 minutes into Episode One of Pluribus... the Tower of Babel conflicts.
