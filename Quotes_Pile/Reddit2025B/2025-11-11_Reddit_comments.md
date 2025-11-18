@@ -437,3 +437,6 @@ https://old.reddit.com/r/CringeTikToks/comments/1ozvaoz/i_wanted_to_come_back_he
 
 Other than the thought-terming "That is ALL"... social media audiences want politicians to mock and insult. Information warfare of religion tribes, national flags, political parties. 
 
+https://old.reddit.com/r/todayilearned/comments/1ozwvps/til_that_in_1978_the_actor_who_plays_darth_vader/npfeps0/
+
+Media ecology....
