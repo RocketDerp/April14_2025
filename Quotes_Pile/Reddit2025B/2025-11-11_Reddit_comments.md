@@ -453,4 +453,7 @@ https://old.reddit.com/r/clevercomebacks/comments/1p0bvc7/efforts_to_return_to_t
 
 Reddit audiences find it so entertaining, such low-effort content. Mocking nad insulting doesn't take much effort.Facing up to meme addiction and racism is way harder.
 
+https://old.reddit.com/r/news/comments/1p0gsgh/nearly_21000_charlottemecklenburg_students_absent/npioagz/
+
+Everyone is so entertained. So many sports games, sports stars, entertaining politicians, so many out-groups to hate, so many people to hate and dehumanize. So many high-speed disposable comments to make.
 
