@@ -400,3 +400,15 @@ Games are pro-killing pro-murder. Aleins are the new metaphor for other skin col
 https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npes4xu/
 
 JHust like always, adopt Trump behavior. Trump the template for "winning". Adopt Trump speech, mocking, hate. Hate for hate. Hate vs. hate. Common faith of USA society: *hate harder* since year 2013. Putin son, Surkov won.
+
+https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npemhgy/
+
+Her ego is a reflection of society. Flocking to wealth leaders like Taylor Swift and Donald Trump and Elon Musk. Taylor Swift isn't the downfall, Donald Trump as "LOL cow" to milk and insult non-stop for OVER TEN YEARS AND FIVE MONTHS, endlessly insulting and mocking Trump and keeping him at the center of Reddit nonstop for the sake of hate, sake of mockery, sake of name-calling, sake of egoism that eveyrone "are you smarter than a 3rd grader" dick mesasuremnet of how dumb and idiot Trummp is. That's the attraction. A low bar of measure, 3rd grader being defeated. Audiences eat up the Kremlin information warfare since year 2013 using these technqiues.
+
+https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npdmkhw/
+
+2025 the stupidst year in USA society. Neil Postman's 1985 book "Amusing Ourselves To Death" about Fox News, Reddit, Bluesky, high-speed electric media values and behaviors.
+
+https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npdy93e/
+
+She knoows USA audience. The same USA society that prizes high-speed disposable comments. She is talking at the ELI3 level Reddit audience adores, Fox News audience wants, Trump society follows. People are not protesting the avoidance of nonfiction. People are not calling out Surkov society techniques by name. People are not calling to rescue adults from Fox News, to rescue MAGA from Russia media invasion. People just want to grade and insult that they are slightly better off than the dubness. This is hell for me, a society that only cares about cometition over smartness, not actually using Wiki systle systems instead of Reddit sytle disposable commenting all on different pages.
