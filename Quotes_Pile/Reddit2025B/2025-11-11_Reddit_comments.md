@@ -363,3 +363,40 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1ozmtor/the_fact_that_this_
 
 Globally. The Taliban blowing up schools so little girl Malala can't learn in January 2009. Indoctrination into a male elder domination of Taliban / Swat Valley Pakistna. Exactly what is bieng "conserved" here?
 
+https://old.reddit.com/r/law/comments/1ozock7/americans_should_be_enraged_reports_expose/npd0c55/
+
+Americans are enraged. At immigrants. At comments on social media, block-button and I.C.E. deport happy. You can't discuss the social issues of humanity about a TV show without massive downvotes, reporting, and being banned. People are constantly raging at how much they hate each other, hate MAGA, hate Trump. Anything but learn about information warfare and media addiction. Trump is a hate magnet, rage high-speed media leader signal.
+
+https://old.reddit.com/r/law/comments/1ozock7/americans_should_be_enraged_reports_expose/npd0elm/
+
+https://old.reddit.com/r/law/comments/1ozock7/americans_should_be_enraged_reports_expose/npd79zg/
+
+MAGA is enraged at the department of justice for not locking up politicians, free thinkers, people who don't worship hate.
+
+https://old.reddit.com/r/agedlikemilk/comments/1oztpql/boys_will_be_boys/npe2lw2/
+
+People would rather mock and insult each other than discuss what MLK Jr had to say about hate.
+
+https://old.reddit.com/r/agedlikemilk/comments/1oztpql/boys_will_be_boys/npe6ljm/
+
+The audience attraction to Trump.
+
+https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npedd26/
+
+Business suit, apperances, are massive reasons people resect these men. Icon / Symbolism programming with massive media systems, massive advertising, massive marketing, drilled into people. In Saudi Arabia, an entire different business suit. In Malala's Swat Valley Pakistan, entire different business suit. Wealthy people have convinced USA popuulation that dirty street people are the enemy. If your writing on Reddit isn't charming and unique, you will be ignored / avoided. if you quote a factual book on the subject, people will mock and insutl and say it is off topic. So conditioned to only prize what the wealthy say to listen to / dress / decoration.
+
+https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npeew76/
+
+Finnegans Wake, James Joyce. The Tower of Babel. All the ways we devise to not listen to each other and not be serious about goodness. All the ways we favor dress and word-choice and spelling to eliminate comprehension and understanding.
+
+https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npebj6c/
+
+Never ever forgive, neve ever progress, never ever teach and educate these media driven patterns. Exactly how Russia inforamtion warfare defated USA, get ever American in egoism bubbles to out-group *the others* and never forgive and addresss Russian methods itself.
+
+https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npeohe4/
+
+Games are pro-killing pro-murder. Aleins are the new metaphor for other skin colors, other genders, other religions, other races, other nations. The thrill of killing.
+
+https://old.reddit.com/r/politics/comments/1ozuyqg/donald_trump_snaps_at_female_reporter_who_asks/npes4xu/
+
+JHust like always, adopt Trump behavior. Trump the template for "winning". Adopt Trump speech, mocking, hate. Hate for hate. Hate vs. hate. Common faith of USA society: *hate harder* since year 2013. Putin son, Surkov won.
