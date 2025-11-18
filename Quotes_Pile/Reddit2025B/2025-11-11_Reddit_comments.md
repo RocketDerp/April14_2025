@@ -412,3 +412,11 @@ https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_tay
 https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npdy93e/
 
 She knoows USA audience. The same USA society that prizes high-speed disposable comments. She is talking at the ELI3 level Reddit audience adores, Fox News audience wants, Trump society follows. People are not protesting the avoidance of nonfiction. People are not calling out Surkov society techniques by name. People are not calling to rescue adults from Fox News, to rescue MAGA from Russia media invasion. People just want to grade and insult that they are slightly better off than the dubness. This is hell for me, a society that only cares about cometition over smartness, not actually using Wiki systle systems instead of Reddit sytle disposable commenting all on different pages.
+
+https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npegxfe/
+
+Tower of Babel conflicts raging. Everyone in their own langauge filter-bubble. 
+
+https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npe9pv5/
+
+Poetry and music lyrics, multiple interpretations.
