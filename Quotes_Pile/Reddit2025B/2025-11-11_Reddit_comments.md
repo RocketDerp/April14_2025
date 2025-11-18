@@ -433,3 +433,7 @@ https://old.reddit.com/r/complaints/comments/1ozi28o/republicans_removed_trumps_
 
 People will not focus on that. People will not let it sink in. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md).
 
+https://old.reddit.com/r/CringeTikToks/comments/1ozvaoz/i_wanted_to_come_back_here_to_israel_and_let_you/npekhl1/
+
+Other than the thought-terming "That is ALL"... social media audiences want politicians to mock and insult. Information warfare of religion tribes, national flags, political parties. 
+
