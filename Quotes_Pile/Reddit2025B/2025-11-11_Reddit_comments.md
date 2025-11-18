@@ -440,3 +440,17 @@ Other than the thought-terming "That is ALL"... social media audiences want poli
 https://old.reddit.com/r/todayilearned/comments/1ozwvps/til_that_in_1978_the_actor_who_plays_darth_vader/npfeps0/
 
 Media ecology....
+
+https://old.reddit.com/r/ProgrammerHumor/comments/1p0dec7/someonemaynotbethathappy/npik3hf/
+
+Most of the wget / Linux script / Python tools default to Firefox browser identification string?
+
+https://old.reddit.com/r/complaints/comments/1p0dxm3/how_many_fucking_pedo_cops_does_it_take_before/npi67xb/
+
+QAnon is everything now. Russia supported QAnon. New brands, new faces, just like the "Internet Research Agency" and "Cambridge Analytica" brands are gone, but the techniques are everythwere. Everything changed since year 2013. https://www.independent.co.uk/news/world/americas/us-election-2020/qanon-russia-conspiracy-theory-trump-2020-election-b1536946.html
+
+https://old.reddit.com/r/clevercomebacks/comments/1p0bvc7/efforts_to_return_to_the_previous_state/nphohqs/
+
+Reddit audiences find it so entertaining, such low-effort content. Mocking nad insulting doesn't take much effort.Facing up to meme addiction and racism is way harder.
+
+
