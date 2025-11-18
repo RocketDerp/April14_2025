@@ -1063,3 +1063,9 @@ Low-effort prompting
 
 https://youtu.be/rGremoYVMPc?t=125
 
+&nbsp;
+
+### Screen Size comfort zone
+
+https://old.reddit.com/r/Millennials/comments/1ozk8fq/peak_millennial_behaviour_and_i_stand_by_it/
+
