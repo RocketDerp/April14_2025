@@ -420,3 +420,16 @@ Tower of Babel conflicts raging. Everyone in their own langauge filter-bubble.
 https://old.reddit.com/r/travisandtaylor/comments/1ozrn3f/vulture_just_named_taylor_swifts_albumwriting/npe9pv5/
 
 Poetry and music lyrics, multiple interpretations.
+
+https://old.reddit.com/r/complaints/comments/1ozi28o/republicans_removed_trumps_name_from_the_epstein/npbqhzt/
+
+No quotes, no specific dates, no links. Audience of Reddit loves Trump sex-talk. QAnon level "Q Drops" about Pizzagate and other low-effort disposable comment. Why isn't there a page listing all the facts that people link? Because low-effort conversational discussion is what is popular. Not organized books and Wiki style refined information.
+
+https://old.reddit.com/r/complaints/comments/1ozi28o/republicans_removed_trumps_name_from_the_epstein/npd3ubh/
+
+People prize hate. People want to hate. That's Putin and Trump power over the populations, hate. that's the attraction to Trump: hate leadership. It's all so obvious that Trump should not be President, but people won't study MLK Jr on hate. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md).
+
+https://old.reddit.com/r/complaints/comments/1ozi28o/republicans_removed_trumps_name_from_the_epstein/npcqejc/
+
+People will not focus on that. People will not let it sink in. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md).
+
