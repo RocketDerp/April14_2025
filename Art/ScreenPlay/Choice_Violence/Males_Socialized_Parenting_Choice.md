@@ -31,4 +31,8 @@ But then after Septemer 11, 2001 I started digging back into Joseph Campbell's f
 
 His dancer wife, both at Sarah Lawrence College for women, observed this. In the Coaches With Six Insides, Jean E. made the point about 20 meanings for every sentence in Finnegans Wake.
 
+## Joke Washing
+
+god, organized joke washing is spelled out as a tactic. https://youtu.be/VNLdyWPAz18?t=1185
+
 
