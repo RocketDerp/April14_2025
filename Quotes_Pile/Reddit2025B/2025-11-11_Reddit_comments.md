@@ -457,3 +457,11 @@ https://old.reddit.com/r/news/comments/1p0gsgh/nearly_21000_charlottemecklenburg
 
 Everyone is so entertained. So many sports games, sports stars, entertaining politicians, so many out-groups to hate, so many people to hate and dehumanize. So many high-speed disposable comments to make.
 
+https://old.reddit.com/r/Gamingcirclejerk/comments/1p14s61/racism_in_the_cosplaying_community_has_got_to_stop/npnnvx6/
+
+Crusty neckbeard. Donald Trump is leading parenting since June 2015 as a role model. Trump, for over TEN YEARS AND FIVE MONTHS, is what parents want as a leader. This isn't an issue of just computer nerds, Trump isn't a computer nerd, he is a TV nerd. Fox News audience isn't "crusty neckbeards", it is rural farmers and rural landowners. People always have to have an out-group but won't focus on hate itself. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md).
+
+https://old.reddit.com/r/Gamingcirclejerk/comments/1p14s61/racism_in_the_cosplaying_community_has_got_to_stop/npnxz5p/
+
+Racism is hardware now, Not parenting. Not education. 
+
