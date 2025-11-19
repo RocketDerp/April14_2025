@@ -1079,3 +1079,6 @@ Finnegans Wake ALP example, sonic media environment.
 
 https://www.youtube.com/watch?v=Y96lD5HYYIM
 
+https://youtu.be/Y96lD5HYYIM?t=694
+
+Questioning the Tower of Babel. Authentic relationships with other people. Everything is being called into question. Seam highlighting.
