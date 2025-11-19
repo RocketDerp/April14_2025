@@ -43,7 +43,8 @@ people do not see how domiant this is. People who have made Donald Trump a role 
 
 ## Defending / conserving WHAT?
 
-What exactly are men defending and conserving? Love and compassion and [consent (Rush Limbaugh)](https://www.mediamatters.org/rush-limbaugh/limbaugh-left-sends-out-rape-police-whenever-theres-sex-no-consent-also-known-rape) are downlplayed in favor of power to just get yes-women. And this toxic leadership wrecksthe Tower of Babel history and conflicts to bridge the gap of teaching / education / understanding between men / women / everyone!
+What exactly are men defending and conserving? Love and compassion and [consent (Rush Limbaugh)](https://www.mediamatters.org/rush-limbaugh/limbaugh-left-sends-out-rape-police-whenever-theres-sex-no-consent-also-known-rape) are downlplayed in favor of power to cultivate / get yes-women. And this toxic leadership wrecks the Tower of Babel history (self-awareness of language communications troubles) and conflicts to bridge the gap of teaching / education / understanding between men / women / everyone!
 
 https://youtu.be/VNLdyWPAz18?t=2018
 
+Is this why autistics are hated so much? "Uppity" like racial? Uppity women and autistic people who stand up to the systems of leveraging misunderstandings and shallowness?
