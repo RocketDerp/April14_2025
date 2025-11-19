@@ -495,3 +495,31 @@ https://old.reddit.com/r/complaints/comments/1p1ahit/guess_its_time_to_sell_my_t
 
 Just like people are afraid to share goodness comments on Reddit. It's mostly popular to hate and mock (Truth Social values of hate harder / mock harder).
 
+https://old.reddit.com/r/Anticonsumption/comments/1p1a08u/they_said_the_quiet_part_out_loud_pt_2/npornsg/
+
+People will not face up that Quran, Torah, Bible are not supernatural. The Great Seal of the United States of America from founding fathers is all about this self-awareness. The science fiction stories of Quran, Bible, Torah are not magical. Modern advertising / marketing does and can reproduce these memes. As does Russian information warfare (Surkov monomyth).
+
+https://old.reddit.com/r/Anticonsumption/comments/1p1a08u/they_said_the_quiet_part_out_loud_pt_2/npoftiw/
+
+Proven system. Kremlin Surkov monomyth, Saudi Arabia Mecca monomyth theme park, Disney, etc. Rupert Murdoch's media empire of *wealth televagelism*, admire the wealthy.
+
+https://old.reddit.com/r/Anticonsumption/comments/1p1a08u/they_said_the_quiet_part_out_loud_pt_2/npoh8ww/
+
+Elon Musk goes around declaring there are "mind virus" and that he controls them. People really seem to ignore that this is openly declared by the richest man on Earth. https://www.lemonde.fr/en/international/article/2024/08/13/elon-musk-s-ambition-repopulating-the-planet-and-destroying-the-woke-virus_6714239_4.html
+
+https://old.reddit.com/r/Music/comments/1p1apfi/nicki_minaj_faces_backlash_after_accepting_role/npou8l4/
+
+Reddit is a tool of billionares, Elon Musk has directly addressed Reddit society.
+
+https://old.reddit.com/r/Music/comments/1p1apfi/nicki_minaj_faces_backlash_after_accepting_role/npp9kdj/
+
+People in the audience won't question "enjoyment". Is making people suffer really joy? Nope. I don't believe it for a minute. I supposed it does not hurt that age age 26 I was working in Bellevue Washington with the private communications between the 1st and 3rd richest men in the world (Warren Buffet was 2nd).
+
+https://old.reddit.com/r/Music/comments/1p1apfi/nicki_minaj_faces_backlash_after_accepting_role/npowsvt/
+
+Greatest asset list, video game Bloomberg terminal, video game spreadhsheet score. OPERA_A Pacific Northwest Billionares 1996... Autism mind-blindness. Nope, Hyper Empathy. By never fitting anywehre on the Tower of Babels, finding metaphors and what James Joyce / Joseph Campbell / Marshall McLuhan / Rick Roderick / Neil Postman saw... https://www.youtube.com/watch?v=N8FJyhnC2Eo
+
+https://old.reddit.com/r/instantkarma/comments/1p1j6nu/he_stole_someones_bag_unaware_that_he_was_being/npqvcmq/
+
+Front page of Reddit having Police / I.C.E. in USA arrest a black man would have people respond very different. There are ways to arrest people without abuse. Especially in a metal enclosed train car.
+
