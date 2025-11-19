@@ -27,3 +27,10 @@ CAMPBELL: Ethical laws. **The laws of life as it should be in the good society. 
 &nbsp;
 
 That is what Bible verse **Luke 6 : 7** means...
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/comics/comments/1p19veb/deep_thoughts/
+
