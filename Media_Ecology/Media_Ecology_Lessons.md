@@ -1069,3 +1069,13 @@ https://youtu.be/rGremoYVMPc?t=125
 
 https://old.reddit.com/r/Millennials/comments/1ozk8fq/peak_millennial_behaviour_and_i_stand_by_it/
 
+&nbsp;
+
+&nbsp;
+
+### James Joyce Media Ecology
+
+Finnegans Wake ALP example, sonic media environment.
+
+https://www.youtube.com/watch?v=Y96lD5HYYIM
+
