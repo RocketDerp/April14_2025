@@ -465,3 +465,21 @@ https://old.reddit.com/r/Gamingcirclejerk/comments/1p14s61/racism_in_the_cosplay
 
 Racism is hardware now, Not parenting. Not education. 
 
+https://old.reddit.com/r/comics/comments/1p12lcx/im_just_16_oc/npni6tf/
+
+Taliban values. men socialize men to drink and drive as an ego challenge. To conquest women. 
+
+https://old.reddit.com/r/comics/comments/1p12lcx/im_just_16_oc/npnrsac/
+
+https://old.reddit.com/r/comics/comments/1p12lcx/im_just_16_oc/npnwx83/
+
+Comparative mythology. And systemic rape, Swat Valley Pakistan bullet in the head for blogging.
+
+https://old.reddit.com/r/comics/comments/1p12lcx/im_just_16_oc/npo1c48/
+
+The world over, age 18 men are put into military to kill. Consentual sex between adults, especially in the age of birth control, is not one of the worst forbidden sins of society. 21 year old sex workers. Preach about the underlying economic / religion / systemic conditions. Even then, people do it for entertainment and experience. There is a whole "MILF" movement in society. Many young men would say they want sex with older women (not to have children, birth control casual sex). And I'm not saying these idaes are simple. The SIMPLE ideas are the soldiers / war / hate being bad. Consentual adults. You run into all kinds of issues of hollywood actor trafficing, musicians, at age 15... there are no easy answers. But soldiers and war, we can't seem to agree on. Killing / murdering is bad, but we elect politicians that build nuclear bombs and we can't get mental helath professionals to decide that all of Russia needs a mental helath intervention / preaching since February 2014. Morality wise, we are on the verge of machine sex toys - women should speak up on this. If men claim they can't control themselves or need recreational sex. Do we protect human sex workers against robot intrusion, or does robots like video games - satisfy some of the adult consent problems? These issues can take years of debate, are there women out ther leading it? Look at who is educating society on these topics: https://www.nationalreview.com/2018/02/jennifer-lawrence-red-sparrow-exploitation-empowerment/
+
+https://old.reddit.com/r/comics/comments/1p12lcx/im_just_16_oc/npnqwp2/
+
+Youth is programmed into society. Billionares market and advertise it. it isn't a joke that billionares run the world by actors / actresses / advertisement / marketing / product placement / fiction storytelling (Quran, Bible, Torah, Fox News, Elon Musk Twitter, Facebook, Putin IRA, Putin Russia Today), etc. Cambirdge Analytica isn't casuals feeding their family.
+
