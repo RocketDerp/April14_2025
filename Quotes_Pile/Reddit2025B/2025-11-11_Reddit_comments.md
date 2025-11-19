@@ -523,3 +523,6 @@ https://old.reddit.com/r/instantkarma/comments/1p1j6nu/he_stole_someones_bag_una
 
 Front page of Reddit having Police / I.C.E. in USA arrest a black man would have people respond very different. There are ways to arrest people without abuse. Especially in a metal enclosed train car.
 
+https://old.reddit.com/r/LivestreamFail/comments/1p1kacx/hasan_bans_33month_subscriber_and_tells_him_to/npqksfa/
+
+When Donald Trump Truth Social is praised by all other media, including Elon Musk Twitter, as role model... parnting model....
