@@ -483,3 +483,15 @@ https://old.reddit.com/r/comics/comments/1p12lcx/im_just_16_oc/npnqwp2/
 
 Youth is programmed into society. Billionares market and advertise it. it isn't a joke that billionares run the world by actors / actresses / advertisement / marketing / product placement / fiction storytelling (Quran, Bible, Torah, Fox News, Elon Musk Twitter, Facebook, Putin IRA, Putin Russia Today), etc. Cambirdge Analytica isn't casuals feeding their family.
 
+https://old.reddit.com/r/complaints/comments/1p1ahit/guess_its_time_to_sell_my_toyota_now/npon9pa/
+
+The audience, the consumer society, thinks mocking is resisting. It does matter when Toyoto promotes Russian / Putin domination since year 2013. December 20, 2013: https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
+
+https://old.reddit.com/r/complaints/comments/1p1ahit/guess_its_time_to_sell_my_toyota_now/npon2ot/
+
+Conserving what exactly? Automobile technology isn't conserving a lifestyle. Petrol dependence?
+
+https://old.reddit.com/r/complaints/comments/1p1ahit/guess_its_time_to_sell_my_toyota_now/npomi10/
+
+Just like people are afraid to share goodness comments on Reddit. It's mostly popular to hate and mock (Truth Social values of hate harder / mock harder).
+
