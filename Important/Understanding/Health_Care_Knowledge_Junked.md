@@ -13,3 +13,6 @@ https://old.reddit.com/r/science/comments/1p0183j/study_finds_recent_nih_cuts_by
 
 Measles spread, harm to children medical attitutes of USA.   
 https://old.reddit.com/r/technology/comments/1p0uxej/cdc_data_confirms_us_is_2_months_away_from_losing/
+
+Advertising and marketing to factory ultra-processed food.    
+https://old.reddit.com/r/science/comments/1p14omm/ultraprocessed_food_linked_to_harm_in_every_major/
