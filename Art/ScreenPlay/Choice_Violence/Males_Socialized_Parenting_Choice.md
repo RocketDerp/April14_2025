@@ -39,3 +39,11 @@ Entertainment-washing, ticket selling washing. This is the social power people h
 
 people do not see how domiant this is. People who have made Donald Trump a role model for children / parenting since June 16, 2015. The nonstop saturation of Trump as entertainment. How muich people get off / thrilled at mocking and insutling Trump (diapers, orange skin, golf outings, speech style, etc - mockery entertainment addicts / meme addicts to breaking Trump antics to mock).
 
+&nbsp;
+
+## Defending / conserving WHAT?
+
+What exactly are men defending and conserving? Love and compassion and [consent (Rush Limbaugh)](https://www.mediamatters.org/rush-limbaugh/limbaugh-left-sends-out-rape-police-whenever-theres-sex-no-consent-also-known-rape) are downlplayed in favor of power to just get yes-women. And this toxic leadership wrecksthe Tower of Babel history and conflicts to bridge the gap of teaching / education / understanding between men / women / everyone!
+
+https://youtu.be/VNLdyWPAz18?t=2018
+
