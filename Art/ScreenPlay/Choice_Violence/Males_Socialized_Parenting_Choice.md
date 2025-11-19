@@ -1,4 +1,4 @@
-# Males Sicoialized Parenting Choice
+# Males Socialized Parenting Choice
 
 https://youtu.be/VNLdyWPAz18?t=621
 
