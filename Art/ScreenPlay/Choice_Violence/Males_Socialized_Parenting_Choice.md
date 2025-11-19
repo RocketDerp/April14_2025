@@ -18,7 +18,7 @@ Personally, it wasn't until I really focused on what Malala was saying that I re
 
 My Dad read this book from Leo B: [Osmosis isn't working](/Quotes_Pile/Leo_Buscaglia_Quotes.md) - but he never shared any books with me (a point I made at his funeral, he never shared any books with any of the family, despite reading books being a hobby he had my entire childhood).
 
-Omosis isn't working. And Malala rose above blogging into a clery critic role. Like Leo B. 
+Omosis isn't working. And Malala rose above blogging into a clergy critic role. Like Leo B. 
 
 We are all so socialized to hate skin colors, gender conflicts (again December 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/ )
 
