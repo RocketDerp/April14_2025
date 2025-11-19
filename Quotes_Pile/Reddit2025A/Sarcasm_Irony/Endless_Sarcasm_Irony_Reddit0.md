@@ -1427,3 +1427,11 @@ Are the billionare women like Taylor Swift and Oprah wrecking the world... or Pu
 https://old.reddit.com/r/CringeTikToks/comments/1p16kl6/youre_a_terrible_person/
 
 "Hoax". Terrible person. **Tone, way of asking**. Donald Trump speech style / lecture style / Truth Social style of Trump / Elon Musk Twitter style. Reddit anonymous media addict behavior style.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1p19ebu/mike_johnson_who_railed_against_the_epstein_bill/
+
+Endless back/forth, mind-blown / mind-blowing paradox behaviors. Surkov shuffle, contradictory ideas by leadership. This is all Russian inforamtion warfare methods. Bewildered minds. Blown minds. Front page of Reddit.
