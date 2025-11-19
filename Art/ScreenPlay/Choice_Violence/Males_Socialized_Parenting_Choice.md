@@ -35,4 +35,7 @@ His dancer wife, both at Sarah Lawrence College for women, observed this. In the
 
 god, organized joke washing is spelled out as a tactic. https://youtu.be/VNLdyWPAz18?t=1185
 
+Entertainment-washing, ticket selling washing. This is the social power people have. https://youtu.be/VNLdyWPAz18?t=1280
+
+people do not see how domiant this is. People who have made Donald Trump a role model for children / parenting since June 16, 2015. The nonstop saturation of Trump as entertainment. How muich people get off / thrilled at mocking and insutling Trump (diapers, orange skin, golf outings, speech style, etc - mockery entertainment addicts / meme addicts to breaking Trump antics to mock).
 
