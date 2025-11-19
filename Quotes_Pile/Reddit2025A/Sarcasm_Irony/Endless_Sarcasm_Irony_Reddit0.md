@@ -1420,3 +1420,10 @@ https://old.reddit.com/r/MurderedByWords/comments/1ozn790/andrew_tate_declares_h
 
 Are the billionare women like Taylor Swift and Oprah wrecking the world... or Putin / Trump / Rupert Murdoch / Elon Mustk Twitter / Mark Z Facebook? Why oh why can people not let Malala's year 2013 book speak, even if she had outgrown that phase. There is so much taking of edication seriously in Malala's October 8, 2013 book. Andrew Tate / Joe Rogan... to what ends? Maximum Putinism. Maximum Taliban. USA has a crisis: Hillary Cliton and Kamala Harris and even what was said OUT LOUD this past weekend about women and domination mentality: https://www.cnn.com/2025/11/15/politics/michelle-obama-woman-president-not-ready
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1p16kl6/youre_a_terrible_person/
+
+"Hoax". Terrible person. **Tone, way of asking**. Donald Trump speech style / lecture style / Truth Social style of Trump / Elon Musk Twitter style. Reddit anonymous media addict behavior style.
