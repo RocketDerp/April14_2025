@@ -586,3 +586,12 @@ Men are not facing up to the behavior of other men. Trump is a bullet-sponge / "
 https://old.reddit.com/r/TikTokCringe/comments/1p2307x/he_had_this_to_say_to_the_blue_collar_guys/npuedu0/
 
 When I lived in Fort Wayne, Indiana I worked for a Petnagon military contractor at age 16, worked for a stainless steel factory, my dad ran a Pepsi canning factory, I worked for a plastics factory... the computer industry was heavy male dominated on the technical side... and I have seen many ways men promote hate-filled dehumanization of other men and women. As if it is a competittion. And clearly Donald Trump shows that this is a huge problem, not just my own experience. OPERA_A Check It Out! December 11, 1987 my final year of high school. https://www.youtube.com/watch?v=8qxDBiiVjlQ
+
+https://old.reddit.com/r/law/comments/1p24qmw/trump_calls_for_arrest_of_seditious_democrats_who/npuolka/
+
+Trump's skills are messages that mind-fuck Reddit audience. Trump can mind-fuck lawyers with his social skills / anticcs. Reddit audience eats it up and doesn't "get it" for OVER TEN YEARS AND FIVE MONTHS. Antics and entertainment media blows all minds. Nobody survives it.
+
+https://old.reddit.com/r/law/comments/1p24qmw/trump_calls_for_arrest_of_seditious_democrats_who/npunbpr/
+
+Putin can bend minds into meme stupor state. Self-harm North America.
+
