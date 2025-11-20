@@ -595,3 +595,11 @@ https://old.reddit.com/r/law/comments/1p24qmw/trump_calls_for_arrest_of_seditiou
 
 Putin can bend minds into meme stupor state. Self-harm North America.
 
+https://old.reddit.com/r/politics/comments/1p24uxk/donald_trump_demands_democrats_arrested_for/npunl88/
+
+It is impossible to get Reddit, Bluesky to stop compuslive reactoins to every move and shake of Trump. The more absurd and surreal Trump behaves, the more he gloats and insults, the more predictable the "resistance" becomes. Eating right out of Surkov techniques hands, Putin's hands. We are in a self-harm spiral of hate vs. hate that Russia has no control over. The logic of out-group hate is deeply drilled in since June 16, 2015.
+
+https://old.reddit.com/r/politics/comments/1p24uxk/donald_trump_demands_democrats_arrested_for/npur9aa/
+
+Insutling Hitler doesn't undo the damage, and the economy and weapon systems of small nation Germany was nothing like what the USA has in 2025.
+
