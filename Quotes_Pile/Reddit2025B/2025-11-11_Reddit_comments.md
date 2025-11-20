@@ -630,3 +630,14 @@ Fox News media addiction problem, Reddit avoidance of nonfiction, was here befor
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1p26rxg/uh_trump_just_called_for_the_death_of_his/npv4ne2/
 
 No link, no author name, no book title, no quote. Are we to take it that this Reddit user works with SCOTUS and first-hand source? or did they consume Internet information that they can't link.
+
+https://old.reddit.com/r/news/comments/1p2c1pp/the_us_coast_guard_will_no_longer_classify/npw5yum/
+
+Dream many people have.
+
+https://old.reddit.com/r/news/comments/1p2c1pp/the_us_coast_guard_will_no_longer_classify/npwca05/
+
+https://old.reddit.com/r/news/comments/1p2c1pp/the_us_coast_guard_will_no_longer_classify/npw7c34/
+
+Abandoning science thinking like Carl Sagan called out in year 1994 and 1995... giving up on reforming religion like Woodstock 1969... etc. Goodness being asserted. Dishing out hate and violence is prizing hate and violence as "solutions", only inspires more. Hate of goodness needs to be addressed or it is technology alone that will do in humanity.
+
