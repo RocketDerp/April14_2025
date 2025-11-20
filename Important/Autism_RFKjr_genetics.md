@@ -20,3 +20,7 @@ https://old.reddit.com/r/BrandNewSentence/comments/1oxe4d4/im_autistic_you_didnt
 
 <img width="755" height="767" alt="image" src="https://github.com/user-attachments/assets/a865853e-aa9d-464e-bb16-ea6f3f1e0ab7" />
 
+# Learning Disability 
+
+Death 20 years earlier. Medical staff treatment.   
+https://www.youtube.com/watch?v=zi4wlR_GQAU
