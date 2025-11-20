@@ -541,3 +541,25 @@ https://old.reddit.com/r/Frieren/comments/1p1l1x8/even_kfc_is_getting_in_on_the_
 
 https://old.reddit.com/r/Frieren/comments/1p1l1x8/even_kfc_is_getting_in_on_the_trend_by_kfc_es/npr66l8/
 
+https://old.reddit.com/r/CringeTikToks/comments/1p1r6qp/a_man_condemning_ice_and_border_patrol_agents_why/nps4svk/
+
+When Trump mocks for OVER TEN YEARS AND FIVE MONTHS, Reddit audience mobkcs back. When Putin conditionons the audience to *hate harder*, people hate harder. No rescue of MAGA, not rescue of ICE. Internet Research Agency, Surkov, Russia won. Hearts and souls who shit upon Atlanta's MLK Jr.
+
+https://old.reddit.com/r/CringeTikToks/comments/1p1r6qp/a_man_condemning_ice_and_border_patrol_agents_why/npsangi/
+
+Mocking of compassion. Parents have made Donald Trump a role model for children since June 16, 2015. Reddit users hide their real name, wear a mask, hide their real city, self-dehumanize and welcome Putin's meme army since year 2013... and don't see they too need rescued from the simulcra patterns.
+
+https://old.reddit.com/r/CringeTikToks/comments/1p1r6qp/a_man_condemning_ice_and_border_patrol_agents_why/npslyt7/
+
+Disagreement as sport, disagreement as entertainment has taken over the nation. Russia won, people don't stand for goodness, they stand for mocking and insulting like Truth Social leadership, Elon Musk Twitter leadership, machine lust and human hate.
+
+https://old.reddit.com/r/interestingasfuck/comments/1p1wcvl/the_wicked_2024_cast_before_and_after/npt5ha1/
+
+No links, no author names, no book titles, no book quotes, etc.
+
+https://old.reddit.com/r/TikTokCringe/comments/1p1rrar/the_ozempicdemic_has_brought_proanorexia_culture/nps3wxn/
+
+"Ah, I think that one of the greatest examples of this – for me – is the discourse concerning body weight in women; bulimia, anorexia and so on. It’s as though a male dominant society was able in the Middle Ages to, you know, put a chastity belt on a woman, to put, you know, to… keep food away from her and starve her if she misbehaved. But today we accomplish the same feat through images that are constantly bombarded into the conscious and into the unconscious of women, and they perform the wonderfully humanistic task of starving themselves to death while male therapists teach them how to get on twelve step programs to eat. See, for Foucault, this is why its not humanism.
+
+This kind of malady is a cultural malady that strikes at the very heart of life. Once something like eating is death then you have struck at the very heart of life. The enemy of the older radical theories may have been the ruling class, but today the stakes of whether we will reform ourselves into a new kind of human being, a new kind of society, whether we will find selves worth being… the stakes of it are simply life itself. And that makes it quite dramatic actually."  - Rick Roderick https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
+
