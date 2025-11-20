@@ -535,5 +535,9 @@ https://old.reddit.com/r/Battlefield/comments/1p1hj2f/dont_use_the_text_chat_at_
 
 https://old.reddit.com/r/Battlefield/comments/1p1hj2f/dont_use_the_text_chat_at_all_in_this_game/npq0syr/
 
-Again, people don't see how many newly created Reddit accounts and how many older accounts have disappeared.
+Again, people don't see how many newly created Reddit accounts and how many older accounts have disappeared. The very Reddit acount making this comment is fresh.
+
+https://old.reddit.com/r/Frieren/comments/1p1l1x8/even_kfc_is_getting_in_on_the_trend_by_kfc_es/npqthsy/
+
+https://old.reddit.com/r/Frieren/comments/1p1l1x8/even_kfc_is_getting_in_on_the_trend_by_kfc_es/npr66l8/
 
