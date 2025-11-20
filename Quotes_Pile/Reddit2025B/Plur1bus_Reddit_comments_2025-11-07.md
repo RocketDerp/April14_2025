@@ -560,3 +560,21 @@ The number of seasons is a huge factor. Even things that are revealed as hard ru
 https://old.reddit.com/r/pluribustv/comments/1ozhvol/is_carol_starting_to_care_more_about_zosia_than/npf3sdt/
 
 Another example of an audience member who thinks that the story is not highlighting human behaviros. Humans who create guns, humans in New Mexico who create nuclear bombs (which Carol brings up at end of episode). Carl Sagan's January 1994. "**An extraterrestrial being, newly arrived on Earth -- scrutinizing** what we mainly present to our children in TV, radio, newspapers, magazines, the comics and many books -- might easily conclude that we are intent on teaching them murder, rape, cruelty, superstition and consumerism." https://www.washingtonpost.com/archive/entertainment/books/1994/01/09/with-science-on-our-side/9e5d2141-9d53-4b4b-aa0f-7a6a0faff845/ - the metaphors of how EASY we have made bomb delivery and HOW HARD we have made dialog outside English / Spanish for Carol. How alien the idea of solving problems as much as we are motivated to "play" with booze and weapons. The subconsious revenge desires. How there is no clergy on demand, yoga on demand, but ambulace for bombing each other. The death-wishing and weapon-system creation that humanity prizes. The mockery we make of Malala and MLK Jr and others who try to actually enage society mass dehumanization. Where are the mental health workers engaging Putin's society since Februarhy 2014 as they attack Ukraine?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ozicji/e3_theory_confirming_my_prevous_w_theory_there_is/npc3130/
+
+I've played with this idea that Carol as author is commanding the hive mind, has polish and edits that Helen does not know yet.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ozicji/e3_theory_confirming_my_prevous_w_theory_there_is/npcfokt/
+
+Dream world
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ozicji/e3_theory_confirming_my_prevous_w_theory_there_is/npcse6i/
+
+that's sort of the idea in Futurama "Obsoletely Fabulous" https://en.wikipedia.org/wiki/Obsoletely_Fabulous
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ozicji/e3_theory_confirming_my_prevous_w_theory_there_is/npim8yi/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1ozicji/e3_theory_confirming_my_prevous_w_theory_there_is/npgp59j/
+
+Alan Wake...
