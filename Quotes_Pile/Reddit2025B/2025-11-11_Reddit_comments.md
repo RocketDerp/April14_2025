@@ -525,4 +525,15 @@ Front page of Reddit having Police / I.C.E. in USA arrest a black man would have
 
 https://old.reddit.com/r/LivestreamFail/comments/1p1kacx/hasan_bans_33month_subscriber_and_tells_him_to/npqksfa/
 
-When Donald Trump Truth Social is praised by all other media, including Elon Musk Twitter, as role model... parnting model....
+When Donald Trump Truth Social is praised by all other media, including Elon Musk Twitter, as role model... parenting model....
+
+https://old.reddit.com/r/Battlefield/comments/1p1hj2f/dont_use_the_text_chat_at_all_in_this_game/nppyx14/
+
+Reddit users seem to not even notice the censorship that goes on with Reddit commenting.
+
+https://old.reddit.com/r/Battlefield/comments/1p1hj2f/dont_use_the_text_chat_at_all_in_this_game/npq4gt2/
+
+https://old.reddit.com/r/Battlefield/comments/1p1hj2f/dont_use_the_text_chat_at_all_in_this_game/npq0syr/
+
+Again, people don't see how many newly created Reddit accounts and how many older accounts have disappeared.
+
