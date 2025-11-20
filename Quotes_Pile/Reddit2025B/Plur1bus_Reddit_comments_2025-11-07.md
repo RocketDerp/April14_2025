@@ -578,3 +578,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1ozicji/e3_theory_confirming_m
 https://old.reddit.com/r/Pluribus_TVshow/comments/1ozicji/e3_theory_confirming_my_prevous_w_theory_there_is/npgp59j/
 
 Alan Wake...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p2043l/why_does_the_hive_care/npxceqr/
+
+...
+
