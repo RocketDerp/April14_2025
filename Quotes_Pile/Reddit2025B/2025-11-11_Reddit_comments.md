@@ -563,3 +563,26 @@ https://old.reddit.com/r/TikTokCringe/comments/1p1rrar/the_ozempicdemic_has_brou
 
 This kind of malady is a cultural malady that strikes at the very heart of life. Once something like eating is death then you have struck at the very heart of life. The enemy of the older radical theories may have been the ruling class, but today the stakes of whether we will reform ourselves into a new kind of human being, a new kind of society, whether we will find selves worth being… the stakes of it are simply life itself. And that makes it quite dramatic actually."  - Rick Roderick https://rickroderick.org/306-foucault-and-the-disappearance-of-the-human-1993/
 
+https://old.reddit.com/r/pics/comments/1p24ug2/playgirl_magazines_1990_sleep_with_donald_trump/npunkz7/
+
+Answer: becaue it works. This is what society responds to. This is what wealthy asset lords / land lords in New York City do behind closed doors. This is marking / bradking / putting scent on things. It sitll blows Reddit audience mind that this is what Putin / Surkov / Trump found to work. People don't believe in mistakes and forgiveness, yet can't face the reality that *this works* is staring them in the face! NFL football brain damage was *prized* by men and women both! Boxing brain damage. Really look at what entertainment goes on in casinos that Trump studied. Trump wasn't about making money off casinos, he was about the glitz and emotions of casino entertainment. Andy Kaulfman's act Tony Clifton was ahead of time, Trump playing TOny Clifgon works!
+
+https://old.reddit.com/r/Music/comments/1p24eog/nicki_minaj_is_going_all_in_for_maga_while_trumps/npul7y1/
+
+I've seen no morality movement. Year 2025, Bernie Sanders has brought up Dr. Martin Luther King Jr, but social media users think world peace and goodness is a dumb stupid idea. The shared faith of USA society is *hate harder* and block / mock / deportation.
+
+https://old.reddit.com/r/Music/comments/1p24eog/nicki_minaj_is_going_all_in_for_maga_while_trumps/npuni0w/
+
+Following role models. Hate motivates. Audiences prize hate in USA. https://www.tmz.com/2025/09/30/cardi-b-nicki-minaj-beef-online-again/
+
+https://old.reddit.com/r/Music/comments/1p24eog/nicki_minaj_is_going_all_in_for_maga_while_trumps/npuprdw/
+
+Donald Trump has proven this leadership / audience attraction model. It isn't small scale, it's Putin / Surkov technique of global leadership. Look at how Toyoto is behaving with MAGA support now.
+
+https://old.reddit.com/r/TikTokCringe/comments/1p2307x/he_had_this_to_say_to_the_blue_collar_guys/npuik8g/
+
+Men are not facing up to the behavior of other men. Trump is a bullet-sponge / "LOL cow" people milk and people block MAGA and do not stand up to the hate-filled idea of war / soldiers / domination / conquest that Putin has rekindled in male community since year 2013. December 20, 2013 https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/- and the Middle East role-model of clergy / spirtiual leadership is terrorism and extreme wealth bombing. Here we come into Christmas, and the Levant model of love / compassion is shit clergy that turns religion into team sports. Quran vs. Torah vs. Bible and out-group hate.
+
+https://old.reddit.com/r/TikTokCringe/comments/1p2307x/he_had_this_to_say_to_the_blue_collar_guys/npuedu0/
+
+When I lived in Fort Wayne, Indiana I worked for a Petnagon military contractor at age 16, worked for a stainless steel factory, my dad ran a Pepsi canning factory, I worked for a plastics factory... the computer industry was heavy male dominated on the technical side... and I have seen many ways men promote hate-filled dehumanization of other men and women. As if it is a competittion. And clearly Donald Trump shows that this is a huge problem, not just my own experience. OPERA_A Check It Out! December 11, 1987 my final year of high school. https://www.youtube.com/watch?v=8qxDBiiVjlQ
