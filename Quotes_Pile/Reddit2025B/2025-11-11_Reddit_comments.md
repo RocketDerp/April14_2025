@@ -603,3 +603,30 @@ https://old.reddit.com/r/politics/comments/1p24uxk/donald_trump_demands_democrat
 
 Insutling Hitler doesn't undo the damage, and the economy and weapon systems of small nation Germany was nothing like what the USA has in 2025.
 
+https://old.reddit.com/r/TheBigPicture/comments/1o4d5az/house_of_dynamite_ending/nlf7gsg/
+
+Is this why people are so dedicated to sports? Being pissed-off? This isn't an entertainment film.
+
+https://old.reddit.com/r/TheBigPicture/comments/1o4d5az/house_of_dynamite_ending/nlfgipo/
+
+"ending" to a "movie". 
+
+https://old.reddit.com/r/TheBigPicture/comments/1o4d5az/house_of_dynamite_ending/nlfu4hd/
+
+https://old.reddit.com/r/TheBigPicture/comments/1o4d5az/house_of_dynamite_ending/nlgqeel/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p26rxg/uh_trump_just_called_for_the_death_of_his/npveiei/
+
+Riots do not treat fiction addiction. Fox News fiction issues, Reddit no-identity fiction addictions to disposable commenting. Reactionary mindsets.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p26rxg/uh_trump_just_called_for_the_death_of_his/npvo7y8/
+
+Americans are not shrugging, they are doing late night comedy snows, SNL weekend update, and front page of Reddit mocking and insulting mental health issues / self-harm programming from Russia's IRA since year 2013.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p26rxg/uh_trump_just_called_for_the_death_of_his/npv2le7/
+
+Fox News media addiction problem, Reddit avoidance of nonfiction, was here before Trump's June 16, 2015 climb to the center of all attention and media leadership. Death-wishing Trump is to avoid the Reddit elephant in the room.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p26rxg/uh_trump_just_called_for_the_death_of_his/npv4ne2/
+
+No link, no author name, no book title, no quote. Are we to take it that this Reddit user works with SCOTUS and first-hand source? or did they consume Internet information that they can't link.
