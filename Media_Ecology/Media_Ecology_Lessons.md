@@ -1082,3 +1082,9 @@ https://www.youtube.com/watch?v=Y96lD5HYYIM
 https://youtu.be/Y96lD5HYYIM?t=694
 
 Questioning the Tower of Babel. Authentic relationships with other people. Everything is being called into question. Seam highlighting.
+
+Narative Logic like Finnegans Wake. Dreams / memories / feelings.    
+Media format change / media ecology change.   
+https://www.youtube.com/watch?v=twLrgoXEpbA     
+"Tarkovsky filmed memory itself before anyone knew how. Floating camera work years before Steadicam existed in Russia, mixed film stocks turning time into texture, revolutionary long takes that changed cinema forever. This is how one Soviet filmmaker made the impossible: a film that moves like consciousness itself."
+
