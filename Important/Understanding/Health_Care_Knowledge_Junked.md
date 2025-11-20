@@ -16,3 +16,6 @@ https://old.reddit.com/r/technology/comments/1p0uxej/cdc_data_confirms_us_is_2_m
 
 Advertising and marketing to factory ultra-processed food.    
 https://old.reddit.com/r/science/comments/1p14omm/ultraprocessed_food_linked_to_harm_in_every_major/
+
+We’re evolving too slowly for the world we’ve built. As industrialization accelerates, human biology is struggling to keep pace. Many of the chronic stress-related health issues we face today may be the predictable result of forcing Stone Age physiology into a world it was never built for.     
+https://old.reddit.com/r/science/comments/1p20d8g/were_evolving_too_slowly_for_the_world_weve_built/
