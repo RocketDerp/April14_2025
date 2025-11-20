@@ -641,3 +641,6 @@ https://old.reddit.com/r/news/comments/1p2c1pp/the_us_coast_guard_will_no_longer
 
 Abandoning science thinking like Carl Sagan called out in year 1994 and 1995... giving up on reforming religion like Woodstock 1969... etc. Goodness being asserted. Dishing out hate and violence is prizing hate and violence as "solutions", only inspires more. Hate of goodness needs to be addressed or it is technology alone that will do in humanity.
 
+https://old.reddit.com/r/news/comments/1p2c1pp/the_us_coast_guard_will_no_longer_classify/npw6byd/
+
+<img width="890" height="296" alt="image" src="https://github.com/user-attachments/assets/28ba9719-a9ab-4892-869a-efd0134dae04" />
