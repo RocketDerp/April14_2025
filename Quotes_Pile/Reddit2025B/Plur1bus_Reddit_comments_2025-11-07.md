@@ -583,3 +583,12 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p2043l/why_does_the_hive_care
 
 ...
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p2m72p/pluribus_1x04_please_carol_episode_discussion/npyspja/
+
+Many people can't seem to watch shows that don't have fast-forward buttons. Can't skip episodes they consider slow or boring, but also tune in for week by week release.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p2m72p/pluribus_1x04_please_carol_episode_discussion/npz7je3/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p2n4l7/my_collection_of_probably_farfetched_theories/npzcupm/
+
+13 Great Seal comment of mine.
