@@ -1453,3 +1453,11 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1p2z0at/after_billie_eilish_su
 
 Media star vs. media star. People call Musk idiot / dumb / stupid / moron. That's what people prize, name-calling and insulting. Donald Trump role model since June 16, 2015 - power and wealth by insultingand mocking. A toatl mockery. This draws an audiece, concentrates wealth and power. Elon Musk openly talks about "mind virus" and people won't take the topic serious... and here he is manipulating the mass man (Marshall McLuhan, University of Toronto terminology).
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p32kyi/is_this_the_real_life/
+
+Entertainment song-wrapping of Russia's War Against Reality since year 2013. Reddit audience humor-washes everything to do with Putin's media invasion of USA. This front-page Reddit posting on the same day Ukraine is still trying to stand up to Putin and Trump tag-team takeover of Ukraine.
+
