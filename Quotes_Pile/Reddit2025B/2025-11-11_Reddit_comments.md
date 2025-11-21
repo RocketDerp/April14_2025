@@ -701,3 +701,5 @@ https://old.reddit.com/r/PoliticalHumor/comments/1p2lcem/the_trump_administratio
 
 Satire poisoning. Everything is paradox entertainment.
 
+https://old.reddit.com/r/worldnews/comments/1p2q5br/us_defense_department_contractors_accidentally/npz6od9/
+
