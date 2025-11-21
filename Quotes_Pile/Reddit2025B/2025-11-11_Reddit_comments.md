@@ -723,3 +723,20 @@ https://old.reddit.com/r/worldnews/comments/1p2rq61/axios_reveals_text_of_peace_
 
 https://old.reddit.com/r/indianrailways/comments/1p2vt45/19_year_old_kalyan_student_beaten_up_by_a_mob_in/nq06ywk/
 
+https://old.reddit.com/r/todayilearned/comments/1p31asf/til_the_reason_that_mike_meyers_ended_up_playing/nq1ioct/
+
+The Trump joke-washing center of the universe can't get jokes. So much of Donald Trump Surkovian mocking of USA flies right over the heads of people who prize cleverness and insutling others. We The People can not see how joke-washing and drowning ourselves in trick and booby traps isn't goodness.
+
+https://old.reddit.com/r/todayilearned/comments/1p31asf/til_the_reason_that_mike_meyers_ended_up_playing/nq1yz8u/
+
+Yes. A USA society that prizes assholes. People act like Trump isn't the result of social media behaviors / television news behaviors / asshole society content prizing.
+
+https://old.reddit.com/r/technology/comments/1p32mrr/microsoft_finally_admits_almost_all_major_windows/nq1o0ir/
+
+https://old.reddit.com/r/technology/comments/1p32mrr/microsoft_finally_admits_almost_all_major_windows/nq1ob9n/
+
+Exactly. Reddit audience living in alternate reality of fiction desires.
+
+https://old.reddit.com/r/technology/comments/1p32mrr/microsoft_finally_admits_almost_all_major_windows/nq1rvmt/
+
+Reddit audience does not fact-check and prizes low-effort articles and disposable commenting above all else. Anti-Wiki. Against refinement of information. 
