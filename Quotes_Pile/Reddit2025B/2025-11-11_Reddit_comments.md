@@ -692,3 +692,12 @@ Making fun of, enjoying it, mocking it. Surkov techniques exploit all that. Amus
 https://old.reddit.com/r/sadcringe/comments/1p2bqpb/trump_just_posted_this_on_his_official_facebook/npw43ua/
 
 Reddit audience loves the poop diapers topics of Trump. Thrilled and entertained at Trump being President. No other leader can provide such meme stimulation.
+
+https://old.reddit.com/r/nottheonion/comments/1p2m1my/nursing_excluded_as_professional_degree_by/npy8iyr/
+
+Hate and mocking are incredibly popular.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p2lcem/the_trump_administration_has_launched_a_campaign/npy4ac0/
+
+Satire poisoning. Everything is paradox entertainment.
+
