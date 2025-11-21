@@ -1088,3 +1088,11 @@ Media format change / media ecology change.
 https://www.youtube.com/watch?v=twLrgoXEpbA     
 "Tarkovsky filmed memory itself before anyone knew how. Floating camera work years before Steadicam existed in Russia, mixed film stocks turning time into texture, revolutionary long takes that changed cinema forever. This is how one Soviet filmmaker made the impossible: a film that moves like consciousness itself."
 
+&nbsp;
+
+&nbsp;
+
+### Commercial jingle
+
+Car glass repair, replace song    
+https://www.youtube.com/watch?v=STiPwOasCmE
