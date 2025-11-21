@@ -748,3 +748,18 @@ Audiences in USA love talking about Trunp diaper and Trump shitting his pants. F
 https://old.reddit.com/r/lotrmemes/comments/1p2ysq2/why/nq0vbgk/
 
 Yes. The nonfiction reality of life. Not a joke, but joke-washed.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p304s5/can_you_explain_the_joke_here/nq14b9d/
+
+OPERA_A Here at the Western World. https://www.youtube.com/watch?v=1EBdygOrdAc
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p304s5/can_you_explain_the_joke_here/nq19tmp/
+
+People are much more focused on fiction.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p304s5/can_you_explain_the_joke_here/nq13r4k/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p304s5/can_you_explain_the_joke_here/nq16xyh/
+
+Out-group hate abounds. Gridlock of hate.
+
