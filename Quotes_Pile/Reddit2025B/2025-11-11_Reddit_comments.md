@@ -763,3 +763,27 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1p304s5/can_you_explain_the_jok
 
 Out-group hate abounds. Gridlock of hate.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1p2yzl1/anyone_else_have_a_very_bad_feeling_about_this/nq0w7jc/
+
+Reddit audience topic: poop diaper of Trump.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p2yzl1/anyone_else_have_a_very_bad_feeling_about_this/nq0u5fo/
+
+People won't learn any nonfiction about Russian information warfare. How Russia blows the minds of people into constantly thinking about self-harm, Trump.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p2yzl1/anyone_else_have_a_very_bad_feeling_about_this/nq0xjhz/
+
+Media cause people. Fiction addiction. Prizing hate like machine lovers of HDTV Fox News and machine lovers of Reddit prize. Language and anything to dehumanize people, anti-forgiveness, anti-goodness, anti-Malala values since year 2013.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p2yzl1/anyone_else_have_a_very_bad_feeling_about_this/nq0yozf/
+
+The personal experience of Putin's War Against Reality since year 2013.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p2yzl1/anyone_else_have_a_very_bad_feeling_about_this/nq1vmjx/
+
+People go on the mock for mock offense all the time on Reddit and Bluesky. People who prize dehumanization, prize hate, prize mockery.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p2yzl1/anyone_else_have_a_very_bad_feeling_about_this/nq1knjt/
+
+Reddit audience thrilled and amused at Trump media technique, Trump style of social media with middle names. Wanting more and more Trumpism fashion and style.
+
