@@ -703,3 +703,13 @@ Satire poisoning. Everything is paradox entertainment.
 
 https://old.reddit.com/r/worldnews/comments/1p2q5br/us_defense_department_contractors_accidentally/npz6od9/
 
+https://old.reddit.com/r/worldnews/comments/1p2q5br/us_defense_department_contractors_accidentally/npz5rml/
+
+https://old.reddit.com/r/politics/comments/1p2kn32/karoline_leavitt_tells_reporter_trumps_piggy/npxxk4u/
+
+Yes, it blows the minds of Reddit audiences. Lower and lower effort commenting.
+
+https://old.reddit.com/r/politics/comments/1p2kn32/karoline_leavitt_tells_reporter_trumps_piggy/npxy5tu/
+
+Insults are prized, hate is prized, dehumanization is prized. The social media Truth Social, Reddit, Bluesky way. Blocking self-deporting people out of egoism.
+
