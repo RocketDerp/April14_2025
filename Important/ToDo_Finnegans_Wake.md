@@ -417,3 +417,11 @@ The kind of langauge woke of Finnegans Wake. Trying to comprehend and understand
 https://old.reddit.com/r/indianrailways/comments/1p2vt45/19_year_old_kalyan_student_beaten_up_by_a_mob_in/
 
 Language conflicts, Tower of Babel battles
+
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1p30ocg/functional_illiteracy/
+
+Also: Media literacy. Some people seem incapable of listening to ideas that aren't entertaining / stimulating enough. Finding content boring. Nonfiction unattractive. People latch on spelling mistakes as if it's deeply revealing... but verbally 2 / two / too / to are the same. Not  all people have an "inner dialog", or maybe they don't associate what they have with those words, etc. Hearing yuour own voice can cause emotional reactionsin people (recording of spoken word), same with editing / proofreading own text.
+
+
