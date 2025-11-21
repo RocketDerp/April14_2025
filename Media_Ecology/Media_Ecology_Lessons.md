@@ -1096,3 +1096,13 @@ https://www.youtube.com/watch?v=twLrgoXEpbA
 
 Car glass repair, replace song    
 https://www.youtube.com/watch?v=STiPwOasCmE
+
+&nbsp;
+
+&nbsp;
+
+### Public attention
+
+https://old.reddit.com/r/science/comments/1p2x6q4/the_batman_effect_a_female_experimenter_appearing/
+
+With someone dressed so unusual, more people in public are looking in that direction? Creating a scene. Morepeople recording on smartphone cameras? TV show Candid Camera? Candid Camera / Microphone goes back to year 1947... people can have suspicions they are being recorded. https://en.wikipedia.org/wiki/Candid_Camera
