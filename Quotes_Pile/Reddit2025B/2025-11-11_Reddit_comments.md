@@ -713,3 +713,13 @@ https://old.reddit.com/r/politics/comments/1p2kn32/karoline_leavitt_tells_report
 
 Insults are prized, hate is prized, dehumanization is prized. The social media Truth Social, Reddit, Bluesky way. Blocking self-deporting people out of egoism.
 
+https://old.reddit.com/r/worldnews/comments/1p2rq61/axios_reveals_text_of_peace_plan_ukraine_to/npzx4ym/
+
+https://old.reddit.com/r/worldnews/comments/1p2rq61/axios_reveals_text_of_peace_plan_ukraine_to/nq0cl88/
+
+https://old.reddit.com/r/worldnews/comments/1p2rq61/axios_reveals_text_of_peace_plan_ukraine_to/npzl577/
+
+https://old.reddit.com/r/worldnews/comments/1p2rq61/axios_reveals_text_of_peace_plan_ukraine_to/npzk03r/
+
+https://old.reddit.com/r/indianrailways/comments/1p2vt45/19_year_old_kalyan_student_beaten_up_by_a_mob_in/nq06ywk/
+
