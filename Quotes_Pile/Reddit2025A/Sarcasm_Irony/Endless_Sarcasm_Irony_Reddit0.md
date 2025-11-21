@@ -1445,3 +1445,11 @@ https://old.reddit.com/r/Music/comments/1p1apfi/nicki_minaj_faces_backlash_after
 The entertainment addicts audience can not see the Reality TV entertainer pushes every sports and Entertainment he can. GTA6 and video games on his radar next? People can not see that this 79 year old man runs circles around them with Neil Postman media ecology, NYC Manhattan experience. Fox News New York City. Constant slash and backslash of minds, audience blown minds on Bluesky and Reddit. Crawling inside the "resistance" with thier own icons.  SURKOVIAN_CHESS CHESS_1024D Exactly, they aren't dumb and stupid, they are following Putin's model that has worked for over 25 years. ... ... ...     
 "The brilliance of this new type of authoritarianism is that instead of simply oppressing opposition, as had been the case with twentieth-century strains, it climbs inside all ideologies and movements, **exploiting and rendering them absurd**. One moment Surkov would fund civic forums and human rights NGOs, the next he would quietly support nationalist movements that accuse the NGOs of being tools of the West. With a flourish he sponsored lavish arts festivals for the most provocative modern artists in Moscow, then supported Orthodox fundamentalists, dressed all in black and carrying crosses, who in turn attacked the modern art exhibitions. The Kremlin’s idea is to own all forms of political discourse, to not let any independent movements develop outside of its walls. Its Moscow can feel like an oligarchy in the morning and a democracy in the afternoon, a monarchy for dinner and a totalitarian state by bedtime.” ― Peter Pomerantsev, Nothing Is True and Everything Is Possible: The Surreal Heart of the New Russia, year 2014
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/TwoXChromosomes/comments/1p2z0at/after_billie_eilish_suggests_billionaires_help/
+
+Media star vs. media star. People call Musk idiot / dumb / stupid / moron. That's what people prize, name-calling and insulting. Donald Trump role model since June 16, 2015 - power and wealth by insultingand mocking. A toatl mockery. This draws an audiece, concentrates wealth and power. Elon Musk openly talks about "mind virus" and people won't take the topic serious... and here he is manipulating the mass man (Marshall McLuhan, University of Toronto terminology).
+
