@@ -113,3 +113,11 @@ I agree, "We The People" have not stood up to Fox News (support Jen Senko), we d
 https://old.reddit.com/r/politics/comments/1otiwkw/senator_who_caved_on_shutdown_says_standing_up_to/
 
 
+&nbsp;
+
+# November 21, 2025
+
+https://old.reddit.com/r/NoFilterNews/comments/1p2zlx1/donald_trump_faces_articles_of_impeachment_before/nq0wz2p/
+
+Why isn't social media, Reddit / Bluesky, calling every 6 hours for a new posting / hashtag that Trump be impeached. A sustained repeating focus on social media that people want Trump gone. Way bigger than No Kings? My alarming answer is people are extremely addicted (for over 10 years and 5 months) to Trump as a "LOL cow" to milk for memes and entertainment. People who go to meme mills like Bluesky and Reddit but don't wawnt to use information systems to organized sustained online protests. Addicts to the non-boring leadership that Trump provides that Biden did not provide (Biden was boring to meme addicts, antics addicts, Trump provides entertainment thrills).
+
