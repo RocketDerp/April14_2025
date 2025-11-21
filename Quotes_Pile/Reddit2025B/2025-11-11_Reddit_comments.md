@@ -683,5 +683,12 @@ https://old.reddit.com/r/nottheonion/comments/1p2i9i3/fact_check_is_mamdani_intr
 
 Compusive humor-washing. Neil Postman's 1985 book "Amusing Ourselves To Death" was correct.
 
+https://old.reddit.com/r/sadcringe/comments/1p2bqpb/trump_just_posted_this_on_his_official_facebook/npxe1ge/
 
+https://old.reddit.com/r/sadcringe/comments/1p2bqpb/trump_just_posted_this_on_his_official_facebook/npw4v0k/
 
+Making fun of, enjoying it, mocking it. Surkov techniques exploit all that. Amusement-washing only adds to the fiction media environment. Nonfiction abandoned.
+
+https://old.reddit.com/r/sadcringe/comments/1p2bqpb/trump_just_posted_this_on_his_official_facebook/npw43ua/
+
+Reddit audience loves the poop diapers topics of Trump. Thrilled and entertained at Trump being President. No other leader can provide such meme stimulation.
