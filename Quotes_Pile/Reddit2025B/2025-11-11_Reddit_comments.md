@@ -740,3 +740,11 @@ Exactly. Reddit audience living in alternate reality of fiction desires.
 https://old.reddit.com/r/technology/comments/1p32mrr/microsoft_finally_admits_almost_all_major_windows/nq1rvmt/
 
 Reddit audience does not fact-check and prizes low-effort articles and disposable commenting above all else. Anti-Wiki. Against refinement of information. 
+
+https://old.reddit.com/r/lotrmemes/comments/1p2ysq2/why/nq0rvqp/
+
+Audiences in USA love talking about Trunp diaper and Trump shitting his pants. For over a decade, nonstop attraction to extreme shallowness and superficial thinking.
+
+https://old.reddit.com/r/lotrmemes/comments/1p2ysq2/why/nq0vbgk/
+
+Yes. The nonfiction reality of life. Not a joke, but joke-washed.
