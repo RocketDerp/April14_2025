@@ -592,3 +592,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p2m72p/pluribus_1x04_please_c
 https://old.reddit.com/r/Pluribus_TVshow/comments/1p2n4l7/my_collection_of_probably_farfetched_theories/npzcupm/
 
 13 Great Seal comment of mine.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p2vqys/the_hive_is_a_technology/nq0a138/
+
+I call this "The BINGO rat" idea, that it was only a key and humans augmented it.
