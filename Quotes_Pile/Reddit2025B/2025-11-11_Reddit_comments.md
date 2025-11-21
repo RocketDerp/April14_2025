@@ -644,3 +644,44 @@ Abandoning science thinking like Carl Sagan called out in year 1994 and 1995... 
 https://old.reddit.com/r/news/comments/1p2c1pp/the_us_coast_guard_will_no_longer_classify/npw6byd/
 
 <img width="890" height="296" alt="image" src="https://github.com/user-attachments/assets/28ba9719-a9ab-4892-869a-efd0134dae04" />
+
+https://old.reddit.com/r/NoFilterNews/comments/1p2cbg3/flustered_karoline_leavitt_has_no_answer_after/npwbqhy/
+
+We should be talking about resucing Trump and MAGA from Putin's mind-fucking. Cleary Trump sees USA as an enemy. People are not taking seriously what the Internet Resarch Did to ederly minds and rural population not educated on Neil Postman's media ecology.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p2cbg3/flustered_karoline_leavitt_has_no_answer_after/npxlfl4/
+
+Trump and Putin have one again programmed minds to be in loops of never-ending mocking. Always *mock harder* compusive behavior back to Trump. USA is a Total Mockery.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p2cbg3/flustered_karoline_leavitt_has_no_answer_after/npwbiwo/
+
+There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/NoFilterNews/comments/1p2cbg3/flustered_karoline_leavitt_has_no_answer_after/npwdajg/
+
+We are very deep into mythology living now in November 2025. Nonfiction has been abandoned by smartphone users in favor of sports mentality and fiction addictions.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p2cbg3/flustered_karoline_leavitt_has_no_answer_after/npwhrha/
+
+People keep behavig as if this is the first month of Trump in office, the recency bias is extreme. People view Trump as fiction, and in fiction storytelling you can do anything. Gun shootouts and casino robbery is all routine fiction entertainment. People are detached from science and reality. Media addiction to Tony Clifton antics leadership has taken over.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p2cbg3/flustered_karoline_leavitt_has_no_answer_after/npwowff/
+
+The trajectory towards fiction has been clear if you take monomyth storytelling seriously. Humanity hasn't escaped monomyth cult patterns, we have added Top Gun poop runs on protesters. Artificial intelligence generating military videos. Danger Zone. https://www.axios.com/2025/10/20/trump-no-kings-ai-kenny-loggins-song
+
+https://old.reddit.com/r/NoFilterNews/comments/1p2cbg3/flustered_karoline_leavitt_has_no_answer_after/npw90lr/
+
+Satire-poisoning, sarcasm-poisoning, everything arond Trump is entertainment-wraped amusement-framed anti-reality.
+
+https://old.reddit.com/r/nottheonion/comments/1p2i9i3/fact_check_is_mamdani_introducing_arabic_numerals/npxg3y0/
+
+Amusement-washing the Levant monomyth conflicts while Trump deploys Surkov monomyth from Russia. Entertainment-washing of anti-goodness in society.
+
+https://old.reddit.com/r/nottheonion/comments/1p2i9i3/fact_check_is_mamdani_introducing_arabic_numerals/npxg923/
+
+https://old.reddit.com/r/nottheonion/comments/1p2i9i3/fact_check_is_mamdani_introducing_arabic_numerals/npxnjja/
+
+Compusive humor-washing. Neil Postman's 1985 book "Amusing Ourselves To Death" was correct.
+
+
+
