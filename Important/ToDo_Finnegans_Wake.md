@@ -411,3 +411,9 @@ Bible verse "1 John 4:20" - you have never SEEN Jesus. Force ghosts. It's a fict
 https://old.reddit.com/r/oddlyspecific/comments/1ozesxl/hellfuck/
 
 The kind of langauge woke of Finnegans Wake. Trying to comprehend and understand people and how it ties to history and real world and why people use and abuse languages. Reality of real-world experiences, fabric of reality itself.
+
+&nbsp;
+
+https://old.reddit.com/r/indianrailways/comments/1p2vt45/19_year_old_kalyan_student_beaten_up_by_a_mob_in/
+
+Language conflicts, Tower of Babel battles
