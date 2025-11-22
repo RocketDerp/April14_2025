@@ -1469,3 +1469,11 @@ https://old.reddit.com/r/CringeTikToks/comments/1p3clfq/what_is_going_on/
 
 What's GOING ON? Trump is blowing the Reddit audience mind with paradox messaging. People are convinced Trump is always wrong, 100% false, which is not true. Trump blows audienc minds.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/todayilearned/comments/1p41co5/til_that_sexual_inactivity_among_young_adults_in/
+
+Blows the minds of Reddit that billionares purchased Twitter. And all the mocking of Musk purchasing Twitter. Nobody wants to be serious about media ecology. Rupert Murdoch and Putin have proven models.
+
