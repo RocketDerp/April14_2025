@@ -1461,3 +1461,11 @@ https://old.reddit.com/r/PoliticalHumor/comments/1p32kyi/is_this_the_real_life/
 
 Entertainment song-wrapping of Russia's War Against Reality since year 2013. Reddit audience humor-washes everything to do with Putin's media invasion of USA. This front-page Reddit posting on the same day Ukraine is still trying to stand up to Putin and Trump tag-team takeover of Ukraine.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1p3clfq/what_is_going_on/
+
+What's GOING ON? Trump is blowing the Reddit audience mind with paradox messaging. People are convinced Trump is always wrong, 100% false, which is not true. Trump blows audienc minds.
+
