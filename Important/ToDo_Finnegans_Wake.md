@@ -424,4 +424,10 @@ https://old.reddit.com/r/TikTokCringe/comments/1p30ocg/functional_illiteracy/
 
 Also: Media literacy. Some people seem incapable of listening to ideas that aren't entertaining / stimulating enough. Finding content boring. Nonfiction unattractive. People latch on spelling mistakes as if it's deeply revealing... but verbally 2 / two / too / to are the same. Not  all people have an "inner dialog", or maybe they don't associate what they have with those words, etc. Hearing yuour own voice can cause emotional reactionsin people (recording of spoken word), same with editing / proofreading own text.
 
+&nbsp;
 
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1p3ynbg/leslie_bibb_shares_why_being_a_mother_was_never/
+
+Choice marriage honesty / children planning.
