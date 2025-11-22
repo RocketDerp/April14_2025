@@ -798,3 +798,38 @@ Fox News alternate reality has set the standard for all reality. Billionaires ha
 https://old.reddit.com/r/PoliticalHumor/comments/1p3b4jh/the_son_he_always_wanted_yeah_fox_news_is/nq3cq5h/
 
 Managed opposition, Reddit audience is eating it up.
+
+https://old.reddit.com/r/news/comments/1p3gqnx/rep_marjorie_taylor_greene_announces_resignation/nq4gs55/
+
+USA society is toxic in total. Many are in denial of the faith in *hate harder* from every corner. Mocking as faith.
+
+https://old.reddit.com/r/news/comments/1p3gqnx/rep_marjorie_taylor_greene_announces_resignation/nq4gl1i/
+
+Syptoms of Cambridge Analytica and Russian Internet Research Agency since year 2013.
+
+https://old.reddit.com/r/news/comments/1p3gqnx/rep_marjorie_taylor_greene_announces_resignation/nq4grrz/
+
+Prediction.
+
+https://old.reddit.com/r/news/comments/1p3gqnx/rep_marjorie_taylor_greene_announces_resignation/nq4h83e/
+
+Prediction.
+
+https://old.reddit.com/r/news/comments/1p3gqnx/rep_marjorie_taylor_greene_announces_resignation/nq4g08o/
+
+Prediction.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p3v1dz/after_x_changes_their_policy_and_now_you_can_see/nq7nzdf/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p3v1dz/after_x_changes_their_policy_and_now_you_can_see/nq7vly9/
+
+Reddit community can't explain the censored comments I've collected here on GitHub. 
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p3v1dz/after_x_changes_their_policy_and_now_you_can_see/nq7qvwr/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p3v1dz/after_x_changes_their_policy_and_now_you_can_see/nq85853/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p3v1dz/after_x_changes_their_policy_and_now_you_can_see/nq7wncz/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p3v1dz/after_x_changes_their_policy_and_now_you_can_see/nq7yd72/
+
