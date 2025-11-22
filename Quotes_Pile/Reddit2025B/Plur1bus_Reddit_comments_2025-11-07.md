@@ -596,3 +596,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p2n4l7/my_collection_of_proba
 https://old.reddit.com/r/Pluribus_TVshow/comments/1p2vqys/the_hive_is_a_technology/nq0a138/
 
 I call this "The BINGO rat" idea, that it was only a key and humans augmented it.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p31ro9/poste4_discussions/nq1ctsa/
+
+Finnegans Wake, Tim not really dead.
