@@ -600,3 +600,16 @@ I call this "The BINGO rat" idea, that it was only a key and humans augmented it
 https://old.reddit.com/r/Pluribus_TVshow/comments/1p31ro9/poste4_discussions/nq1ctsa/
 
 Finnegans Wake, Tim not really dead.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p31ro9/poste4_discussions/nq1ebes/
+
+I think this is one of the reasons billionaires have invested so much in artificial intelligence that can do video. Wealthy people will be able to have shows rewritten for them. "Dear A.I. machine, show me Pluribus with all the boring parts I don't desire removed and edited out".
+
+There is huge demand out there for people slashing out all the stuff they don't like. Or replacing actors they don't like, any egoism people desire.
+
+reference: "Topher Grace's fan edit of the Star Wars prequels, which he condensed into a single 85-minute film. This was an unauthorized fan edit that re-edited the three prequel movies into a single narrative, removing plot points like Jar Jar Binks"
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p31ro9/poste4_discussions/nq3sens/
+
+I think for many people, weekly release of 43 minutes is no longer desired. The experience of the show after January 2026 will be very different for those who can fast forward and ask ChatGPT what a scene means.
+
