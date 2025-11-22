@@ -787,3 +787,14 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1p2yzl1/anyone_else_have_a_very_
 
 Reddit audience thrilled and amused at Trump media technique, Trump style of social media with middle names. Wanting more and more Trumpism fashion and style.
 
+https://old.reddit.com/r/PoliticalHumor/comments/1p3b4jh/the_son_he_always_wanted_yeah_fox_news_is/nq3i2mt/
+
+Managed opposition. 
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p3b4jh/the_son_he_always_wanted_yeah_fox_news_is/nq3s6nk/
+
+Fox News alternate reality has set the standard for all reality. Billionaires have all plaeyd poker at the artificial intelligence reality-generating table. Nonfiction has been gone for over a decade for most, traded in for mocking MAGA and mocking Trump.
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p3b4jh/the_son_he_always_wanted_yeah_fox_news_is/nq3cq5h/
+
+Managed opposition, Reddit audience is eating it up.
