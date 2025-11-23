@@ -833,3 +833,25 @@ https://old.reddit.com/r/PoliticalHumor/comments/1p3v1dz/after_x_changes_their_p
 
 https://old.reddit.com/r/PoliticalHumor/comments/1p3v1dz/after_x_changes_their_policy_and_now_you_can_see/nq7yd72/
 
+https://old.reddit.com/r/europe/comments/1p4i4no/us_removes_memorial_for_black_ww2_soldiers_the/nqbzy6b/
+
+And last week I was banned on Reddit for pointing out that Vince Gilligant names his characters "Mr. White" who works with a Nazi family (Jack Welker's Gang)... and Carol in Pluribus watches "Betty White" on TV in episode 3 before bombing an Affrican immigrant she consideres her enemy. I did not insult any race, I was pointing out the symbolism of the names.
+
+https://old.reddit.com/r/europe/comments/1p4i4no/us_removes_memorial_for_black_ww2_soldiers_the/nqc6e12/
+
+https://old.reddit.com/r/goodnews/comments/1p4hz5t/trump_is_now_flooding_his_feed_with_photos_of/nqc21cn/
+
+The autism communications experience. Marshall McLuhan: the tone is the message.
+
+https://old.reddit.com/r/politics/comments/1p4mkta/top_maga_influencers_accidentally_unmasked_as/nqcqzsl/
+
+Yes. But We The People can't even name "Internet Research Agency" and year 2013 online before February 2014 Ukraine invasion.
+
+https://old.reddit.com/r/politics/comments/1p4mkta/top_maga_influencers_accidentally_unmasked_as/nqcum8f/
+
+Evidence.
+
+https://old.reddit.com/r/politics/comments/1p4mkta/top_maga_influencers_accidentally_unmasked_as/nqcsdlu/
+
+Reddit audience mockerg-washing serious topics. Anything to avoid nonfiction learning of Kremlin information warfare.
+
