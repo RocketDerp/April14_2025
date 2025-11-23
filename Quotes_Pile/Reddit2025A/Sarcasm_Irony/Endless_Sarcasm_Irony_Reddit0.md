@@ -1477,3 +1477,11 @@ https://old.reddit.com/r/todayilearned/comments/1p41co5/til_that_sexual_inactivi
 
 Blows the minds of Reddit that billionares purchased Twitter. And all the mocking of Musk purchasing Twitter. Nobody wants to be serious about media ecology. Rupert Murdoch and Putin have proven models.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1p4a2pf/trump_is_behaving_precisely_as_he_would_if_he/
+
+Surkov won since year 2013. 
+
