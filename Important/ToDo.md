@@ -1774,3 +1774,9 @@ https://old.reddit.com/r/TwoXChromosomes/comments/1oszpcc/what_is_wrong_with_som
 
 Choice marriage honesty.
 
+&nbsp;
+
+https://old.reddit.com/r/TikTokCringe/comments/1p4nhvz/the_color_problem/
+
+Colors tend to be associated with India, Mexico in USA. anti-immigrant, and as the video says - rich people "classy". Fashion of rich and famous trickles down. 
+
