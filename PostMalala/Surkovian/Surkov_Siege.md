@@ -15,3 +15,13 @@ https://old.reddit.com/r/politics/comments/1p4mkta/top_maga_influencers_accident
 https://old.reddit.com/r/politics/comments/1p4mkta/top_maga_influencers_accidentally_unmasked_as/
 
 https://old.reddit.com/r/NoFilterNews/comments/1p4mvaw/top_maga_influencers_accidentally_unmasked_as/
+
+https://old.reddit.com/r/complaints/comments/1p4m68b/how_maga_became_putins_most_eager_gaggle_of/
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p4nil2/so_maga_is_mostly_foreign_trolls_trying_to_divide/
+
+Operation Matthew 4:19 
+
+https://old.reddit.com/r/PoliticalHumor/comments/1p4nil2/so_maga_is_mostly_foreign_trolls_trying_to_divide/
+
+https://old.reddit.com/r/goodnews/comments/1p4nczi/internet_erupts_as_maga_influencers_exposed_for/
