@@ -1106,3 +1106,16 @@ https://www.youtube.com/watch?v=STiPwOasCmE
 https://old.reddit.com/r/science/comments/1p2x6q4/the_batman_effect_a_female_experimenter_appearing/
 
 With someone dressed so unusual, more people in public are looking in that direction? Creating a scene. Morepeople recording on smartphone cameras? TV show Candid Camera? Candid Camera / Microphone goes back to year 1947... people can have suspicions they are being recorded. https://en.wikipedia.org/wiki/Candid_Camera
+
+&nbsp;
+
+&nbsp;
+
+### Request to not show TV
+
+Airport bomb show, request by government to ban it.
+
+https://news.google.com/newspapers?nid=799&dat=19710811&id=dJpPAAAAIBAJ&sjid=WFIDAAAAIBAJ&pg=873,2464342
+
+https://en.wikipedia.org/wiki/The_Doomsday_Flight#Copycats_and_FAA_concerns
+
