@@ -28,3 +28,4 @@ https://old.reddit.com/r/goodnews/comments/1p4nczi/internet_erupts_as_maga_influ
 
 https://old.reddit.com/r/technology/comments/1p4qde5/many_top_maga_trolls_arent_even_in_the_us_new_x/
 
+https://old.reddit.com/r/skeptic/comments/1p4ldwl/top_maga_influencers_accidentally_unmasked_as/
