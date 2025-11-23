@@ -855,3 +855,19 @@ https://old.reddit.com/r/politics/comments/1p4mkta/top_maga_influencers_accident
 
 Reddit audience mockerg-washing serious topics. Anything to avoid nonfiction learning of Kremlin information warfare.
 
+https://old.reddit.com/r/news/comments/1p4nkih/teen_found_dead_on_carnival_cruise_died_by/nqdd8v5/
+
+https://old.reddit.com/r/news/comments/1p4nkih/teen_found_dead_on_carnival_cruise_died_by/nqdho4p/
+
+Religion storytelling doesn't cause terrorism or war between nations.... The MAGA Russians all in the news the past 24 hours don't cause hate... and voting changes.
+
+https://old.reddit.com/r/worldnews/comments/1p4rs0r/trump_says_ukraine_has_zero_gratitude_for_peace/nqdtklj/
+
+https://old.reddit.com/r/worldnews/comments/1p4rs0r/trump_says_ukraine_has_zero_gratitude_for_peace/nqdu23i/
+
+Reddit audience eating the Surkovian onions.
+
+https://old.reddit.com/r/worldnews/comments/1p4rs0r/trump_says_ukraine_has_zero_gratitude_for_peace/nqe3ebz/
+
+https://old.reddit.com/r/worldnews/comments/1p4rs0r/trump_says_ukraine_has_zero_gratitude_for_peace/nqdvufp/
+
