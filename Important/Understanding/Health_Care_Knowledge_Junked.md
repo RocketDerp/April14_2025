@@ -21,3 +21,6 @@ We’re evolving too slowly for the world we’ve built. As industrialization ac
 https://old.reddit.com/r/science/comments/1p20d8g/were_evolving_too_slowly_for_the_world_weve_built/
 
 https://old.reddit.com/r/todayilearned/comments/1p41co5/til_that_sexual_inactivity_among_young_adults_in/
+
+CDC and cause of autism      
+https://old.reddit.com/r/news/comments/1p423v5/cdc_website_changed_to_contradict_scientific/
