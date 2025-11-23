@@ -25,3 +25,6 @@ Operation Matthew 4:19
 https://old.reddit.com/r/PoliticalHumor/comments/1p4nil2/so_maga_is_mostly_foreign_trolls_trying_to_divide/
 
 https://old.reddit.com/r/goodnews/comments/1p4nczi/internet_erupts_as_maga_influencers_exposed_for/
+
+https://old.reddit.com/r/technology/comments/1p4qde5/many_top_maga_trolls_arent_even_in_the_us_new_x/
+
