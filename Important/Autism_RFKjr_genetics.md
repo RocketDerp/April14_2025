@@ -6,6 +6,10 @@ October 1, 2025
 
 https://www.nbcnews.com/health/health-news/autism-spectrum-disorder-genetic-analysis-multiple-forms-age-diagnosis-rcna234741
 
+November 22, 2025
+
+https://old.reddit.com/r/news/comments/1p423v5/cdc_website_changed_to_contradict_scientific/
+
 &nbsp;
 
 # Autism USA experience
@@ -19,6 +23,8 @@ https://old.reddit.com/r/CuratedTumblr/comments/1owlm0v/im_just_too_different/
 https://old.reddit.com/r/BrandNewSentence/comments/1oxe4d4/im_autistic_you_didnt_specifically_invite_me_like/
 
 <img width="755" height="767" alt="image" src="https://github.com/user-attachments/assets/a865853e-aa9d-464e-bb16-ea6f3f1e0ab7" />
+
+&nbsp;
 
 # Learning Disability 
 
