@@ -11,3 +11,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1p44bb5/joseph_goebbels_wou
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1p4a6w2/hahahahahahahahahahahahahahahahahahahahahahahahaha/
 
 https://old.reddit.com/r/politics/comments/1p4mkta/top_maga_influencers_accidentally_unmasked_as/
+
+https://old.reddit.com/r/politics/comments/1p4mkta/top_maga_influencers_accidentally_unmasked_as/
+
+https://old.reddit.com/r/NoFilterNews/comments/1p4mvaw/top_maga_influencers_accidentally_unmasked_as/
