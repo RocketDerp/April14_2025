@@ -1508,3 +1508,12 @@ Humor-washing I.C.E. - comedy-washing for profit and entertainment. Since year 2
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1p5i44e/reads_it_posts_it_still_doesnt_get_it/
 
 Reddit audience has mind blown of inverted meaning by Putin and Trump. Surkovian technqiues as described by Adam Curtis on NYE 2014 not called out. Endless mocking and insutling of Trump as dumb... when Trump is blowing the audience minds with message / image patterns.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/BlackPeopleofReddit/comments/1p5io21/who_is_the_real_problem/
+
+Audience minds blown by paradox. As if nobody remembers the promise of a wall against Mexico that Mexico would pay for. People far more concerned in mocking and insulting Trump as entertianment than seeing the long-term risk and anti-goodness / wrecking of USA. People amused at LOL at Trump antics, wrecking the future for the sake of meme addictions to insulting a 79 year old man.
+
