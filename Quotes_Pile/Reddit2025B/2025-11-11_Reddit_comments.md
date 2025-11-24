@@ -897,3 +897,11 @@ https://old.reddit.com/r/worldnews/comments/1p5f1kd/trump_administration_formall
 
 Putin's information warfare induced love of badness since year 2013.
 
+https://old.reddit.com/r/insanepeoplefacebook/comments/1p5hple/conservatives_missing_the_point_of_born_in_the/nqj3kk1/
+
+Always more mind-fuck being added to Russia / Putin mind-fuck.
+
+https://old.reddit.com/r/insanepeoplefacebook/comments/1p5hple/conservatives_missing_the_point_of_born_in_the/nqj3r40/
+
+Liberal vs. conservative brainrot.
+
