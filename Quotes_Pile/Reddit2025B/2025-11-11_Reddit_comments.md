@@ -871,3 +871,17 @@ https://old.reddit.com/r/worldnews/comments/1p4rs0r/trump_says_ukraine_has_zero_
 
 https://old.reddit.com/r/worldnews/comments/1p4rs0r/trump_says_ukraine_has_zero_gratitude_for_peace/nqdvufp/
 
+https://old.reddit.com/r/europe/comments/1p4stmv/a_slovak_farright_politician_was_found_to_have/nqe1slq/
+
+https://old.reddit.com/r/europe/comments/1p4stmv/a_slovak_farright_politician_was_found_to_have/nqe60xp/
+
+Especially regarding measles and COVID-19 - why wasn't this August 24, 2018 story pinned on every social media platform? https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/europe/comments/1p4stmv/a_slovak_farright_politician_was_found_to_have/nqe4kzq/
+
+https://old.reddit.com/r/GTA/comments/1p5c9vw/things_are_getting_crazy/nqi6mce/
+
+GTA6
+
+https://old.reddit.com/r/GTA/comments/1p5c9vw/things_are_getting_crazy/nqiubbe/
+
