@@ -1524,3 +1524,7 @@ Audience minds blown by paradox. As if nobody remembers the promise of a wall ag
 https://old.reddit.com/r/complaints/comments/1p5kc7i/dementia_addled_president_thinks_he_is_in_a/
 
 Dementia-washing Trump again. Front page of Reddit. People who do not recognize the skill Trump has exploiting mass man / mass mind icons and symbols. Trump has been building more media power his entire life, and social media will not turn to Neil Postman's 1985 book "Amsuing Ourselves To Death" about President Ronald Reagan and face up to the hunan population problem of high-speed electric media systems.
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p5nhj2/were_fully_upsidedown/
