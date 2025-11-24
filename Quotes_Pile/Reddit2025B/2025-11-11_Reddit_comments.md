@@ -885,3 +885,10 @@ GTA6
 
 https://old.reddit.com/r/GTA/comments/1p5c9vw/things_are_getting_crazy/nqiubbe/
 
+https://old.reddit.com/r/clevercomebacks/comments/1p5frkk/the_entire_regime_is_robbing_the_country/nqiric3/
+
+https://old.reddit.com/r/clevercomebacks/comments/1p5frkk/the_entire_regime_is_robbing_the_country/nqiydqc/
+
+https://old.reddit.com/r/news/comments/1p5l0vv/woman_deported_from_maryland_shown_on_video_being/nqk0dl5/
+
+Reddit audience constantly mocks "leopards ate my face" at Americans mind-fucked by Musk Twitter, Murdoch Fox News, Russian IRA, Cambridgw Analytica since year 2013. A society, social media society nationwide, that thinks LOL at suffering of Americans is great television and meme content.
