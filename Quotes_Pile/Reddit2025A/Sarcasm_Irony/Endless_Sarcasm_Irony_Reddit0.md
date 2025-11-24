@@ -1485,3 +1485,10 @@ https://old.reddit.com/r/politics/comments/1p4a2pf/trump_is_behaving_precisely_a
 
 Surkov won since year 2013. 
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1p5frkk/the_entire_regime_is_robbing_the_country/
+
+Everything is media ecology. Evertyhing is entetainment for F1 loving Reddit audiences. Mocking and insulting the government is the content engagement.
