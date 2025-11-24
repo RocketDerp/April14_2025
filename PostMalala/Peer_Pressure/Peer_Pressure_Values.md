@@ -6,3 +6,4 @@ Why are we, humanity, all the people of the world - not makinga list of values o
 
 Why does it have to be wrappped in fiction storytelling of god / gods that we fight over? 
 
+Elif's 40 rules of Love.
