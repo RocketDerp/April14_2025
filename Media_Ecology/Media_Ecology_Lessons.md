@@ -1119,3 +1119,11 @@ https://news.google.com/newspapers?nid=799&dat=19710811&id=dJpPAAAAIBAJ&sjid=WFI
 
 https://en.wikipedia.org/wiki/The_Doomsday_Flight#Copycats_and_FAA_concerns
 
+&nbsp;
+
+&nbsp;
+
+### Fireball Branding
+
+https://www.youtube.com/watch?v=pG6cOaQqXYw
+
