@@ -39,3 +39,5 @@ https://old.reddit.com/r/technology/comments/1p544mf/many_prominent_maga_persona
 2025-11-24 Reddit front page 
 
 https://old.reddit.com/r/poland/comments/1p5cqcs/literally_every_second_antieu_antiukrainian_right/
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1p5gezo/majority_of_maga_twitter_accounts_nonus_based/
