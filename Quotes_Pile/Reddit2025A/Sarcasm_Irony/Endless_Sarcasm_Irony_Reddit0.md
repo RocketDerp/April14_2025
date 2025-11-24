@@ -1500,3 +1500,11 @@ Everything is media ecology. Evertyhing is entetainment for F1 loving Reddit aud
 https://old.reddit.com/r/StandUpComedy/comments/1p5c482/saaniya_abaas_on_ice/
 
 Humor-washing I.C.E. - comedy-washing for profit and entertainment. Since year 2013, the Surkov techniques and IRA + Cambridge Analytica have given all people one faith: don't cry, don't be serious. Neil Postman's 1985 book "Amusing Ourselves To Death" outcomes. Normalizing horror via comedy.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p5i44e/reads_it_posts_it_still_doesnt_get_it/
+
+Reddit audience has mind blown of inverted meaning by Putin and Trump. Surkovian technqiues as described by Adam Curtis on NYE 2014 not called out. Endless mocking and insutling of Trump as dumb... when Trump is blowing the audience minds with message / image patterns.
