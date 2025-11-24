@@ -1492,3 +1492,11 @@ Surkov won since year 2013.
 https://old.reddit.com/r/clevercomebacks/comments/1p5frkk/the_entire_regime_is_robbing_the_country/
 
 Everything is media ecology. Evertyhing is entetainment for F1 loving Reddit audiences. Mocking and insulting the government is the content engagement.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/StandUpComedy/comments/1p5c482/saaniya_abaas_on_ice/
+
+Humor-washing I.C.E. - comedy-washing for profit and entertainment. Since year 2013, the Surkov techniques and IRA + Cambridge Analytica have given all people one faith: don't cry, don't be serious. Neil Postman's 1985 book "Amusing Ourselves To Death" outcomes. Normalizing horror via comedy.
