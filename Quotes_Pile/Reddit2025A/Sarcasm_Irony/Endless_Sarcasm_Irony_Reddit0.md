@@ -1517,3 +1517,10 @@ https://old.reddit.com/r/BlackPeopleofReddit/comments/1p5io21/who_is_the_real_pr
 
 Audience minds blown by paradox. As if nobody remembers the promise of a wall against Mexico that Mexico would pay for. People far more concerned in mocking and insulting Trump as entertianment than seeing the long-term risk and anti-goodness / wrecking of USA. People amused at LOL at Trump antics, wrecking the future for the sake of meme addictions to insulting a 79 year old man.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1p5kc7i/dementia_addled_president_thinks_he_is_in_a/
+
+Dementia-washing Trump again. Front page of Reddit. People who do not recognize the skill Trump has exploiting mass man / mass mind icons and symbols. Trump has been building more media power his entire life, and social media will not turn to Neil Postman's 1985 book "Amsuing Ourselves To Death" about President Ronald Reagan and face up to the hunan population problem of high-speed electric media systems.
