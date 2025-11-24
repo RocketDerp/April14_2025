@@ -32,3 +32,4 @@ https://old.reddit.com/r/skeptic/comments/1p4ldwl/top_maga_influencers_accidenta
 
 https://old.reddit.com/r/europe/comments/1p4stmv/a_slovak_farright_politician_was_found_to_have/
 
+https://old.reddit.com/r/technology/comments/1p544mf/many_prominent_maga_personalities_on_x_are_based/
