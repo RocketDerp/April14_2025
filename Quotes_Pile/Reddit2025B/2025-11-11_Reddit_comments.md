@@ -892,3 +892,8 @@ https://old.reddit.com/r/clevercomebacks/comments/1p5frkk/the_entire_regime_is_r
 https://old.reddit.com/r/news/comments/1p5l0vv/woman_deported_from_maryland_shown_on_video_being/nqk0dl5/
 
 Reddit audience constantly mocks "leopards ate my face" at Americans mind-fucked by Musk Twitter, Murdoch Fox News, Russian IRA, Cambridgw Analytica since year 2013. A society, social media society nationwide, that thinks LOL at suffering of Americans is great television and meme content.
+
+https://old.reddit.com/r/worldnews/comments/1p5f1kd/trump_administration_formally_designates/nqir8bu/
+
+Putin's information warfare induced love of badness since year 2013.
+
