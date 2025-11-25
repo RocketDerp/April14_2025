@@ -1067,3 +1067,22 @@ https://old.reddit.com/r/MurderedByWords/comments/1p6ekjv/deceptive_patriotism_p
 https://old.reddit.com/r/MurderedByWords/comments/1p6ekjv/deceptive_patriotism_post/nqqa8b2/
 
 Trump trusts Putin.
+
+https://old.reddit.com/r/nottheonion/comments/1p6b9fe/campbells_soup_stock_crashes_over_alleged_3d/nqpqu64/
+
+All meme entertainment.
+
+https://old.reddit.com/r/nottheonion/comments/1p6b9fe/campbells_soup_stock_crashes_over_alleged_3d/nqq1wgm/
+
+But people take disposable low-effort Reddit comments seriously.
+
+https://old.reddit.com/r/nottheonion/comments/1p6b9fe/campbells_soup_stock_crashes_over_alleged_3d/nqpopat/
+
+Ultra ultra processed. 
+
+https://old.reddit.com/r/nottheonion/comments/1p6b9fe/campbells_soup_stock_crashes_over_alleged_3d/nqp1pn7/
+
+https://old.reddit.com/r/nottheonion/comments/1p6b9fe/campbells_soup_stock_crashes_over_alleged_3d/nqp77t3/
+
+Anti-goodness.
+
