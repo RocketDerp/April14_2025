@@ -1047,3 +1047,23 @@ Satire-washing, mockery-washing.
 https://old.reddit.com/r/BreakingPoints/comments/1p5sec1/kudos_to_krystal_for_her_nuanced_take_on_the/nqmfvdl/
 
 Don't care how Russia behaves toward pollution and climate change and other self-harm, including teaching their own domestic people to prize hate and develop even more powerful techniques to self-harm humanity.
+
+https://old.reddit.com/r/MurderedByWords/comments/1p6ekjv/deceptive_patriotism_post/nqpqvw9/
+
+"I love God" is a failure of Bible teaching, Bible literacy. Bible verse "1 John 4:20" spells out that **"I love God"** is wrong.
+
+https://old.reddit.com/r/MurderedByWords/comments/1p6ekjv/deceptive_patriotism_post/nqqehse/
+
+Reddit is full of bullshit and no-identtiy content just like Elon Musk Twitter. Denial abounds. Simulacra vs. simulacra. Just like "I love God" is a simulacra.
+
+https://old.reddit.com/r/MurderedByWords/comments/1p6ekjv/deceptive_patriotism_post/nqqllj6/
+
+https://old.reddit.com/r/MurderedByWords/comments/1p6ekjv/deceptive_patriotism_post/nqqkk1p/
+
+Amusing Ourselves to Death 1985 book by Neil Postman.
+
+https://old.reddit.com/r/MurderedByWords/comments/1p6ekjv/deceptive_patriotism_post/nqq95im/
+
+https://old.reddit.com/r/MurderedByWords/comments/1p6ekjv/deceptive_patriotism_post/nqqa8b2/
+
+Trump trusts Putin.
