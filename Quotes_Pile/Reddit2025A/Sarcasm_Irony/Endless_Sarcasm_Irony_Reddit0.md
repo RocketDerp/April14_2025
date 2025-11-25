@@ -1538,3 +1538,9 @@ https://old.reddit.com/r/NoFilterNews/comments/1p5wqxw/confused_trump_79_mistake
 https://old.reddit.com/r/BikiniBottomTwitter/comments/1p6axr9/every_day_on_the_front_page/
 
 Hate huumans, love slave pets and animals that entertain. Images are not animals. Celebrity worship and Trump as LOL cow to milk are the same, F1, same.
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1p6ca9w/the_united_states_of_dumbfuckistan_why_maga_keeps/
+
+Front page of Reddit. People will not wake up that once you master antics, once you become good at making people LOL LMAO at situations, it owrks on ANY topic. Climate change, people LOL. Pollution, people LOL. People starving that they dislike, LOL. Ukraine war since February 2014, nearly eleven full years, people LOL at mock Putin. Mockery washes away ALL goodness, LOL is a solvent that is now produced by meme machines / meme sites like Reddi that mass distribute. Neil Postman's books explain this crisis decades ago.
