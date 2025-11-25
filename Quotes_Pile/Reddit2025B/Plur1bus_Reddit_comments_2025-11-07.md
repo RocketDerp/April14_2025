@@ -613,3 +613,4 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p31ro9/poste4_discussions/nq3
 
 I think for many people, weekly release of 43 minutes is no longer desired. The experience of the show after January 2026 will be very different for those who can fast forward and ask ChatGPT what a scene means.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p36ass/scifi_or_just_unhappy_woman/nq2wr9z/
