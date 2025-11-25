@@ -41,3 +41,8 @@ https://old.reddit.com/r/technology/comments/1p544mf/many_prominent_maga_persona
 https://old.reddit.com/r/poland/comments/1p5cqcs/literally_every_second_antieu_antiukrainian_right/
 
 https://old.reddit.com/r/LeopardsAteMyFace/comments/1p5gezo/majority_of_maga_twitter_accounts_nonus_based/
+
+2025-11-25 
+
+https://old.reddit.com/r/worldnews/comments/1p6e2kf/x_exposes_fake_gaza_accounts_from_pakistan/
+
