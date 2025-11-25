@@ -127,5 +127,6 @@ Why isn't social media, Reddit / Bluesky, calling every 6 hours for a new postin
 
 https://old.reddit.com/r/Music/comments/1p6h2gs/taylor_swift_branded_a_coward_for_staying_silent/
 
-Front page of Reddit. People calling out the icons they fixate on, status symbols, for not standing up. When did Reddit start a "Day 25 of x until Trump is impeached / removed / Fox News understood as fiction. Cult and fictio addiction problemin USA addressed" posting every 12 hours? People are more concerned about kitten photos, Formula 1 races, and Nintedo Switch 2025 vs. Steam hardware 2025.
+Front page of Reddit. People calling out the icons they fixate on, status symbols, for not standing up. When did Reddit start a "Day 25 of x until Trump is impeached / removed / Fox News understood as fiction. Cult and fictio addiction problemin USA addressed" posting every 12 hours? People are more concerned about kitten photos, Formula 1 races, and Nintedo Switch 2025 vs. Steam hardware 2025. Trump and MAGA is a global threat to humanity. Russia winning an information war is a thrat to all humanism, it is self-harm to even domestic Russia what Surkov unleashed.
+
 
