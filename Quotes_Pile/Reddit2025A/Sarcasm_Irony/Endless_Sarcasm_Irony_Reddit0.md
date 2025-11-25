@@ -1528,3 +1528,7 @@ Dementia-washing Trump again. Front page of Reddit. People who do not recognize 
 &nbsp;
 
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1p5nhj2/were_fully_upsidedown/
+
+&nbsp;
+
+https://old.reddit.com/r/NoFilterNews/comments/1p5wqxw/confused_trump_79_mistakenly_amplifies_calls_to/
