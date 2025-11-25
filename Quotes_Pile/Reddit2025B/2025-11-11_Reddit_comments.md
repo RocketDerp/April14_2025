@@ -905,3 +905,21 @@ https://old.reddit.com/r/insanepeoplefacebook/comments/1p5hple/conservatives_mis
 
 Liberal vs. conservative brainrot.
 
+https://old.reddit.com/r/NoFilterNews/comments/1p5krut/department_of_homeland_security_faces_intense/nqlpcvq/
+
+Surkov won, Russia won, since year 2013.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p5krut/department_of_homeland_security_faces_intense/nqlus1m/
+
+Surkov won, Russia won, since year 2013. Note this was a new Reddit account.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p5krut/department_of_homeland_security_faces_intense/nqkt1la/
+
+https://old.reddit.com/r/NoFilterNews/comments/1p5krut/department_of_homeland_security_faces_intense/nqkx5vq/
+
+https://old.reddit.com/r/NoFilterNews/comments/1p5krut/department_of_homeland_security_faces_intense/nqkswxe/
+
+https://old.reddit.com/r/NoFilterNews/comments/1p5krut/department_of_homeland_security_faces_intense/nqmcjw6/
+
+Front page of Reddit fake.
+
