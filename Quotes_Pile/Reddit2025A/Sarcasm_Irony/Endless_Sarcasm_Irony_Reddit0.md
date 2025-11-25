@@ -1550,3 +1550,10 @@ Front page of Reddit. People will not wake up that once you master antics, once 
 https://old.reddit.com/r/politics/comments/1p6e1ro/pete_hegseth_mocks_mark_kelly_over_military/
 
 Front page of Reddit. Look at the headline. Look at the fucking headline. Leading a ***total mockery*** that Reddit audience compusively joins. Faith in mocking is everyone, 100%, of USA population. People do not get it, there is no self-awareness, that mocking goodness is the common ground / common faith. Mockery that is all-inclusive, Surkov students won.
+
+&nbsp;
+
+https://old.reddit.com/r/okbuddycinephile/comments/1p6fqwu/you_people_need_to_stop_criticizing_our_brave/
+
+Media ecology... very few people are brave, have the courage, to be *on stage* like Donald Trump does. And people do not get what it is really like to listen to an audience and tune into all the year 2025 hate, and be self-aware you are being broadcast to said audience. Trump reaalizes it and amplifies it, Trump exploits all that mass man mindsets (Marshall McLuhan term, "mass man").
+
