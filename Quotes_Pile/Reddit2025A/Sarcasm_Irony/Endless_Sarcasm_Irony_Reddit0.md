@@ -1544,3 +1544,9 @@ Hate huumans, love slave pets and animals that entertain. Images are not animals
 https://old.reddit.com/r/complaints/comments/1p6ca9w/the_united_states_of_dumbfuckistan_why_maga_keeps/
 
 Front page of Reddit. People will not wake up that once you master antics, once you become good at making people LOL LMAO at situations, it owrks on ANY topic. Climate change, people LOL. Pollution, people LOL. People starving that they dislike, LOL. Ukraine war since February 2014, nearly eleven full years, people LOL at mock Putin. Mockery washes away ALL goodness, LOL is a solvent that is now produced by meme machines / meme sites like Reddi that mass distribute. Neil Postman's books explain this crisis decades ago.
+
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1p6e1ro/pete_hegseth_mocks_mark_kelly_over_military/
+
+Front page of Reddit. Look at the headline. Look at the fucking headline. Leading a ***total mockery*** that Reddit audience compusively joins. Faith in mocking is everyone, 100%, of USA population. People do not get it, there is no self-awareness, that mocking goodness is the common ground / common faith. Mockery that is all-inclusive, Surkov students won.
