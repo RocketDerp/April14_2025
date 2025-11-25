@@ -1024,3 +1024,23 @@ https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps
 
 Fiction outsells nonfiction. Blows audiences of Reddit / Bluesky / etc minds.
 
+https://old.reddit.com/r/politics/comments/1p6h771/ukraine_reportedly_agrees_to_usbrokered_peace/nqqfuqq/
+
+Fiction outsells nonfiction. Surkov techniques are in runaway state. Russia unleashed information war techniques against reality and nonfiction is now no longer attractive to audiences.
+
+https://old.reddit.com/r/politics/comments/1p6h771/ukraine_reportedly_agrees_to_usbrokered_peace/nqqc9uf/
+
+Bends minds.
+
+https://old.reddit.com/r/politics/comments/1p6h771/ukraine_reportedly_agrees_to_usbrokered_peace/nqq90r1/
+
+"Humor" in account name talking about serious topics.
+
+https://old.reddit.com/r/politics/comments/1p6h771/ukraine_reportedly_agrees_to_usbrokered_peace/nqqav21/
+
+Reddit audience calls all humans bots that they disagree with because then there is no need to study Marshall McLuhan, University of Toronto "mass man" concepts, no need to study fiction monomyth patterns. People use "bot" as a thougth-terminaing end-point. Ignoring The ELIZA Effect problems that are now widespread at every reach of electric media society.
+
+https://old.reddit.com/r/politics/comments/1p6h771/ukraine_reportedly_agrees_to_usbrokered_peace/nqq89b8/
+
+Satire-washing, mockery-washing.
+
