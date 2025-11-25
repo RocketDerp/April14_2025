@@ -1047,4 +1047,3 @@ Satire-washing, mockery-washing.
 https://old.reddit.com/r/BreakingPoints/comments/1p5sec1/kudos_to_krystal_for_her_nuanced_take_on_the/nqmfvdl/
 
 Don't care how Russia behaves toward pollution and climate change and other self-harm, including teaching their own domestic people to prize hate and develop even more powerful techniques to self-harm humanity.
-\
