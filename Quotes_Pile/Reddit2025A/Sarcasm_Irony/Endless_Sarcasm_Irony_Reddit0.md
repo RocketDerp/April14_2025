@@ -1532,3 +1532,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1p5nhj2/were_fully_upsidedo
 &nbsp;
 
 https://old.reddit.com/r/NoFilterNews/comments/1p5wqxw/confused_trump_79_mistakenly_amplifies_calls_to/
+
+&nbsp;
+
+https://old.reddit.com/r/BikiniBottomTwitter/comments/1p6axr9/every_day_on_the_front_page/
+
+Hate huumans, love slave pets and animals that entertain. Images are not animals. Celebrity worship and Trump as LOL cow to milk are the same, F1, same.
