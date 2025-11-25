@@ -1563,3 +1563,9 @@ https://old.reddit.com/r/clevercomebacks/comments/1p6lng5/there_is_a_gas_sign_be
 
 Reddit behaving as if the only falsehoods are Trump administration. As if Reddit itself isn't a source of bullshit. As if Fox News media / Rupert Murdoch isn't a source of bullshit. Reddit has no ability to describe and name Surkov governing, Russia's War Against Reality, etc.
 
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p6ndga/mtg_on_x/
+
+Elon Musk Twitter / X. Ok, Reddit. Facebook, Bluesky block-happy. Filter-bubble year 2011. Fox News website, Fox News HDTV. Truth Social. Church / Mosque, Torah / Quran Bible "reality". On and on and on. Not reality, nonfiction is unpopular. And the *reality* of the Internet Research Agency since year 2013 is being ignored by everyone. Surkov won.
+
