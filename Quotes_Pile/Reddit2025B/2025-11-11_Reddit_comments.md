@@ -1086,3 +1086,17 @@ https://old.reddit.com/r/nottheonion/comments/1p6b9fe/campbells_soup_stock_crash
 
 Anti-goodness.
 
+https://old.reddit.com/r/politics/comments/1p6h2mh/fbi_interviewing_democrats_trump_has_called/nqq7k1l/
+
+So, all it takes is setting a logic rule of FOREVER in your brain to not listen to certain combination of words. Reality doesn't matter, just the input. This is how Surkov and Putin have run Russia for over 25 years, explointing these brain patterns.
+
+https://old.reddit.com/r/politics/comments/1p6h2mh/fbi_interviewing_democrats_trump_has_called/nqq7xnb/
+
+Snark-washing, satire-washing, sarcasm-washing serious problems. Everything is entertainment-washed for amusement. Dispoable commenting at high speeds.
+
+https://old.reddit.com/r/politics/comments/1p6h2mh/fbi_interviewing_democrats_trump_has_called/nqqi4w5/
+
+https://old.reddit.com/r/politics/comments/1p6h2mh/fbi_interviewing_democrats_trump_has_called/nqqgxvr/
+
+Authoring fiction. Creating "reality" to feed audience / population-wide fiction addictions. here has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
