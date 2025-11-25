@@ -1026,7 +1026,7 @@ Fiction outsells nonfiction. Blows audiences of Reddit / Bluesky / etc minds.
 
 https://old.reddit.com/r/politics/comments/1p6h771/ukraine_reportedly_agrees_to_usbrokered_peace/nqqfuqq/
 
-Fiction outsells nonfiction. Surkov techniques are in runaway state. Russia unleashed information war techniques against reality and nonfiction is now no longer attractive to audiences.
+<img width="1436" height="572" alt="image" src="https://github.com/user-attachments/assets/68f84bde-cb07-4480-b8ff-06499d5bf85f" /> REDDIT_REMOVED https://old.reddit.com/user/Sammonov  Fiction outsells nonfiction. Surkov techniques are in runaway state. Russia unleashed information war techniques against reality and nonfiction is now no longer attractive to audiences.
 
 https://old.reddit.com/r/politics/comments/1p6h771/ukraine_reportedly_agrees_to_usbrokered_peace/nqqc9uf/
 
@@ -1044,3 +1044,7 @@ https://old.reddit.com/r/politics/comments/1p6h771/ukraine_reportedly_agrees_to_
 
 Satire-washing, mockery-washing.
 
+https://old.reddit.com/r/BreakingPoints/comments/1p5sec1/kudos_to_krystal_for_her_nuanced_take_on_the/nqmfvdl/
+
+Don't care how Russia behaves toward pollution and climate change and other self-harm, including teaching their own domestic people to prize hate and develop even more powerful techniques to self-harm humanity.
+\
