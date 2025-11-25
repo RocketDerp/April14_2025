@@ -923,3 +923,71 @@ https://old.reddit.com/r/NoFilterNews/comments/1p5krut/department_of_homeland_se
 
 Front page of Reddit fake.
 
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqp3qx8/
+
+It is self-harm induced by Russia's Internet Research Agency and Cambridge Analytica since year 2013.
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqpabvx/
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqpns9r/
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqpdwt0/
+
+There is no call to rescue MAGA from Putin, rescue MAGA from Russian mind-fuck. People are too entertained and thrilled mocking and insulting the wounded that Russia harmed.
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqpr6c8/
+
+<img width="1078" height="906" alt="image" src="https://github.com/user-attachments/assets/e1a775dd-7180-4ecc-9de4-57987695535c" /> South Park irony-washes entertainment-wraps amusmement-washes, all normal now, to media addict society. Liberal vs. conservative brainrot, simulacra of resistance. All entertainment for everyone to mock the out-groups. Abandoned nonfiction.
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqpr28o/
+
+People love the constanat stimulation of Truth Social, Musk Twitter. Meme addicts society. Fox News HDTV ocntent. Trump is the biggest source of entertainment ever seen in USA society. Every media system serves Trump and Putin's use of Surkov techniques.
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqpoqnt/
+
+People embraced out-group hate patterns fed by the IRA since year 2013. Other nations copycayt Russia's methods. USA society has not resisted or faced up tot he situation. Neil Postman's 1985 book "Amusing Ourselves To Death" describes our situation.
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqp5i2v/
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqp6l5o/
+
+Media cults, including Reddit. People ignored George Lucas' Skywalker Ranch book from year 1988 "The Power of Myth". People on Reddit say cults, but do not quote nonfiction books, do not link a book, do not name an anuthor.
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqp8gx8/
+
+People crave the nonstop antics of Trump and MAGA. It's stimulation.
+
+https://old.reddit.com/r/politics/comments/1p6b4rp/disapproval_of_donald_trump_now_higher_than_his/nqphdpc/
+
+And people who prize hate, hated Joe Biden, will prize hate of Donald Trump. Hate is the faith system. Hate is the religion value people will not let go. Hate of President Tony Clifton acts is not ersisting  the Clifton techniques.
+
+https://old.reddit.com/r/PublicFreakout/comments/1p6bu9j/evansville_pd_officer_enters_home_and_kills_man/nqp7f9s/
+
+https://old.reddit.com/r/PublicFreakout/comments/1p6bu9j/evansville_pd_officer_enters_home_and_kills_man/nqpepi3/
+
+https://old.reddit.com/r/PublicFreakout/comments/1p6bu9j/evansville_pd_officer_enters_home_and_kills_man/nqpcxc3/
+
+https://old.reddit.com/r/PublicFreakout/comments/1p6bu9j/evansville_pd_officer_enters_home_and_kills_man/nqpdkjq/
+
+https://old.reddit.com/r/PublicFreakout/comments/1p6bu9j/evansville_pd_officer_enters_home_and_kills_man/nqp8jmp/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1p6cbiy/i_dont_get_it_where_is_it_zoomed_in_or_what/nqpa34d/
+
+https://old.reddit.com/r/clevercomebacks/comments/1p67ijq/cult_leader/nqp1p1x/
+
+Amusement-washing Trump.
+
+https://old.reddit.com/r/clevercomebacks/comments/1p67ijq/cult_leader/nqp56ue/
+
+Ameircan Idon fans don't harm the future of children, isn't a self-harm. The enteratinment attraction to Putin and Trump using Surkov techniques is like monomyth based. Choosing to worship a symbol that punishes humanity.
+
+https://old.reddit.com/r/clevercomebacks/comments/1p67ijq/cult_leader/nqof9kp/
+
+https://old.reddit.com/r/clevercomebacks/comments/1p67ijq/cult_leader/nqp1baw/
+
+Surkov media techniques since year 2012 are unstoppable. Nothing can turn the situation around. Fiction addiction rules society.
+
+https://old.reddit.com/r/clevercomebacks/comments/1p67ijq/cult_leader/nqoha1l/
+
+Satire poisoned, irony poisoned, sarcasm poisoned, reality itself poisoned in favor of meme-think mockery mindsets. Surkov won, Russia won, since year 2013.
+
