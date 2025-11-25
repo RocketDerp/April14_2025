@@ -121,3 +121,11 @@ https://old.reddit.com/r/NoFilterNews/comments/1p2zlx1/donald_trump_faces_articl
 
 Why isn't social media, Reddit / Bluesky, calling every 6 hours for a new posting / hashtag that Trump be impeached. A sustained repeating focus on social media that people want Trump gone. Way bigger than No Kings? My alarming answer is people are extremely addicted (for over 10 years and 5 months) to Trump as a "LOL cow" to milk for memes and entertainment. People who go to meme mills like Bluesky and Reddit but don't want to use information systems to organized sustained online protests (seriouis calls for removal). Addicts to the non-boring leadership that Trump provides that Biden did not provide (Biden was boring to meme addicts, antics addicts, Trump provides stimulation... Trump gives entertainment thrills).
 
+&nbsp;
+
+# November 25, 2025
+
+https://old.reddit.com/r/Music/comments/1p6h2gs/taylor_swift_branded_a_coward_for_staying_silent/
+
+Front page of Reddit. People calling out the icons they fixate on, status symbols, for not standing up. When did Reddit start a "Day 25 of x until Trump is impeached / removed / Fox News understood as fiction. Cult and fictio addiction problemin USA addressed" posting every 12 hours? People are more concerned about kitten photos, Formula 1 races, and Nintedo Switch 2025 vs. Steam hardware 2025.
+
