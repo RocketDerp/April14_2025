@@ -991,3 +991,36 @@ https://old.reddit.com/r/clevercomebacks/comments/1p67ijq/cult_leader/nqoha1l/
 
 Satire poisoned, irony poisoned, sarcasm poisoned, reality itself poisoned in favor of meme-think mockery mindsets. Surkov won, Russia won, since year 2013.
 
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqpmq5v/
+
+
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqpkwgv/
+
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqppaxp/
+
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqptpwh/
+
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqpgr4s/
+
+As has been going on since June 16, 2015 - Reddit society laugh-washes comedy-wraps everything serious until it is not serious to people. People treat Trump as fiction, and in fiction, bad guys are just part of a story.
+
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqpk86s/
+
+New accout this year.
+
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqpkf48/
+
+New accout, only months old.
+
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqpnkgj/
+
+One year old account.
+
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqpk81t/
+
+Eating the Surkovian onions. Calling Tony Clifton acts dumb idiot without any self-awareness of Surkov students / Andy Kaufman. Tiny-short Reddit comment messages that convince people that they are not out-smarted by Putin informaiton warfare since year 2013.
+
+https://old.reddit.com/r/law/comments/1p6cx7f/white_house_declares_all_of_trumps_orders_to/nqpwt4t/
+
+Fiction outsells nonfiction. Blows audiences of Reddit / Bluesky / etc minds.
+
