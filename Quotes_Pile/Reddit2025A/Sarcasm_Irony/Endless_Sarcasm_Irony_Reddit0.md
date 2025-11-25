@@ -1557,3 +1557,9 @@ https://old.reddit.com/r/okbuddycinephile/comments/1p6fqwu/you_people_need_to_st
 
 Media ecology... very few people are brave, have the courage, to be *on stage* like Donald Trump does. And people do not get what it is really like to listen to an audience and tune into all the year 2025 hate, and be self-aware you are being broadcast to said audience. Trump reaalizes it and amplifies it, Trump exploits all that mass man mindsets (Marshall McLuhan term, "mass man").
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1p6lng5/there_is_a_gas_sign_behind_him_saying_409/
+
+Reddit behaving as if the only falsehoods are Trump administration. As if Reddit itself isn't a source of bullshit. As if Fox News media / Rupert Murdoch isn't a source of bullshit. Reddit has no ability to describe and name Surkov governing, Russia's War Against Reality, etc.
+
