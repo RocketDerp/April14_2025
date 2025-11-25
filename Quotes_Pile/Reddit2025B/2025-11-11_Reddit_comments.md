@@ -1100,3 +1100,15 @@ https://old.reddit.com/r/politics/comments/1p6h2mh/fbi_interviewing_democrats_tr
 
 Authoring fiction. Creating "reality" to feed audience / population-wide fiction addictions. here has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
 
+https://old.reddit.com/r/law/comments/1p6gdsk/departing_doj_staffers_warn_of_irreversible/nqq54r3/
+
+Working hard to self-harm the USA, wreck the future for children through labor.
+
+https://old.reddit.com/r/law/comments/1p6gdsk/departing_doj_staffers_warn_of_irreversible/nqq6kuw/
+
+Chucklehead nation. Everything LOL LMAO mocking. Surkov won since year 2013.
+
+https://old.reddit.com/r/law/comments/1p6gdsk/departing_doj_staffers_warn_of_irreversible/nqqkahe/
+
+People line up daily at the meme mills like Reddit since June 16, 2015 amused as hell. People aren't suprrised, they wake up expecting more antics and fiction.
+
