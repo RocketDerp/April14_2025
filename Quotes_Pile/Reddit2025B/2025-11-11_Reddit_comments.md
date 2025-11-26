@@ -1240,3 +1240,11 @@ https://old.reddit.com/r/politics/comments/1p78pd4/sen_mark_kelly_trump_and_hegs
 
 We The People care far more about mocking and insulting leaders than actually seeking goodness. Ficiton outsells nonfiction.
 
+https://old.reddit.com/r/cats/comments/1p7f0ci/im_shocked_at_how_different_my_cat_is_now_after/nqx59lr/
+
+Pluribus TV
+
+https://old.reddit.com/r/cats/comments/1p7f0ci/im_shocked_at_how_different_my_cat_is_now_after/nqxfxvu/
+
+https://old.reddit.com/r/cats/comments/1p7f0ci/im_shocked_at_how_different_my_cat_is_now_after/nqxikex/
+
