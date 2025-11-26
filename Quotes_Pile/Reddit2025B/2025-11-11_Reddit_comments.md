@@ -1132,3 +1132,11 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1p6q9xo/breaking_rising_rep
 
 Further dehumanizing, further self-harm. Further hate of Earth itself.
 
+https://old.reddit.com/r/interesting/comments/1p6q8l5/clark_gaslighting_lois_into_thinking_he_is_not/nqsq6l7/
+
+... Reddit training camp.
+
+https://old.reddit.com/r/interesting/comments/1p6q8l5/clark_gaslighting_lois_into_thinking_he_is_not/nqser6i/
+
+A reddit comment saying everyone is wrong, but no quotes or claim of what is correct. James Joyce Finegans Wake topic. People have this cocnept that all brains are magically identical in the use of English and meaning. Tower of Babel conflicts abound. 
+
