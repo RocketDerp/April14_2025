@@ -1140,3 +1140,5 @@ https://old.reddit.com/r/interesting/comments/1p6q8l5/clark_gaslighting_lois_int
 
 A reddit comment saying everyone is wrong, but no quotes or claim of what is correct. James Joyce Finegans Wake topic. People have this cocnept that all brains are magically identical in the use of English and meaning. Tower of Babel conflicts abound. 
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1p6j8np/tell_her_what/nqrb9am/
+
