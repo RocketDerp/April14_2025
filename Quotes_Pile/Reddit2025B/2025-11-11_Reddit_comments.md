@@ -1145,3 +1145,73 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1p6j8np/tell_her_what/nqr
 https://old.reddit.com/r/memes/comments/1p6lvuw/not_even_hiding_it_anymore_at_this_point/nqrh6tu/
 
 Self-harm of children's future... feeding Rupert Murdoch content to children, making Donald Trump a role model of winning and success. Parents ae poisoning Earth itself.
+
+https://old.reddit.com/r/politics/comments/1p77124/leaked_recordings_prove_putin_is_making_trump_his/nqvhm0r/
+
+Trump needs to be rescued. The mental health workers of the world are standing by with self-harm evident tothe whole planet and won't confront Putin and Trump's behavior in public.
+
+https://old.reddit.com/r/politics/comments/1p77124/leaked_recordings_prove_putin_is_making_trump_his/nqvhtgk/
+
+Yes. Note the age of the Reddit account.
+
+https://old.reddit.com/r/politics/comments/1p77124/leaked_recordings_prove_putin_is_making_trump_his/nqvofag/
+
+People are not rescuing Trump... rescue goodness. Asserting good over bad. 
+
+https://old.reddit.com/r/politics/comments/1p77124/leaked_recordings_prove_putin_is_making_trump_his/nqvr9wy/
+
+A huge point people, We The People, ignore. Trump openlly admitted that Putin is puppeting people. Just like Trump asked Russia to hack Americans. https://www.politico.com/story/2016/07/trump-putin-no-relationship-226282
+
+https://old.reddit.com/r/politics/comments/1p77124/leaked_recordings_prove_putin_is_making_trump_his/nqvj94q/
+
+It is wild how people won't take seriously: Cambridge Analytica, Neil Postman's books, Russia's Internet Research Agency. Mindsets changed since year 2013.
+
+https://old.reddit.com/r/politics/comments/1p77124/leaked_recordings_prove_putin_is_making_trump_his/nqvj142/
+
+Social media users of USA are too entertained to sustain call for removal of badness. Mocking and insulting is prized by all.
+
+https://old.reddit.com/r/politics/comments/1p77124/leaked_recordings_prove_putin_is_making_trump_his/nqvkz1k/
+
+<img width="1128" height="410" alt="image" src="https://github.com/user-attachments/assets/e7c8b939-7de5-4327-b85e-bddf0bb06d62" /> Infinite Jest Mechanics.
+
+https://old.reddit.com/r/politics/comments/1p77124/leaked_recordings_prove_putin_is_making_trump_his/nqvlpmn/
+
+https://old.reddit.com/r/politics/comments/1p77124/leaked_recordings_prove_putin_is_making_trump_his/nqvm95r/
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nqupd3d/
+
+Unreal. There has been no effort to work together and get all people on the same page against The Russian "War Against Reality" described September 9, 2014 https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nqup19r/
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nqupnfy/
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nqupxw3/
+
+<img width="1202" height="1322" alt="image" src="https://github.com/user-attachments/assets/b7db3853-6f4e-444b-92f0-88aab836da27" /> "in a mocking way", LOL-washed, mockery-washed, entertainment-washed, amusement-washed. Reddit does heavy washing of turning it into jokes and memes. Note the age of the Reddit account.
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nqurdcp/
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nqup93x/
+
+Blown minds by entertainment of Trump playing President Tony Clifton on the LOL amusement mill of Reddit.
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nquptle/
+
+Nonfiction haas been abandoned. Goodness abandoned. Since year 2013.
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nquqc4q/
+
+People prefer fiction storytelling, Surkov monomyth, over nonfiction serious sustained focus.
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nqurq9g/
+
+We The Poeple eat out of no-identity Putin hands. Reddit audience can't name "Internet Research Agency", IRA.
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nququ0a/
+
+Reddit audience joke-washes all serious topics into jokes. 
+
+https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nquu5l0/
+
+Note the age of the Reddit account.
