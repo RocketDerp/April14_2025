@@ -24,3 +24,6 @@ https://old.reddit.com/r/todayilearned/comments/1p41co5/til_that_sexual_inactivi
 
 CDC and cause of autism      
 https://old.reddit.com/r/news/comments/1p423v5/cdc_website_changed_to_contradict_scientific/
+
+health improvement though less polution.    
+https://old.reddit.com/r/UpliftingNews/comments/1p732vv/uruguays_power_grid_runs_99_on_renewablesat_half/
