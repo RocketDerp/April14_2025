@@ -1574,3 +1574,9 @@ Elon Musk Twitter / X. Ok, Reddit. Facebook, Bluesky block-happy. Filter-bubble 
 https://old.reddit.com/r/politics/comments/1p78pd4/sen_mark_kelly_trump_and_hegseth_dont_understand/
 
 Reddit society has no concept of "information overload" despite living in it / reveling in it. Mental burnout from high-speed junk information consumption, predatory media self-harm. People do not **understand or comprehend** how Russia has mind-fucked the mass man into competitition. Humiliating and mocking others is not the same as comprehending and understanding issues and concerns. Of course a society that supports the most difficult 30%, the most troubled, is more labor and cost. Humanism is standing up for the weak and difficult. Not mocking and insulting. And by not rescuing MAGA and Trump from Putin / Russia, people have jumped right into MAGA values of hate and mass dehumanization.
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1p7cit7/sen_mark_kelly_on_trump_suggesting_he_be_executed/
+
+This is how **Putin and Surkov** won an information war against USA. We The People USA blow their minds out on paradox information patterns. People go into meme stupor, mocking mindsets, when presented with mind-blowing contradictions. Reddit audience is snowblind to the reality that this is a human brain explaoit.
