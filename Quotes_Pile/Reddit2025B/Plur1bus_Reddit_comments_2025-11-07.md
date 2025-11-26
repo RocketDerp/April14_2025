@@ -614,3 +614,30 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p31ro9/poste4_discussions/nq3
 I think for many people, weekly release of 43 minutes is no longer desired. The experience of the show after January 2026 will be very different for those who can fast forward and ask ChatGPT what a scene means.
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1p36ass/scifi_or_just_unhappy_woman/nq2wr9z/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p5zve8/hope_this_sub_becomes_the_popular_sub/nqmzk19/
+
+The heavy-handed moderation on Reddit, the *secret police* who remove postings and comments. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p5zve8/hope_this_sub_becomes_the_popular_sub/nqpbbk4/
+
+Yes, "no politics" to associate real-world issues with the TV show, not on Reddit. But allowed on other media plaatforms.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p5zve8/hope_this_sub_becomes_the_popular_sub/nqppto8/
+
+Yes, and the USA military was place of virus escape.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p7ciez/please_stop_makimg_posts_with_spoilers_in_the/nqwmztd/
+
+The episodes come out one hour out of 168 hours. If you haven't seen the latest episode, why would you go to Reddit topic of the show until after you saw the episode....
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p7fl27/theory_for_got_milk_ep_5/nqxgi0y/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p729tv/pluribus_1x05_got_milk_episode_discussion/nqwh1p4/
+
+Humans murder native peoples all over the world for land conquest. Russia has been murdering Ukraine people since February 2014.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p7gsco/the_signal_isnt_a_virus_or_aliens/nqxkfrc/
+
+Looking at the post itself (not this comment)... another who thinks this is artificial intelligence takeover. Domestic Earth hoax theory.
+
