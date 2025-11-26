@@ -1215,3 +1215,28 @@ Reddit audience joke-washes all serious topics into jokes.
 https://old.reddit.com/r/europe/comments/1p72vao/leaked_call_shows_kremlins_deputy_chief_ushakov/nquu5l0/
 
 Note the age of the Reddit account.
+
+https://old.reddit.com/r/politics/comments/1p78pd4/sen_mark_kelly_trump_and_hegseth_dont_understand/nqvsfue/
+
+Tiny-short Reddit message, upvoted to the top of page, popular.
+
+https://old.reddit.com/r/politics/comments/1p78pd4/sen_mark_kelly_trump_and_hegseth_dont_understand/nqvujj2/
+
+Exactly. But note the absence of quote, author name, book title, link.
+
+https://old.reddit.com/r/politics/comments/1p78pd4/sen_mark_kelly_trump_and_hegseth_dont_understand/nqvvkey/
+
+Reading a document from hundreds of years ago is not understanding it. Book readers can't even face up to James Joyce from 1924. People can't even tolerate a black and white film from 1960's. 
+
+https://old.reddit.com/r/politics/comments/1p78pd4/sen_mark_kelly_trump_and_hegseth_dont_understand/nqvswd4/
+
+Compusively following Russian programming since year 2013, just as Reddit audience does. Out-group oriented, Americans hate Americans instead of rescuing Americans.
+
+https://old.reddit.com/r/politics/comments/1p78pd4/sen_mark_kelly_trump_and_hegseth_dont_understand/nqvu42m/
+
+Note age of Reddit account.
+
+https://old.reddit.com/r/politics/comments/1p78pd4/sen_mark_kelly_trump_and_hegseth_dont_understand/nqvwiv4/
+
+We The People care far more about mocking and insulting leaders than actually seeking goodness. Ficiton outsells nonfiction.
+
