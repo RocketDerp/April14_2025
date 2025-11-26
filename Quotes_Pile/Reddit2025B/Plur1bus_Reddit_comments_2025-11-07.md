@@ -641,3 +641,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p7gsco/the_signal_isnt_a_viru
 
 Looking at the post itself (not this comment)... another who thinks this is artificial intelligence takeover. Domestic Earth hoax theory.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p6xzuw/wolves_theory/nqvk06w/
+
+So it is a zombie outbreak movie, but smart zombies who eat brains ;)
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p6xzuw/wolves_theory/nqwgm81/
+
+Yha, that scene I think was for Apple TV audience comedy. It damages the in-story universe. The drone operators from Ukraine can't tell a drone is overloaded...
+
