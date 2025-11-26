@@ -1569,3 +1569,8 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1p6ndga/mtg_on_x/
 
 Elon Musk Twitter / X. Ok, Reddit. Facebook, Bluesky block-happy. Filter-bubble year 2011. Fox News website, Fox News HDTV. Truth Social. Church / Mosque, Torah / Quran Bible "reality". On and on and on. Not reality, nonfiction is unpopular. And the *reality* of the Internet Research Agency since year 2013 is being ignored by everyone. Surkov won.
 
+&nbsp;
+
+https://old.reddit.com/r/politics/comments/1p78pd4/sen_mark_kelly_trump_and_hegseth_dont_understand/
+
+Reddit society has no concept of "information overload" despite living in it / reveling in it. Mental burnout from high-speed junk information consumption, predatory media self-harm. People do not **understand or comprehend** how Russia has mind-fucked the mass man into competitition. Humiliating and mocking others is not the same as comprehending and understanding issues and concerns. Of course a society that supports the most difficult 30%, the most troubled, is more labor and cost. Humanism is standing up for the weak and difficult. Not mocking and insulting. And by not rescuing MAGA and Trump from Putin / Russia, people have jumped right into MAGA values of hate and mass dehumanization.
