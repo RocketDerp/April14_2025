@@ -649,3 +649,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p6xzuw/wolves_theory/nqwgm81/
 
 Yha, that scene I think was for Apple TV audience comedy. It damages the in-story universe. The drone operators from Ukraine can't tell a drone is overloaded...
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p2m72p/pluribus_1x04_please_carol_episode_discussion/nqyejdl/
+
+Carol worked on the book for 4.5 years, I assume in her home office, and her own wife who is a book publisher won't even bother to read chapters and give feedback. It says a lot about the egoism in the marriage.
+
