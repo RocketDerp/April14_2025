@@ -27,3 +27,6 @@ https://old.reddit.com/r/news/comments/1p423v5/cdc_website_changed_to_contradict
 
 health improvement though less polution.    
 https://old.reddit.com/r/UpliftingNews/comments/1p732vv/uruguays_power_grid_runs_99_on_renewablesat_half/
+
+Social media is not standing up and calling for removal of pro-disease stances, autism lies.     
+#https://www.cleveland.com/letters/2025/11/rfk-jr-should-be-impeached-for-ordering-cdc-to-promote-autism-and-vaccination-lies.html
