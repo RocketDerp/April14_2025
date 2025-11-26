@@ -1112,3 +1112,23 @@ https://old.reddit.com/r/law/comments/1p6gdsk/departing_doj_staffers_warn_of_irr
 
 People line up daily at the meme mills like Reddit since June 16, 2015 amused as hell. People aren't suprrised, they wake up expecting more antics and fiction.
 
+https://old.reddit.com/r/wallstreetbets/comments/1p6kduo/nvdia_releases_statement_on_googles_success/nqrcuxq/
+
+https://old.reddit.com/r/wallstreetbets/comments/1p6kduo/nvdia_releases_statement_on_googles_success/nqr025o/
+
+https://old.reddit.com/r/wallstreetbets/comments/1p6kduo/nvdia_releases_statement_on_googles_success/nqqydyu/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p6q9xo/breaking_rising_republican_superstar_nick_fuentes/nqsbzjc/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p6q9xo/breaking_rising_republican_superstar_nick_fuentes/nqs6fvz/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p6q9xo/breaking_rising_republican_superstar_nick_fuentes/nqs4u7a/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p6q9xo/breaking_rising_republican_superstar_nick_fuentes/nqs9tfg/
+
+People embraced the Russian IRA and CA outcomes. It has been steady progress of anti-humanism since year 2013 in USA. Recency bias is so bad, people can't even behave as if Trump was removed from office once already. People can't even recall March 2025 now. Low-effort disposable commenting drowns out important issues of all kinds.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p6q9xo/breaking_rising_republican_superstar_nick_fuentes/nqscud5/
+
+Further dehumanizing, further self-harm. Further hate of Earth itself.
+
