@@ -1142,3 +1142,6 @@ A reddit comment saying everyone is wrong, but no quotes or claim of what is cor
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1p6j8np/tell_her_what/nqrb9am/
 
+https://old.reddit.com/r/memes/comments/1p6lvuw/not_even_hiding_it_anymore_at_this_point/nqrh6tu/
+
+Self-harm of children's future... feeding Rupert Murdoch content to children, making Donald Trump a role model of winning and success. Parents ae poisoning Earth itself.
