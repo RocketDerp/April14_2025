@@ -1580,3 +1580,9 @@ Reddit society has no concept of "information overload" despite living in it / r
 https://old.reddit.com/r/law/comments/1p7cit7/sen_mark_kelly_on_trump_suggesting_he_be_executed/
 
 This is how **Putin and Surkov** won an information war against USA. We The People USA blow their minds out on paradox information patterns. People go into meme stupor, mocking mindsets, when presented with mind-blowing contradictions. Reddit audience is snowblind to the reality that this is a human brain explaoit.
+
+&nbsp;
+
+https://old.reddit.com/r/worldnews/comments/1p7w39k/peace_deal_should_limit_russias_army_rather_than/
+
+Front page of Reddit. Inverted reality, Russia asserts inversions.
