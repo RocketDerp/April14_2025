@@ -653,3 +653,13 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p2m72p/pluribus_1x04_please_c
 
 Carol worked on the book for 4.5 years, I assume in her home office, and her own wife who is a book publisher won't even bother to read chapters and give feedback. It says a lot about the egoism in the marriage.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p8519g/im_finding_laxmi_hilarious/nr2mb4i/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p848yv/spoiler_whered_they_all_go/nr2z6ly/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p7qg0k/mods_in_pluribustv_are_removing_posts_and_coments/nqzk842/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p7qg0k/mods_in_pluribustv_are_removing_posts_and_coments/nqzrpz7/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p80tw4/ive_got_a_prediction_for_next_season/nr1p30d/
+
