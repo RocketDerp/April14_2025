@@ -1248,3 +1248,17 @@ https://old.reddit.com/r/cats/comments/1p7f0ci/im_shocked_at_how_different_my_ca
 
 https://old.reddit.com/r/cats/comments/1p7f0ci/im_shocked_at_how_different_my_cat_is_now_after/nqxikex/
 
+https://old.reddit.com/r/NonPoliticalTwitter/comments/1p7zlzn/nothing_but_air_in_that_head/nr2bidr/
+
+Attitude that it is just the Internet. Not Fox News HDTV, not Levant religions. Human tradition people honor above any goodn ones.
+
+https://old.reddit.com/r/complaints/comments/1p80zf3/today_i_am_thankful_for_people_like_my_father_who/nr1lu7h/
+
+Year 2013 onward: Cambridge Analytica, Russia's Internet Research Agency. People keep saying things seem ass-backwards, but will not study monomyth inversions. 
+
+https://old.reddit.com/r/complaints/comments/1p80zf3/today_i_am_thankful_for_people_like_my_father_who/nr1mxxh/
+
+https://old.reddit.com/r/complaints/comments/1p80zf3/today_i_am_thankful_for_people_like_my_father_who/nr1mwly/
+
+Self-harm, Russian induced since year 2013.
+
