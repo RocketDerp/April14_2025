@@ -1262,3 +1262,51 @@ https://old.reddit.com/r/complaints/comments/1p80zf3/today_i_am_thankful_for_peo
 
 Self-harm, Russian induced since year 2013.
 
+https://old.reddit.com/r/worldnews/comments/1p8m7c9/trump_says_us_will_permanently_pause_migration/nr6s5j4/
+
+Biden didn't provide entertainment stimulation. No leader can match the antics.
+
+https://old.reddit.com/r/worldnews/comments/1p8m7c9/trump_says_us_will_permanently_pause_migration/nr6i3i9/
+
+It blows the minds of touch device users. People prize word choice above comprehension. Finnegans Wake language, English vs. English on the Tower of Babel.
+
+https://old.reddit.com/r/worldnews/comments/1p8m7c9/trump_says_us_will_permanently_pause_migration/nr65i1o/
+
+The prizing of badness is domestic too. Everything changed year 2013 and people think it is sport to dehuanize out-groups.
+
+https://old.reddit.com/r/worldnews/comments/1p8m7c9/trump_says_us_will_permanently_pause_migration/nr6rvt2/
+
+Irony blows audience minds. Surkov techniques.
+
+https://old.reddit.com/r/worldnews/comments/1p8m7c9/trump_says_us_will_permanently_pause_migration/nr6epv9/
+
+https://old.reddit.com/r/worldnews/comments/1p8m7c9/trump_says_us_will_permanently_pause_migration/nr6qoz9/
+
+https://old.reddit.com/r/worldnews/comments/1p8m7c9/trump_says_us_will_permanently_pause_migration/nr69yrk/
+
+https://old.reddit.com/r/worldnews/comments/1p8m7c9/trump_says_us_will_permanently_pause_migration/nr6satj/
+
+https://old.reddit.com/r/ComedyHell/comments/1p8n366/what_andrew_tate_posts_in_2025/nr6gugx/
+
+Blows minds into meme stupors, LOL amused.
+
+https://old.reddit.com/r/ComedyHell/comments/1p8n366/what_andrew_tate_posts_in_2025/nr6be1p/
+
+People do not study "mass man" (McLuhan) / "mass mind" (Howard Bloom) and learn why certain leaders have so much power.
+
+https://old.reddit.com/r/ComedyHell/comments/1p8n366/what_andrew_tate_posts_in_2025/nr6nck7/
+
+People are attracted to these patterns, regardless of intention of the originator. People are not educated on mob mentality / masss man self-harm behaviors. Nor do people have "fire drills" of mob mentality outbreaks. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p8i5o5/no_filter_name_calling_any_time_he_doesnt_like_a/nr5cbsh/
+
+Irony leadership, Surkov techniques, blow the Reddit audience minds.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p8i5o5/no_filter_name_calling_any_time_he_doesnt_like_a/nr5fgbl/
+
+And it works. People will do anything to avoid engaging nonfiction learning about media cults.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p8i5o5/no_filter_name_calling_any_time_he_doesnt_like_a/nr5gnv5/
+
+<img width="894" height="362" alt="image" src="https://github.com/user-attachments/assets/836f136c-55d5-4a72-8312-0d141ca1c077" /> This is the mechanism of power. Anticipation for the next Trump antics / Trump communications to insult and mock. A nation that is unable to resist an attractive nusance. The motivation of "gotcha" mockery back at Trump is the central core of power. Surkov techniques.
+
