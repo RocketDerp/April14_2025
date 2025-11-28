@@ -1484,3 +1484,25 @@ https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_
 
 Russian IRA, CA is what changed the game. Minds were directly manipulated via media systems.
 
+https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr8wg64/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr9c1bd/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr8yk9y/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr94xji/
+
+Regardless if self-aware... the billionares are betting that film and TV audiences hate certain actors and certain methods of storytelling so much that "rewrite the story for me" to remove a hated voice actor, hated clothing on an actor, hated scenes, etc. Hate motivates USA society so much now. It is already common on Reddit to see people removing other people from real photographs to create artificial photographs. Hate motivated removals.
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr8qefr/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr8rdrg/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr8xfo4/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr98s4a/
+
+https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr8pa9e/
+
+
+
