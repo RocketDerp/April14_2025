@@ -35,3 +35,7 @@ A conversation between Zmuda and Kaufman about the subject is played in the docu
 at 8 minutes, being cringe, the power of cringe. Donld Trump and his followers have learned thepower of shock reality.
 
 Enter Shakari uses "Ambush Reality" label?
+
+https://youtu.be/SZfwAJ0Gn_0?t=762
+
+Trump is torture. 12:40   
