@@ -1310,3 +1310,177 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1p8i5o5/no_filter_name_call
 
 <img width="894" height="362" alt="image" src="https://github.com/user-attachments/assets/836f136c-55d5-4a72-8312-0d141ca1c077" /> This is the mechanism of power. Anticipation for the next Trump antics / Trump communications to insult and mock. A nation that is unable to resist an attractive nusance. The motivation of "gotcha" mockery back at Trump is the central core of power. Surkov techniques.
 
+https://old.reddit.com/r/WatchPeopleDieInside/comments/1p8u6bg/college_kid_confronted_about_fatal_stabbing_and/nr7nrzk/
+
+https://old.reddit.com/r/nottheonion/comments/1p8tis9/native_american_actress_stopped_by_ice_your/nr7poor/
+
+Originating anti-reality. Fiction-run world. Top to bottom of society, every Twitter / Reddit comment, to the highest leaders.
+
+https://old.reddit.com/r/nottheonion/comments/1p8tis9/native_american_actress_stopped_by_ice_your/nr7p3pk/
+
+Surkovian surreal.
+
+https://old.reddit.com/r/nottheonion/comments/1p8tis9/native_american_actress_stopped_by_ice_your/nr7tjhi/
+
+https://old.reddit.com/r/nottheonion/comments/1p8tis9/native_american_actress_stopped_by_ice_your/nr7omu7/
+
+https://old.reddit.com/r/Fauxmoi/comments/1p8wgu6/jennifer_welch_the_parasites_in_this_country_are/nr82osl/
+
+https://old.reddit.com/r/politics/comments/1p8uc2u/trump_to_recognise_occupied_ukraine_as_part_of/nr7m9y5/
+
+https://old.reddit.com/r/politics/comments/1p8uc2u/trump_to_recognise_occupied_ukraine_as_part_of/nr7oqj7/
+
+https://old.reddit.com/r/politics/comments/1p8uc2u/trump_to_recognise_occupied_ukraine_as_part_of/nr898zc/
+
+The biggest frustration is the media addiction driving every aspect of society. The abandonment of goodness, the abadnonment of nonfiction progress. This was obvious during the pandemic. People think it is entertainment to convince other people that fiction is reality. We all live under this every day now. It isn't just about Donald Trump being elected, it is patterns of thinking that drive the whole nation into self-harm across many areas.
+
+https://old.reddit.com/r/politics/comments/1p8uc2u/trump_to_recognise_occupied_ukraine_as_part_of/nr7xpwu/
+
+New Reddit account. No quotes, no links, no answers - just talk of out-group.
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr7osx2/
+
+"Putin is clearly winning Russia’s hybrid war against the U.S. because Americans don’t understand how they are being manipulated." - December 11, 2020 - "The Heritage Foundation" https://www.heritage.org/defense/commentary/putin-winning-russias-hybrid-war-against-america
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr7mng1/
+
+People are in denial of reality.
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr81qte/
+
+It is incredibly painful and difficult to go outside the trending / flow of society. 
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr7tlza/
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr7x44z/
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr7mot6/
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr7rj4k/
+
+All over Reddit today people are claiming Putin has sex videos with bubba. These sex acts even illegal? Consenting adults doing legal sex is all people care about. Doesn't even have to be illegal or a crime. That's the audience attraction.
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr7ted0/
+
+And it addresses none of the systemic billionares / mass dehumanization to technology underway.
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr81zd7/
+
+Where are the mental health workers... abuse at the macro level gets ignored.
+
+https://old.reddit.com/r/europe/comments/1p8tyka/trump_to_recognise_occupied_ukraine_as_part_of/nr7pjfk/
+
+https://old.reddit.com/r/worldnews/comments/1p8vbht/telegraph_trump_prepares_to_recognise_russias/nr7tpnu/
+
+https://old.reddit.com/r/worldnews/comments/1p8vbht/telegraph_trump_prepares_to_recognise_russias/nr7tacr/
+
+https://old.reddit.com/r/worldnews/comments/1p8vbht/telegraph_trump_prepares_to_recognise_russias/nr89uiz/
+
+https://old.reddit.com/r/worldnews/comments/1p8vbht/telegraph_trump_prepares_to_recognise_russias/nr838tu/
+
+https://old.reddit.com/r/worldnews/comments/1p8vbht/telegraph_trump_prepares_to_recognise_russias/nr8f32z/
+
+https://old.reddit.com/r/worldnews/comments/1p8vbht/telegraph_trump_prepares_to_recognise_russias/nr84pyr/
+
+https://old.reddit.com/r/worldnews/comments/1p8vbht/telegraph_trump_prepares_to_recognise_russias/nr8646c/
+
+https://old.reddit.com/r/worldnews/comments/1p8vbht/telegraph_trump_prepares_to_recognise_russias/nr80cgp/
+
+https://old.reddit.com/r/worldnews/comments/1p8vbht/telegraph_trump_prepares_to_recognise_russias/nr830tc/
+
+https://old.reddit.com/r/interestingasfuck/comments/1p8vk9j/this_titanic_simulation_shows_what_it_looked_like/nr868ra/
+
+https://old.reddit.com/r/interestingasfuck/comments/1p8vk9j/this_titanic_simulation_shows_what_it_looked_like/nr8m2gm/
+
+https://old.reddit.com/r/interestingasfuck/comments/1p8vk9j/this_titanic_simulation_shows_what_it_looked_like/nr7webk/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1p8wq7j/terminal_misogynist/nr8i8no/
+
+On camera is a different media environment. People allow killers and war in fiction storytelling and cheer it on. Attraction to dramatic storytelling is Trump's power. Abandonment of nonfiction.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1p8wq7j/terminal_misogynist/nr8n2c1/
+
+Recent Reddit account. It's a screen game of no citatios, no links, no author names, no quotes.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1p8wq7j/terminal_misogynist/nr8cggt/
+
+Another recent Reddit account.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1p8wq7j/terminal_misogynist/nr8e1n9/
+
+Reddit audience calling for more mockery in the expanding total mockery. How you win debate on social media society.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1p8uo85/swifties/nr8qnrx/
+
+There is no individual there, just body parts and chemical reactions.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1p8uo85/swifties/nr80lvm/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1p8uo85/swifties/nr8w8xc/
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1p8uo85/swifties/nr85dqz/
+
+Hyper normal high speed messaging.
+
+https://old.reddit.com/r/MemeVideos/comments/1p8r6k0/_/nr79c0z/
+
+This is what people don't get about Donald Trump. Dealing with the public and being a media star nerve-racks many a music / film / TV star. So many end up on drugs or other serious problems. Even when Elvis dies, people think he walks in afterlife.
+
+https://old.reddit.com/r/MemeVideos/comments/1p8r6k0/_/nr8shfc/
+
+https://old.reddit.com/r/MemeVideos/comments/1p8r6k0/_/nr821nd/
+
+People constantly normalize the factory of human trafficing for entertainment. Just like Trump, constantly washing the billionaire club / system. Instead of viewing MAGA as less-educated in media ecology (Neil Postamn), people exploited by Rupert Murdoch NYC Fox News.... people attack the wounded MAGA people because of their tone and pride. Shallow reaction vs. shallow reaction. The mind-fucking by Putin, Cambridge Analytica, Newsmax and Fox News isn't shallow, it runs deep intot he mind.
+
+https://old.reddit.com/r/MemeVideos/comments/1p8r6k0/_/nr7l4dg/
+
+Feed the audience Trump-like langauge and behavior and they program it into their mind in the name of entertainment / amusement.
+
+https://old.reddit.com/r/MemeVideos/comments/1p8r6k0/_/nr8yaed/
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8wfdh/
+
+It isn't errors. It is thrilling entertainment to Reddit audeinces. :People compusively hand over power for the sake of entertainment, mocking JD Vance. Surkovian governing exploits this behavior and has found it to be the most powerful leadership. People are not seeing the forest of LOL audience that is nonstop focus on White House / Kremlin.
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8hhwj/
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8l50j/
+
+Thrilled that Russia mind-fucked Americans into bullshit.
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8o9f3/
+
+Mocking, name-calling, insulting, adopting Truth Social behaviors. Abandonment of goodness as conditioned by the IRA and CA.
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8rn3g/
+
+Once you give up on humanism, taking away health care and mocking the people Russia mentally injured (all the USA) is fun on the world stage. As other nations are doing.
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8xlie/
+
+<img width="850" height="266" alt="image" src="https://github.com/user-attachments/assets/71e381fe-517e-4a46-b21d-ec4cc39164bf" /> Yes. Surkov monomyth is self-harm to even domestic Russia.
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8spsl/
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr920r9/
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8jvta/
+
+<img width="918" height="646" alt="image" src="https://github.com/user-attachments/assets/6cb817cf-8ef6-4b14-859f-55353eeb540e" /> people are behaving as if all this is entertainment.
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8odir/
+
+Filter bubble, recency bias.
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8pgf5/
+
+Simulacra of resistance.
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8vfii/
+
+People prize disposable low-effort commenting.
+
+https://old.reddit.com/r/politics/comments/1p8ym5m/theres_no_doubt_about_it_the_great_maga_crackup/nr8vycq/
+
+Russian IRA, CA is what changed the game. Minds were directly manipulated via media systems.
+
