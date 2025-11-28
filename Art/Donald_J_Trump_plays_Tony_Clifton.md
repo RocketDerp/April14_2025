@@ -26,3 +26,12 @@ A conversation between Zmuda and Kaufman about the subject is played in the docu
 
 "They faked Papu’s death," he continues, referring to Kaufman's beloved grandfather. When Papu died, Kaufman's parents told their son he was away on a trip. Kaufman didn't discover the truth until he was older. "They faked it and said he didn’t die," Zmuda adds. "The lie, the cherished lie, can change reality. Reality can always be maneuvered and controlled. This is very important."
 
+&nbsp;
+
+&nbsp;
+
+### Thank You Very Much
+
+at 8 minutes, being cringe, the power of cringe. Donld Trump and his followers have learned thepower of shock reality.
+
+Enter Shakari uses "Ambush Reality" label?
