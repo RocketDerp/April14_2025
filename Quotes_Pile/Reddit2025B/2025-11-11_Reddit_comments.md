@@ -1510,5 +1510,7 @@ https://old.reddit.com/r/travel/comments/1p8z0fh/i_feel_morally_obligated_to_war
 
 https://old.reddit.com/r/travel/comments/1p8z0fh/i_feel_morally_obligated_to_warn_you_about_tunisia/nr8nrqx/
 
+https://old.reddit.com/r/OrdinarySausage/comments/1p6kg1j/okay_so_hes_really_lost_it_now/nqv6sj8/
 
+If people could apply the media ecology of Mr. Sausage to Donald Trump and the people who join in with Trump... things would make more sense. Religions are media stories, science fiction stories, with fandom and cosplay as clergy.
 
