@@ -1504,5 +1504,11 @@ https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_ar
 
 https://old.reddit.com/r/ExplainTheJoke/comments/1p8zqdf/what_is_this_and_why_are_we_cooked/nr8pa9e/
 
+https://old.reddit.com/r/travel/comments/1p8z0fh/i_feel_morally_obligated_to_warn_you_about_tunisia/nr8tstp/
+
+https://old.reddit.com/r/travel/comments/1p8z0fh/i_feel_morally_obligated_to_warn_you_about_tunisia/nr8x380/
+
+https://old.reddit.com/r/travel/comments/1p8z0fh/i_feel_morally_obligated_to_warn_you_about_tunisia/nr8nrqx/
+
 
 
