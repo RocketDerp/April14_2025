@@ -1586,3 +1586,9 @@ This is how **Putin and Surkov** won an information war against USA. We The Peop
 https://old.reddit.com/r/worldnews/comments/1p7w39k/peace_deal_should_limit_russias_army_rather_than/
 
 Front page of Reddit. Inverted reality, Russia asserts inversions.
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1p9jmuy/never_forget_what_fox_news_did_to_these_people/
+
+Jen Senko should have been on the front page of Reddit since 2015 and 2016 addressing Fox News. Jen Senko's in-family situation a rally call to make what is shared all across the nation into houses and cars. Malala's Radio Mullah F.M. media should have been taken seriously in USA. Fiction addiction is running the nation. Reddit audience can not see the very ground it stands upon, media addictions.
