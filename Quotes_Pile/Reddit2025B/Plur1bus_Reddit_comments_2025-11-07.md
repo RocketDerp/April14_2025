@@ -663,3 +663,10 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p7qg0k/mods_in_pluribustv_are
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1p80tw4/ive_got_a_prediction_for_next_season/nr1p30d/
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p9qv3z/first_5_minutes_of_episode_1_gave_us_a_clue_about/nre6l0j/
+
+It's been popular to focus on the transmitter comment. Personally, other than as a message of don't look and don't listen to outer space (which confronts all religions, looking at the heavens)... I don't see how that relates much to practical life on Earth in year 2025 / year 2026. I think the issues of how Carol is sent to lesbian reprogramming camp and how Helen her wife doesn't read her book she worked on for 4.5 years is much more about human issues of "opening up" to one another. I do see a metaphor: Moses sends down a message of commandments from outer-space, a hive mind forms, and people send prayers back at Mecca - a massive return signal. Teaching people to be self-aware of their own programming from Quran / Bible / Torah.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p9c0j6/carols_lesson_overcome_cynical_isolation_and/nreaejh/
+
+The original post, not just this comment, is a big part of my focus on the show. It's a lengthy detailed post with a good title. Many Reddit audience people are not drawing that this is what religion / heaven dream of humanity has been for thousands of years. Outer-space inner reaches.
