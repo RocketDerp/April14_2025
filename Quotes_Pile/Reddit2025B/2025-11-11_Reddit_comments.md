@@ -1567,3 +1567,56 @@ https://old.reddit.com/r/worldnews/comments/1p9oko8/trump_says_airspace_above_an
 https://old.reddit.com/r/worldnews/comments/1p9oko8/trump_says_airspace_above_and_surrounding/nrdr5yv/
 
 That is why they are such content for social media society. People treat each other like this on meme sites, and Trump has mastered a meme nation.
+
+https://old.reddit.com/r/CringeTikToks/comments/1p9jmuy/never_forget_what_fox_news_did_to_these_people/nrcygaj/
+
+We are not living in a sane nation. Fox News nation. Fiction addictions run USA. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/CringeTikToks/comments/1p9jmuy/never_forget_what_fox_news_did_to_these_people/nrcpk1n/
+
+<img width="982" height="508" alt="image" src="https://github.com/user-attachments/assets/ca6f6b2d-c8b2-41ad-b881-249196377cc6" />  The loss is horific since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1p9jmuy/never_forget_what_fox_news_did_to_these_people/nrcyf38/
+
+Competeition. People are raised to view that being competitive is what is most important. Entire religion faiths built on out-group hate. George Lucas filmed lessons for Star Wars audiences in summer of 1986 / 1987 at the peak of his Hollywood power and influence and published [in "Power of Myth" 1988](https://billmoyers.com/series/joseph-campbell-and-the-power-of-myth-1988/): ... ... ...      
+BILL MOYERS: As we sit here and talk, there is one story after another of car bombings in Beirut—by the Muslims of the Christians, by the Christians of the Muslims, and by the Christians of the Christians. It strikes me that Marshall McLuhan was right when he said that television has made a global village of the world—but he didn’t know the global village would be Beirut. What does that say to you?
+JOSEPH CAMPBELL: It says to me that they don’t know how to apply their religious ideas to contemporary life, and to human beings rather than just to their own community. **It’s a terrible example of the failure of religion to meet the modern world. These three mythologies are fighting it out. They have disqualified themselves for the future**.
+MOYERS: What kind of new myth do we need?
+CAMPBELL: We need myths that will identify the individual not with his local group but with the planet. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
+MOYERS: There is something about that on the Great Seal of the United States.
+CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdnq7a/
+
+Disabled people are treated as a burden. The clergy cares more about holy lands than living people.
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdrp2y/
+
+Cambridge Analytica doctors manipulated people since year 2013.
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdzn19/
+
+The public is engaged on Bluesky, Reddit, Facebook, Musk Twitter, TikTok, commenting about hte situation tree by tree and not addressing the Fox News, Newsmax and other classic media addiction issues of the audience all around them. It is a society-wide problem, lead by a TV addict / meme addicts.
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdhtwk/
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdfair/
+
+Cambridge Analytica and Internet Research Angency have altered mindsets to self-harm the USA.
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdq5dp/
+
+Putin pressured the *population*, people can not face the Internet while using The Intenet on Reddit.
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdh0jq/
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdh4ge/
+
+Redddit audinece since June 16, 2015 has loved miling Trump as a "LOL cow" for entertainment and mocking. A pinata to smash at, an efficgy to burn on with memes and jokes. People are avoidant of sustained focus on nonfiction, entirely thrilled to have a villan to insult and mock constantly providing stimulation.
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdj17o/
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdic77/
+
+Meme stupor. Lost a war to Russia on the Internet and can't even name the "Internet Research Agency".
+
