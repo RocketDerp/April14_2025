@@ -1554,3 +1554,16 @@ https://old.reddit.com/r/interesting/comments/1p99cyt/a_japanese_anime_singer_ma
 
 Blocked. search_google_com also hides posting and comment history.
 
+https://old.reddit.com/r/worldnews/comments/1p9oko8/trump_says_airspace_above_and_surrounding/nrdkt51/
+
+Tiny-short Reddit message. The problem is not one single person that the Reddit audience fixates on. The voters are not all senile! Putin attacking Ukraine isn't because of senile. This is a serious problem, people can not recognize group thinking, mob mentality and only process the GOP / MAGA power of hundreds of millions of people in terms of senile / dementia. Further, by claiming Trump is senile it is saying he is not mentally responsible for his choices.
+
+https://old.reddit.com/r/worldnews/comments/1p9oko8/trump_says_airspace_above_and_surrounding/nrds1ac/
+
+https://old.reddit.com/r/worldnews/comments/1p9oko8/trump_says_airspace_above_and_surrounding/nrdjtd3/
+
+https://old.reddit.com/r/worldnews/comments/1p9oko8/trump_says_airspace_above_and_surrounding/nrdo5ut/
+
+https://old.reddit.com/r/worldnews/comments/1p9oko8/trump_says_airspace_above_and_surrounding/nrdr5yv/
+
+That is why they are such content for social media society. People treat each other like this on meme sites, and Trump has mastered a meme nation.
