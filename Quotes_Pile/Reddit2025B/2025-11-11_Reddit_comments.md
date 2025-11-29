@@ -1817,3 +1817,21 @@ https://old.reddit.com/r/politics/comments/1p9tz7o/trumps_2_trillion_plan_to_cas
 
 Back in the 80's when I grew up, we  had Marshall McLuhan and Neil Postman in enough people's minds (We The People) that there was a chance. But the coming wave of Eternal September opened the door to Russia's IRA / CA.
 
+https://old.reddit.com/r/NoFilterNews/comments/1p9vfbx/donald_trump_made_disturbing_gesture_about/nrfxlop/
+
+People were drowned in information and manipulation from Cambridge Analytia doctors and Putin's IRA.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p9vfbx/donald_trump_made_disturbing_gesture_about/nrg4cxq/
+
+People are attracted to fiction, avoidant of nonfiction. Badness became attractive.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p9vfbx/donald_trump_made_disturbing_gesture_about/nrfan1g/
+
+The whole world needed to stay focused on Malala since year 2012 / year 2013 when she came on the world stage. The answers to challenging terrorism and bad morals.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p9vfbx/donald_trump_made_disturbing_gesture_about/nrf7prr/
+
+https://old.reddit.com/r/NoFilterNews/comments/1p9vfbx/donald_trump_made_disturbing_gesture_about/nrfq0e7/
+
+Recency bias abounds.
+
