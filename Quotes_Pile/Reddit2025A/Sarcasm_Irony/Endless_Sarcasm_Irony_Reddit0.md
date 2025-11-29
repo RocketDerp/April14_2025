@@ -5,6 +5,7 @@
 ++ Endless attraction to Trump images and icons / status symbol of rich    
 ++ Hate training camp    
 ++ Entertainment focus     
+++ "JUst like The Onion!" Kremlin and White House     
 
 &nbsp;
 
@@ -1592,3 +1593,10 @@ Front page of Reddit. Inverted reality, Russia asserts inversions.
 https://old.reddit.com/r/CringeTikToks/comments/1p9jmuy/never_forget_what_fox_news_did_to_these_people/
 
 Jen Senko should have been on the front page of Reddit since 2015 and 2016 addressing Fox News. Jen Senko's in-family situation a rally call to make what is shared all across the nation into houses and cars. Malala's Radio Mullah F.M. media should have been taken seriously in USA. Fiction addiction is running the nation. Reddit audience can not see the very ground it stands upon, media addictions.
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/
+
+Reddit audience (front page) eating the Surkovian onion methods of governing. Thinking it is *accidental* to be surreal and absurd like Putin has run Russia for over 25 years.
+
