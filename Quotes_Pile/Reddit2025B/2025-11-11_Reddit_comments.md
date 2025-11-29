@@ -1742,3 +1742,25 @@ Joke-washing the widespread manipulation of women. Anti-Malala jokes of society.
 https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nresaeh/
 
 Mob mentalkty, insane, wild.
+
+https://old.reddit.com/r/Whatcouldgowrong/comments/1p9vmi9/wcgw_digging_without_checking/nrfe2mb/
+
+Yha, looks like POTS wiring.
+
+https://old.reddit.com/r/Whatcouldgowrong/comments/1p9vmi9/wcgw_digging_without_checking/nrf86ch/
+
+https://old.reddit.com/r/Whatcouldgowrong/comments/1p9vmi9/wcgw_digging_without_checking/nrf1i5d/
+
+People don't even care / no concern for facts.
+
+https://old.reddit.com/r/Whatcouldgowrong/comments/1p9vmi9/wcgw_digging_without_checking/nreylz5/
+
+https://old.reddit.com/r/Chainsawfolk/comments/1p9pxmz/the_reze_situation_is_getting_worse/nrdzf12/
+
+https://old.reddit.com/r/Chainsawfolk/comments/1p9pxmz/the_reze_situation_is_getting_worse/nrf4dls/
+
+"Being able to differentiate fiction from reality is not that hard anyway." ... Fox News, Donald Trump, Quran / Torah / Bible science fiction trilogy, the history of science as described in the books and TV series of Carl Sagan... it is incredibly difficult for humans to distinguish reality from misunderstandings. Everyone gets it worng. ... ... ...        
+“Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
+
+https://old.reddit.com/r/Chainsawfolk/comments/1p9pxmz/the_reze_situation_is_getting_worse/nrejhph/
+
