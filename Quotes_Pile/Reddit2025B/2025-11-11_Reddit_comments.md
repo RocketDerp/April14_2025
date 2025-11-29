@@ -1685,3 +1685,60 @@ https://old.reddit.com/r/Battlefield/comments/1p9r43c/battlefield_has_a_big_prob
 
 https://old.reddit.com/r/Battlefield/comments/1p9r43c/battlefield_has_a_big_problem/nre6yj9/
 
+https://old.reddit.com/r/europe/comments/1p9ts0t/in_malm%C3%B6_sweden_there_are_2260_jars_of_nutella/nrf8lod/
+
+A Reddit audience that can't sus out insincere and fake comments (no identity Reddit messaging, Twitter account origins November 2025 topic) also can't imagine fake packaged food / supply chain fakes. Even airplane parts, which are highly regulated and tracked, have fake parts. https://www.bbc.com/news/world-us-canada-18155293
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrepqbh/
+
+I'd rather famous people weren't where all people looked for sexual abuse and take serious what is going on in their own house. Systemic abuse in USA sports-worship Trump-worship society.
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf0pad/
+
+Reddit has a lot of tiny-short messages these years.
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf9f47/
+
+Media ecology of seating.
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrevq7d/
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf2wic/
+
+No link, no quote, no book title, no author name.
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrew39s/
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf93x2/
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf0orf/
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nreusk4/
+
+Hate motivates in USA society now.
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf1cns/
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf6668/
+
+Recency bias, induced by the latest media clips.
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nreuicr/
+
+Yes, calling for a link / quote. People on Reddit are very unlikely to have first-hand knowledge from the girl, just information consumption - and dispsoable commenting is prized over actual research with idetnifiable authors.
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf5fcl/
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf8s9i/
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nrf3lt8/
+
+Donald Trump media role model for children. Parents since June 16, 2015 have made Trump the role model of "winning" in society.
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nretw5c/
+
+Joke-washing the widespread manipulation of women. Anti-Malala jokes of society. Instead of people being serious and quoting and linking and repeating Malala since year 2012 / year 2013 when she became world famous, people just joke on and on avout sex with young girls and the conflicts over maturity / consent / education. And people rarely seem to criticize Hollywood TV / films / music videos / music stars who traffic in sexualy appealing / attractive sexuality of voices / body / dress / dialog. Let Malala give voices to young girls and stop acting like girls over the age of 9 don't need to be self-aware of the exploitation in multiple geogrpahic locations over thousands of years that women have experienced. 
+
+https://old.reddit.com/r/nba/comments/1p9ukzp/josh_giddey_gets_into_an_argument_with_fan_that/nresaeh/
+
+Mob mentalkty, insane, wild.
