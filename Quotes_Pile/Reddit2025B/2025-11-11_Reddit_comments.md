@@ -1795,3 +1795,25 @@ https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_g
 <img width="928" height="754" alt="Screenshot from 2025-11-29 13-59-45" src="https://github.com/user-attachments/assets/83310708-46bc-4dbb-8e93-c6c66e1560c3" />
 Kamala Harris didn't provide the fiction entertainment that social media society craves. President Tony Clifton performance by Trump provides constant stimulation for media addiction USA. Touch device content Trumps. Note age of Reddit account.
 
+https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_go_in_to_venezuela/nres6tz/
+
+<img width="936" height="400" alt="image" src="https://github.com/user-attachments/assets/337e5987-d417-4aa1-b7f4-abe43cbc910c" /> Surkovian. Make believe society.
+
+https://old.reddit.com/r/politics/comments/1p9tz7o/trumps_2_trillion_plan_to_cash_in_on_ukraine/nreluuo/
+
+https://old.reddit.com/r/politics/comments/1p9tz7o/trumps_2_trillion_plan_to_cash_in_on_ukraine/nrfaows/
+
+Surkov students would author the screenplay for this, back in year 2012.
+
+https://old.reddit.com/r/politics/comments/1p9tz7o/trumps_2_trillion_plan_to_cash_in_on_ukraine/nreu0rw/
+
+<img width="882" height="370" alt="image" src="https://github.com/user-attachments/assets/b216e1f6-6196-4142-87a8-349efb1f9332" /> 18 year Reddit account chimes in.
+
+https://old.reddit.com/r/politics/comments/1p9tz7o/trumps_2_trillion_plan_to_cash_in_on_ukraine/nrfghkw/
+
+It says that We The People ignored Neil Postman, dismissed 1985 book "Amusing Ourselves To Death". It is our weak point as a society, amusement and entertainment.
+
+https://old.reddit.com/r/politics/comments/1p9tz7o/trumps_2_trillion_plan_to_cash_in_on_ukraine/nrfhlb3/
+
+Back in the 80's when I grew up, we  had Marshall McLuhan and Neil Postman in enough people's minds (We The People) that there was a chance. But the coming wave of Eternal September opened the door to Russia's IRA / CA.
+
