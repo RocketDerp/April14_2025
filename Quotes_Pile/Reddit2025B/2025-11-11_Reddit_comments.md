@@ -287,7 +287,7 @@ Hate and dehumanization anre proven systems. Trump won, Putin won.
 
 https://old.reddit.com/r/travel/comments/1oxp6va/just_spent_3_weeks_in_egypt_im_never_coming_back/noyur02/
 
-The Pluribus problem is global. Except in USA, it's Rupert Murdoch media networks, Elon Musk media networks pumping Truth Social media network as the role model to admire and worship. It's more distance, strategic space bombing of minds,vs.Egypt it is more personal. The problem of oute-group hate is global. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). This whole human attitude of screw-over outsiders / love your family but compete in grifting and  manipulating "the others"....
+The Pluribus problem is global. Except in USA, it's Rupert Murdoch media networks, Elon Musk media networks pumping Truth Social media network as the role model to admire and worship. It's more distance, strategic space bombing of minds, vs. Egypt it is more personal. The problem of out-group hate is global. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). This whole human attitude of screw-over outsiders / love your family but compete in grifting and manipulating "the others"....
 
 https://old.reddit.com/r/Unexpected/comments/1oxt9sj/this_guy_revealed_the_truth/nozjexl/
 
@@ -1763,4 +1763,35 @@ https://old.reddit.com/r/Chainsawfolk/comments/1p9pxmz/the_reze_situation_is_get
 “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
 https://old.reddit.com/r/Chainsawfolk/comments/1p9pxmz/the_reze_situation_is_getting_worse/nrejhph/
+
+https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_go_in_to_venezuela/nrepwb5/
+
+https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_go_in_to_venezuela/nreoxyy/
+
+Recently created Reddit account.
+
+https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_go_in_to_venezuela/nreu0qk/
+
+<img width="958" height="644" alt="image" src="https://github.com/user-attachments/assets/4adb14b8-47f1-4e99-8d4d-4bc4f974a7da" /> And the Russian Internet Research Agency and Cambridge Analytica manipulation and other Rupert Murdoch platforms and copycat style.
+
+https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_go_in_to_venezuela/nretuwl/
+
+<img width="946" height="738" alt="image" src="https://github.com/user-attachments/assets/46700df4-b8a8-4651-b830-a3721480b757" /> Humanity doesn't care to face up to common brain exploits and mind flaws. The problem of out-group hate is global. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). This whole human attitude of screw-over outsiders / love your family but compete in grifting and manipulating "the others"....
+
+https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_go_in_to_venezuela/nrf00kl/
+
+Sports mentality. Domination. Winning.
+
+https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_go_in_to_venezuela/nrergtf/
+
+Gasoline prices. The price of a house can double, people cheer. Price of gasoline goes from $2.00 a gallon to $2.75 and USA society freaks out. Price of health care tripples, no big deal.
+
+https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_go_in_to_venezuela/nrevrwz/
+
+<img width="930" height="498" alt="image" src="https://github.com/user-attachments/assets/3f979e78-fab5-4218-bf0a-4ea0d54db3aa" /> Twitter-think nation. High-speed notification stimulation. Neil Postman was correct in year 1985.
+
+https://old.reddit.com/r/politics/comments/1p9uh14/republican_says_us_about_to_go_in_to_venezuela/nreyjpk/
+
+<img width="928" height="754" alt="Screenshot from 2025-11-29 13-59-45" src="https://github.com/user-attachments/assets/83310708-46bc-4dbb-8e93-c6c66e1560c3" />
+Kamala Harris didn't provide the fiction entertainment that social media society craves. President Tony Clifton performance by Trump provides constant stimulation for media addiction USA. Touch device content Trumps. Note age of Reddit account.
 
