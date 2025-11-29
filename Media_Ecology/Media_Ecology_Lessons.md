@@ -1135,3 +1135,16 @@ https://www.youtube.com/watch?v=pG6cOaQqXYw
 
 https://www.youtube.com/watch?v=ECLy6JnBdoY
 
+&nbsp;
+
+### Tech errors publishing
+
+Errors on mainstream publication   
+
+<img width="1828" height="844" alt="image" src="https://github.com/user-attachments/assets/c22d866e-8526-4c2f-a853-50977d24db5a" />
+
+Screen shot from 2025-11-29
+
+https://www.bbc.com/news/world-us-canada-18155293
+
+Interesting to note that there are not error detection systems at runtime or even in batch to catch these mistakes for one of the most established electric publishers in history.
