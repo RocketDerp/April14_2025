@@ -39,3 +39,16 @@ The simplistic mind reading of a single word choice. The power USA police have t
 This is exactly the crisis that Finnegans Wake year 1924, James Joyce, is highlighting... the Tower of Babel problem. The Jewish Israel vs. Muslim Mecca vs. Christian vs. non-believer, gentile, infidel, out-group languge and word choice toxic clergy teachings.
 
 "I know what kind of man you are" - why does it not apply to women? Why only "man"? is that meaning "mankind"? It applies to age 16 India as well as age 45 Canada or New Zealand use of English?
+
+&nbsp;
+
+# Turing Complete
+
+Reverse engineering a working software programs into fresh source code has be one of the must humbling science experiences in my lifetime. There is no arguing or debating if something can be accomplished. It is a language barrier, Theory Of Mind
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3m6sifpmprk2i     
+https://autistics.life/@RoundSparrow/115635432850815789    
+
+Especially "black box" input / output specifications of an API or hardware chip. Where you document all the behavior as an external user without studying the code itself / running in a debugger / doing system call traces. But strictly as an API client. Trying to turn binary BLOB device drivers into source code for my mind was a massive skill learn. Lots of stuff to load into the mind at once to reproduce a closed-source device driver say from Windows 10 over to Ubuntu Linux 24.04
+
+
