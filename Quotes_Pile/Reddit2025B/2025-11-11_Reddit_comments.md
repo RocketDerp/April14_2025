@@ -1666,3 +1666,7 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_th
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nrdyjbo/
 
 It is a modern press release.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nre7rh2/
+
+Social media society is constantly amused and entertained mocking back at Trump. Trump does Tony Clifton antics on Truth Social / Twitter - and social media audiences mock back how dumb, stupid, idiot, moron, demential, senile Trump is. It has been gong on FOR OVER TEN YEARS AND FIVE MONTHS, endless mockery / mocking back and forth at Trump media content. That is the power Trump has, tickle and simulate the hive mind of society, the meme hive mind of social media notification society.
