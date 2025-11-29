@@ -1670,3 +1670,18 @@ It is a modern press release.
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nre7rh2/
 
 Social media society is constantly amused and entertained mocking back at Trump. Trump does Tony Clifton antics on Truth Social / Twitter - and social media audiences mock back how dumb, stupid, idiot, moron, demential, senile Trump is. It has been gong on FOR OVER TEN YEARS AND FIVE MONTHS, endless mockery / mocking back and forth at Trump media content. That is the power Trump has, tickle and simulate the hive mind of society, the meme hive mind of social media notification society.
+
+https://old.reddit.com/r/shittymoviedetails/comments/1p9rmfn/in_stranger_things_season_5_sadie_sink_hangs_out/nreppwq/
+
+Yes. Media ecology self-awareness. People are on touch devices mocking and insulting Donald Trump (entertainment amusement leader of the world) at the same time they are watching Netflix Stranger Things. 
+
+https://old.reddit.com/r/shittymoviedetails/comments/1p9rmfn/in_stranger_things_season_5_sadie_sink_hangs_out/nrerjkn/
+
+https://old.reddit.com/r/shittymoviedetails/comments/1p9rmfn/in_stranger_things_season_5_sadie_sink_hangs_out/nrepbnz/
+
+https://old.reddit.com/r/shittymoviedetails/comments/1p9rmfn/in_stranger_things_season_5_sadie_sink_hangs_out/nreo15v/
+
+https://old.reddit.com/r/Battlefield/comments/1p9r43c/battlefield_has_a_big_problem/nre43vs/
+
+https://old.reddit.com/r/Battlefield/comments/1p9r43c/battlefield_has_a_big_problem/nre6yj9/
+
