@@ -5,7 +5,7 @@
 ++ Endless attraction to Trump images and icons / status symbol of rich    
 ++ Hate training camp    
 ++ Entertainment focus     
-++ "JUst like The Onion!" Kremlin and White House     
+++ "Just like The Onion!" Kremlin and White House     
 
 &nbsp;
 
