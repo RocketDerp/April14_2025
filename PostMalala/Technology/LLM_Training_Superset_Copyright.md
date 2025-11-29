@@ -1,0 +1,10 @@
+# LLM Traoining Superset Copyright
+
+I think copyright is holding back the public facing LLM systems. I used to work for the richest people in the world back in the 1990's in Bellevue Washington as an analyst... so I don't say this lightly. There is a market for exclusive-access / restricted-access LLM systems trained on data that the public would object to. Datasets that would not be trained on public-facing models. And runtime connection of being able to search the exact source material / training material at runtime and exactly quote the author / link / page number of where a concept comes from. Doing so on public-facing LLM systems would have even more of a backlash from creators. If you could get the LLM to tell you that page 111 of a Neil Postman book is where it matched up an idea or concept to a Marshall McLuhan book page 160 you are "leaking" out the training material in a way that reveals the training material / copyright issues. A lot of effort has been put into programming the public systems to AVOID being precise about magazine / book / social media quotations and page numbers. This isn't accidental.
+
+If you develop a private exclusive-access model trained on a superset of forbidden (authors / creator forbids AI usage) content and add layers of matching ideas back to their original source training material you have a far more powerful system.
+
+Humanity geographically has been split for very long periods of time. The Tower of Babel metaphor is a very real issue that LLM systems can see past that most people do not. Being able to cross-reference all films / TV shows / music / social media / books / live video feeds of the real world (even private surveillance systems that would only feed into restrictive-access training LLM models) offers huge opportunity to connect ideas from different parts of the world that were previously not connected together.
+
+Look at how many data leaks are disclosed to the public, how many spy agencies are stealing corporate trade secrets without disclosure or even detection? A superset of training data opens a lot of doors that the public may never be able to witness.
+
