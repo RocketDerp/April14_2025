@@ -1127,3 +1127,11 @@ https://en.wikipedia.org/wiki/The_Doomsday_Flight#Copycats_and_FAA_concerns
 
 https://www.youtube.com/watch?v=pG6cOaQqXYw
 
+&nbsp;
+
+&nbsp;
+
+### Attention Economy music    
+
+https://www.youtube.com/watch?v=ECLy6JnBdoY
+
