@@ -1620,3 +1620,14 @@ https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_f
 
 Meme stupor. Lost a war to Russia on the Internet and can't even name the "Internet Research Agency".
 
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nre12lq/
+
+People do not want to face that *We The People* are in simualcra patterns. Commenting about tree after tree, recency bias, reacting. MAGA vs. non-MAGA patterns. Russia won, Surkov won, since March 2013.
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdfkzl/
+
+Social media, the media, the social media rose along with Trump. Elon Musk purchasing Twitter in year 2022... got mocked and mocking itself is the power. Social media Reddit audience has done everything it can to wrap Trump in entertainment. Feeding a massive addiction to hate and insult Trump. People are avoidant of nonfiction serious *get on the same page* topics in favor of disposable commenting about how bad Trump is. Instead of facing *the media* problem of touch device media, people on Reddit can't see their own avoidance of sustaine focus. Why wasn't Jen Senko made a household name in 2015 and 2016 by Reddit society?
+
+https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdifhu/
+
+New Reddit account this year.
