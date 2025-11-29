@@ -1631,3 +1631,14 @@ Social media, the media, the social media rose along with Trump. Elon Musk purch
 https://old.reddit.com/r/politics/comments/1p9o3gb/trumps_cruelty_has_gone_too_far_and_america_will/nrdifhu/
 
 New Reddit account this year.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1p9pip6/disgraceful/nrdylwd/
+
+https://old.reddit.com/r/UnderReportedNews/comments/1p9pip6/disgraceful/nrdv6t1/
+
+Reddit audience so thrilled and enterrtained at Russia mind-fucking Americans into meme stupors.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1p9pip6/disgraceful/nrdrnb6/
+
+Somemone on Reddit mentioning that the Founding Fathers were diests! Alas, no author names, no book quotes, no book title, no link.
+
