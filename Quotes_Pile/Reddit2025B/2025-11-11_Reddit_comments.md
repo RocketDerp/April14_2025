@@ -1835,3 +1835,41 @@ https://old.reddit.com/r/NoFilterNews/comments/1p9vfbx/donald_trump_made_disturb
 
 Recency bias abounds.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrfcm1c/
+
+The secret police of Reddit, the behind-the-scene moderators and admins.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrfpkkp/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrgaevp/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrfro7d/
+
+Yes. Replies (comments) as I've documented here on this GitHUb.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrgafu4/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrf0xth/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrfj8kb/
+
+Internet Research Agency. 
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrfjx7s/
+
+The IRA went online in March 2013. Before 10 years ago.
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrfujoj/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrgdgti/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrffvq6/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrf5t3x/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrfb826/
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_posts_about_the_election/nrgbt8g/
+
+Yes, years on Lemmy, and many problems there too. People do not stand up for goodness.
+
