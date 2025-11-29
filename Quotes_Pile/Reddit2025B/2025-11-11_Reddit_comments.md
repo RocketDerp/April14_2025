@@ -1642,3 +1642,27 @@ https://old.reddit.com/r/UnderReportedNews/comments/1p9pip6/disgraceful/nrdrnb6/
 
 Somemone on Reddit mentioning that the Founding Fathers were diests! Alas, no author names, no book quotes, no book title, no link.
 
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nrdxbbk/
+
+A society that makes Twitter-length messages the most upvoted comment on Reddit. No book titles, no author names, no links on media ecology. Disposable short-life comment by the millions to drown out serious nonfiction learning.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nrdzgxy/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nrdzonv/
+
+02:00 after midnight, the Finnegans Wake by James Joyce focus... raising the subconsious.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nre3uro/
+
+Removing Trump does not address the Reddit audience and Fox News audience issues.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nrdyddq/
+
+Tiny-short Reddit comment messages conditioning Reddit audience to continue with amusements as usual. Just wait around until Trump is dead. Don't address the cult problems of media cults, MAGA, Musk Twitter, Fox News, etc.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nre63bj/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_the_onion_until_it_wasnt/nrdyjbo/
+
+It is a modern press release.
