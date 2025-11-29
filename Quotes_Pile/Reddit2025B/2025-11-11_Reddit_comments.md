@@ -1514,3 +1514,43 @@ https://old.reddit.com/r/OrdinarySausage/comments/1p6kg1j/okay_so_hes_really_los
 
 If people could apply the media ecology of Mr. Sausage to Donald Trump and the people who join in with Trump... things would make more sense. Religions are media stories, science fiction stories, with fandom and cosplay as clergy.
 
+https://old.reddit.com/r/NoFilterNews/comments/1p927ii/kill_everybody_bombshell_pete_hegseth_order/nr9ackp/
+
+South Park amusement-washes entertainment-washes all the bad into Reddit audience prized content.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p927ii/kill_everybody_bombshell_pete_hegseth_order/nr99i49/
+
+We The People are so thrilled and entertained at the situaiton since June 16, 2015. Endless mockery and insulting about how terrible Trump and MAGA are. People will not confront the amusement addiction to high speed media content.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p927ii/kill_everybody_bombshell_pete_hegseth_order/nr9oycp/
+
+It is crazy.  "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M - people are all treating it as sports events to commentary on.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p927ii/kill_everybody_bombshell_pete_hegseth_order/nr9gsnz/
+
+Hence why I invoke Finnegans Wake (acid trip, LSD, Marshall McLuhan's lazy wake). People are entirely engrossed and engaged with the Surkovian techniques.
+
+https://old.reddit.com/r/NoFilterNews/comments/1p927ii/kill_everybody_bombshell_pete_hegseth_order/nr9h3f2/
+
+https://old.reddit.com/r/politics/comments/1p94ztz/trump_says_he_will_cancel_all_biden_orders_signed/nr9rnl4/
+
+Blows Reddit audience minds into loops: moron, idiot, stupid. Been gong on for over a decade that Trump antics blow audience minds.
+
+https://old.reddit.com/r/politics/comments/1p94ztz/trump_says_he_will_cancel_all_biden_orders_signed/nr9xoz8/
+
+https://old.reddit.com/r/politics/comments/1p94ztz/trump_says_he_will_cancel_all_biden_orders_signed/nra4x8e/
+
+No serious sustained attempt to rescue MAGA from Russian mind-fuck since year 2013. Just calling people dumb in disposable commenting.
+
+https://old.reddit.com/r/interesting/comments/1p99cyt/a_japanese_anime_singer_maki_otsuki_was_abruptly/nrardgg/
+
+We can't even interact on Bluesky and Reddit without people blocking at the drop of a hat.
+
+https://old.reddit.com/r/interesting/comments/1p99cyt/a_japanese_anime_singer_maki_otsuki_was_abruptly/nray0as/
+
+https://old.reddit.com/r/interesting/comments/1p99cyt/a_japanese_anime_singer_maki_otsuki_was_abruptly/nraxshs/
+
+https://old.reddit.com/r/interesting/comments/1p99cyt/a_japanese_anime_singer_maki_otsuki_was_abruptly/nraria5/
+
+Blocked. search_google_com also hides posting and comment history.
+
