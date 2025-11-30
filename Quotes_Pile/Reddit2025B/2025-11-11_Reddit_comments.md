@@ -1969,3 +1969,7 @@ https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targe
 https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrk7k9n/
 
 In the Reddit commenbt thread context, this is a typical deflection away from Kremlin media techniques topic, deflection away from Russia topic.
+
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrkd44i/
+
+No author names, no links, no book titles, no quotes. Three paragraphs of original claims and no identity. Caliming that "Russia isn't the problem" that created Trump.
