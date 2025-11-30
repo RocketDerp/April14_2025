@@ -1961,3 +1961,11 @@ yes. every day. On Bluesky and Reddit and other media: consantly cheering on how
 https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrjhnk2/
 
 Trump's power os media, antics on TV, going golfing and having it filmed, Truth Social media, Twitter, on front page of Reddit constantly and always. Fox News. Go down with the ship, but send a S.O.S. to the world that media addiction to trash content (Fox News) is self-harm. Community on Bluesky and Reddit social media can't imagine halting entertainment. [ACTION PLAN: Be serious, halt all sports and games entertainment, halt mocking. Teach nonfiction. Use the spare time and free time that goes into constantly mocking Trump and Putin and actually stand up for getting on the same pages (of goodness).](/Grim_Blunt/Stop_All_Entertainment.md)
+
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrjirxy/
+
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrjfypb/
+
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrk7k9n/
+
+In the Reddit commenbt thread context, this is a typical deflection away from Kremlin media techniques topic, deflection away from Russia topic.
