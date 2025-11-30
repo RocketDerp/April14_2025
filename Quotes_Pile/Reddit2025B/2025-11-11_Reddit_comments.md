@@ -2011,3 +2011,55 @@ No Filter Bullshit News of Reddit.
 https://old.reddit.com/r/whenthe/comments/1paovms/most_forced_scandal_ever/nrkn9ej/
 
 Social media society audiences.
+
+https://old.reddit.com/r/news/comments/1paqog9/national_guard_shooting_suspect_radicalized_in_us/nrl21d9/
+
+Reality lost from White House. But people trust no-identity social media comments.
+
+https://old.reddit.com/r/news/comments/1paqog9/national_guard_shooting_suspect_radicalized_in_us/nrl354u/
+
+https://old.reddit.com/r/news/comments/1paqog9/national_guard_shooting_suspect_radicalized_in_us/nrl3lmf/
+
+https://old.reddit.com/r/news/comments/1pa9hi2/4_dead_and_10_wounded_in_shooting_at_banquet_hall/nrhu6dv/
+
+https://old.reddit.com/r/news/comments/1pa9hi2/4_dead_and_10_wounded_in_shooting_at_banquet_hall/nrhv6wa/
+
+The remote media is the message.
+
+https://old.reddit.com/r/news/comments/1pa9hi2/4_dead_and_10_wounded_in_shooting_at_banquet_hall/nrj7e94/
+
+https://old.reddit.com/r/news/comments/1pa9hi2/4_dead_and_10_wounded_in_shooting_at_banquet_hall/nri21c1/
+
+Taliban values. Levant clergy teachings. Out-groups over Torah vs. Bible vs. Quran vs. all other science fiction stories. Humanity needs to face up to the crisis of science fiction media turf wars. And Fox News media turf wars.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1paoc1j/at_this_point_as_long_as_youre_on_trumps_good/nrkm7au/
+
+Tiny-short reactionary Reddit audience message. Simple-think. All Bluesky and Reddit care about in year 2025 focus on is who is upseeting how, cheering "Leopards Faces" when MAGA Americans and Trump (American) self-harm the USA. Entirely ignorant of Russian Internet Research Agency since year 2013, Americans cheering on the harm of other Americans in conditioned patterns.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1paoc1j/at_this_point_as_long_as_youre_on_trumps_good/nrkqiav/
+
+Reddit is invaited by the Internet Research Agency and people can't be bothered to name it.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1paoc1j/at_this_point_as_long_as_youre_on_trumps_good/nrkr3o0/
+
+Americas, all of them, are happy as long as the out-group Americans are harmed. Leopards Eating Faces 2025 cheering all year long on Reddit front page. The common values of USA is to hate human persons and cheer on damaging systems of harm. Be it Fox News harming humanity, be it Putin's Kremlin harming humanity, any system that harms humanism is cheered on as a "win".
+
+https://old.reddit.com/r/UnderReportedNews/comments/1paoc1j/at_this_point_as_long_as_youre_on_trumps_good/nrkwhnj/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1pascto/a_new_trend_of_using_ai_to_villainize_black_people/nrlt0f5/
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1pascto/a_new_trend_of_using_ai_to_villainize_black_people/nrltl6r/
+
+Cambridge Analytica and the Russian Internet Research agency since year 2013 have unleashed horrors upon humanity.
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1pascto/a_new_trend_of_using_ai_to_villainize_black_people/nrlln9p/
+
+Fiction outsells nonfiction.
+
+https://old.reddit.com/r/worldnews/comments/1pat71t/russia_sends_disposable_soldiers_into_battle_with/nrm0rn2/
+
+Humanity. Not limited to Russia, this is what people do on Reddit and Bluesky and USA White House. Corporate America.
+
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrma5wd/
+
+Completely avoiding the link about Russia in thread context.
