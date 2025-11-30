@@ -36,3 +36,5 @@ https://www.youtube.com/watch?v=zi4wlR_GQAU
 https://old.reddit.com/r/MurderedByWords/comments/1past5h/false_equivalence_at_its_finest/
 
 Why is JD Vance calling out a autism girl in Europe? Why is RFK Jr saying Tylonol causes autism? Are they trying to muddle the Nazi ties to autism?
+
+If anything Greta practices "antics politics" like Kremlin and White House does. Competition from a young woman treating the antics techniques?
