@@ -1606,3 +1606,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1pa36s3/he_must_have_immunity/
 
 Front page of Reddit. Trump doing something paradoxical and it blowing the minds of social media audiences. Note the screen shot hasa "LOL" laugh track for the media consumer audience.
 
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1pai1d8/why_is_this_man_running_a_country_not_locked_in_a/
+
+Front page of Reddit. ANSWER: We The People will not come to terms with the scope, the forest for the trees, of what Russia information warfare has done to THE POPUALTION. Not fixated on one man, Trump, but the audience. You can't just take the lowest 30% of society and write them off when Russia wins hearts and minds. You can't abandon the least-educated people who don't graps Neil Postman and Marshall McLuhan concepts and defend  USA and NATO against the IRA!
