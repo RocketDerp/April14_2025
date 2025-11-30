@@ -670,3 +670,16 @@ It's been popular to focus on the transmitter comment. Personally, other than as
 https://old.reddit.com/r/Pluribus_TVshow/comments/1p9c0j6/carols_lesson_overcome_cynical_isolation_and/nreaejh/
 
 The original post, not just this comment, is a big part of my focus on the show. It's a lengthy detailed post with a good title. Many Reddit audience people are not drawing that this is what religion / heaven dream of humanity has been for thousands of years. Outer-space inner reaches.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p9yfaa/report_mods_if_they_abuse_power/nrfuyow/
+
+Yha, the moderators are sus.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pa0mgq/thoughts_about_the_book_excerpt/nrg6wkj/
+
+...
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1p9sole/my_guess_the_heavy_contact_references_and_nature/nreybrv/
+
+More to consider with the TCP/IP v6 metaphors.
+
