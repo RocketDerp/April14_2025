@@ -1890,3 +1890,33 @@ https://old.reddit.com/r/PublicFreakout/comments/1pa3eip/2016_footage_surfaces_o
 All trust in society is broken when such inversion of goodness symbols abounds. ... ... ...        
 https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ He continued, "And **our job is to get, is to drop the bucket further down the well than anybody else** to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
 
+https://old.reddit.com/r/law/comments/1pa6imf/early_in_trumps_term_we_asked_is_it_a/nrhaysd/
+
+And the *resistance* is compromised. Everyone is mind-fucked by Russia since year 2013. People will not study and take seriously Surkov information warfare and mindsets. People laugh away the serious matters, the population isn't resisting by mocking and insulting Surkov student techniques. People do not grasp simulation / simulacra behaviors of mocking and insulting and how this is a monomyth brain exploit of humanity. Finnegans Wake, James Joyce, through the lense of Marshall McLuhan and Jean Erdman. 
+
+https://old.reddit.com/r/law/comments/1pa6imf/early_in_trumps_term_we_asked_is_it_a/nrhbzub/
+
+The Internet Research Agency and Cambridge Analytica won the day for humanity self-harm.  Junk messages won the day.
+
+https://old.reddit.com/r/law/comments/1pa6imf/early_in_trumps_term_we_asked_is_it_a/nrhdrix/
+
+The Stock Market gambling and alienating all other nations in trade war. The USA insulted and threaetened Canada. The World got the message.
+
+https://old.reddit.com/r/law/comments/1pa6imf/early_in_trumps_term_we_asked_is_it_a/nrhaplz/
+
+Yha, the trade partners and whole world order has changed. Anything short of a mass We The People uprising of admitting media addiction / media ecology lessons isn't going to return things to goodness. Real people admit reality that Russia won the war against reality, that Rupert Murdoch poisoning of nonfiction is toxic. Elon Musk was like a moth to the Putin invasio of Twitter flame.
+
+https://old.reddit.com/r/law/comments/1pa6imf/early_in_trumps_term_we_asked_is_it_a/nrhblu8/
+
+It is amusement and mocking as usual since yaer 2013. People are not seeing the forest for the trees, minds keep being blown with Trump antics / Tony Clifton Presidnet accts.
+
+https://old.reddit.com/r/law/comments/1pa6imf/early_in_trumps_term_we_asked_is_it_a/nrhdiqr/
+
+Denial abounds. Reddit is ground-zero for amusement and entertainment as usual. People aremore concerned about GTA6 than rescuing the USA from the race to the bottom.
+
+https://old.reddit.com/r/TikTokCringe/comments/1pa0wtr/nothing_more_american_than_an_enraged_parent/nrgkxje/
+
+Sports mentality informs people. Win by any means.
+
+https://old.reddit.com/r/TikTokCringe/comments/1pa0wtr/nothing_more_american_than_an_enraged_parent/nrgc8cr/
+
