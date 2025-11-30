@@ -1784,5 +1784,6 @@ Colors tend to be associated with India, Mexico in USA. anti-immigrant, and as t
 
 https://old.reddit.com/r/lol/comments/1pak7z8/preparation/
 
-Choice marriage honesty. Parenting and spouse inward journey is more difficult for many men than outward hunting. Roman empire, soldiers could go away for many years without their domestic life. USA culture during Afghanistan war, many young married soldiers away from home. 
+Choice marriage honesty. Parenting and spouse inward journey is more difficult for many men than outward hunting. Roman empire, soldiers could go away for many years without their domestic life. USA culture during Afghanistan war, many young married soldiers away from home. Men can find it easier to kill strangers / murder in warfare to the public society than facing the inward egoism issues. Themes of Joyce's stories of Dublin and marraige of Stephen D.
+
 
