@@ -683,3 +683,17 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1p9sole/my_guess_the_heavy_con
 
 More to consider with the TCP/IP v6 metaphors.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pamims/will_this_character_come_back_i_was_kinda/nrkmdpu/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pamims/will_this_character_come_back_i_was_kinda/nrkmwas/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pamims/will_this_character_come_back_i_was_kinda/nrkl5k6/
+
+Many people don't seem to recognize that. Same with "Pluribus" title. Not in-show. We the Audience have a perspective that the characters in show do not have. Very much a meta work of media ecology like James Joyce's Finnegans Wake.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pamims/will_this_character_come_back_i_was_kinda/nrk8gtd/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pamims/will_this_character_come_back_i_was_kinda/nrkivjs/
+
+Got a lot of comments / engagement. 16D Trump Surkov level media to Reddit audience.
+
