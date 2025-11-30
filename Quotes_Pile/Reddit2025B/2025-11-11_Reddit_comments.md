@@ -1873,3 +1873,20 @@ https://old.reddit.com/r/ProgressiveHQ/comments/1p9vzrd/rtennessee_is_censoring_
 
 Yes, years on Lemmy, and many problems there too. People do not stand up for goodness.
 
+https://old.reddit.com/r/NoFilterNews/comments/1pa275q/gop_in_freefall_as_yet_another_maga_congressman/nrgdp6a/
+
+https://old.reddit.com/r/NoFilterNews/comments/1pa275q/gop_in_freefall_as_yet_another_maga_congressman/nrgtxky/
+
+And the headline for the story on front page of Reddit is that "GOP in freefall" from two Texas family memebers with the same last name doing tag-team.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pa275q/gop_in_freefall_as_yet_another_maga_congressman/nrgol69/
+
+https://old.reddit.com/r/PublicFreakout/comments/1pa3eip/2016_footage_surfaces_of_laura_loomer_far_right/nrglehs/
+
+Inverted Levant MonoMyth. https://thesethingsinside.wordpress.com/2013/04/18/joseph-campbell-says-religious-literalism-sets-satan-in-the-seat-of-god/
+
+https://old.reddit.com/r/PublicFreakout/comments/1pa3eip/2016_footage_surfaces_of_laura_loomer_far_right/nrgk0b0/
+
+All trust in society is broken when such inversion of goodness symbols abounds. ... ... ...        
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/ He continued, "And **our job is to get, is to drop the bucket further down the well than anybody else** to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
+
