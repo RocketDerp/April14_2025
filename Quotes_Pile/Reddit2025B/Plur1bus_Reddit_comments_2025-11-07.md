@@ -697,3 +697,9 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pamims/will_this_character_co
 
 Got a lot of comments / engagement. 16D Trump Surkov level media to Reddit audience.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1paukjo/fanfiction_is_not_a_valid_theory_shutting_down/nrm8s47/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1paukjo/fanfiction_is_not_a_valid_theory_shutting_down/nrmaq2x/
+
+"Last Man On Earth" virus comedy.
+
