@@ -1,4 +1,4 @@
-# Technology Death]
+# Technology Death
 
 Space ship deaths, flying machine deaths
 
