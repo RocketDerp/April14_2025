@@ -1973,3 +1973,37 @@ In the Reddit commenbt thread context, this is a typical deflection away from Kr
 https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrkd44i/
 
 No author names, no links, no book titles, no quotes. Three paragraphs of original claims and no identity. Caliming that "Russia isn't the problem" that created Trump.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pamigb/the_glaring_omissions/
+
+The life of a true king who does not follow society conventions. In Paris, a wealthy man would be considered a social failure if he didn't have a mistress for much of "Western civialization" time period. None of these issues raised in the social media image and Reddit posting have to do with governing USA. Except of course, "choice marriage honesty". Do you see social media users declaring that maybe freedom of Church means freedom to have children with mulitple partners? Or is that only what rich people do in Ottman empire or Salt Lake City Utah? People are so concerned with White House male sex lives, Epstein list, and not really addressing media honesty. Even though "media honesty" is part of the topic, omission, the sex topics and power to have mutliple partners is really what draws November 2025 USA audiences. Private jets, sex lives of leaders, it impresses people that star power lets you grab women by the pussy and be "respected" for conquest.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pamigb/the_glaring_omissions/nrk741n/
+
+It is the thrill of hate upon the White House that drives Bluesky and Reddit society. The simulation of messaging and communicating with family. Instead of addressing addiction to terrible leaders, deception leadership, people are excited to encounter mocking messages and hate messages. Trump leaders in hate and mocking, USA society eats it up.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pamigb/the_glaring_omissions/nrk83gr/
+
+Flexing power. OPERA_A Women in Cages... https://www.youtube.com/watch?v=Y3Krg8Nc69Y
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pamigb/the_glaring_omissions/nrkboe5/
+
+Finnegans Wake media ecology.
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pamigb/the_glaring_omissions/nrk75w0/
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pamigb/the_glaring_omissions/nrk66kt/
+
+Images consumed on Reddit. That's the values. Having yourself on front page of Reddit constantly with an audience eating out of your hand. Mocking Tony Clifton acts and fashion is not resisting Clifton performances. Fox News experience of programming audiences to mock.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pahk54/trump_humiliated_as_he_is_forced_to_take_down/nrjddok/
+
+Russia won a reality war. Reality is suspended. Goodness is abandoned in favor of racing high-speed reactions over TCP/IP.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pahk54/trump_humiliated_as_he_is_forced_to_take_down/nrj8ao8/
+
+<img width="1038" height="350" alt="image" src="https://github.com/user-attachments/assets/073d2cbf-fb1b-4484-90d7-b93c9d2d5282" /> Reddit audience laugh track. Messages to program the audience that current 2025 White House [life is but a joke](https://www.youtube.com/watch?v=TLV4_xaYynY), note the "LOL" in the message. Entertainment / amusement addicts. Neil Postamn was correct in year 2025 about Reddit audience and electric media.
+
+https://old.reddit.com/r/NoFilterNews/comments/1pahk54/trump_humiliated_as_he_is_forced_to_take_down/nrjdl9k/
+
+No Filter Bullshit News of Reddit.
