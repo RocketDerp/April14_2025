@@ -1600,3 +1600,9 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1p9qo9j/thought_this_was_th
 
 Reddit audience (front page) eating the Surkovian onion methods of governing. Thinking it is *accidental* to be surreal and absurd like Putin has run Russia for over 25 years.
 
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1pa36s3/he_must_have_immunity/
+
+Front page of Reddit. Trump doing something paradoxical and it blowing the minds of social media audiences. Note the screen shot hasa "LOL" laugh track for the media consumer audience.
+
