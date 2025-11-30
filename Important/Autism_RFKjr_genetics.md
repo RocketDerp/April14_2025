@@ -30,3 +30,9 @@ https://old.reddit.com/r/BrandNewSentence/comments/1oxe4d4/im_autistic_you_didnt
 
 Death 20 years earlier. Medical staff treatment.   
 https://www.youtube.com/watch?v=zi4wlR_GQAU
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1past5h/false_equivalence_at_its_finest/
+
+Why is JD Vance calling out a autism girl in Europe? Why is RFK Jr saying Tylonol causes autism? Are they trying to muddle the Nazi ties to autism?
