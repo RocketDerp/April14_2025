@@ -1780,3 +1780,9 @@ https://old.reddit.com/r/TikTokCringe/comments/1p4nhvz/the_color_problem/
 
 Colors tend to be associated with India, Mexico in USA. anti-immigrant, and as the video says - rich people "classy". Fashion of rich and famous trickles down. 
 
+&nbsp;
+
+https://old.reddit.com/r/lol/comments/1pak7z8/preparation/
+
+Choice marriage honesty. Parenting and spouse inward journey is more difficult for many men than outward hunting. Roman empire, soldiers could go away for many years without their domestic life. USA culture during Afghanistan war, many young married soldiers away from home. 
+
