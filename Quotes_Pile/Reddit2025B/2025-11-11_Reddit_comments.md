@@ -2007,3 +2007,7 @@ https://old.reddit.com/r/NoFilterNews/comments/1pahk54/trump_humiliated_as_he_is
 https://old.reddit.com/r/NoFilterNews/comments/1pahk54/trump_humiliated_as_he_is_forced_to_take_down/nrjdl9k/
 
 No Filter Bullshit News of Reddit.
+
+https://old.reddit.com/r/whenthe/comments/1paovms/most_forced_scandal_ever/nrkn9ej/
+
+Social media society audiences.
