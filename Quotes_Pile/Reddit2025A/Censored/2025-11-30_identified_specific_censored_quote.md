@@ -1,6 +1,6 @@
 In this specific instance, I spent the extra time to actaully create mutliple comments and identify the censorship specific match that resutls in comment being unpblished.
 
-Unpublsihed comment:    
+Censored / unpublished comment:    
 https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrke33j/
 
 Published comment:     
