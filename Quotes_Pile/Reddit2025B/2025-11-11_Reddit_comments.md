@@ -1974,7 +1974,7 @@ https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targe
 
 No author names, no links, no book titles, no quotes. Three paragraphs of original claims and no identity. Caliming that "Russia isn't the problem" that created Trump.
 
-https://old.reddit.com/r/WhitePeopleTwitter/comments/1pamigb/the_glaring_omissions/
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pamigb/the_glaring_omissions/nrkfj8k/
 
 The life of a true king who does not follow society conventions. In Paris, a wealthy man would be considered a social failure if he didn't have a mistress for much of "Western civialization" time period. None of these issues raised in the social media image and Reddit posting have to do with governing USA. Except of course, "choice marriage honesty". Do you see social media users declaring that maybe freedom of Church means freedom to have children with mulitple partners? Or is that only what rich people do in Ottman empire or Salt Lake City Utah? People are so concerned with White House male sex lives, Epstein list, and not really addressing media honesty. Even though "media honesty" is part of the topic, omission, the sex topics and power to have mutliple partners is really what draws November 2025 USA audiences. Private jets, sex lives of leaders, it impresses people that star power lets you grab women by the pussy and be "respected" for conquest.
 
