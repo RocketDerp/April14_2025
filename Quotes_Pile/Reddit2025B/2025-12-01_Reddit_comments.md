@@ -209,3 +209,7 @@ Continues to avoid all of the off-site links, outside Reddit, information links.
 https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrqxncp/
 
 Every flavor of fiction seasoning you can get. Anti-Wiki, anti "all getting on the same page", a media ecology of spread spectrum fiction doping.
+
+https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrqpmxs/
+
+Compusive consumers. Russian conditioned since March 2013.
