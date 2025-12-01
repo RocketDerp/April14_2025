@@ -431,3 +431,10 @@ Also: Media literacy. Some people seem incapable of listening to ideas that aren
 https://old.reddit.com/r/Fauxmoi/comments/1p3ynbg/leslie_bibb_shares_why_being_a_mother_was_never/
 
 Choice marriage honesty / children planning.
+
+&nbsp;
+
+"Joyce, McLuhan, and Finnegans Wake with Bob Dobbs"    
+https://www.youtube.com/watch?v=eVNRWRAaC0Y
+
+2 hours on McLuhan and Joyce Wake.
