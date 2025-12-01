@@ -2,6 +2,19 @@
 
 https://www.angelfire.com/hi/littleprince/framechapter26.html
 
+But he said to me:
+
+"Tonight, it will be a year . . . My star, then, can be found right above the place where I came to the Earth, a year ago . . ."
+
+"Little man," I said, "tell me that it is only a bad dream--this affair of the snake, and the meeting-place, and the star . . ."
+
+But he did not answer my plea. He said to me, instead:
+
+"The thing that is important is the thing that is not seen . . ."
+
+&nbsp;
+
+
 George Lucas in 1985, at the very height of his Hollywood fame and power, filmed lessons for Star Wars audiences at Skywalker Ranch. Published in 1988 book "The Power of Myth".
 
 BILL MOYERS: Do you see some new metaphors emerging in a modern medium for the old universal truths?
