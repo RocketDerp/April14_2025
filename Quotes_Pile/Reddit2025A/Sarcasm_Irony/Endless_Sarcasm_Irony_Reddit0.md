@@ -1618,3 +1618,8 @@ https://old.reddit.com/r/MurderedByWords/comments/1pbemvg/it_was_a_bad_memory/
 
 Endless back and forth domestic mocking. Front page of Reddit, depicting off-Reddit too. Endless mocking back and forth about fiction vs. nonfiction. Russia won, Surkov won, the "War Against Reality" and people will  not take it serious and turn to nonfiction learning about Kremlin information warfare. Recency bias abounds! Hate prizing and conflict prizing abounds. People are wrecking the nation by prizing this kind of bullshit to the front page as mocking entertaiment and amusement. Eating right out of the Russian hands since year 2013.
 
+&nbsp;
+
+https://old.reddit.com/r/Snorkblot/comments/1pbcav0/number_of_who/
+
+Front page of Reddit, featuring other off-Reddit content. Endless mocking of Rupert Murdoch billionare influence, media addiction, Bible literacy, Fox News. Mocking and amusment-washing serious problems on Reddit. All just entertainment sports think instead of ENTIRE NATION coming together to RESCUE the USA from fiction addiction to Fox News fiction. Jen Senko ignored by social media addicts since year 2015 and year 2016, no sustained focus on the WORLD-WRECKING SERIOUS PROBLEM that Fox News has caused! People are more concerned about the age of actors in Stranger Things Season 5 than they are about cult deprogramming of Fox News audience in an organized dedicated sustained-focus way.
