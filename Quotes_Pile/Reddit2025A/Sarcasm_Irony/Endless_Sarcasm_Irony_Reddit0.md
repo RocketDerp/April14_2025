@@ -1629,3 +1629,11 @@ Front page of Reddit, featuring other off-Reddit content. Endless mocking of Rup
 https://old.reddit.com/r/UnderReportedNews/comments/1pbi2p4/that_seems_relevant/
 
 Front page of Reddit from a Bluesky message. It is ANOTHER EXAMPLE of reality itself being inverted. But audience people on Reddit will bark at the trees with disposable comments... amusment-wash it away, have their minds blown by the Surkov student patterns of conradiction (Adam Curtis NYE 2014)... and just keep going after tree by tree of examples without connecting the dots to the scope of the year 2013 onward forest. Russia won an information warfare. Inverted meaning is paradox mind-fucking of Reddit audience / Bluesky audience.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Wellthatsucks/comments/1pbkeac/someone_threw_a_slow_cooker_through_my_window/
+
+Right here is the mindset exploit of Russian inforation warfare since year 2013. It's ok to lob bombs into Ukraine if it's entertaining. If people can mock how eak and poorly equipped the Russian army is, it's so funny and entertaining and amusing to wash away the badness with meme-think! That's the foundation of the Internet Research Agency mind-fucking. Donald Trump playing President Tony Clifton with a cast of Fox News trained media stars! As long as people can mock "MAGA leopards faces" over and over annd over, it's funny to have your nation smashed with self-harm behaviors! This is the human brain exploit that I credit Surkov for recognizing and explouding upon in his fiction storytelling. Surkov cracked the monomyth mind exploits of God casting lightning and thunder down upon humans to make them bow to the wealth lords / land lords / power lords of Putin and Trump /etc. Monomyth depth mind-fucking cracked by Surkov!
