@@ -729,3 +729,17 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pbarra/whats_in_a_name/nrqfoc
 https://old.reddit.com/r/Pluribus_TVshow/comments/1padtb7/my_wildest_theory_yet_helen_is/nrr0ye8/
 
 Reddit minds so easily blown by media messages. [The ELIZA effect?](https://en.wikipedia.org/wiki/ELIZA_effect) So many Reddit meme consumers in December 2025 are whacked out of their brains on ChatGPT trash. James Joyce was indeed a real human person who spent 17 years writing a book of 628 pages. Maybe study Bible verse Romans 11:33 and how it relates to James Joyce's writings / language.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with_the_sick_injured_or_people/nrreqat/
+
+I keep trying to get Reddit to see the media ecology of the REAL Pale Blue Dot audience, Reddit audience.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with_the_sick_injured_or_people/nrr5vb6/
+
+Mythology invoked. Science fiction story invoked! Matthew 25:15
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with_the_sick_injured_or_people/nrr7lht/
+
+https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrqxncp/
+
+Every flavor of fiction seasoning you get. Anti-Wiki, anti "all getting on the same page", a media ecology of spread spectrum fiction doping.
