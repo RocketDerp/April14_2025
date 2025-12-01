@@ -5,3 +5,7 @@ December 31, 2014
 
 https://www.realclearpolitics.com/video/2014/12/31/bbcs_adam_curtis_on_the_contradictory_vaudeville_of_post-modern_politics.html
 
+&nbsp;
+
+The expectation is set within a population that war, hate, insulting are the default of humanity by Putin and Surkov. In information warfare, that society insecurity is the norm, and mistakes like climate change are just more opportunity to defeat other human populations.
+
