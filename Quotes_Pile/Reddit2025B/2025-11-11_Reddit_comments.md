@@ -2078,3 +2078,6 @@ https://old.reddit.com/r/complaints/comments/1paupda/russia_had_a_secret_program
 
 The greater issue of "haox" is the "War Against Reality" Russia devised and is waging since before the Ukraine war in February 2014. Fiction addictions are raging in USA, avoidance of nonfiction learning of media ecology.
 
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrmxnz6/
+
+Noise insult comments to shift topic away from Russia.
