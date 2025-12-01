@@ -1647,3 +1647,9 @@ Same commenting! Epstein list, toxic masculinity. Right on the front page. All t
 https://old.reddit.com/r/therewasanattempt/comments/1pbng9g/to_misinform_you_that_hunger_is_at_an_all_time_low/
 
 The Levant monomyth mind-fuck is right on the front page of Reddit. People refuse to study Kremlin information warfare. https://www.atlanticcouncil.org/blogs/ukrainealert/russian-orthodox-church-declares-holy-war-against-ukraine-and-west/
+
+&nbsp;
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1pbrfv8/ouch/
+
+Reddit front page. "NRA Was 'Foreign Asset' To Russia Ahead of 2016, New Senate Report Reveals" - https://www.npr.org/2019/09/27/764879242/nra-was-foreign-asset-to-russia-ahead-of-2016-new-senate-report-reveals
