@@ -165,3 +165,44 @@ https://old.reddit.com/r/funny/comments/1pbblog/a_bus_going_into_labor/nrpwhgd/
 
 Noise attack, in the popular dehumanize ELIZA effect style of Reddit.
 
+https://old.reddit.com/r/politics/comments/1pbapap/bluecollar_jobs_are_collapsing_under_trump/nrp532j/
+
+All goodness is collapsing in USA under Putin's information warfare since year 2013. Goodness is abandoned in every area of society, top to bottom, but some sets of society took longer to fall. January 2024 it was total saturation of faith in hate, faith in mocking. People addopted hate for hate, hate vs. hate fully.
+
+https://old.reddit.com/r/politics/comments/1pbapap/bluecollar_jobs_are_collapsing_under_trump/nrpe537/
+
+Punch-line: "this is not complicated." Such Reddit Twitter-think simple shit bullshit. ... ... ...    
+"except concepts by which the world was regulated, policed, mapped and controlled. All four of which are becoming more and more difficult to do under this situation of rapidly increasing complexity – which I have mentioned many times – and I mean system complexity at every level. Rapid increase in information technologies and invasions directly into the human body that interface it with machines." - Rick Roderick, 1993. https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
+
+https://old.reddit.com/r/politics/comments/1pbapap/bluecollar_jobs_are_collapsing_under_trump/nrp3mxj/
+
+Goodness itsself. Elon Musk has spelled out that the agenda is removal of empathy. Machine lust, humanism hate.
+
+https://old.reddit.com/r/technology/comments/1pbad7c/netflix_kills_casting_from_phones/nrp08t2/
+
+Economy of hate. People act like "companies" / "corporate America" haven't taken over every area of society, abandoning democracy. Peole are in deep denial in USA of Donald Trump's SECOND TERM, acting as if the prizing of hate is new in year 2025. Recency bias abounds. Surkov won.
+
+https://old.reddit.com/r/technology/comments/1pbad7c/netflix_kills_casting_from_phones/nrp63qe/
+
+Yes. It is systemmic. Society-wide. But people don't want to consider that Russia induced self-harm into the population. That the informaiton warfare is far more serious than people are admitting.
+
+https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrqixx0/
+
+Menace of media-induced unreality. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrrenyi/
+
+"No offense intended". We all need media ecology lessons on the Tower of Babel language conflicts.
+
+https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrqj7pq/
+
+Yes, far before old age "dementia" and all the Reddit dementia-washing of MAGA - hundreds of millions of people. Fox News brain and langauge https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ isn't "dementia". People I need to not have "dementia" medical disorder. They have an addiction to fiction storytelling that Trump and Murdoch and Musk and Putin provide. 
+
+https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrqraor/
+
+<img width="920" height="700" alt="image" src="https://github.com/user-attachments/assets/887fce1b-ed5c-420e-919c-9e7b4696764a" /> Habitial. Practiced. Pre-emptive. Donald Trump can read the mass man of USA society TV mindsets. Andy Kaufman level. Trump is a gifted natural at reading the McLuhan defined "mass man" of the mob mentality and spotting how to exploit hive minds.
+
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrrtrlc/
+
+Continues to avoid all of the off-site links, outside Reddit, information links. Won't discuss the Washington Monthly link that is asserted repeat times in context to the White House media topic / Kremlin media Trump agreement of November 2012.
+
