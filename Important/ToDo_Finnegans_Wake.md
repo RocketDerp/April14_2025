@@ -438,3 +438,8 @@ Choice marriage honesty / children planning.
 https://www.youtube.com/watch?v=eVNRWRAaC0Y
 
 2 hours on McLuhan and Joyce Wake.
+
+&nbsp;
+
+Media ecology, media consumer, language. Roles vs. actors / persons. Strangers you consume vs. your own child / parent reality.    
+https://old.reddit.com/r/comics/comments/1pbh6oz/who_oc/
