@@ -234,3 +234,14 @@ There is a true reality beyond the simualcra. All the time wasted in the simulac
 https://old.reddit.com/r/pics/comments/1oq8d06/to_me_this_image_says_a_ton_man_collapsed_in_oval/
 
 It says to me a 79 year old man is keenly aware of all the servants, secret service, and systems in place. A frail 79 year old man that Reddit constnatly insults and weak, shouldn't be getting in the way of younger people helping. The photo image says to me that people read the wrong message about their own image addiciton and the Reality TV "The Apprentice" problem of all of USA society. The faith in mocking, the cheerign on of the defeat of the USA by Putin's invasion of Reddit (IRA and CA). The avoidance of goodness and desire for betterment that is drowned in the high-speed photography delivery TCP/IP network of reactionary to symbolism / brand.
+
+&nbsp;
+
+&nbsp;
+
+Monday, December 1, 2025
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pbcyh1/call_them_out/
+
+Front page of Reddit. "Call THEM, one by one, out" messaging. No, call out the high-speed Cat-Turd behaviors. Prizing of misunderstandings. Prizing of "gotcha". Call out the long-term TOTAL FOREST FOR THE TREES problems Cambridge Analytica has caused. Face up to Neil Postman's 1985 book "Amusing Ourselves To Death" and apply it to the White House, Twitter, Reddit! Stop the tree by tree barking (calling out) and address the forest level issue: media ecology! It isn't just year 1996 Fox News, it is Reddit in December 2025! Media feedback loops! Surkov won!!!
+
