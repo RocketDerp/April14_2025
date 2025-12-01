@@ -13,7 +13,6 @@ Where do they lead? John 1:1   https://www.youtube.com/watch?v=cfm4L0TGDrw&t=173
 
 Our world has grown to where we can't remake it...
 
-&nbsp;
 
 ## Do you ever feel?
 
@@ -38,3 +37,12 @@ If we don't wake the fuck up, it keeps iterating.
 Ooops, He Did It Again, He Romans 11:32 us All again...   
 
 https://www.youtube.com/watch?v=CduA0TULnow
+
+&nbsp;
+
+### Too Much Faith in Heaven
+
+Faith in Heaven without evidence
+
+https://www.youtube.com/watch?v=JuEiewjXwYI    
+“The invention of lying”
