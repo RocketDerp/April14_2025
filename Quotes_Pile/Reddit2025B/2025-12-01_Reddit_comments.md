@@ -47,3 +47,7 @@ https://old.reddit.com/r/formula1/comments/1pbaano/oracle_red_bull_racing_team_s
 https://old.reddit.com/r/formula1/comments/1pbaano/oracle_red_bull_racing_team_statement_regarding/nrp1xtf/
 
 Year 2013 onward Cambridge Analytica and Internet Research Agency mind-fucking. COVID lockdown triggered Russian informationw warfare seeded since year 2014 via Twitter and other media platforms: https://www.bbc.com/news/world-us-canada-45294192
+
+https://old.reddit.com/r/formula1/comments/1pbaano/oracle_red_bull_racing_team_statement_regarding/nrp5erg/
+
+People are conditioned to block on social media and not worth through probelms. The abandonment of forgiveness. Abandonment of progress. Instead, machines are used to dehumanize and block / banhammer.
