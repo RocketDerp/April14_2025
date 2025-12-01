@@ -1642,3 +1642,8 @@ https://old.reddit.com/r/Snorkblot/comments/1pbjany/well_played/
 
 Same commenting! Epstein list, toxic masculinity. Right on the front page. All this has been sensed by Surkov student and they keep creating pedo message topic feedback loops, audience to Kremin, audience to White House. Peopel blow their minds on "funny". Neil Postman's 1985 book "Amusing Ourselves To Death", the world is in runaway monomyth patterns.
 
+&nbsp;
+
+https://old.reddit.com/r/therewasanattempt/comments/1pbng9g/to_misinform_you_that_hunger_is_at_an_all_time_low/
+
+The Levant monomyth mind-fuck is right on the front page of Reddit. People refuse to study Kremlin information warfare. https://www.atlanticcouncil.org/blogs/ukrainealert/russian-orthodox-church-declares-holy-war-against-ukraine-and-west/
