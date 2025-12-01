@@ -2136,3 +2136,6 @@ https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_den
 
 https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrmxid0/
 
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nro0nwp/
+
+Context bewilderment abounds. People ahve no sense of what high-speed Reddit media does to identity.
