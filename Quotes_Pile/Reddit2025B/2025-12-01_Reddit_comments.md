@@ -160,3 +160,8 @@ MOYERS: What kind of new myth do we need?
 CAMPBELL: We need myths that will identify the individual not with his local group but **with the planet**. A model for that is the United States. Here were thirteen different little colony nations that decided to act in the mutual interest, without disregarding the individual interests of any one of them.
 MOYERS: There is something about that on the Great Seal of the United States.
 CAMPBELL: That’s what the Great Seal is all about.
+
+https://old.reddit.com/r/funny/comments/1pbblog/a_bus_going_into_labor/nrpwhgd/
+
+Noise attack, in the popular dehumanize ELIZA effect style of Reddit.
+
