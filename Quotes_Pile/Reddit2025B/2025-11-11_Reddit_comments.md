@@ -2063,3 +2063,18 @@ Humanity. Not limited to Russia, this is what people do on Reddit and Bluesky an
 https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrma5wd/
 
 Completely avoiding the link about Russia in thread context.
+
+https://old.reddit.com/r/worldnews/comments/1pat71t/russia_sends_disposable_soldiers_into_battle_with/nrloaps/
+
+https://old.reddit.com/r/worldnews/comments/1pat71t/russia_sends_disposable_soldiers_into_battle_with/nrlxq6y/
+
+If the problem was one and only one single man, just Donald Trump, people would stand up. But the problem is media ecology of an entire population that avoids nonfiction learning about Russian information warfare techniques since year 2013.
+
+https://old.reddit.com/r/worldnews/comments/1pat71t/russia_sends_disposable_soldiers_into_battle_with/nrlot64/
+
+https://old.reddit.com/r/worldnews/comments/1pat71t/russia_sends_disposable_soldiers_into_battle_with/nrm8uvm/
+
+https://old.reddit.com/r/complaints/comments/1paupda/russia_had_a_secret_program_to_get_trump_elected/nrm56of/
+
+The greater issue of "haox" is the "War Against Reality" Russia devised and is waging since before the Ukraine war in February 2014. Fiction addictions are raging in USA, avoidance of nonfiction learning of media ecology.
+
