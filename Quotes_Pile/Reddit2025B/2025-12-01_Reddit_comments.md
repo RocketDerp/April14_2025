@@ -206,3 +206,6 @@ https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targe
 
 Continues to avoid all of the off-site links, outside Reddit, information links. Won't discuss the Washington Monthly link that is asserted repeat times in context to the White House media topic / Kremlin media Trump agreement of November 2012.
 
+https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrqxncp/
+
+Every flavor of fiction seasoning you can get. Anti-Wiki, anti "all getting on the same page", a media ecology of spread spectrum fiction doping.
