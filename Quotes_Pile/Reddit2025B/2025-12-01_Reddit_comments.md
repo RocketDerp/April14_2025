@@ -115,4 +115,8 @@ https://old.reddit.com/r/formula1/comments/1pbaano/oracle_red_bull_racing_team_s
 People find it amusing to see hate on Reddit comment section messages. Funny, humor, enteratining to see hate being justified. This is driving social media society, touch device users, these mindsets of blowing thier mind out on amusement. Neil Postman was correct in 1985.  Roger Waters album about Neil Postman's book even mentions racing cars. OPERA_A Racing cars. This species has humor funny amused itself to death. https://www.youtube.com/watch?v=zpotZUiKLbU
 
 
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrjkywm/
+
+I am revisitng this posting from Reddit yesterday where I commented about the Russian Surkov / Putin techniques of Kremlin media since Y2K. It is notable that yesterday's front-page posting on Reddit has now been deleted. Reddit society does not seem to observe these media ecology issues that when White House media ecology gets organized analysis - it is often disappeared and fed with noise comments. 
+
 
