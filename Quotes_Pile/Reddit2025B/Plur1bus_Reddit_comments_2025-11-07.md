@@ -728,4 +728,4 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pbarra/whats_in_a_name/nrqfoc
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1padtb7/my_wildest_theory_yet_helen_is/nrr0ye8/
 
-Reddit minds so easily blown by media messages. [The ELIZA effect?](https://en.wikipedia.org/wiki/ELIZA_effect) So many Reddit meme consumers in December 2025 are whacked out of their brains on ChatGPT trash. James Joyce was indeed a real human person who spent 17 years writing a book of 628 pages. Maybe study Bible verse Romans 11:33 and how it relates to James Joyce's writings / langauge.
+Reddit minds so easily blown by media messages. [The ELIZA effect?](https://en.wikipedia.org/wiki/ELIZA_effect) So many Reddit meme consumers in December 2025 are whacked out of their brains on ChatGPT trash. James Joyce was indeed a real human person who spent 17 years writing a book of 628 pages. Maybe study Bible verse Romans 11:33 and how it relates to James Joyce's writings / language.
