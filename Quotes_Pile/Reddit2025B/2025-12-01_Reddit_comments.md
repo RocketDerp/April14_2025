@@ -213,3 +213,20 @@ Every flavor of fiction seasoning you can get. Anti-Wiki, anti "all getting on t
 https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrqpmxs/
 
 Compusive consumers. Russian conditioned since March 2013.
+
+https://old.reddit.com/r/therewasanattempt/comments/1pbng9g/to_misinform_you_that_hunger_is_at_an_all_time_low/nrrmmut/
+
+Reddit audience loves the keyword "cult", but avoids at all cost: nonfiction books, author names, links about MAGA cult and media cults. Just disposable commeting on all different pages "cult".
+
+https://old.reddit.com/r/therewasanattempt/comments/1pbng9g/to_misinform_you_that_hunger_is_at_an_all_time_low/nrse3io/
+
+Yes. Media ecoloyg of a real Twitter message / Elon Musk Twitter.. get you attacked. Marshall McLuhan and Neil Postman teachings applied to Murdoch / Putin / Surkov / Musk / White House / Kremlin is the third rail of raging egomania. Cambridge Analtyica hardened that as forbidden leanring.
+
+https://old.reddit.com/r/therewasanattempt/comments/1pbng9g/to_misinform_you_that_hunger_is_at_an_all_time_low/nrs1cmn/
+
+Big Yes Yes in Romans 11:32 Bible verse.
+
+https://old.reddit.com/r/funny/comments/1pbblog/a_bus_going_into_labor/nrskht3/
+
+ahh yes, "non-person", "real person" USA dog whisle. Immigrants go away, MAGA USA December 2025 silencing. Nonfiction books unwelcome messages.
+
