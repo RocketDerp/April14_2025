@@ -740,6 +740,7 @@ Mythology invoked. Science fiction story invoked! Matthew 25:15
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with_the_sick_injured_or_people/nrr7lht/
 
-https://old.reddit.com/r/politics/comments/1pbh9ho/confused_trump_79_instantly_forgets_he_just/nrqxncp/
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with_the_sick_injured_or_people/nrsen2f/
 
-Every flavor of fiction seasoning you get. Anti-Wiki, anti "all getting on the same page", a media ecology of spread spectrum fiction doping.
+More LLM addicts who mock reply, instant blocking, preventing further replies. I see a Reddit tool who gives LLM machines credit for human authoring and human commenting. Very popular since November 2022 on Reddit comment section. Fools who suffer from "The ELIZA effect". This is the new MAGA USA December 2025 warfare technique (dog-whistle USA of "LLM" for immigrant) of "you write English funny, you sound like an immigrant, you should be deported" all over Reddit. Blocking people discussing Pluribus TV show, deport blocking people. All normalized in USA 2025 on Reddit.
+
