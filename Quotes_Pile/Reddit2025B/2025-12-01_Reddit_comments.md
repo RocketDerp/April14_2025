@@ -230,3 +230,6 @@ https://old.reddit.com/r/funny/comments/1pbblog/a_bus_going_into_labor/nrskht3/
 
 ahh yes, "non-person", "real person" USA dog whisle. Immigrants go away, MAGA USA December 2025 silencing. Nonfiction books unwelcome messages.
 
+https://old.reddit.com/r/therewasanattempt/comments/1pbng9g/to_misinform_you_that_hunger_is_at_an_all_time_low/nrrvmvp/
+
+At least someone recognized that Reddit messages are satire-washing badness. The monomyth nind-fuck goes deep her. Anything is A-OK if it is jokes, fiction media. Embrace that Russian mind-fucking messages on Reddit.
