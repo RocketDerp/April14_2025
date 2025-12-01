@@ -703,3 +703,26 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1paukjo/fanfiction_is_not_a_va
 
 "Last Man On Earth" virus comedy.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pbgg0g/loophole_or_part_of_the_plot/nrqa7wi/
+
+Like the Twitter CatTurd2 mind virus (Elon Musk mind virus). Metaphors abound. https://en.wikipedia.org/wiki/Toxoplasmosis
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pbgg0g/loophole_or_part_of_the_plot/nrq7nt8/
+
+Finnegans Wake is **very much breaking bad on the 4th wall (of media ecology / venue) and mocking the audience taste in funny and not being able to grasp symbolism and metaphors**. Even the very title of the book is an assault on grammar Nazi conditioning of English language users. Dublin everywhere, Bloomsday everyday.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pbarra/whats_in_a_name/nrqfoc4/
+
+
+"And there was a wild old grannewwail that laurency night of starshootings somewhere in Erio." - James Joyce, Finnegans Wake, Page 22 https://www.finwake.com/01t/fw01.htm#22
+
+
+* "grannewwail" -  the Irish name of Grace O'Malley - **The Pirate Queen**.
+
+&nbsp;
+
+"And the prankquean picked a blank and lit out and the valleys lay twink-ling." - James Joyce, Finnegans Wake, Page 22 https://www.finwake.com/01t/fw01.htm#22
+ 
+
+* https://finwake.com/1024chapter1/prevod22.htm twinkling - sparkling, glittering + (notebook 1923): '3 lights in valley' → Ireland: Its Saints and Scholars 43-4: An ancient Irish manuscript of unknown authorship divides the Saints of Ireland into three great orders. The First Order was in the time of St. Patrick. They were 350 in number [...] The Second Order numbered 300 [...] and flourished during the latter half of the sixth century. The Third Order of Saints lived in Ireland for a period which extended for about seventy years from the end of the sixth century. The writer of the manuscript says that "the First Order was most holy, the Second Order holier, and the Third holy. The First glowed like the sun in the fervour of their charity; the Second cast a pale radiance like the moon; the Third **shone like the aurora**. These Three Orders the blessed Patrick foreknew, **enlightened by heavenly wisdom**, when in prophetic vision he saw at first all Ireland ablaze, and afterwards only the mountains on fire; and at last saw lamps lit in the valleys."
+
