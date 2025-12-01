@@ -1623,3 +1623,9 @@ Endless back and forth domestic mocking. Front page of Reddit, depicting off-Red
 https://old.reddit.com/r/Snorkblot/comments/1pbcav0/number_of_who/
 
 Front page of Reddit, featuring other off-Reddit content. Endless mocking of Rupert Murdoch billionare influence, media addiction, Bible literacy, Fox News. Mocking and amusment-washing serious problems on Reddit. All just entertainment sports think instead of ENTIRE NATION coming together to RESCUE the USA from fiction addiction to Fox News fiction. Jen Senko ignored by social media addicts since year 2015 and year 2016, no sustained focus on the WORLD-WRECKING SERIOUS PROBLEM that Fox News has caused! People are more concerned about the age of actors in Stranger Things Season 5 than they are about cult deprogramming of Fox News audience in an organized dedicated sustained-focus way.
+
+&nbsp;
+
+https://old.reddit.com/r/UnderReportedNews/comments/1pbi2p4/that_seems_relevant/
+
+Front page of Reddit from a Bluesky message. It is ANOTHER EXAMPLE of reality itself being inverted. But audience people on Reddit will bark at the trees with disposable comments... amusment-wash it away, have their minds blown by the Surkov student patterns of conradiction (Adam Curtis NYE 2014)... and just keep going after tree by tree of examples without connecting the dots to the scope of the year 2013 onward forest. Russia won an information warfare. Inverted meaning is paradox mind-fucking of Reddit audience / Bluesky audience.
