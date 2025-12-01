@@ -233,3 +233,10 @@ ahh yes, "non-person", "real person" USA dog whisle. Immigrants go away, MAGA US
 https://old.reddit.com/r/therewasanattempt/comments/1pbng9g/to_misinform_you_that_hunger_is_at_an_all_time_low/nrrvmvp/
 
 At least someone recognized that Reddit messages are satire-washing badness. The monomyth nind-fuck goes deep her. Anything is A-OK if it is jokes, fiction media. Embrace that Russian mind-fucking messages on Reddit.
+
+https://old.reddit.com/r/therewasanattempt/comments/1pbng9g/to_misinform_you_that_hunger_is_at_an_all_time_low/nrro75g/
+
+"LMAO". Amusement-washing laugh track for Reddit audinece. How entertaining and thrilling it is to have Russian information warfare mind-fucking the people via social media platforms. Embrace the Russian IRA, don't defend, just keep normalizing it with LOL-washing as people have been doing since June 16, 2015. Surkov won, Russia won. EVERYTHING now flies right below the LMAO / LOL line of society, everything deep monomyth mind-fuck is WELCOMED and AIDED and given CONFORT! https://www.atlanticcouncil.org/blogs/ukrainealert/russian-orthodox-church-declares-holy-war-against-ukraine-and-west/
+
+
+
