@@ -2081,3 +2081,58 @@ The greater issue of "haox" is the "War Against Reality" Russia devised and is w
 https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrmxnz6/
 
 Noise insult comments to shift topic away from Russia.
+
+https://old.reddit.com/r/Wellthatsucks/comments/1paypau/club_i_went_to_last_night_decided_to_put_fake/nrmux4i/
+
+Social media society constantly praises "microphone drop" behavior when it is someone rich and famous doing it to attack other humans.
+
+https://old.reddit.com/r/LivestreamFail/comments/1pb1bf0/nina_lin_caught_shoplifting/nrngice/
+
+https://old.reddit.com/r/LivestreamFail/comments/1pb1bf0/nina_lin_caught_shoplifting/nrnk17r/
+
+30 year old parents making Donald Trump a role model for their children since June 16, 2015 is a large sign of large problems.
+
+https://old.reddit.com/r/LivestreamFail/comments/1pb1bf0/nina_lin_caught_shoplifting/nrngtdd/
+
+So does becoming a popular sports star, music star, famous author, TV star, film star, corporate executive, politician. Diving into the mass mind and having people recognize you...
+
+https://old.reddit.com/r/LivestreamFail/comments/1pb1bf0/nina_lin_caught_shoplifting/nrnmh3b/
+
+https://old.reddit.com/r/LivestreamFail/comments/1pb1bf0/nina_lin_caught_shoplifting/nrnmzwl/
+
+I don't use Twitch, so I have no idea.
+
+https://old.reddit.com/r/LivestreamFail/comments/1pb1bf0/nina_lin_caught_shoplifting/nrnn97w/
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrnchfw/
+
+Eating the Surkovian onions. Ignorant of how Russia does things since Y2K. Being contradictory is part of the "War Against Reality" that Nazi Germany did not have. Attraction to wild fiction plot twists is the Surkov monomyth advancement.
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrndrvl/
+
+Madness is the entertainment-washing and amusement-washing people have done, We The People, since June 16, 2015. Group think. "MASS PSYCHOSIS - How an Entire Population Becomes MENTALLY ILL" https://www.youtube.com/watch?v=09maaUaRT4M
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrnk1ao/
+
+This is reality. People are so engaged in high-speed reaction they do not see the forest for the trees. Putin's information war techniques are not even discussed in a sustained way that demonstrates understanding.
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrnehy0/
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrnmg9r/
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrn5u7g/
+
+Reality is way worse that people can't see the absence of sustained focus on Russia / Surkov techniques.
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrmyul6/
+
+This is "the resistance" normalizing deporting of people. Reddit mind-fuck of the Reddit audience to think deporting people is a good thing / fun sport.
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrn1wus/
+
+Yes. It really isn't that hard to put together the logic patterns. Out-group logic building up to self-harm of the USA.
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrn1lpk/
+
+https://old.reddit.com/r/politics/comments/1pazdtd/trump_says_hed_absolutely_denaturalize_americans/nrmxid0/
+
