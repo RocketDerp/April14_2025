@@ -250,3 +250,6 @@ https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targe
 
 Loves it that there is a raging information war that Russia seeded. Maga vs. hate-Maga. Americans vs. Americans. Surkov won.
 
+https://old.reddit.com/r/shittyfoodporn/comments/1pbwkvw/im_a_big_fan_of_shitty_burgers_like_the_ones_you/nrtlg1a/
+
+I started to notice this trend in Austin around the university. Young people that seemed to have no idea that a hamburger for $18.00 was rediculous in year 2008 when there were far better items on the menues all around. And that the labor of 15 minutes to make a shitty hamburger and cost of quality ingredients in Texas in 2009 was about $2.00. You could get decent cheap beefsteak dishes at Mexican places for $9.00 if you went away from the trendy spots. This unversity generation seems to have spread all over the USA now. Hell, Whataburger in Texas was decent for the price back in 2008. I think some of these kids including eating to go / eating out twice a day rolled into a long-term school loan. Not how peole did it in the 1980's Indiana. You cooked at home.
