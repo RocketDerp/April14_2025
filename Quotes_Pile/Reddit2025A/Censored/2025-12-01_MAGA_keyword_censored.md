@@ -1,4 +1,4 @@
-I edited a published message to add the "MAGA" part, and it was then censored (instantly unpublished on save of edit).
+I edited a published message to add the "MAGA" wprd (super blunt emphasis), and it was then censored (instantly unpublished on save of edit).
 
 &nbsp;
 
