@@ -16,3 +16,12 @@ Americans are so FIXATED on **military** hardware, machine **hardware**, of phys
 **Media Ecology Crisis** /\
 
 If it weren't for fiction films like James Bond, people in USA proabably couldn't even NAME the KGB. Many today in 2025 cannot name "FSB" or "Surkov". There is no concept of brainwar / mindwar / "winning hearts and minds of the enemy" and the names of famous agencies. But people can describe gun ammunition in USA technicals.
+
+&nbsp;
+
+# Invidiaul Person paradox
+
+People in USA who think a SINGLE PERSON is their savior, Donald Trump the one and only individual person who can save the USA... can't even NAME "Surkov" as a *person* that defeated the USA. Despite Surkov directly mocking and addressing We The People. Februiary 2019: https://www.newsweek.com/russia-president-vladimir-putin-election-americans-1327793
+
+Despite the worship of the person Donald Trump for his creative non-politician approach, people in USA can't even name their enemy who uses creative non-politician approaches!
+
