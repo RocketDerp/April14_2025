@@ -288,7 +288,7 @@ In a "War Against Reality", with Cambridge Analytica, this user can not expaalin
 
 "You have not sold me on anything I care about because you've sent sooooo much time arguing against a position I simply don't have the capacity to have. I literally don't know enough about this platform to care like you seem to think I do." - do not have the capacity to gain knowledge? To ome to reddit, encounter a link to Washington Monthly about an agreement in year 2012 about Donald Trump, and have the capacity to learn from a professional author who wrote it (Martin Longman)? The person is using Reddit to scream at me about my message, but only seems to think the problem of mob mentality (and Reddit automated media banning) is a topic of two and only two people. But I think their real goal was to get me suspended / attacked- which they did. Whcih is what I am here to document on GitHub
 
-The person addressing me as a "loony" with reply after reply is anti-Wiki - they circle all around my very concern of how people won't use Wiki style citation / author named sources. They don't witness Reddit, they don't document Reddit, they do not see that I am discussing mass man of Reddit's prizing of hate and the avoidance of prizing of sharing Wiki style in colberative goodness. Of course, Neil Postman and Marshall McLuhan and James Joyce seemed to have all failed to get this point across to the person reply messaging me and humanity in total. Like it or non, RFK Jr has made autism a target. Attacking people with autism has been an organized CDC / White House behavior in year 2025. Trying to end war and hate - the opposite of organized White House 2025. The posting topic was about the White House organized media. Alas, what this Reddit user desires (if they are sincere) seems to be what many sports fans desire. To talk to other sports fans while watching wealthy people with an amy of USA medical doctors while some person outside the stadium / outside the living room HDTV screen - has no health care at all. But that sports star sure got the medical system to entertain an audience. And Trump is the entertainment star while people with less charming media talent go without health care. The system of fandom to Trump itself is dehumanizing, "loony". 
+The person addressing me as a "loony" with reply after reply is anti-Wiki - they circle all around my very concern of how people won't use Wiki style citation / author named sources. They don't witness Reddit, they don't document Reddit, they do not see that I am discussing mass man of Reddit's prizing of hate and the avoidance of prizing of sharing Wiki style in colberative goodness. Of course, Neil Postman and Marshall McLuhan and James Joyce seemed to have all failed to get this point across to the person reply messaging me and humanity in total. Like it or non, RFK Jr has made autism a target. Attacking people with autism has been an organized CDC / White House behavior in year 2025. Trying to end war and hate - the opposite of organized White House 2025. The posting topic was about the White House organized media. Alas, what this Reddit user desires (if they are sincere) seems to be what many sports fans desire. To talk to other sports fans while watching wealthy people with an amy of USA medical doctors while some person outside the stadium / outside the living room HDTV screen - has no health care at all. But that sports star sure got the medical system to entertain an audience. And Trump is the entertainment star while people with less charming media talent go without health care. The system of fandom to Trump itself is dehumanizing, "loony". OPERA_A The Lunatics are We The People society wide. Out-group hate abounds. Russia won the information war. Sing along: https://www.youtube.com/watch?v=QFdkM40KOhE
 
 https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrte6wr/
 
@@ -302,5 +302,132 @@ https://old.reddit.com/r/nottheonion/comments/1pbuccd/toddler_star_ms_rachel_nam
 
 My own message. Now that I know Reddit is preventing me from even being able to access messages I created after suspending... may as well capture it now. Antisemitism - Young Earth criticism. The conflict of science fiction from science nonfiction. Mr.Rachel is indoctrinating children into langauge where they can learn science. The Torah clergy is indoctriaating people into an idea that Earth is temporary and Eden is the perfect place. The claim of the Torah as nonfiction to adults who organize war against Quran adults who claim it too is nonfiction. A holy war to me is a fiction vs. fiction indoctrianation war. Killing people over one and only one storybook / waging war over one and only one storybook. In a way, that's what Trump is doing with media systems. Attacking competing media stories with power. Media venue vs. media venue. Indoctraination branding vs. competing indoctrination.
 
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrwedh0/
 
+<img width="1008" height="724" alt="image" src="https://github.com/user-attachments/assets/2deadfb3-966a-468d-9068-a7aed5e97c74" /> I think people keep saying phrases like "flood the zone" and not addressing the brain / mind aspects of it loud and blunt enough. The White House is reprogramming minds. Mental health workers / advertising and marketing professionals / people who should be studying (and do study) Cambridge Analytica are not speaking up. Fox News since year 1996 people give tree after tree of reports of family and friend issues, but will not address sustained forrest-level attention on the problem. Media ecology. Information warfare. Mind-fucking. ORAGANISED mind-fucking. People who study terrorism mindsets are not speaking up. And not being given the focus. 
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvbpy2/
+
+People think "love one another" and "love your enemy" is just a suggestion and build military weapon factories.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvowgr/
+
+The abandonment of goodness.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvw2tj/
+
+So do Russian soldiers. Hate and war are a global problem. Not just USA. Malala (as a leader) has been largely ingored by social media society since year 2012 and year 2013 - in favor of fixating on leader Putin and Trump / Kremlin and White House leaders. Martin Luther King Jr was not a government leader, and nor was Malala. People keep fixating on people who seek out power of war (Trump and Putin) and not We The People's hate issues inward in the human brain, inside the human mind. Malala was addressing "Radio Mullah" just like Fox News HDTV media issues. Yet, social media doesn't want to face the attraction to Fox News media, the attraction to Radio Mullah media. The prizing of dehumanization prizing of war, prizing of weapon systems and hate.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrw1i6z/
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvgd3t/
+
+I could say pretty much people in December 2025 who use Reddit without constant protesting of Reddit media tactics of secret police moderation and secret banning actions... are kind of people who respect machine authority. ... ... ...    
+
+“World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan, University of Toronto, year 1970, Culture is Our Business, page 66.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvilzd/
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvfgw3/
+
+Same with "free speech" on Reddit comment sectionn. Do people think the A.I. is not a dictator backed by human secret police moderators.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvoej4/
+
+<img width="858" height="1010" alt="image" src="https://github.com/user-attachments/assets/f304276f-0f26-4764-b05e-60e75594ad10" /> A new account on Reddit. "The US has somehow allowed multiple psychopaths to gain high office" - that's the point of this blog. The *showhow* is media ecology. Fox News HDTV, Reddit high-speed commenting infiltrated by Russia's Internet Research Agency since March 2013. Putin media invasion. Information war. Media ecology warfare. ... ... ...     
+“World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan, University of Toronto (media studies / media ecology), year 1970, Culture is Our Business, page 66.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvhn5b/
+
+Military professionals: able to set off nuclear bombs, good weapon construction, good aim, good pilots who drop bombs. But moral rot is normalized with this Reddit message. Techical praise of military that can slaughter human beings / kill goodness with technical talents. Note the abscence in the Reddit message of any book quote, author name, link, book title. It's normalizing Trump White House and Kremlin military usage.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvu76a/
+
+Exactly. Eqating pro with ethics and moral. A professional serial killer, professional rape person... People admire techical abilities like high scores on video games, Olympics speed record numbers, bank account balance (screen game, high score) of billionares, kill counts on video games, kill counts in real world military warfare. Professional.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvz729/
+
+Yep. Slick delivery of egoism driven death. Like our USA medical health care system morals. ... ... ...         
+"That's the prevailing attitude in our culture. No matter what you do, just do it with a bit of finesse. You know, a sort of attitude of the survival of the slickest. Not the Darwinian survival of the fittest, but the survival of the slickest — whoever can be the slickest is the one who right. It's all right to lie, but lie with dignity. ... It's all right to steal and to rob and extort, but do it with a bit of finesse. It's even all right to hate, but just dress your hate up in the garments of love and make it appear that you are loving when you are actually hating. Just get by! That's the thing that's right according to this new ethic. My friends, that attitude is destroying the soul of our culture! It's destroying our nation! The thing that we need in the world today is a group of men and women who will stand up for right and to be opposed to wrong, wherever it is." - Dr. Martin Luther King Jr.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvmsgr/
+
+Russia mind-fucked people into an alternate reality where they can't understand year 1776 ideals. People live in "Truth Social" and "Fox News" media, not year 1776 founding father mindsets. That was abandoned. Russia won, Surkov won.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvqj39/
+
+And Japan murders, and Russia murdering Ukraine, and Fox News audience cheerinng on the entertainment since year 1996 of killing remote. People with modern warfare launch weapons against people they do not see. Pilots in World War Two who drop bombs on Japan - people they have never shared a meal with or even know how to read a book written in Japanese langauge. Drone pilots and Manhattan Project builders who never visited Japan. One thing you can say about September 11, 2001 terrorist attackers is that they went to live in USA for pilot training! They could have build simulators and trained in their own nation before moving to USA... but at least they KNEW the people in USA that they were targeting and killinng. Most modern warfare invovles planting bombs and sky delivery that is detached. Like a video game. Like a Quran / Bible / Torah science fiction faith that God is the commander in Chief directing a Holy War... without much investigation into who "God" is sending the murder orders. Genesis 22:1–19
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvwmwf/
+
+<img width="868" height="884" alt="image" src="https://github.com/user-attachments/assets/b5cfc5c7-1242-44f4-91b3-b2d406c2a3ce" /> Press a upvote button on Reddit, press a ReTweet button on Twitter. Press a block button (deport disliked person button) on Bluesky and Reddit.  Press a "on" button of Fox News HDTV. What people are attracted to and how they are voting to press the "ICE deport" button. As they continue their *amusement as usuaul* all over the front page of Reddit and Bluesky. Not willing to give up video games, sports games, spectatorship of Formula 1, sharing kitten photographs, praising the new video game hardawre from Steam, making plans for Super Bowl 2026 NFL, placing bets at office pools. As there is no sense of sustained concern except to keep being entertained. The "entertainment" of giving health care to strangers, building houses for the homeless, is considered unintersting with free time and spare time. But people will play a video game for 8 hours in a day, but not spend 8 hours in a day promoting the Second Bill of Rights in USA. https://en.wikipedia.org/wiki/Second_Bill_of_Rights - and one point of this GitHub is teaching Joseph Campbell's far better written words about James Joyce: "o evoke the one thing that turns the human beast of prey into a valid human being. That one thing is compassion. This is the theme that James Joyce takes over and develops in Ulysses"
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrviudd/
+
+This is the same Reddit audience, making low-effort short-lenght messages on complex subjects, that has cheered on Luigi murder in Manhattan as goodness one year ago. December 4, 2024. And watching health care system in USA, without learning or sharing the Second Bill of Rights. https://en.wikipedia.org/wiki/Second_Bill_of_Rights - Luigi wrote the ttile of a book on his bullet casings, and that BOOK pressing - URL Pressing of https://en.wikipedia.org/wiki/Second_Bill_of_Rights is lost on Reddit audience who won't see the absence of sustained attention on AUTHENTIC goodness https://en.wikipedia.org/wiki/Second_Bill_of_Rights instead of trigger button pressing of Luigi.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvftrh/
+
+An ICBM, muturally assured destruction, is a weapon of terror. 45 minute delivery of murder of your hown town / city.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvhz2s/
+
+"This administration is so incompetent and leaky" - another Surkovian onion eater. A Reddit audience message to create thinking that Surkov methods of flaunting information releases are "accidental". ... ... ...      
+"But the key thing was, that Surkov then let it be known that this was what he was doing, which meant that no one was sure what was real or fake. As one journalist put it: "It is a strategy of power that keeps any opposition constantly confused." A ceaseless shape-shifting that is unstoppable because it is undefinable. It is exactly what Surkov is alleged to have done in the Ukraine this year. In typical fashion, as the war began, Surkov published a short story" - BBC, Adam Curitis. December 31, 2014 - nearly 11 years ago.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvj9qj/
+
+Yes. But note the absence of link, quote, author name, book ttile about the pardons.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvl59h/
+
+Programming the Reddit audience to not address the We The People lost hearts and minds to Russia / Putin since year 2013. Just accept that nothing will be done messaging on Reddit. Do not resist messaging on Reddit.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvpuui/
+
+<img width="862" height="972" alt="image" src="https://github.com/user-attachments/assets/daefacf0-951f-495e-aad6-f9219888f13f" /> Media ecology! Science ficiton holy wars: Quran vs. Torah vs. Bible science fiction trilogy wars. God commands you to murder the non-believers! Eden and Heaven planets await in outer space when you die in your science fiction addictions. The abusive clergy teaching out-group hate interpretaitons of science fiction: *one and only one book is perfect in the Public Library, die for the venue and the perfect book*.
+
+https://old.reddit.com/r/politics/comments/1pc65kk/entire_chain_of_command_could_be_held_liable_for/nrvctbl/
+
+<img width="924" height="256" alt="image" src="https://github.com/user-attachments/assets/e7684c9e-0cbc-4403-a9de-ea69606f039d" /> EXACTLY! "War on Woke", War on Finnegans Wake media ecology of how mass man / mass media drives humanity into self-harm. Monomyth wokeness! *Woke* to blasphomy charges of the fiction clergy systems!
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrw37mz/
+
+A repeating message on Reddit about Donald Trump and diapers. South Park penis media, along with Reddit diaper penis. This is part of why you see so much outcry for wealthy white men Epsiten list on Reddit society. Cravings for Trump sex content, feces fetish. You will not see people sober up from the meme stupors and say: Malala should have been supported since year 2013 in her book and calls to giving young girls far more power in society to communicate and speak out about elderly Taliban and elerly leaders who rule over girls / women.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrwon0f/
+
+South Park amsuement-washing sex-entertainment humor-washes Trump, just as the Reddit commenting audience entertainment-washes Trump. Neil Postman's 1985 book "Amusing Ourselves To Death" with South Park and Reddit and Bluesky, etc. All prizing Trump as a source of entertainment. People are using electric media HDTV systems / Reddit cloud computing systems to be: [/Grim_Blunt/Society_of_grading_and_ranking_turds.md](/Grim_Blunt/Society_of_grading_and_ranking_turds.md)
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrwk0xf/
+
+LOL amusement track for Reddit audience. Luagh track for media consumers.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrw5sp7/
+
+Inverted monomyth. Being mockery-washed on Reddit. No serious effort on the problem. Let Russia redfine reality with inverted Surkov monomyth mind-fuck.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrwc6br/
+
+<img width="978" height="854" alt="image" src="https://github.com/user-attachments/assets/3730b45f-45d5-4a18-897a-2a92f1554c0e" /> "once removal of 'unwanted' individuals is normalized" the  block button on Reddit and Bluesky. Normal to deport people / strangers. People can't even share a commenting section on a website, let alone live in the same city with human bodies they hate. Egoism. Instead of a "lets discusss this problem in another palce on Reddit" there is a block button. Anti-goodness, machine lust, machine power, to dehumanize persons.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrwmwi5/
+
+The correct MonoMyth Church. The Finnegans Wake confrontation. The Correct Fox News HDTV audience participation.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrwm8te/
+
+"The unformulated message of an assembly of news items from every quarter of the globe is that the world today is one city. All war is civil war. All suffering is our own." - Marshall McLuhan, Univesity of Toronto, media studies / media ecology
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrwpvu0/
+
+And people praise Luigi murder all year. Since December 4, 2024. Gun worship to fix Fox News Rupert Murdoch programming. Reddit will not assert the BOOK that was written on the bullet casings, just smoking Luigi pro-violence messages. Pro-murder / killing in the face of health care systemic deaths. Murder for murder. Faith in murder, same as the health care, a USA faith in health care deaths, faith in gun deaths, a FAITH IN DEATHS. Monomyth Heaven and Eden awaits faith. Toxic clergy. Gun clergy.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrw6ats/
+
+"They all made up their own personal understanding of who Trump". Wrong. Cambridge Analtyica and the Internet Research Agency created 5,000 patterns of *personal understanding* mentalkeys that were drilled into minds via Reddit, Twitter, Facebook, etc. Denial abounds. Russia won, Surkov won. https://washingtonmonthly.com/2017/11/24/a-trumprussia-confession-in-plain-sight/ "he probably should have cut back on the FoxNews and Facebook memes" and Reddit memes and Reddit commenting.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrwco4s/
+
+Like Reddit "hive mind" / mob mentality reacts in poloar logic. Hate maga, hate republicans. ANYTHING to avoid nonfiction learning of Russian information warfare since year 2013. On the "Leopards ate MAGA faces" cheering section, Americans attacking Americans on Reddit power machines.... eating right out of hand of Kremlin warfare.
 
