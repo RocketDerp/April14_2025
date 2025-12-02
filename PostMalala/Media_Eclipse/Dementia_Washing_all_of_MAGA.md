@@ -18,3 +18,20 @@ Donald Trump is WELL KNOWN for trusting Fox News Television screens and Trump Tr
 Trump is WELL KNOWN for trusting bullshit. What if the entire White House / MAGA is trusting A. I. bullshit? Crazy AI shit.
 
 https://www.bbc.com/news/world-us-canada-52407177
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Mob mentality MAGA
+
+Tuesday. December 2, 2025     
+
+<img width="1842" height="754" alt="Screenshot from 2025-12-02 14-14-33" src="https://github.com/user-attachments/assets/7179caf0-bb28-4472-a163-4dda359fbd49" />
+
+https://bsky.app/profile/roundsparrow.bsky.social/post/3m6zup4n2oc24       
+https://autistics.life/@RoundSparrow/115652059053825498    
+
+Bluesky + Reddit are FULL of message after message about **Dementia** leaders every single hour of every day in year 2025 USA. But only 3,000 followers on Bluesky for the far more serious topic of **MAGA** mind-sets / mob mentality.
