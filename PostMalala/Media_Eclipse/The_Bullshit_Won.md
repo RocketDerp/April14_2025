@@ -12,3 +12,6 @@ Just weeks before Doald Trump and Elon Musk even took over the White House in Ja
 The recency bias (of the population) is so bad, the constant audience loss of memory and recall of important topics is so horrible... that people can't recall December 2024 when discussing October 2025 situation.
 
 
+&nbsp;
+
+“World War III is a guerrilla information war with no division between military and civilian participation.” – Marshall McLuhan, University of Toronto, year 1970, Culture is Our Business, page 66.
