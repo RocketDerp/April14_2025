@@ -440,3 +440,54 @@ https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump
 
 "Love your enemy" should be automatic deport from USA. Just listen to the machine lust machine lovers of Reddit audience. Anti-compassion, anti-understanding, **Hate Thy Enemy**, **Hate Thy Neighbor** messages on Reddit. ... ... ...       
 "That is the meaning of love. In the final analysis, love is not this sentimental something that we talk about. It's not merely an emotional something. Love is creative, understanding goodwill for all men. It is the **refusal to defeat any individual**. When you rise to the level of love, of its great beauty and power, you seek only to defeat evil systems. **Individuals who happen to be caught up in that system, you love**, but you seek to defeat the system." - November 17, 1957. Martin Luther King Jr.
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrwwyym/
+
+Reddit mind-fucking messages that deportation is good. Cheering on ICE / immigrant deportation. Dehumanizing persons who are not "American" all over the world. Absolutely Americans hate Americans messaging on Reddit. Anything to avoid confronting that Putin waged an information war and no reason-thinking person would choose Trump and that something far more fundamental at the human brain / human mind level has happned since year 2013 VIA REDDIT and TWITTER. Eating right out of Putin's information warfare with simple-think answers of DEPORT. MAGA values. 
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrw2cck/
+
+<img width="1036" height="322" alt="image" src="https://github.com/user-attachments/assets/4ef10ba5-7d08-43d1-acad-55880bc30f7b" /> EXACTLY! Regardless if the REALIZE it or NOT! Just like climate change! Just like pollution! Just like food safety and no system to prevent spraed of disease or recall a dieased food source! SYSTEMIC runaway dehumanization. Just like ChatGPT misinformtion. Just like Fox News HDTV misinformation. Just like Putin information warfare / Cambridge Analytica runaway. People will not realize it.  ***WE ARE IN A RESCUE SITUATION, A CALL TO DEFENSIVE ARMS, RESCUE FROM A INFORMATION WAR OF RUSSIA SINCE YEAR 2013***. The TRUMP / MAGA information war situation has GONE ON FOR TEN YEARS AND FIVE MONTHS - and USA keeps normalizing it via Reddit and Twitter as amusing LOL entertainment. LOL-washing the threat! Abandonment of Reality. Russia WON the "War Against Reality" since year 2013! The Department of Defense, the Pengaon, FAILED TO DEFEND! Russia won! Ukraine war was an informaiton war against The West / USA! The Reddit USA defense malitia of NONFICTION needs to be asserting Peter P books and making Surkov a household name!
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxr3uz/
+
+Reddit audience mind blown into meme stupor state. Again and again.
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxr6fb/
+
+It's gloating in face. it is mocking Reddit and Bluesky audiences. Tony Clifton performances.
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxtm0a/
+
+Note the absence of book titles, author names, links, quotes from books, etc. Surkov techniques are being described without any ability to name or cite Surkov methods of media society leadership.
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxt6iw/
+
+Since March 2013. As described September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxvc82/
+
+Note the absence of book titles, author names, links, quotes from books, etc. Note the Reddit comments with extreme tiny-short cheering replies. But nobody naming https://en.wikipedia.org/wiki/Dietrich_Bonhoeffer theory of stupidity.
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxtutr/
+
+Reddit auidence can't name the Internet Research Agency, can't cite links fron year 2014. https://www.buzzfeednews.com/article/maxseddon/documents-show-how-russias-troll-army-hit-america Redit audience since year 2015 and year 2016 won't name-drop Jen Senko's films about right-wing adult-educating media crisis (not just education for children) https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad - it is the lack of concern for civic duty of adult education priorities. Despite all the evidence since year 1996 of Rupert Murdoch educating adults with Fox News, there is no sustained focus to call-out the techniques and methods of Putin / Surkov / Murdoch. People bark at trees, postings on Reddit that fade away after 8 hours from the front page, without seeing the day after day persistance of Rupert Murdoch forest.
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxvqtx/
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxxb75/
+
+Except for Putin / Russia / Internet Research invasion of Reddit. Give them opportunity every day since March 2013 on Reddit. And when people who speak up against Russia on Reddit get suspended / banned / disappeared because of systemic manipulaiton of Reddit systems - don't stand up.
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxr7u4/
+
+Russia won. Menace of media-induced unreality. September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxqvsi/
+
+Mind-blowing via embarrassing / cringe to Reddit audiences / Bluesky consumers. This is how Surkov techniques blow minds of everyday meme consumers. They then turn away from analyzing how Russian information warfare works and seek out fiction entertainment / video games / sports games / kitten images and spectatorship of games to avoid the reality. Driving audiences via embarrassing / crringe antics politics. Surkov methods.
+
+https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ssecretary_of_war/nrxrao0/
+
+Sports betting entertainment for long-term Reddit account audience. Sprots-washing / betting-washing of the seirous problem. Just everyday Reddit comments to wash away the serious problems into casual non-alarmed conversations. ANYTHING to avoid nonfiction learning about Russian information warfare and rescuing the nation / NATO fron Putin's executive function mental manipulation.
+
