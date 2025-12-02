@@ -552,4 +552,26 @@ https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryww92/
 
 Actual citations and not just low-effort no-citation Reddit commenting that is being replied to.
 
+https://old.reddit.com/r/TikTokCringe/comments/1pcjlz4/student_in_dearborn_michigan_speaks_against/nrydile/
+
+Reddit is a hate-encouring platform of "Leopards eat MAGA faces", but against hate of Russia, can't name Surkov or can't name Internet Research Agency on Reddit, but Reddit audience can name every North American they hate. "Hate thy Enemy" is embraced on Reddit. There isn't morality teaching, there is mocking. Eating right out of the Truth Social and Putin mocking stimulation.
+
+https://old.reddit.com/r/TikTokCringe/comments/1pcjlz4/student_in_dearborn_michigan_speaks_against/nrykn6w/
+
+Reddit block other people "free speech" USA. It's a nation-wide rot, it isn't just GOP. Reddit society is GOP society, Twitter society, Facebook scoiety is USA.
+
+https://old.reddit.com/r/TikTokCringe/comments/1pcjlz4/student_in_dearborn_michigan_speaks_against/nryug4l/
+
+They get egoism and power tripping out of it. Just like the Reddit users that taeget fixate on you. They get to chase you down and say they write better than you, think smarter than you. Just like Donald Trump role model does. Instead of asserting others they have never met like James Joyce, Malala, Neil Postman and Carl Sagan - they assert their own personall excellent good taste and smartness like Donald Trump role model does.
+
+https://old.reddit.com/r/TikTokCringe/comments/1pcjlz4/student_in_dearborn_michigan_speaks_against/nrymn15/
+
+https://old.reddit.com/r/TikTokCringe/comments/1pcjlz4/student_in_dearborn_michigan_speaks_against/nryv12q/
+
+Billionares, the wealthiest people in the world, bombard a poor American into overstimulated over-eating. The most powerful media empires ever created by humanity to mind-fuck with the most sophisticated symbolism. And Reddit users punch-down on those the Billionaires destroy. Just like health care in USA, dog eat dog "I got mine" health insurace of the well funded Reddit elites. Praising Luigi posting with his father Golf Course Empire / Real Estaet King - with McDonald's: https://people.com/luigi-mangione-mcdonalds-photos-before-arrest-8758973 - this is the Reddit wealth lord / real estate land lord family like Trump. Also poses at McDonald's. https://www.foxbusiness.com/politics/trump-one-mcdonalds-all-time-most-loyal-customers-offers-filet-o-fish-suggestion - Reddit society punches down and does not see the Billionares running Reddit itself. https://mashable.com/article/elon-musk-messaged-reddit-ceo-over-content with Reddit secret police run by WHO KNOWS (Putin, Musk, Trump, Murdoch) that pull messages on Reddit and filter what people read that almost nobody calls out what gets "disappeared" on Reddit that I document here on GitHub. A societhy conditioned to punch down on the those Putin and Trump and Corproate America mind-fuckes into over-consumption.
+
+https://old.reddit.com/r/TikTokCringe/comments/1pcjlz4/student_in_dearborn_michigan_speaks_against/nry73a4/
+
+And Reddit society won't sustain focus on promoting Dr. Brandy X Lee over all this group think / mob mentality. Putin won, Surkov won. Reddit users witness it and comment on it, then go back to amusement-washing it every day. FOR OVER TEN YEARS AND FIVE MONTHS this is ongoing Reddit entertainment-washing that mocking what Murdoch / Putin / Trump culivated. The attraction pepole have to mocking. **it is incredibly sickening. It makes me sick to peer into Bluesky and Reddit and the feating people have of Americans attacking Americans** and doing EVERYTHING THEY CAN to avoid nonficiton leanring about Kremlin information warfare since year 2013.
+
 
