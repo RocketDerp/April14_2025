@@ -246,3 +246,7 @@ https://old.reddit.com/r/nottheonion/comments/1pbuccd/toddler_star_ms_rachel_nam
 
 People downplay organized government information warfare as "boys will be trolls will be boys on meme sites, he he ha ha".
 
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nru25e9/
+
+Loves it that there is a raging information war that Russia seeded. Maga vs. hate-Maga. Americans vs. Americans. Surkov won.
+
