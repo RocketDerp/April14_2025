@@ -35,3 +35,18 @@ https://bsky.app/profile/roundsparrow.bsky.social/post/3m6zup4n2oc24
 https://autistics.life/@RoundSparrow/115652059053825498    
 
 Bluesky + Reddit are FULL of message after message about **Dementia** leaders every single hour of every day in year 2025 USA. But only 3,000 followers on Bluesky for the far more serious topic of **MAGA** mind-sets / mob mentality.
+
+&nbsp;
+
+"Bandy X. Lee first publicly challenged Donald Trump in May 2017, after hosting a conference on the ethics of speaking about his mental state in April 2017. In an interview following the conference, she stated he had mental impairments and that his presidency posed a "state of emergency". This was followed by her work as the editor of the book The Dangerous Case of Donald Trump, published in the fall of 2017."
+
+Social media users of Reddit and Bluesky repeat and repeat comment after comment every minute about "dementia" of one single person. The fixation on age 79 Donald J. Trump (fixatinn / attraction to status symbol / icon, mannerisms and unique style of Trump). Again and again the word "dementia" repeated. but the same people will not do any search engine (Google, etc) and be serious on the topic. Recency bias abounds, low effort one-word "dementia" abounds. There is an ABSENCE OF: asserting the conference in April 2017 that Dr. Brandy X. Lee held and SUSTAIN FOCUS of REPEATING her name. A woman who stands up to Trump is ignored. Just like Malala is ignored by Bluesky and Reddit social media repeating and assertion regarding young girls being abused by powerful elders like Epsiten and Taliban. A woman who stands up to Right Wing media (Jen Senko) is ignored on Bluesky and Reddit in repeat assertions.
+
+Tuesday December 2, 2025
+
+<img width="1836" height="1060" alt="image" src="https://github.com/user-attachments/assets/5d1d8db6-50bc-46ff-8745-8b4d03e04ac8" />
+
+Only 1,200 followers on Bluesky. Despite the constant assertion of "dementia" and "Fox News" problems... people will not seek out women who stand up to Trump, women who stand up to MAGA, and assert them as seriously on Bluesky and Reddit.
+
+Parroting the male leader keywords: "epstein" "dementia" (Trump) is thought-terminating behaivor of Bluesky audiences / touch device consumers / Reddit audiences. That is the media ecology behavior of civic duty social media usage being called out!
+
