@@ -1653,3 +1653,9 @@ The Levant monomyth mind-fuck is right on the front page of Reddit. People refus
 https://old.reddit.com/r/ProgressiveHQ/comments/1pbrfv8/ouch/
 
 Reddit front page. "NRA Was 'Foreign Asset' To Russia Ahead of 2016, New Senate Report Reveals" - https://www.npr.org/2019/09/27/764879242/nra-was-foreign-asset-to-russia-ahead-of-2016-new-senate-report-reveals
+
+&nbsp;
+
+https://old.reddit.com/r/LivestreamFail/comments/1pbpxko/nina_lin_refuses_to_apologize_for_stealing_steaks/
+
+My god, the whole front page today that I've put into this GitHub markdown file... It just SREAMING to Reddit all the techniques and tactics of Donald Trump **Truth Social Influencer** methods since his year 2012 agreement with the Kremlin to invade social media! My god do Reddit users not see that THE BIG POWERFUL ROLE MODELS are doing exactly this **double down via media messages** when breaking laws! That this is how Putin / Surkov student informationw warfare works. It blows the minds of Reddit audiences so much they can't see Trump using the same technique and call it out! This is a media ecology crisis of how "double down" mind-fuck technique works on crowds.  This is a person using Target store and following the media leadership of Donald Trump and Putin! Attacking as a way to mind-fuck the audience, insulting, name-calling! It isn't a senile demented woman, it's the TECHNIQUE of media that works! She can see the technique of the Big Wigs in society since year 2013! The Surkov methods of blowing minds!
