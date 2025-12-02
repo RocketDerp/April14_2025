@@ -443,3 +443,9 @@ https://www.youtube.com/watch?v=eVNRWRAaC0Y
 
 Media ecology, media consumer, language. Roles vs. actors / persons. Strangers you consume vs. your own child / parent reality.    
 https://old.reddit.com/r/comics/comments/1pbh6oz/who_oc/
+
+&nbsp;
+
+USA banned James Joyce books. https://old.reddit.com/r/TikTokCringe/comments/1pcjlz4/student_in_dearborn_michigan_speaks_against/
+
+Reddit bans Unicode self-publsihed books. Bluesky bans Unicode self-published books. Book banning/ book burning inthe digital ban / block age is incredibly more popular than the 1930's Germany days. Because paper and flame are no longer required, just a button push of ban / black / and never publish in the first place (documented on this GitHub).
