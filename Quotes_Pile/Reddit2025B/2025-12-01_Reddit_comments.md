@@ -536,5 +536,20 @@ Left-right logic computer end-user brainrot
 
 https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nrypo8p/
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryt794/
+
+Try standing up to Putin and Trump in year 2024 and year 2025 on Reddit and see the fixation people have, especialy as a Canadian person who is a woman and uses real name. Under siege. The denial of behavior of USA society regarding Truth Social leadership and this is Trump's second term ... targeting Canadians with mob mentality programming. The anti-MAGA crowd is compusively predictalbe as MAGA now since January 2024.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryoy5s/
+
+Maybee she has a loyal "school the USA* fandom who supporters her actively with voting. As Reddit succks of Twitter and Bluesky against Trump... and is hostile to on-Reddit criticism of media ecology crisis of USA, Trumpism ecology.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryu34a/
+
+"look mid", mind blown into shock that she doesn't look like a MAGA Trump sex object.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryww92/
+
+Actual citations and not just low-effort no-citation Reddit commenting that is being replied to.
 
 
