@@ -75,3 +75,18 @@ The difference between lying and bullshitting is that the liar still cares about
 The issue with Bullshitting is that it is an order of magnitude more difficult to disprove it than it is to create it.     
 That is also why Trump and other conservative populists have been so successfull on social media.    
 You can just push out BS and eventually something catches on and spreads through social media, people just upvote and share stuff because it represents something that fits their bias and any sort of actual counterarguement drowns in the endless stream of new BS.
+
+&nbsp;
+
+&nbsp;
+
+# Block Happy Bluesky
+
+December 2, 2025     
+
+https://old.reddit.com/r/LeopardsAteMyFace/comments/1pc9vcs/i_always_loved_trump_this_is_unfair_republican/nrwc6br/
+
+<img width="978" height="854" alt="Screenshot from 2025-12-02 11-23-27" src="https://github.com/user-attachments/assets/40717763-d3e7-412e-8cf5-1cd69e64d7b0" />
+
+"On top of that, besides being a member of a certain group, once removal of 'unwanted' individuals is normalized it can and will be used against absolutely EVERYONE for any reason. If you do or say the wrong thing or just have something someone higher in the hierarchy wants, you're gone. You're not going to be able to trust anyone under a totalitarian regime. Those that welcome authoritarianism never seem to be aware of this. It's a constantly stressful way of being for EVERYONE."
+
