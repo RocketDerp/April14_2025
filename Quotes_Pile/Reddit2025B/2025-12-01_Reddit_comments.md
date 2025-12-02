@@ -253,3 +253,32 @@ Loves it that there is a raging information war that Russia seeded. Maga vs. hat
 https://old.reddit.com/r/shittyfoodporn/comments/1pbwkvw/im_a_big_fan_of_shitty_burgers_like_the_ones_you/nrtlg1a/
 
 I started to notice this trend in Austin around the university. Young people that seemed to have no idea that a hamburger for $18.00 was rediculous in year 2008 when there were far better items on the menues all around. And that the labor of 15 minutes to make a shitty hamburger and cost of quality ingredients in Texas in 2009 was about $2.00. You could get decent cheap beefsteak dishes at Mexican places for $9.00 if you went away from the trendy spots. This unversity generation seems to have spread all over the USA now. Hell, Whataburger in Texas was decent for the price back in 2008. I think some of these kids including eating to go / eating out twice a day rolled into a long-term school loan. Not how peole did it in the 1980's Indiana. You cooked at home.
+
+https://old.reddit.com/r/news/comments/1pbvv42/pete_hegseths_use_of_canadian_character_franklin/nrtigua/
+
+Surkovian governing. Antics politics. Constant anti-reality. It is self-harm to everyone, but it does concentrate power and wealth by bewildering people.
+
+https://old.reddit.com/r/news/comments/1pbvv42/pete_hegseths_use_of_canadian_character_franklin/nru72yw/
+
+https://old.reddit.com/r/news/comments/1pbvv42/pete_hegseths_use_of_canadian_character_franklin/nrtdbg2/
+
+This is Operation Matthew 4:19 level trolling. Reddit users think Trolling for audiences is a new idea, using meta sympblism like Franklin from Canada. No, this is Levant monomyth. Mattthew 4:19 Bible verse.
+
+https://old.reddit.com/r/news/comments/1pbvv42/pete_hegseths_use_of_canadian_character_franklin/nrth5sv/
+
+Yes, this is the real war against reality. Since March 2013. Started by the Kremlin. Rescue the White House, rescue MAGA! September 9, 2014 : https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+https://old.reddit.com/r/news/comments/1pbvv42/pete_hegseths_use_of_canadian_character_franklin/nrtk8z2/
+
+Joke surreal Surkovain techniques. Blows the minds of Reddit audiences again and again. Russia won.
+
+https://old.reddit.com/r/news/comments/1pbvv42/pete_hegseths_use_of_canadian_character_franklin/nrtk3gg/
+
+The importance of media addiction self-awareness. Learning Marshall McLuhan and Neil Postman.
+
+https://old.reddit.com/r/news/comments/1pbvv42/pete_hegseths_use_of_canadian_character_franklin/nrtff10/
+
+https://old.reddit.com/r/news/comments/1pbvv42/pete_hegseths_use_of_canadian_character_franklin/nrtumbl/
+
+It's funny, amusing, to Reddit when it comes from White House and Kremlin. Reddit audience can't resist blowing their minds out mocking Tony Clifton performances. Surkov won.
+
