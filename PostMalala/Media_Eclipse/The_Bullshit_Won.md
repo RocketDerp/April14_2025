@@ -1,0 +1,13 @@
+# The Bullshit Won
+
+The USA [government shutdown October 2025](https://en.wikipedia.org/wiki/2025_United_States_federal_government_shutdown) a lot of blame was placed on Democrats.
+
+But I witnessed very few social media users recall December 2024.
+
+Elon Musk, December 2024: https://news.bgov.com/bloomberg-government-news/year-end-funding-fight-previews-house-gop-turbulence-ahead-1     
+Elon Musk, December 2024: https://www.bbc.com/news/articles/cd0e7j94732o
+
+Before Trump was and Musk even took over the White House in January 2025, they were telling the public IN PUBLIC that they wanted to create a government shutdown.
+
+The recency bias is so bad, the constant audience loss of memory and recall of important topics is so horrible... that people can't recall December 2024 when discussing October 2025 situation.
+
