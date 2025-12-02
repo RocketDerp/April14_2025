@@ -238,5 +238,7 @@ https://old.reddit.com/r/therewasanattempt/comments/1pbng9g/to_misinform_you_tha
 
 "LMAO". Amusement-washing laugh track for Reddit audinece. How entertaining and thrilling it is to have Russian information warfare mind-fucking the people via social media platforms. Embrace the Russian IRA, don't defend, just keep normalizing it with LOL-washing as people have been doing since June 16, 2015. Surkov won, Russia won. EVERYTHING now flies right below the LMAO / LOL line of society, everything deep monomyth mind-fuck is WELCOMED and AIDED and given CONFORT! https://www.atlanticcouncil.org/blogs/ukrainealert/russian-orthodox-church-declares-holy-war-against-ukraine-and-west/
 
+https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targets_media_outlets/nrtcw7i/
 
+"Trump isn't more than a step on the ladder." Normalizing Trump as just a minor problem. Downplaying the ongoing self-harm Trump is doing to USA. Attacking Canada, abandoning NATO.
 
