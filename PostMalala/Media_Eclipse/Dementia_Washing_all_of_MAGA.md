@@ -46,7 +46,11 @@ Tuesday December 2, 2025
 
 <img width="1836" height="1060" alt="image" src="https://github.com/user-attachments/assets/5d1d8db6-50bc-46ff-8745-8b4d03e04ac8" />
 
-Only 1,200 followers on Bluesky. Despite the constant assertion of "dementia" and "Fox News" problems... people will not seek out women who stand up to Trump, women who stand up to MAGA, and assert them as seriously on Bluesky and Reddit.
+Only 1,200 followers on Bluesky. Despite the constant message assertion of "dementia" and "Fox News" problems... people using social media avoid: seeking out women who stand up to Trump, women who stand up to MAGA, women who stand up to Murdoch, women who stand up to Musk.  Social media society is not assert them as seriously on Bluesky and Reddit. Even famous women like AOC and Hillary Clinton are not asserting these serious **deeper, non-shallow, non-superficial** topics of Jen Senko media ecology, Dr. Bandy X Lee mob mentality psycology. 
+
+Social media society, Bluesky and Reddit year 2025, keeps chanting "dementia" but will not site wourld-famous "Scientific American" about MAGA and Trump mental disorders. Dr. Bandy X Lee gets ignored, and when women stick their neck out against men like Epsiten and Trump and Putin - social media society does not repeat assert the women's names and women's writings! https://www.scientificamerican.com/article/the-shared-psychosis-of-donald-trump-and-his-loyalists/  Instead, people assert and repeat male Trump-speak every hour of every day on Bluesky and Reddit. What is absent: SERIOUS assertion of Jen senko, Malala, Dr. Bandy X Lee!
+
+* Google search A.I.: "The most popular phrases used to mock Donald Trump's distinctive style of speaking (often referred to as "Trump-speak") include the unintentional neologism "covfefe", the boastful phrase "a very stable genius", and the exaggerated claim of constant "winning"."
 
 Parroting the male leader keywords: "epstein" "dementia" (Trump) is thought-terminating behaivor of Bluesky audiences / touch device consumers / Reddit audiences. That is the media ecology behavior of civic duty social media usage being called out!
 
