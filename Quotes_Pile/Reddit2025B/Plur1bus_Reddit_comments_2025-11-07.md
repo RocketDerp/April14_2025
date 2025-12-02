@@ -744,3 +744,14 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with
 
 More LLM addicts who mock reply, instant blocking, preventing further replies. I see a Reddit tool who gives LLM machines credit for human authoring and human commenting. Very popular since November 2022 on Reddit comment section. Fools who suffer from "The ELIZA effect". This is the new MAGA USA December 2025 warfare technique (dog-whistle USA of "LLM" for immigrant) of "you write English funny, you sound like an immigrant, you should be deported" all over Reddit. Blocking people discussing Pluribus TV show, deport blocking people. All normalized in USA 2025 on Reddit.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pb9vwv/main_reddit_page/nroyoxn/
+
+USA society is a hate orgy right now.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with_the_sick_injured_or_people/nruvq4i/
+
+"The show has a simple plot." - Finnegans Wake is about media ecology self-awareness of the audience. Being "woke" isn't about the plot. It's about the medium. Marshall McLuhan topics. The Woke / Wake about about a Bible story that says Jesus came back to life, a science fiction story (like Pluribus is a science fiction story). The reply message entirely misses the point of Tim Finnegan being undead. And that Helen's memory is preserved. No human in the real world has ever had their memeories upoaded into a hive mind like Helen did. To Carol, this is a new human experience / a change in life on Earth that the dead are not undead. This person thinks that the topic is about the body of Hellen, the physical, and not the "spirit" and afterlife concepts of science fiction stories by the clergy. Likebeing able to ask the hive mind if Helen liked Carol's unpublished book. This is a very human emotional experience like Church Clergy creates messages from outer-space God, or at least *claims* to.
+
+
+
+
