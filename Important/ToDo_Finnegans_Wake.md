@@ -448,4 +448,4 @@ https://old.reddit.com/r/comics/comments/1pbh6oz/who_oc/
 
 USA banned James Joyce books. https://old.reddit.com/r/TikTokCringe/comments/1pcjlz4/student_in_dearborn_michigan_speaks_against/
 
-Reddit bans Unicode self-publsihed books. Bluesky bans Unicode self-published books. Book banning/ book burning inthe digital ban / block age is incredibly more popular than the 1930's Germany days. Because paper and flame are no longer required, just a button push of ban / black / and never publish in the first place (documented on this GitHub).
+Reddit bans Unicode self-publsihed books. Bluesky bans Unicode self-published books. Book banning / book burning in the digital ban / block age is incredibly more popular than the 1930's Germany days. Because paper and flame are no longer required, just a button push of ban / black / and never publish in the first place (documented on this GitHub).
