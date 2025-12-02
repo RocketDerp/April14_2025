@@ -245,3 +245,13 @@ https://old.reddit.com/r/WhitePeopleTwitter/comments/1pbcyh1/call_them_out/
 
 Front page of Reddit. "Call THEM, one by one, out" messaging. No, call out the high-speed Cat-Turd behaviors. Prizing of misunderstandings. Prizing of "gotcha". Call out the long-term TOTAL FOREST FOR THE TREES problems Cambridge Analytica has caused. Face up to Neil Postman's 1985 book "Amusing Ourselves To Death" and apply it to the White House, Twitter, Reddit! Stop the tree by tree barking (calling out) and address the forest level issue: media ecology! It isn't just year 1996 Fox News, it is Reddit in December 2025! Media feedback loops! Surkov won!!!
 
+&nbsp;
+
+&nbsp;
+
+Tuesday, December 2, 2025
+
+https://old.reddit.com/r/clevercomebacks/comments/1pcd0jy/the_level_of_maga_stupidity/
+
+Front page of Reddit. A Twitter screen shot (I think?). Eating right out of Putin information warfare hands. Incredibly simplistic Twitter-think short-messages and Tiny-short Reddit headlines. Calling Americans stupid. Yes. Media ecology stupid. In a simulation / simulacra of Reddit vs. MAGA / Reddit vs. Fox News / Reddit vs. Twitter. Russia had mind-cuked people into mocking patterns, back and forth MAGA vs. anti-MAGA mocking. It has been going on for over a decade. Endless examples of Russia seeding the Internet systems of Reddit and Twitter with bullshit to mock and argue, call each other stupid over, programming people the thrill of out-group insutling and stupid. Just like Trump insults and mocks Canada on Truth Social. People have followed the media message leaders of Putin and Trump. Hearts and Minds of Russia's enemy lost to self-harm stupid vs. stupid low-effort mocking feedback loops of high speed media screen shots and news events. Surkov won. Reddit is in simulation and goes into egoism peer to peer attacking you call out the year 2012 and year 2013 origins of this information war / simulacra / simulation before Ukraine land invasion February 2014. We The People are mind-fucked. It's right there on Reddit and Twitter today.
+
