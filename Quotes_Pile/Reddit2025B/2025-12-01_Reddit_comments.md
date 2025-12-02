@@ -242,3 +242,7 @@ https://old.reddit.com/r/nottheonion/comments/1paitik/white_house_publicly_targe
 
 "Trump isn't more than a step on the ladder." Normalizing Trump as just a minor problem. Downplaying the ongoing self-harm Trump is doing to USA. Attacking Canada, abandoning NATO.
 
+https://old.reddit.com/r/nottheonion/comments/1pbuccd/toddler_star_ms_rachel_named_finalist_for/nrt58xa/
+
+People downplay organized government information warfare as "boys will be trolls will be boys on meme sites, he he ha ha".
+
