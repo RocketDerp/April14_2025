@@ -1148,3 +1148,12 @@ Screen shot from 2025-11-29
 https://www.bbc.com/news/world-us-canada-18155293
 
 Interesting to note that there are not error detection systems at runtime or even in batch to catch these mistakes for one of the most established electric publishers in history.
+
+&nbsp;
+
+&nbsp;
+
+### Book reading mindsets lost
+
+"Short form video is making books BAD"    
+https://www.youtube.com/watch?v=IG5zrQxPICk
