@@ -1157,3 +1157,6 @@ Interesting to note that there are not error detection systems at runtime or eve
 
 "Short form video is making books BAD"    
 https://www.youtube.com/watch?v=IG5zrQxPICk
+
+Cognative Control     
+https://youtu.be/IG5zrQxPICk?t=799
