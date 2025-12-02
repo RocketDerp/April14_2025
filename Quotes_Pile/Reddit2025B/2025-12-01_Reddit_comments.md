@@ -506,3 +506,35 @@ https://old.reddit.com/r/okbuddycinephile/comments/1pchcfg/favorite_actor_who_wa
 <img width="742" height="504" alt="image" src="https://github.com/user-attachments/assets/f092f2b9-f2ce-4409-9565-19752972c205" /> RFK Jr and Donald Trump and Elon Musk are running the world to Putin and Surkov sarcasm. And people on Reddit are convinced there is no possible satruation of sarcasm / irony / satire / surreal / comedy / joke washing. Twitter accounts in November 2025 are revealed to have origins outside USA... yet Reddit things more no-identity sarcasm should be cheered on. Trump leads Reddit society with sarcasm, mocking. And this posting is about women being abused in "Epstein List" / "Harvey List" / Me too women... and Reddit is satire-washing it / entertainment-washing the male domination of Trump and Putin over their lvies. Anything for actors, Trump the actor, on Reddit. Reddit audience eats the shit and grins for more Trump mocking, President Tonly Clifton antics / White House Surkov students. RFK Jr running the CDC isn't obvious enough we have a name-fame symbolism issue for Reddit society to even TEMPORARILY (6 months sustained) halt mocking and entertainment to address things seriously. Reddit platform, Reddit end-users, Reddit audience, Reddit society satire-washes Trump and Putin as entertainment constantly. Reddit culture does as Texan Rick Roderick described in year 2013 as a threat to humanity: ... ... ...     
 "this is sort of one of my own if you will forgive me – is what I’ll call banalization. And it’s always a danger when you do lectures like the ones I am doing now, and that’s to take these fundamentally important things like what does my life mean, and surely there must be a better way to organise the world than the way it is organised now, surely my life could have more meaning in a different situation. Maybe my life’s meaning might be to change it or whatever, but to take any one of these criticisms and treat them as banalities. This is the great – to me – ideological function of television and the movies. However extreme the situation, TV can find a way to turn it into a banality." - Duke University. https://rickroderick.org/304-marcuse-and-one-dimensional-man-1993/
 
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryiaxc/
+
+... 
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nrym4s3/
+
+People on Reddit comment section can't see the evidence of the low-effort commenting popularity that goes back to year 2013 when it all changed.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nrynlz3/
+
+The worst people...
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryrdqg/
+
+Ban-happy, deport-happy behaviors on Reddit. Block-happy society
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryjyc5/
+
+Redditors... Americans, USA population. But people love Facebook users, is that the contrast being expressed here. People love automobile drivers who stare into smartphones, is that the contrast here. People love Elon Musk Twitter users, is that the contrast to Reddit users here. How about Americans... and not just those who vote MAGA, but those who abandon nonfiction / abandon what Carl Sagan defined in 1995. And reddit is hated becaose of *women* on Reddit. That isn't true. It's the agressive male /r/The_Donald behavior of mockcing / insulting / badgering / hate / dehumanization of women.
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryoh1e/
+
+The API change / paid-for API usage to prevent advertisement blocking really changed Reddit culture. So did native image hosting (Reddit used to be much ore reading oriented, long-form text content. Not image macros)
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nryy6u8/
+
+Left-right logic computer end-user brainrot
+
+https://old.reddit.com/r/PeterExplainsTheJoke/comments/1pclau1/petah/nrypo8p/
+
+
+
