@@ -491,3 +491,13 @@ https://old.reddit.com/r/pics/comments/1pchr5n/pete_hegseth_introduced_as_the_ss
 
 Sports betting entertainment for long-term Reddit account audience. Sprots-washing / betting-washing of the seirous problem. Just everyday Reddit comments to wash away the serious problems into casual non-alarmed conversations. ANYTHING to avoid nonfiction learning about Russian information warfare and rescuing the nation / NATO fron Putin's executive function mental manipulation.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1pcdxok/mike_johnson_secondary_strikes_are_not_unusual_it/nrwyddp/
+
+Alas, this type of Surkov information bewilderment has been in front of Reddit audiences since March 2013 and it is considered thrilling entertainment. People can't imagine information warfare / mass man manipulation. September 1977 education https://www.organism.earth/library/document/mcluhan-mcmanus was abandoned on how group think / mass man / Reddit hive mind is manipulated and conditioned by Mike Johnson's military information statements / Putin's Kremlin information statements. People far prefer to make disposable low-effort commenting messages on social sites like Reddit than actually educate Marshall McLuhan and put a stop to the high speed electric light-speed media feedback loops.
+
+https://old.reddit.com/r/UnderReportedNews/comments/1pcdxok/mike_johnson_secondary_strikes_are_not_unusual_it/nrx5o36/
+
+Reddit audience member behaving like this is Pluribus Apple + streaming TV show on Reddit venue... and describing their plot predictions for future episodes of the fiction show. Anti-reality abounds. Media addicts society / a nation of TV and low-effort commenting high-speed junk addicts. ... ... ...         
+https://www.politico.com/magazine/story/2015/01/putin-russia-tv-113960/
+At one end of the table sat one of the country’s most famous political TV presenters. He was small and spoke fast, with a smoky voice: “We all know there will be no real politics,” he said. “But we still have to give our viewers the sense something is happening. They need to be kept entertained.” “So what should we play with?” he asked. “Shall we attack oligarchs? Who’s the enemy this week? Politics has got to feel like a movie!”
+
