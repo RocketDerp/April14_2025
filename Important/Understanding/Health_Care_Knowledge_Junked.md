@@ -30,3 +30,9 @@ https://old.reddit.com/r/UpliftingNews/comments/1p732vv/uruguays_power_grid_runs
 
 Social media is not standing up and calling for removal of pro-disease stances, autism lies.     
 #https://www.cleveland.com/letters/2025/11/rfk-jr-should-be-impeached-for-ordering-cdc-to-promote-autism-and-vaccination-lies.html
+
+&nbsp;
+
+https://old.reddit.com/r/UkraineWarVideoReport/comments/1pcdw7h/president_zelenskyy_human_memory_is_often_short/     
+People are so amused to death and entertained at mocking Putin and Trump... they don't give a shit about death of real people. As Trump provides fiction thrills, fiction content, fiction entertainment. Abandonment of reality being called out. Recency bias / short memory being called out. As important.
+
