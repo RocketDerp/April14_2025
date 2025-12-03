@@ -19,7 +19,7 @@ Many not in order on list
 
 Finnegans Wake Iterates Wake Finnegans   
 
-REMINDER: any artists that borrows public dream songs does not need to be self-aware of the collage art they have created. What an artist says about the meaning not having these specific meanings does not matter. 
+REMINDER: any artists that borrows public dream songs does not need to be self-aware of the collage art they have created. What an artist says about the meaning not having these specific meanings does not matter.  Even if thge artist claims a song choice was made due to cost / licensing restrictions (Nina Paley: copyright is brain damage), the mass mind influence / global brain influence (Howard Bloom, August 2000) kicks in. Self-wareness not required by any person on writing team. Economic historic factors are weaved into licensing of art.
 
 MOYERS: Do you ever look at these primitive art objects and think not of the art but of the man or woman standing there painting or creating? I find that I speculate—who was he or she?
 
