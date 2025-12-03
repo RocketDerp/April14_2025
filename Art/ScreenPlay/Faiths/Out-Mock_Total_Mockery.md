@@ -80,6 +80,8 @@ Year 1733. Jimi could see. https://www.jimihendrix.com/editorial/recorded-in-173
 
 Screenplay opera, All the World a stage. Paul Allen's Wired World. https://www.webdesignmuseum.org/gallery/paul-allens-wired-world-1998
 
-It's all in Finnegans Wake. "Leaves start falling" / "Leafs start falling" / leaving / leafing, Tim's Ladder Falls. https://youtu.be/I0fGxujeJbY?t=335
+It's all in Finnegans Wake. "Leaves start falling" / "Leafs start falling" / [leaving](https://www.youtube.com/watch?v=ToxymSLzJeM) / leafing, Tim's Ladder Falls. https://youtu.be/I0fGxujeJbY?t=335
+
+We will see how it feels, going mobile. Inside / inward, Finnegans Woke. https://www.youtube.com/watch?v=bcQwIxRcaYs 1986 The Inner Reaches Of Outer Space long-train coming. https://www.youtube.com/watch?v=m4tJSn0QtME Steely Dan ram-rod metaphors of Japanese sexual devices abound. Steam powered train pistons. https://www.youtube.com/watch?v=7Xf-Lesrkuc
 
 
