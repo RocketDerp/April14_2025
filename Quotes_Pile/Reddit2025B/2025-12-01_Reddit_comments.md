@@ -664,4 +664,6 @@ https://old.reddit.com/r/worldnews/comments/1pcrea1/us_threatens_hell_to_pay_for
 
 <img width="814" height="378" alt="image" src="https://github.com/user-attachments/assets/d02ef3e1-0c74-4730-8a70-c2e1c3968179" /> OPERA_A Pretzel Logic. Minstrel Show of Trump bad-mouthing Obama and Kamala - those days are back agai, MAGA again minstrelsy. https://www.youtube.com/watch?v=UBxZFadp9Pw
 
+https://old.reddit.com/r/Fauxmoi/comments/1pdfzql/neil_patrick_harris_responds_to_abby_lee_miller/ns4tznp/
 
+<img width="1508" height="594" alt="Screenshot from 2025-12-03 15-17-35" src="https://github.com/user-attachments/assets/890c18a5-c4b8-4caf-bc23-5f1b8247ca00" /> Social media post of the year 2025!
