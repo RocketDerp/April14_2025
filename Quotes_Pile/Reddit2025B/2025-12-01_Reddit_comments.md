@@ -586,3 +586,7 @@ https://old.reddit.com/r/interesting/comments/1pcomub/the_pickle_in_mcdonalds_bu
 
 And a major franchise like McDonald's, reddit users can't bother to locate a story about the downsized burger. Fiction storytelling outsells nonfiction. People prize creating original fiction media content for audiences over getting on the same stable page that isn't scrolled away after 5 hours.
 
+https://old.reddit.com/r/nottheonion/comments/1pbuccd/toddler_star_ms_rachel_named_finalist_for/nrzmcl8/
+
+Banal washing Israel deaths, amusement-washing Palestine deaths, meme-washing the lack of progress of huamnity, meme-washing Malala quote about Taliban, comedy-washing Ms. Rachel being attacked. Anything to avoid nonfiction leaerning about Israel, Palestine, Taliban, Kremlin informatio war on Reddit and society.
+
