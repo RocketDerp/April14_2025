@@ -52,9 +52,13 @@ source for video clip: https://youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_Ul
 
 Video was published December 5, 2014. I am commiting this on GitHub on December 3, 2025. Eleven years later. Reddit has mockery-washed nonfiction learning away. Prized mocking Trump, mocking Putin. Reddit society can name every technical detail and name of a gun, a device, a gun in films. But in NONFICTION Reality, Reddit can't name "Surkov", the creative mocker who out-mocked the USA.
 
+&nbsp;
+
+&nbsp;
+
+# "In 20 years time" - 2014 to 2034
+
 Agenda: Humiliate "The West", humiliate NATO. December 5, 2014 book reading.
-
-
 
 https://github.com/user-attachments/assets/78f418e2-5c08-4cc0-b6e6-300914abee66
 
