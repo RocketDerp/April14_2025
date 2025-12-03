@@ -259,11 +259,23 @@ Front page of Reddit. A Twitter screen shot (I think?). Eating right out of Puti
 
 &nbsp;
 
+&nbsp;
+
 Wednesday, December 3, 2025 Reddit Holiday Consumerism Corporate America spirit     
 
 https://old.reddit.com/r/DiscussionZone/comments/1pd23yg/anyone_else_think_costcos_going_to_be_an_even/
 
 Isn't it great the Mexicans / brown people aren't in my Cosco mind-fuck message of Reddit. Front page of Reddit morning message. Isn't it great that "libtars" have tears Reddit metaphor messaging to audience. Mind-fucked Reddit. Isn'tit great to have them *self-deport* from Corporate America brand that isn't the shitty fat people of Wal-Mart.  Isn't it great that the rural poors of USA are out of my Whtie Privledge Wealth membership golf club. Reddit hive mind is so mind-fucked it eats up this Putin Surkov student messaging and cheeres on the anti "melting pot" goodness of the world.
 
-This isn't education, this is gleeful *self-deport* chering on. Segregation values. Anti Union of United States.
+This isn't education, this is gleeful *self-deport* chering on. Segregation values. Anti Union of United States. This is a simulation of resitancce "winning" over MAGA, when it is the very ass-backwards opposite. This is cheering on deporting immigrants, cheering on I.C.E. immigration intimidation. This is television / Reaality Reddit media / messaging of I.C.E. cheering. This is such a deep mind-fuck loop of simulacra that Reddit can't see it is eating out of Surkov student screenplays.
+
+Russia and the Menace of Unreality   
+How Vladimir Putin is revolutionizing information warfare   
+Peter Pomerantsev   
+September 9 2014, 3:42 PM ET   
+
+“If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
+
+Translated from 2013 Russia to USA 2025: I.C.E. raits are very little violence and a lot fo showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Self-deport from Corporate America, Costco is the Reddit total control of media aplifiers.
+
 
