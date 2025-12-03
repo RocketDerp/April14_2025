@@ -622,3 +622,23 @@ https://old.reddit.com/r/law/comments/1pckhx3/white_house_defends_releasing_jail
 
 Mind-blowing funny to social media society. USA nation mind blown with humor and rReality TV White house comedy. Surkov won. Amused to Death nation.
 
+https://old.reddit.com/r/law/comments/1pckhx3/white_house_defends_releasing_jailed_executive/nrzg1k2/
+
+Another new Reddit account this year, pointing out that the richest poeople in the world are all on top of social media. Fox News creates compelling content, fiction outsells nonfiction. 
+
+https://old.reddit.com/r/law/comments/1pckhx3/white_house_defends_releasing_jailed_executive/nryntak/
+
+You solve this by halting entertainment and studying Russian information warfare. You research "Surkov" and the books written by Peter P about Russian Reality TV - and then you research if Donald Trump had any Reality TV acting positions or experience. You connect the dots to Kremlin Ukraine War timeframe and November 2012.
+
+https://old.reddit.com/r/law/comments/1pckhx3/white_house_defends_releasing_jailed_executive/nrymwhi/
+
+But people do find all this ha ha funny entertaining. Having White Hosue Tony Clifton antics keeps the high speed message commenting on media platforms going!
+
+https://old.reddit.com/r/law/comments/1pckhx3/white_house_defends_releasing_jailed_executive/ns00d00/
+
+We sure have a nonfiction vs. Fiction Bible literacy crisis. people can't reconize that Reality TV ficiton is fiction and can't translate to Bible fiction. People can tell horse dewormer is fiction about COVID-19. People can't tell RFK Jr peddles fiction. Bible verse "1 John 4:20" - can't tell God isn't in the room with them, only a book of poetry. Fiction is not reality. ChatGPT can't tell either.
+
+https://old.reddit.com/r/law/comments/1pckhx3/white_house_defends_releasing_jailed_executive/nryl6pz/
+
+Yes. Inverted monomyth Surkov inforamtion warfare. Inverted symbols in the mind. People aren't asking how it started, when it started, learning the name of the "Internet Research Agency" and the mind doctors / mentalh health doctors of Cambridge Analytica - what exactly are the long-term outcomes of a military mental manipulation team. People can't recognize that Trump trusts Putin, and then people trust Trump. For all the wrong, inverted, backwards reasons. OPERA_A How long has Russian won the information war of hearts and minds being attracted to badness? How long have the White House friends in Russia with their fancy manipulation skills... https://www.youtube.com/watch?v=rmGiLAsbm0Q
+
