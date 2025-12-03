@@ -30,3 +30,17 @@ People can not grasp what Trummp is doing: Fiction outsells NONFICTION!
 
 Humanity never lived in nonfiction! Science was not poular. The HISTORY of science is very short. Carl Sagan Cosmos!
 
+1. Trump does fiction antics
+
+2. Broadcast all over the media, reporting on Trump
+
+3. People then respond to *correct* Trump on media systems, tiny Reddit comments, big New York Times media
+
+4. People whoa re fiction addicts don't correct fiction.
+
+5. September 9, 2014: "The War Against NonFiction" https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
+6. November 8, 2013 - Trump went to Moscow, HE GETS IT! TRUMP GETS SURKOV GOVERNING! NOBOFY IN USA GETS WHAT TRUMP GETS! FICTION OUTSELLS NONFICTION. OUT-ENGAGES!
+
+7. Surkov won. https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
