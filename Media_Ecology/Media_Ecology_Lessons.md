@@ -1160,3 +1160,20 @@ https://www.youtube.com/watch?v=IG5zrQxPICk
 
 Cognative Control     
 https://youtu.be/IG5zrQxPICk?t=799
+
+&nbsp;
+
+&nbsp;
+
+### The Root of All Media Ecology Studies
+
+https://old.reddit.com/r/politics/comments/1pd3eh8/trump_79_appears_to_call_vance_incompetent_in/
+
+"Word Salad". James Joyce's book Finnegans Wake. Published from year 1924 to Star War Day year 1939.
+
+*The Force* of *John One One* Bible verse. The world language patterns of The Bible, the most published book / Quran most published book langauge unification / origin of the Arabic singsong langauge consolidation of Tower of babel.
+
+"World Salad". "Woke" / "Wake" / Awaken English Salad Words, John 1:1, year 1924. "Finnegans Wake is the greatest guidebook to media study ever fashioned by man." - Marshall McLuhan, Newsweek Magazine, page 56, February 28, 1966
+
+Collage Art is "Art Salad". Macro meme images with words are "Art Salad", "Collage Art". A sald of dressing-up words and quotes with picture frame meme images.
+
