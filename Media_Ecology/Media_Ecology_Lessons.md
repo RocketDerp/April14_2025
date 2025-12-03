@@ -1177,7 +1177,7 @@ https://old.reddit.com/r/politics/comments/1pd3eh8/trump_79_appears_to_call_vanc
 
 Collage Art is "Art Salad". Macro meme images with words are "Art Salad", "Collage Art". A sald of dressing-up words and quotes with picture frame meme images.
 
-Dublin metahors everywhere, Bloomsday metaphors everywhere, Global Village... Unviersity of Toronto Wake.
+Dublin metaphors everywhere, Bloomsday meta / metaphors everywhere, Global Village metas... University of Toronto Woke Wake.
 
 &nbsp;
 
