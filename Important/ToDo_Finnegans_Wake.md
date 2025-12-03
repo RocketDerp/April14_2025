@@ -460,3 +460,23 @@ https://old.reddit.com/r/comics/comments/1pdddl9/no_children_part_3_gator_days/
 
 Comparative mythology, comparative development of socities    
 https://old.reddit.com/r/HistoryMemes/comments/1pd7wko/english_vs_chinese_history/
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Wow Media 0
+
+Funeral Wake rituals. Annie serves corpse after Finnegan death.     
+https://old.reddit.com/r/Fauxmoi/comments/1pdfzql/neil_patrick_harris_responds_to_abby_lee_miller/ns4xkrc/
+
+<img width="1508" height="594" alt="Screenshot from 2025-12-03 15-17-35" src="https://github.com/user-attachments/assets/fd2f3846-0751-4db4-9a65-d1388b5a1b4c" />
+
+"Finnegan's wife Annie puts out his corpse as a meal spread for the mourners at his wake, but he vanishes before they can eat him." current revision of Wikipedia: https://en.wikipedia.org/w/index.php?title=Finnegans_Wake&diff=prev&oldid=1325138821
+
+Already posted:  https://bsky.app/profile/roundsparrow.bsky.social/post/3m74isrmv722w     
+https://autistics.life/@RoundSparrow/115657983387030390   
+
+This is like the social media screen shot of the year 2025. The username of "weed is mind blowing" and Finnegans Wake corpse serving for #Protestant #Halloween #MartinLuther #Germany. #FWakeMartinLuther /\ #ns4tznp #FWakeHalloween 
