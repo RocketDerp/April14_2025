@@ -56,7 +56,9 @@ Video was published December 5, 2014. I am commiting this on GitHub on December 
 
 &nbsp;
 
-# "In 20 years time" - 2014 to 2034
+# "In 20 years time" - 2012 to 2032
+
+After the Arab Spring 2010. https://www.sltrib.com/opinion/commentary/2018/02/17/commentary-russian-general-plots-our-cyber-downfall/
 
 Agenda: Humiliate "The West", humiliate NATO. December 5, 2014 book reading.
 
@@ -66,3 +68,4 @@ https://github.com/user-attachments/assets/78f418e2-5c08-4cc0-b6e6-300914abee66
 
 Up next: The Olympics in USA. FIFA World Cup in USA. The Alpha male bragging of greatness and world domination alpha males. USA year 250 bragging of "democracy". Bragging about our television coverage of the World Cup in the faces of all the poor nations in Africa, Mexico, South America about having the World Cup in USA. Mocking away at the poors of the world about television coverage and games and sports men. The poor nations are going to eat this up... and the whole nation of USA, not just MAGA, is going to be an insult and stain upon the world. Climate change isn't going away, and the wealth lords of the world mocked "Alpha Male" on the front page of Reddit... and the "250 year nation of ALpha Male" will be the joke Russia mocked in our face. Our sports shows, our women shows. November 8, 2013 Russia already had the Reddit invasion by the IRA ongoing. November 8, 2013: https://www.youtube.com/watch?v=ojYHcxv934M
 
+Russia is ahead of the 20 year schedule. And Russia is going down with the ship. It was a danger-close strike. Russia and USA are paired.
