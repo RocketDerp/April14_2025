@@ -455,3 +455,8 @@ Reddit bans Unicode self-publsihed books. Bluesky bans Unicode self-published bo
 Choice Marriage Honesty to children, even other people's Global Village children     
 Kittens / Cats images as children sharing proxy to a neighbor kid.    
 https://old.reddit.com/r/comics/comments/1pdddl9/no_children_part_3_gator_days/
+
+&nbsp;
+
+Comparative mythology, comparative development of socities    
+https://old.reddit.com/r/HistoryMemes/comments/1pd7wko/english_vs_chinese_history/
