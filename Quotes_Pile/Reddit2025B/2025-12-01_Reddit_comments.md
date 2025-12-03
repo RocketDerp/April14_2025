@@ -574,4 +574,11 @@ https://old.reddit.com/r/TikTokCringe/comments/1pcjlz4/student_in_dearborn_michi
 
 And Reddit society won't sustain focus on promoting Dr. Brandy X Lee over all this group think / mob mentality. Putin won, Surkov won. Reddit users witness it and comment on it, then go back to amusement-washing it every day. FOR OVER TEN YEARS AND FIVE MONTHS this is ongoing Reddit entertainment-washing that mocking what Murdoch / Putin / Trump culivated. The attraction pepole have to mocking. **it is incredibly sickening. It makes me sick to peer into Bluesky and Reddit and the feating people have of Americans attacking Americans** and doing EVERYTHING THEY CAN to avoid nonficiton leanring about Kremlin information warfare since year 2013.
 
+https://old.reddit.com/r/news/comments/1pcm2rv/pentagon_says_every_national_guard_soldier/nrynvxp/
+
+Sports mentality, as conditioned by Putin / Russia since year 2013. Surkov won.
+
+https://old.reddit.com/r/news/comments/1pcm2rv/pentagon_says_every_national_guard_soldier/nrz4r4z/
+
+Facts are mocked on Reddit. Truth is mocked on Reddit. Reality is boring and mocked and avoided on Reddit.
 
