@@ -582,3 +582,7 @@ https://old.reddit.com/r/news/comments/1pcm2rv/pentagon_says_every_national_guar
 
 Facts are mocked on Reddit. Truth is mocked on Reddit. Reality is boring and mocked and avoided on Reddit. Fiction outsells nonfiction and the Billionares providde the trickle-down video game and Twitter and Fox News fiction, and Trump images, fiction to mock.
 
+https://old.reddit.com/r/interesting/comments/1pcomub/the_pickle_in_mcdonalds_burgers_is_now_thicker/nrzbpkx/
+
+And a major franchise like McDonald's, reddit users can't bother to locate a story about the downsized burger. Fiction storytelling outsells nonfiction. People prize creating original fiction media content for audiences over getting on the same stable page that isn't scrolled away after 5 hours.
+
