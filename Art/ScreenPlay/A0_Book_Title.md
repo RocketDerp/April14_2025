@@ -76,3 +76,8 @@ Metaphor Apocalypse Ellipses
 Campbell's equation, E=MC2 of Tower of Babel   
 
 Unrelated singsong to Pluribs TV show context. Wake Finnegans songs metaphor to metaphor translation... riverrun global river networks themes...   the on-screen Pluribis countdown timers fits the album title "Countdown To"... and Carol being the Hive Mind Queen / King of the World... on Air Force One .... "I don't need no helping hand" (Carol's attitude on food delivery to her house)...  and any man / woman standing on the Rio Grande: https://www.youtube.com/watch?v=13QdIdEblxk
+
+...
+
+Dishonesty is Humor     
+Liars Amuse    
