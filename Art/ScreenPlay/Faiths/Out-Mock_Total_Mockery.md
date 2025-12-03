@@ -73,3 +73,11 @@ Russia is ahead of the 20 year schedule. And Russia is going down with the ship.
 I can't pretend I can teach. And on the dance floor, broken glass... 
 
 "The Experience Music Project", Bellevue Washington. Year 1996. Jimi West Coast USA, Pete Townshend is One. https://youtu.be/I0fGxujeJbY?t=315 - both Jimi Hendrix and Pete Townshend played with distortion in media. "The Expereince Mythology Project", Austin Texas, December 16, 2009. Arab Spring women Quran, January 2009 - Malala in Swat Valley Pakistan. Marshall McLuhan is the nonfiction key. 1944 https://en.wikipedia.org/wiki/A_Skeleton_Key_to_Finnegans_Wake paired with 1968 https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village paired with 1996 Paul Allen Group, Experience Music Project development, Bellevue.
+
+RECORDED IN 1733… FROM THE BENJAMIN FRANKLIN STUDIO – Jimi Hendrix Live In Stockholm, Sweden  
+
+Year 1733. Jimi could see. https://www.jimihendrix.com/editorial/recorded-in-1733-from-the-benjamin-franklin-studio-jimi-hendrix-live-in-stockholm-sweden/
+
+Screenplay opera, All the World a stage. Paul Allen's Wired World. https://www.webdesignmuseum.org/gallery/paul-allens-wired-world-1998
+
+It's all in Finnegans Wake.
