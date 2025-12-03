@@ -1188,5 +1188,5 @@ https://old.reddit.com/r/LivestreamFail/comments/1pdcfh1/hasan_takes_a_picture_w
 
 The power of Palestine / Turkey Mythology warfare streaming media / Social Media. The power of mythology of a slave pet, pets are slaves. Slavery bondage, Exodus 5:1 free Allah's people in Torah science fiction storytelling trilogy. Adapation of the Levant SciFi Trillogy by a 2025 streamer.
 
-1988 book "The Power of Myth" / George Lucas mythology Skywalker education.
+1988 book "The Power of Myth" / George Lucas mythology Skywalker education for Hollywood visual audiences.
 
