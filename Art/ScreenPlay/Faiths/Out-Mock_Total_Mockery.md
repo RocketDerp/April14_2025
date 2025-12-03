@@ -38,16 +38,24 @@ People are exhausted with the details of whose fault it is. Fox News audience an
 
 All the calling-out of toxic Hollywood stars, of toxic Kid Rock, of toxic Trump, of Toxic Andrew Tate... will become Toxic United States of America. Climate change has a nation of busy airports burning jet fuel bragging away at how great it is. Front page of Reddit blaming the "Alpha Male", the New York City *inside job* terrorism of the entire Mother Earth.
 
-All the "are you on drugs" mocking that goes on Reddit comment section, all the "MAGA is crazy!" that goes on with Reddit society messaging... is going to overflow the toilets and paint the entire nation as crazy and high on technology. High on meme technology. High on Truth Social and meme coin technology. High on the hog, living it up, video game addicts who had it all and treated the Earth itself like a first person shooter with *boys will be boys* Putin and Trump terrorizing the whole world. Surkov "War of All Against All, 5th world war" - won.
+All the "are you on drugs" mocking that goes on Reddit comment section, all the "MAGA is crazy!" that goes on with Reddit society messaging... is going to overflow the toilets and paint the entire nation as crazy and high on technology. High on meme technology. High on Truth Social and meme coin technology. High on the hog, living it up, video game addicts who had it all and treated the Earth itself like a first person shooter with *boys will be boys* Putin and Trump terrorizing the whole world. Surkov won by shoving Superman Ironman comics down our USA throat, choke on the Alpha Male and high-production meme values, high production CGI tastes in terrible writing masuline bullshit.
 
 Reddit has "one job" (mocking favorite on Reddit front page, "you had one job" video clips), one *eye on the ball*. Nonfiction. Serious teaching like Ms. Rachel. Like Mr. Rogers. You teach NONFICTION. 
 
-And what mocking non-fiction did you avoid at the public library / book store... this YouTube clip is a reading by the author.
+And what mocking non-fiction did you avoid at the public library / book store since yaer 2014... this YouTube clip is a reading by the author.
 
 time index of 7:55 in total video
 
-"would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"
+"would go on to call the Fifth World War. The **first nonlinear war of all against all**. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"
 
 source for video clip: https://youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ
 
-Video was published December 5, 2014
+Video was published December 5, 2014. I am commiting this on GitHub on December 3, 2025. Eleven years later. Reddit has mockery-washed nonfiction learning away. Prized mocking Trump, mocking Putin. Reddit society can name every technical detail and name of a gun, a device, a gun in films. But in NONFICTION Reality, Reddit can't name "Surkov", the creative mocker who out-mocked the USA.
+
+Agenda: Humiliate "The West", humiliate NATO. December 5, 2014 book reading.
+
+
+
+https://github.com/user-attachments/assets/78f418e2-5c08-4cc0-b6e6-300914abee66
+
+
