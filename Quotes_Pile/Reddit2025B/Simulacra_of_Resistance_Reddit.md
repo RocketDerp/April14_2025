@@ -255,3 +255,15 @@ https://old.reddit.com/r/clevercomebacks/comments/1pcd0jy/the_level_of_maga_stup
 
 Front page of Reddit. A Twitter screen shot (I think?). Eating right out of Putin information warfare hands. Incredibly simplistic Twitter-think short-messages and Tiny-short Reddit headlines. Calling Americans stupid. Yes. Media ecology stupid. In a simulation / simulacra of Reddit vs. MAGA / Reddit vs. Fox News / Reddit vs. Twitter. Russia had mind-fucked people into mocking patterns, back and forth MAGA vs. anti-MAGA mocking. It has been going on for over a decade. Endless factual evidence / examples of Russia seeding the Internet systems of Reddit and Twitter with bullshit to mock and argue, call each other stupid over, programming people the thrill of out-group insutling and stupid. Just like Trump insults and mocks Canada on Truth Social. People have followed the media message leaders of Putin and Trump. Hearts and Minds of Russia's enemy lost to self-harm stupid vs. stupid low-effort mocking feedback loops of high speed media screen shots and news events. Surkov won. Reddit is in simulation and goes into egoism peer to peer attacking you call out the year 2012 and year 2013 origins of this information war / simulacra / simulation before Ukraine land invasion February 2014. We The People are mind-fucked. It's right there on Reddit and Twitter today.
 
+&nbsp;
+
+&nbsp;
+
+Wednesday, December 3, 2025 Reddit Holiday Consumerism Corporate America spirit     
+
+https://old.reddit.com/r/DiscussionZone/comments/1pd23yg/anyone_else_think_costcos_going_to_be_an_even/
+
+Isn't it great the Mexicans / brown people aren't in my Cosco mind-fuck message of Reddit. Front page of Reddit morning message. Isn't it great that "libtars" have tears Reddit metaphor messaging to audience. Mind-fucked Reddit. Isn'tit great to have them *self-deport* from Corporate America brand that isn't the shitty fat people of Wal-Mart.  Isn't it great that the rural poors of USA are out of my Whtie Privledge Wealth membership golf club. Reddit hive mind is so mind-fucked it eats up this Putin Surkov student messaging and cheeres on the anti "melting pot" goodness of the world.
+
+This isn't education, this is gleeful *self-deport* chering on. Segregation values. Anti Union of United States.
+
