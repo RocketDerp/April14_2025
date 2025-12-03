@@ -88,3 +88,14 @@ We will see how it feels, going mobile. Inside / inward, Finnegans Woke. https:/
 https://bsky.app/profile/roundsparrow.bsky.social/post/3m73q6k3tqc2a     
 https://autistics.life/@RoundSparrow/115656247429772325
 
+&nbsp;
+
+&nbsp;
+
+# Surkov Won Monomyth
+
+https://journ.lnu.edu.ua/wp-content/uploads/2024/10/Visnyk45.pdf
+
+"This conflict of interpretations, «is used during the hybrid warfare as a kind of weapon along with other"
+
+Surkov cracked the MonoMyth opcodes since around year 2011 based on my personal FinWake analysis of Surkov's fiction storytelling.
