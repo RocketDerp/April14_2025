@@ -1693,3 +1693,10 @@ AND ANOTHER GOD DAMN FUCKING BLUNT POINT ABOUT THIS CNN UNREPORTED VIDEO: The ma
 
 A CALL to INTELLECTUAL arms. Not physical weapons (Reddit Bluesky December 4 Luigi bullshit), **information defense** weapons against Surkov students. Education, teaching, pro-Malala. "ALL GET ON THE SAME GOD-DAMNED PAGE, WIKI REFINED".
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/UnderReportedNews/comments/1pd6eva/two_weeks_ago_we_ended_under_your_leadership_a/
+
+A paradox meme bomb / message bomb into the Reddit audience. Blows the minds of Reddit users into meme stupor / mocking mockery. Been going on since year 2013 with Reddit. Mind-fuck after mind-fuck to an audience that can name technical of everything about military weapons, guns, all the proper names and brands of a gun in a Hollywood film... but can't name Rupert Murdoch, and audience who can't name Surkov. Mind-fucked into hardware gun brand names / "clip vs. magazine" naming, but can't name the architect human being Surkov of their own mind-fuck.
