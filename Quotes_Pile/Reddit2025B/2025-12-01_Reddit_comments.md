@@ -590,3 +590,29 @@ https://old.reddit.com/r/nottheonion/comments/1pbuccd/toddler_star_ms_rachel_nam
 
 Banal washing Israel deaths, amusement-washing Palestine deaths, meme-washing the lack of progress of huamnity, meme-washing Malala quote about Taliban, comedy-washing Ms. Rachel being attacked. Anything to avoid nonfiction leaerning about Israel, Palestine, Taliban, Kremlin informatio war on Reddit and society.
 
+https://old.reddit.com/r/politics/comments/1pclrq6/trump_says_us_will_begin_land_strikes_on/ns03xkd/
+
+"Epsite List" is an information list. It isn't jailing any criminals, it's a list of information. The bar is pretty low and USA social media society requests. Housing prices, girls having educaiton and freedom to defend against predoatry males, medical care, hate agaist Canada, all kindsof issues - and people have made a *list* of information - without even knowing who is that list - the prioirty. In television fiction shows, that's called a "mystery box" for the fiction watchig audience. Why not call for reform of government so people stop prizing liars as leaders. Deception leadership, Bullshit-based governing. Then address the crimals with transparency, facts, truth, evidence, hoeesty and not the most intertaining mock at how Donald Trump falls asleep in a meeting today. How about have hundreds of leaders who are honest and sincere and earnest.
+
+https://old.reddit.com/r/politics/comments/1pclrq6/trump_says_us_will_begin_land_strikes_on/nrymhwe/
+
+Social media has been bending over backwards with no-identtiy comment messages to LOL-wash humor-wash amusement-wash every single thing about Donald Trump and MAGA. Endless entettainment found from having terrible leaders. People can not resist their meme addictions. What else it Trump talented at except Reality TV enteratinment to easy pleased screen audiences.
+
+https://old.reddit.com/r/politics/comments/1pclrq6/trump_says_us_will_begin_land_strikes_on/nrynonc/
+
+I used to have deep respect for Reddit comments that had factaul book quotes, nonfictio book titles, author names, links to sources. Now it's just bad-mouth out-groups, insult, mocking, LOL, satire, sarcash, flocking to every Trump media turd / Trump image and talking about Trump's penis size on South Park 2025 - and Trump's skin color. None of which has to do with reality and governing, and everything to do with celebrity of Reality TV stars.
+
+https://old.reddit.com/r/politics/comments/1pclrq6/trump_says_us_will_begin_land_strikes_on/nryowpa/
+
+Not money, influence, people on social media hang on every word and image of Trump. the big miedia empires find an audinece who can not resist wating to find out what Presidnet Tony Clifto acts are going to mock and insult next.
+
+https://old.reddit.com/r/politics/comments/1pclrq6/trump_says_us_will_begin_land_strikes_on/nryrspf/
+
+Self-harm to USA, murder USA suicide
+
+https://old.reddit.com/r/politics/comments/1pclrq6/trump_says_us_will_begin_land_strikes_on/nrz6ufx/
+
+Note the Reddit account is new this year. The one asserting facts and links off-site reddit that are on-topic and breach the recnecy bias / high speed message addiction for "recency" - don't get any comments. People are all on different pages, diffrent mindsets. Filter bubbles.
+
+
+
