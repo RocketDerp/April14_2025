@@ -667,3 +667,42 @@ https://old.reddit.com/r/worldnews/comments/1pcrea1/us_threatens_hell_to_pay_for
 https://old.reddit.com/r/Fauxmoi/comments/1pdfzql/neil_patrick_harris_responds_to_abby_lee_miller/ns4tznp/
 
 <img width="1508" height="594" alt="Screenshot from 2025-12-03 15-17-35" src="https://github.com/user-attachments/assets/890c18a5-c4b8-4caf-bc23-5f1b8247ca00" /> Social media post of the year 2025!
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns50prv/
+
+Many freshly created accounts on Reddit, burning the old history.
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns55vgl/
+
+Constantly blocking out boring nonfiction. Trump fiction / sports gaming / entertainment seeking.
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns5374z/
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns5470w/
+
+Leading the way to Kamala Harris telling us what would happen in year 2024.
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns558ul/
+
+... year 2014 is when the Russian IRA had mind-fucked people into out-group hate patterns.
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns5h74b/
+
+Media abuse, manipulated and manipulation.
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns5g2ir/
+
+Yes. A PUBLIC forum should be PUBLIC. It is a mistake to try and make Reddit like Gmail / private messages. Same with Twitter. Too many leaks.
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns53i0u/
+
+Web browser hostile.
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns5al5g/
+
+Eternal September waves.
+
+https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_sucks_and_its_going/ns569od/
+
+Anti-wiki, recency bias.
+
