@@ -26,7 +26,7 @@ Front page of Reddit sunrise December 3, 2025
 
 https://old.reddit.com/r/therewasanattempt/comments/1pd1s76/to_look_like_an_alpha_male/
 
-What Reddit does not see about this "Alpha Male USA" and "Team America" mocking and "South Park" faith system is that it's the sustained faith of USA society. Donald Trump being elected twice, the insulting of Canadda exploits South Park movie, people are sick of USA bamboozle.
+What Reddit does not see about this "Alpha Male USA" and "Team America" mocking and "South Park" faith system is that it's the sustained faith of USA society. Donald Trump being elected twice, the insulting of Canada self-exploits South Park movie, people are sick of USA bamboozle. Satan South Park White Houe mocking is the "Alpha Males".
 
 There was no high ground to mcok from. Donald Trump Epstein chanting is just like this "Alpha Male" you are mocking. The parroting of Truth Social behaviors all over Reddit since January 2024 is one and the same faith. Truth Social and White House Podium and Reddit and Bluesky all share the common faith of mocking mother Earth, mocking Carl Sagan, mocking Putin, mocking Epstein, mocking Canada.
 
@@ -37,3 +37,17 @@ Every government of the world is painting a December 2025 target on USA being th
 People are exhausted with the details of whose fault it is. Fox News audience and Russia over-run block-happy (freedom of blocking, freedom of silencing, freedom of banning, freedom of deporting) leadershipp of the "Free World" to make USA brands of cars that most of the world has never driven or purchased in recent decades... knows Japanese cars the world over... will remember the men alpha males who muclear bobmed Japan... and resumed real-world nuclear bomb testing to rape Mother Earth. https://www.yahoo.com/news/articles/russia-us-threatened-resume-nuclear-080212361.html
 
 All the calling-out of toxic Hollywood stars, of toxic Kid Rock, of toxic Trump, of Toxic Andrew Tate... will become Toxic United States of America. Climate change has a nation of busy airports burning jet fuel bragging away at how great it is. Front page of Reddit blaming the "Alpha Male", the New York City *inside job* terrorism of the entire Mother Earth.
+
+All the "are you on drugs" mocking that goes on Reddit comment section, all the "MAGA is crazy!" that goes on with Reddit society messaging... is going to overflow the toilets and paint the entire nation as crazy and high on technology. High on meme technology. High on Truth Social and meme coin technology. High on the hog, living it up, video game addicts who had it all and treated the Earth itself like a first person shooter with *boys will be boys* Putin and Trump terrorizing the whole world. Surkov "War of All Against All, 5th world war" - won.
+
+Reddit has "one job" (mocking favorite on Reddit front page, "you had one job" video clips), one *eye on the ball*. Nonfiction. Serious teaching like Ms. Rachel. Like Mr. Rogers. You teach NONFICTION. 
+
+And what mocking non-fiction did you avoid at the public library / book store... this YouTube clip is a reading by the author.
+
+time index of 7:55 in total video
+
+"would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"
+
+source for video clip: https://youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ
+
+Video was published December 5, 2014
