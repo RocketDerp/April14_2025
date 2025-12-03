@@ -276,6 +276,6 @@ September 9 2014, 3:42 PM ET
 
 “If previous authoritarian regimes were three parts violence and one part propaganda,” argues Igor Yakovenko, a professor of journalism at the Moscow State Institute of International Relations, “this one is **virtually all propaganda and relatively little violence**. Putin only needs to make a few arrests—and then amplify the message through his total control of television.”
 
-Translated from 2013 Russia to USA 2025: I.C.E. raits are very little violence and a lot fo showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Self-deport from Corporate America, Costco is the Reddit total control of media aplifiers.
+Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot fo showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Self-deport from Corporate America, Costco is the Reddit total control of media aplifiers.
 
 
