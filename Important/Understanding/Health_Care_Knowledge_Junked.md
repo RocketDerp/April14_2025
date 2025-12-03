@@ -31,6 +31,8 @@ https://old.reddit.com/r/UpliftingNews/comments/1p732vv/uruguays_power_grid_runs
 Social media is not standing up and calling for removal of pro-disease stances, autism lies.     
 #https://www.cleveland.com/letters/2025/11/rfk-jr-should-be-impeached-for-ordering-cdc-to-promote-autism-and-vaccination-lies.html
 
+https://old.reddit.com/r/science/comments/1pd1hv9/a_dementia_vaccine_could_be_real_and_some_of_us/
+
 &nbsp;
 
 https://old.reddit.com/r/UkraineWarVideoReport/comments/1pcdw7h/president_zelenskyy_human_memory_is_often_short/     
