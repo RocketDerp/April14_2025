@@ -480,3 +480,5 @@ Already posted:  https://bsky.app/profile/roundsparrow.bsky.social/post/3m74isrm
 https://autistics.life/@RoundSparrow/115657983387030390   
 
 This is like the social media screen shot of the year 2025. The username of "weed is mind blowing" and Finnegans Wake corpse serving for #Protestant #Halloween #MartinLuther #Germany. #FWakeMartinLuther /\ #ns4tznp #FWakeHalloween 
+
+BONUS: the "corpse serving" line on Wikipedia of "Annie" serving the corpse is post-modern Internet fringe summary?!
