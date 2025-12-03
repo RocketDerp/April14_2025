@@ -80,4 +80,6 @@ Year 1733. Jimi could see. https://www.jimihendrix.com/editorial/recorded-in-173
 
 Screenplay opera, All the World a stage. Paul Allen's Wired World. https://www.webdesignmuseum.org/gallery/paul-allens-wired-world-1998
 
-It's all in Finnegans Wake.
+It's all in Finnegans Wake. "Leaves start falling", Tim's Ladder Fall. https://youtu.be/I0fGxujeJbY?t=335
+
+
