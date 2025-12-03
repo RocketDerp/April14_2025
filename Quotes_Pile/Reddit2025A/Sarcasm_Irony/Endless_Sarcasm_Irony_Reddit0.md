@@ -6,6 +6,10 @@
 ++ Hate training camp    
 ++ Entertainment focus     
 ++ "Just like The Onion!" Kremlin and White House     
+++ Recency bias     
+++ Wiki organized Powerwould presentaiton would solve    
+++ Wiki getting on same page of important matters would solve    
+
 
 &nbsp;
 
@@ -1675,3 +1679,10 @@ https://old.reddit.com/r/australia/comments/1pczjl3/when_did_tipping_become_the_
 
 Servant culture, bribe culture, lording culture over service workers. Reddit sees this on front page but can't connect it to Maximum Putinization of the world since December 20, 2013 "Conservative International" - ever MAN, male, a king. USA / Russia culture cocentrating wealth and power to have first-class tipping everywhere. Conspicuous signaling in public.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1pd3l75/cnn_released_an_unreported_2016_video_of_defense/
+
+And another front page paradox of media ecology. Fox News inversions. The Reddit audience avoidance of Jen Senko repeating / asserting Jen Senko since year 2015 / year 2016. Reddis society has tree after tree scroll off /r/All home page... anti-Wiki. A Wiki organized presentaiton of all these interconnected mind-fuck patterns, the Russian Nesting Dolls of Surkov governing techniques, going back to November 2012 would explain the September 9, 2014 story about "War Against Nonfiction" fact and reality. But Reddit audience does not live in real reality of media-ecology self-awareness / compulsive behavior self-awareness. Reddit audience is pushed around and driven by the Internet Research Agency since March 2013. Reddit society can't speak the names of the players, Surkov, every day... or comment Jen Senko's name. Reddit audience mocks and mocks and mocks at Donald Trump and White House for over a decade. As Surkov students conditioned since March 2013. Surkov won, We The People (all, not just one-third, not just Republicans, not just MAGA) lost. NATO lost. September 9, 2014.. BEFORE this year 2016 video CNN released: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ Reddit society has had more than ELEVEN FULL YEARS to repeat and comment repeating this September 9, 2014 link. But Reddit audience won't *get on the same page* of Wiki style important assertions, keep an eye on the NATO ball, keep an eye on the Ukraine information war since September 9, 2014 posting of that story on The Atlantic world wide web site.
