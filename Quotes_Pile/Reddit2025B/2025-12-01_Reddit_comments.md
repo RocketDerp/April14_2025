@@ -578,11 +578,7 @@ https://old.reddit.com/r/news/comments/1pcm2rv/pentagon_says_every_national_guar
 
 Sports mentality, as conditioned by Putin / Russia since year 2013. Surkov won. In USA society 2025, in social media society, MAGA can just say they are "just" joking. Or people can say it's a joke. Or people can say "whoosh" and it justifies the most horrific health care, most horrific dehumanization because entertainment and amusement as the expense of human beings is the Russian-induced minsets since year 2013. Mockery defeats all resistance. If you have a mental breakdown because of the billionare media system bombardment of Putin / Musk / Trump Truth Social values / Mudoch billionare - you are "weak" and a target of bullying / punching-down. It's a food chain of feasting upon people who have empathy beaten out of them by Musk and Reddit / Bluesky mob mentality.  Why people don't want to face the egoism of blocking on Bluesky is the same egois of blocking immigrants / deporting. People can't even make the case for allowing messages - let alone living human persons - near them.
 
-
-
-
-
 https://old.reddit.com/r/news/comments/1pcm2rv/pentagon_says_every_national_guard_soldier/nrz4r4z/
 
-Facts are mocked on Reddit. Truth is mocked on Reddit. Reality is boring and mocked and avoided on Reddit.
+Facts are mocked on Reddit. Truth is mocked on Reddit. Reality is boring and mocked and avoided on Reddit. Fiction outsells nonfiction and the Billionares providde the trickle-down video game and Twitter and Fox News fiction, and Trump images, fiction to mock.
 
