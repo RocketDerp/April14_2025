@@ -614,5 +614,11 @@ https://old.reddit.com/r/politics/comments/1pclrq6/trump_says_us_will_begin_land
 
 Note the Reddit account is new this year. The one asserting facts and links off-site reddit that are on-topic and breach the recnecy bias / high speed message addiction for "recency" - don't get any comments. People are all on different pages, diffrent mindsets. Filter bubbles.
 
+https://old.reddit.com/r/law/comments/1pckhx3/white_house_defends_releasing_jailed_executive/nrydv6k/
 
+New Reddit account this year with top popular comment on posting. Nothing matters but low-effort commenting about Trump day in and day out for over 10 years. Video games, sports games, sports stars, movie stars, film stars, Trump's sex life and South Park penis depictions. Reality and nonfiction are undesired... Leaders like Trump provide the ficiton entertainment content audiences creave and comment upon.
+
+https://old.reddit.com/r/law/comments/1pckhx3/white_house_defends_releasing_jailed_executive/nrz9f7i/
+
+Mind-blowing funny to social media society. USA nation mind blown with humor and rReality TV White house comedy. Surkov won. Amused to Death nation.
 
