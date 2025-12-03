@@ -1192,3 +1192,12 @@ The power of Palestine / Turkey Mythology warfare streaming media / Social Media
 
 1988 book "The Power of Myth" / George Lucas mythology Skywalker education for Hollywood visual audiences.
 
+&nbsp;
+
+&nbsp;
+
+### Telecommute across the oceans via TCP/IP 
+
+https://old.reddit.com/r/WorkReform/comments/1pd6cvd/this_is_really_fucked_up/     
+
+https://nypost.com/2024/04/09/us-news/nyc-restaurants-use-zoom-cashiers-from-philippines/
