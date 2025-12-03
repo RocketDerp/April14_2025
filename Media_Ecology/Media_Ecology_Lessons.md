@@ -1177,3 +1177,16 @@ https://old.reddit.com/r/politics/comments/1pd3eh8/trump_79_appears_to_call_vanc
 
 Collage Art is "Art Salad". Macro meme images with words are "Art Salad", "Collage Art". A sald of dressing-up words and quotes with picture frame meme images.
 
+&nbsp;
+
+&nbsp;
+
+### The Power of Social Media Mythology
+
+"The power of social media" in video clip    
+https://old.reddit.com/r/LivestreamFail/comments/1pdcfh1/hasan_takes_a_picture_with_a_kaya_fan_on_the/
+
+The power of Palestine / Turkey Mythology warfare streaming media / Social Media. The power of mythology of a slave pet, pets are slaves. Slavery bondage, Exodus 5:1 free Allah's people in Torah science fiction storytelling trilogy. Adapation of the Levant SciFi Trillogy by a 2025 streamer.
+
+1988 book "The Power of Myth" / George Lucas mythology Skywalker education.
+
