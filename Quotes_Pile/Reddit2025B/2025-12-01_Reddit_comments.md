@@ -649,3 +649,18 @@ Reddit USA leading the way. Block-happy, egoism deportation via ICE, systems of 
 https://old.reddit.com/r/Art/comments/1pcjitj/print_update_on_unbanning_users/nrz0j9t/
 
 Yha. Ukraine being attacked since Febraury 2014, still ongoing. Sudan. Palestine. Iran and women. Afghanistan and women. Donald Trump leading the world in to hate and fiction. Russia and Putin convincing USA to insult and attack canada in year 2025. Billionares who own Twitter, Facebook, Truth Social and we are all failures. But we can't blame the billionares for making life miserable, we can't blame Trump - we are supposed to smile and cheer Trump and cheer Rupert Muredoch and cheer Fox News and be glad how Russia's Iternet Research Agency fucked over the Reddit society and fucked over all our politicians to praise and cheer on self-harm of the USA. We are to get medication and take our pills and soma our way out of Brave New World and do everthing we possible can to not face up to the media ecoogy crisis of Reddit and what Neil Postman's 1985 book said about Preisdents of the USA and Reddit high-speed elctric entertainment-based media and soma of Brave New World... we are to smile away the the billionare ChatGPT managed art world. March 27, 2024 - before the November 2024 election: https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ - smile everyone I.C.E. is on your street, December 2025. Don't blame others for your problems, don't blame Rupert Murdoch, don't blame Fox News, don't blame King Donald Trump. OPERA_A Good King Donald. Smile. I still recall how he lead the charge... https://www.youtube.com/watch?v=mNBTUJbnN1o
+
+https://old.reddit.com/r/worldnews/comments/1pcrea1/us_threatens_hell_to_pay_for_honduras_after/nrzsru4/
+
+New Reddit account this year, top voted comment on Trump topics. 
+
+https://old.reddit.com/r/worldnews/comments/1pcrea1/us_threatens_hell_to_pay_for_honduras_after/nrztu00/
+
+Audience of Rddit mind blown by Trump antics politics. Surkov governing techniques. Russia won.
+
+https://old.reddit.com/r/worldnews/comments/1pcrea1/us_threatens_hell_to_pay_for_honduras_after/nrzvslp/
+
+https://old.reddit.com/r/worldnews/comments/1pcrea1/us_threatens_hell_to_pay_for_honduras_after/nrzy6hb/
+
+OPERA_A Pretzel Logic. Minstrel Show of Trump bad-mouthing Obama and Kamala - those days are back agai, MAGA again minstrelsy. https://www.youtube.com/watch?v=UBxZFadp9Pw
+
