@@ -7,7 +7,7 @@
 ++ Entertainment focus     
 ++ "Just like The Onion!" Kremlin and White House     
 ++ Recency bias     
-++ Wiki organized Powerwould presentaiton would solve    
+++ Wiki organized Powerpoint (Open Office Impress)  presentaiton would solve    
 ++ Wiki getting on same page of important matters would solve    
 
 
