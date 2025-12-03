@@ -642,3 +642,6 @@ https://old.reddit.com/r/law/comments/1pckhx3/white_house_defends_releasing_jail
 
 Yes. Inverted monomyth Surkov inforamtion warfare. Inverted symbols in the mind. People aren't asking how it started, when it started, learning the name of the "Internet Research Agency" and the mind doctors / mentalh health doctors of Cambridge Analytica - what exactly are the long-term outcomes of a military mental manipulation team. People can't recognize that Trump trusts Putin, and then people trust Trump. For all the wrong, inverted, backwards reasons. OPERA_A How long has Russian won the information war of hearts and minds being attracted to badness? How long have the White House friends in Russia with their fancy manipulation skills... https://www.youtube.com/watch?v=rmGiLAsbm0Q
 
+https://old.reddit.com/r/Art/comments/1pcjitj/print_update_on_unbanning_users/nry3ooe/
+
+Reddit USA leading the way. Block-happy, egoism deportation via ICE, systems of banning / removing people. Praise of powerful systems, hate of human persons.
