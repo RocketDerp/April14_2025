@@ -662,5 +662,6 @@ https://old.reddit.com/r/worldnews/comments/1pcrea1/us_threatens_hell_to_pay_for
 
 https://old.reddit.com/r/worldnews/comments/1pcrea1/us_threatens_hell_to_pay_for_honduras_after/nrzy6hb/
 
-OPERA_A Pretzel Logic. Minstrel Show of Trump bad-mouthing Obama and Kamala - those days are back agai, MAGA again minstrelsy. https://www.youtube.com/watch?v=UBxZFadp9Pw
+<img width="814" height="378" alt="image" src="https://github.com/user-attachments/assets/d02ef3e1-0c74-4730-8a70-c2e1c3968179" /> OPERA_A Pretzel Logic. Minstrel Show of Trump bad-mouthing Obama and Kamala - those days are back agai, MAGA again minstrelsy. https://www.youtube.com/watch?v=UBxZFadp9Pw
+
 
