@@ -49,7 +49,7 @@ CAMPBELL: The message of the caves is of a relationship of time to eternal power
 
 ## Before The True Detective Training Wheels   
 
-Before the Trainng Wheels of 2-dective "buddy cop" characters... of Seasohn Two deepest dives. Intentioanl or otherwise (sing along, singsong).
+Before the Trainng Wheels of 2-dective "buddy cop" characters... of Seasohn Two deepest dives seasoning / spiked punch_ing up / salted bomb Bohemian Grove salting of Manhattan Project. Writers Intentionals or otherwise (sing along, singsong).
 
 My USA Hollywood *Civic Ditty* against Surkov.    
 https://www.youtube.com/watch?v=4eHc0pqj2v8
