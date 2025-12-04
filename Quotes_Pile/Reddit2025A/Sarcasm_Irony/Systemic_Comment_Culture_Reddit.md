@@ -12,7 +12,7 @@ In general, regarding peer to peer commenting:
 
 6. Artificial intelligence in year 2025 is suspending users when detecting back and forth criticism being reported as "harrasment". A tactic of information warfare, the reporting itself.
 
-7. A culture of fear and anxiety that the secret police will ban you when other users abuse the "report" button to draw attention to your standing up to bully / calling out the frequency of public attack replies / calling out the low-effort noise reply comments to serious topics / important non-joke topics. Because you are supposed to NOT call-out other commentreplies - you are supposed to 911 the secret Reddit police to "deal with" the problems for you. Which if you don't agree with how the Reddit I.C.E. secret police operate in secret... you end up having to just be silent and neither report the banality / noise / joke (on a Gaza topic of children starvation, I quoted a nonfiction book,and I got a "Sir, this is a Wendy's" comment nosie attack). Systemic joke-washing informaiton warfare. But I think the I.C.E. secret police moderation culture does not PUBICALY, unmaksed in public, stand up to the information warfare tactics. So I don't report it to the secret Reddit 911 police.
+7. A culture of fear and anxiety that the secret police will ban you when other users abuse the "report" button to draw attention to your standing up to bully / calling out the frequency of public attack replies / calling out the low-effort noise reply comments to serious topics / important non-joke topics. Because you are supposed to NOT call-out other comment replies - you are supposed to speed-dial 911 the secret Reddit police to "deal with" the problems for you. Not critize the reply comments attacking you. Which if **you don't agree with how the Reddit I.C.E. secret police (face masked) operate** in secret... you end up having to just be silent and neither report the banality / noise / joke (on a Gaza topic of children starvation, I quoted a nonfiction book,and I got a "Sir, this is a Wendy's" comment nosie attack). Systemic joke-washing informaiton warfare. But I think the I.C.E. secret police moderation culture does not PUBICALY, unmaksed in public, stand up to the information warfare tactics. So I don't report it to the secret Reddit 911 police.
 
 8. "Do not feed the trolls" is taken as perfect, always correct, blind faith. Unquestioned faith. That goes back decades on the Internet and should never ever be questioned.
 
@@ -58,3 +58,10 @@ That is what Reddit has done to USA society regarding politics. Group A hate gro
 
 A culture of postig conteent and creating comments to gin up hate. A school of hate. A teachng center of anti-goodness. A teaching center of how powerful hate and dehumanization and deporting and disapeparin gpeople is - and how great it is that you hate *the other people* who "get what they deserve" of hate and "fuck around and find out" revenge /lessons / payback. Prizing hate. Prizing mob mentality training camp.
 
+&nbsp;
+
+&nbsp;
+
+### Edit mess
+
+I wrote this at 4:00am and my braiin damage from Donald Trump White House / Elon Musk Twitter nation in December 2025 is terrible. Editing this is a painful mess. I witness so much hate mongering machie lust dehumanization at the hands of billionaire Fox News, Elon Musk Twitter, Bluesky and Reddit. So much "love the deport via I.C.E. button, hate the human person" polarity logic of technology love... blah blah blah burnout mind society. Burned out hate-filled Donald Trump mass dehumanization reactionary USA  every single day, hour after hour, USA 2025.
