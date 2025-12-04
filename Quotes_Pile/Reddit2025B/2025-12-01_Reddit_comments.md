@@ -883,3 +883,20 @@ Report to the secret police, removed. And only because it is entertainment conte
 https://old.reddit.com/r/sysadmin/comments/1pe971k/a_coworker_died_yesterday_theres_an_important/nsaqb6i/
 
 <img width="906" height="270" alt="image" src="https://github.com/user-attachments/assets/996a4f61-d747-4891-b0b5-f5eae71212ca" /> "DO NOT LOVE YOUR NEIGHBOR" messages on Reddit. Mass dehumanizaiton is popular. Popular is toxic. "Just doing my Job, I'm Busienssman Donald J Trump leading the Businessman Rupert Murdoch nation", because it's all jsut *fuck-over peple with your American Corporation / Workplace system* and Reddit messaging System. Putinism, MAXIMUM Putinism. As the post says, waking hours / woke wake / all at work. In service to Donald J Trump since June 15, 2015. Tools of Corpos. Just follow the orders of businessmen. Don't resist conditoned dehumanization via business clergy. USA values 2025.
+
+https://old.reddit.com/r/worldnews/comments/1pe9618/zelenskys_jet_in_nearmiss_with_four_drones_report/nsaqe4u/
+
+Russia's great game is Hyper Normal. Experts at making horror normal via media systems / IRA. https://en.wikipedia.org/wiki/HyperNormalisation
+
+https://old.reddit.com/r/worldnews/comments/1pe9618/zelenskys_jet_in_nearmiss_with_four_drones_report/nsb5b50/
+
+novichok
+
+https://old.reddit.com/r/worldnews/comments/1pe9618/zelenskys_jet_in_nearmiss_with_four_drones_report/nsay5o4/
+
+Jen Senko should be mentioned like Epstein name-drop on every Fox News comment.
+
+https://old.reddit.com/r/worldnews/comments/1pe9618/zelenskys_jet_in_nearmiss_with_four_drones_report/nsb4y7p/
+
+Reddit audience rich white men sex desires. Constnatly bowing down to the sex fantasy of Trump.
+
