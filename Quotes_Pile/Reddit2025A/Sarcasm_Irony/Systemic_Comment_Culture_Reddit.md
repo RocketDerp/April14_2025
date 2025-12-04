@@ -64,6 +64,28 @@ A culture of postig conteent and creating comments to gin up hate. A school of h
 
 &nbsp;
 
+&nbsp;
+
+## My Systemic concern, Surkovian
+
+Reddit wasn't like this before year 2014. The Internet Research Agency of Russia / Moscow organization was opened in year 2013.
+
+&nbsp;
+
+"would go on to call the Fifth World War. The first nonlinear war of all against all. Which is a description by Vladislav Surkov, who sort of the ennui ??? of Russian politics, of the current (year 2014) war around Ukraine. um, so, I started working in Russian TV"
+
+video clip: https://youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ     
+Video was published December 5, 2014 describing the past, what was already going on in December 2014.
+
+Today is December 4, 2025. I haven't forgotten this Youtube publication December 5. ELEVEN YEARS AGO. And how things were NOT THIS WAY before the Internet Research Agency seeded out-group hate patterns on Reddit.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+
 ### Edit mess
 
 I wrote this at 4:00am and my braiin damage from Donald Trump White House / Elon Musk Twitter nation in December 2025 is terrible. Editing this is a painful mess. I witness so much hate mongering machie lust dehumanization at the hands of billionaire Fox News, Elon Musk Twitter, Bluesky and Reddit. So much "love the deport via I.C.E. button, hate the human person" polarity logic of technology love... blah blah blah burnout mind society. Burned out hate-filled Donald Trump mass dehumanization reactionary USA  every single day, hour after hour, USA 2025.
