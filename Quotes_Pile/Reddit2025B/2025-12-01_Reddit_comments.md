@@ -876,3 +876,7 @@ https://old.reddit.com/r/TikTokCringe/comments/1pe0rfi/a_university_of_oklahoma_
 
 Yes, these people are serious. and mind-blown "OMFG" on Reddit. Constant antics MonoMyth mind-fuck, MonoMyth warfare against the USA population since year 2013. Surkov won.
 
+https://old.reddit.com/r/KitchenConfidential/comments/1pe0g2l/waaaah/ns8w5vv/
+
+Report to the secret police, removed. And only because it is entertainment content that the audience stands up for "The Little Guy" on Reddit. Getting people banned / suspended / shut down is all the I.C.E. masked faces under Trump / White House media leverage game on Reddit.
+
