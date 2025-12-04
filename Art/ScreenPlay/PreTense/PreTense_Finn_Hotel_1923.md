@@ -15,3 +15,7 @@ Word-choice, word selections.
 "Marshall McLuhan used James Joyce's Finnegans Wake as a major inspiration for this study of war throughout history as an indicator as to how war may be conducted **in the future*." - year 1968
 
 https://en.wikipedia.org/wiki/War_and_Peace_in_the_Global_Village
+
+&nbsp;
+
+ToDo: Pretence / Pretense spelling Wake/Woke Joyce.
