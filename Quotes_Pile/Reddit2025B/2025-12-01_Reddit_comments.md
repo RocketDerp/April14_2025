@@ -785,3 +785,6 @@ https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-des
 
 He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
 
+https://old.reddit.com/r/FedEmployees/comments/1pe03hy/the_constitution_has_been_taken_off_the_white/ns93av1/
+
+Reddit audience mind-fuck messages. Downplay, comedy-wash, South Park / "The Office" wash reality. Reality TV entertainer leader mental conditioning. "The Office" being a simulation of Executive Office White House mind exploitation. This is how Surkov won, Russia won since year 2013. Wrapping everything up as amusement entertainment. The Constitution is The Office simulacra for jokes to meme addicts on meme sites.
