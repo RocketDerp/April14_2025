@@ -73,7 +73,9 @@ Every minute of every day someone is posting on social media "demntia!" "senile!
 
 University of Tornto published this in year 1962. Joseph Campbell was publishing this in 1970 as recorded by WNYC radio station. 
 
-Have we abandoned this self-awareness of science fiction storytelling? Of literacy, literature? And we are now in feedback loops of mocking science fiction fandom against science fiction fandom?
+Have we abandoned this self-awareness of science fiction storytelling? Of literacy, literature? And we are now in feedback loops of mocking science fiction fandom against science fiction fandom? Repeating, iterating like The Wake ending begins:
+
+* “Schizophrenia may be a necessary consequence of literacy.” ― Marshall McLuhan, University of Toronto, media studies / media ecology, [La galaxia Gutenberg: Génesis del homo typographicus](https://en.wikipedia.org/wiki/The_Gutenberg_Galaxy), year 1962, page 32
 
 &nbsp;
 
