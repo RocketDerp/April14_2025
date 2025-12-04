@@ -800,3 +800,11 @@ A lot of misinformation spreading. Anti-wiki disposable-commetning no-identity R
 https://old.reddit.com/r/worldnews/comments/1pdynk0/macron_warned_us_could_betray_ukraine_in_leaked/ns8jfbv/
 
 War on Reality since year 2013...
+
+https://old.reddit.com/r/Economics/comments/1pdzhxt/adp_report_warns_trumps_tariffs_are_backfiring/ns96tcu/
+
+What we did not learn in school was NYU / NYC / Manhattan's Neil Postman media ecology. How entertainment and amusement long-term focus of Donald Trump defeats all sober education. Serious learning gets abandoned when mocking and insulting and name calling takes over. Fiction outsells nonfiction. Trump provides ecgoism and fiction. The school sports games are what people remember, not the boring Wikipedia.
+
+https://old.reddit.com/r/Economics/comments/1pdzhxt/adp_report_warns_trumps_tariffs_are_backfiring/ns8v04u/
+
+"Hate Thy Enemy", "Hate Thy Neighbor", "Hate Nighbors in Canada", "Hate Neighbors in Mexico", "Hate Neighobrs of MAGA, hate Libtards", "Hate and block", "deport and block"... it's EVERY AREA OF SOCIETY. It is routine and normal on Reddit to silence and deport / block / dehumanize with machines. It was not normal before year 2013. Surkov won every area of society. Learning doesn't work when people prize hate. When hate is normal. We ALL need to be [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md)
