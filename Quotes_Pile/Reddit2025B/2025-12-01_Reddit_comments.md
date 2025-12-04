@@ -796,3 +796,7 @@ The hate doesn't cocern the top-voted Reddit audience. Just word choice fixation
 https://old.reddit.com/r/worldnews/comments/1pdynk0/macron_warned_us_could_betray_ukraine_in_leaked/ns8k1vd/
 
 A lot of misinformation spreading. Anti-wiki disposable-commetning no-identity Reddit commenting since March 2013. Russia won, Surkov won, IRA won.
+
+https://old.reddit.com/r/worldnews/comments/1pdynk0/macron_warned_us_could_betray_ukraine_in_leaked/ns8jfbv/
+
+War on Reality since year 2013...
