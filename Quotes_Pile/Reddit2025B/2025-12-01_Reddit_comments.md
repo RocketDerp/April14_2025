@@ -788,3 +788,7 @@ He continued, "And our job is to get, is to drop the bucket further down the wel
 https://old.reddit.com/r/FedEmployees/comments/1pe03hy/the_constitution_has_been_taken_off_the_white/ns93av1/
 
 Reddit audience mind-fuck messages. Downplay, comedy-wash, South Park / "The Office" wash reality. Reality TV entertainer leader mental conditioning. "The Office" being a simulation of Executive Office White House mind exploitation. This is how Surkov won, Russia won since year 2013. Wrapping everything up as amusement entertainment. The Constitution is The Office simulacra for jokes to meme addicts on meme sites.
+
+https://old.reddit.com/r/formula1/comments/1pdyo5a/the_race_max_verstappen_contacted_kimi_antonelli/ns8hzi7/
+
+The hate doesn't cocern the top-voted Reddit audience. Just word choice fixations. Hate normal, normalized, in machine lust fandom. Anti-humanism fandom, machine lovers. The "brainless" dehumanizing, the non-offering of media ecology education. Racing cars is in the very media ecology song of Roger Waters. OPERA_A our last few jars of caviar at the Furmula 1 fandom hotel room. https://www.youtube.com/watch?v=sD9igYnVzXI
