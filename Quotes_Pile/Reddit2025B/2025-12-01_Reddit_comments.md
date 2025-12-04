@@ -880,3 +880,6 @@ https://old.reddit.com/r/KitchenConfidential/comments/1pe0g2l/waaaah/ns8w5vv/
 
 Report to the secret police, removed. And only because it is entertainment content that the audience stands up for "The Little Guy" on Reddit. Getting people banned / suspended / shut down is all the I.C.E. masked faces under Trump / White House media leverage game on Reddit.
 
+https://old.reddit.com/r/sysadmin/comments/1pe971k/a_coworker_died_yesterday_theres_an_important/nsaqb6i/
+
+<img width="906" height="270" alt="image" src="https://github.com/user-attachments/assets/996a4f61-d747-4891-b0b5-f5eae71212ca" /> "DO NOT LOVE YOUR NEIGHBOR" messages on Reddit. Mass dehumanizaiton is popular. Popular is toxic. "Just doing my Job, I'm Busienssman Donald J Trump leading the Businessman Rupert Murdoch nation", because it's all jsut *fuck-over peple with your American Corporation / Workplace system* and Reddit messaging System. Putinism, MAXIMUM Putinism. As the post says, waking hours / woke wake / all at work. In service to Donald J Trump since June 15, 2015. Tools of Corpos. Just follow the orders of businessmen. Don't resist conditoned dehumanization via business clergy. USA values 2025.
