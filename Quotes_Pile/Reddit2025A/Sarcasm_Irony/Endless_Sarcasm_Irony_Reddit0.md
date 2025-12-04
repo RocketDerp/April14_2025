@@ -1706,3 +1706,13 @@ A paradox meme bomb / message bomb into the Reddit audience. Blows the minds of 
 Kremlin podium right into the brains of Reddit audience meme addicts / touch device addicts intimate with their touches of downvoting in raging egoism / self-centered tree after tree nut picking, cherry avoiding. Gun brands memroized, Surkov name not known since year 2011. October 20, 2011: https://www.lrb.co.uk/the-paper/v33/n20/peter-pomerantsev/putin-s-rasputin - Reddit end-users can't even fucking NAME Rasputin! But Reddit society can correct you instantly if you get a model of ammunition for military *hardware* incorrect. But Reddit Bluesky consumers can't correct you that the White House is using Surkovian *software* military mind-fuck techniques (wetware, mindware, brainware, Surkov students monomyth opcodes) in December 2025.
 
 OPERA_A Did you *exchange* We The People Great Seal USA Mass Mind... *traded for*... Kremlin Surkovian mind-fuck monomyth collections https://www.youtube.com/watch?v=ncaCLOHd90o
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/law/comments/1pdz4hu/the_constitution_has_been_taken_off_the_white/
+
+More media mania antics. Moving World Wide Web media around to trigger We The People. Surkovian / Surkov governing methods. Creating constant stimulation via media systems. Reddit audiences eat this up and can not name "Internet Research Agency" or Surkov. People who use Reddit can name every hardware military device part of guns and weapon systems, the proper ammunition of a physical hardware kiilling device and their creators. But cannot name Surkov in mind-fucking via Reddit media / social media Surkov manipualtion techniques! There is no self-awarenss on social media systems of organized mental manipulation beyond parroting thought-ending phrases like "bot". No name of the architects of military weapons of the mind, only knowledge of military physical hardware!!!! People can't name Rupert Murdoch or Surkov or the players of Campbridge Analytica military!
