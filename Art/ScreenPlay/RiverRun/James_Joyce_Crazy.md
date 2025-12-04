@@ -14,11 +14,11 @@ In a diagnostic, which Mr. Ellmann does not like, Jung wrote that "the relations
 &nbsp;
 
 
-## Married Joyceians 
+## Married [Joyceians](https://en.wikipedia.org/wiki/Joycean) / [Wakeian](http://hjs.ff.cuni.cz/archives/v1/framed/tft1.html) teachers 
 
-Jean and Joseph. J & J, teacher and student, student and teacher. Two experts in Joyce. In USA New York City and Hawaii, no Irish nationalism motives of Dublin storytelling.
+Jean and Joseph. J & J, teacher and student, student and teacher. Two experts in Joyce. In USA New York City and Hawaii. Ameiricans, outside Irish nationalism motives of Dublin storytelling. Just as Marshall McLuhan is outside Ireland.
 
-Joseph Campbell Foundation to this very day published this association: "James Joyce’s daughter, Lucia Joyce, in the early 1930s consulted Carl Jung as a last resort in dealing with her psychic ailments. Jung did not hesitate to interpret her mental condition as a kind of symptom, the product of being imbued into the titanic spiritual currents with which her father was contending. The presumption is that her father’s creative genius exposed her to the strongest waves of the archetypal psyche from a very young age." https://www.jcf.org/post/the-sacrificial-wheel-of-fortune
+* Joseph Campbell Foundation to this very day published this mental health association: "James Joyce’s daughter, Lucia Joyce, in the early 1930s consulted Carl Jung as a last resort in dealing with her psychic ailments. Jung did not hesitate to interpret her mental condition as a kind of symptom, the product of being imbued into the titanic spiritual currents with which her father was contending. The presumption is that her father’s creative genius exposed her to the strongest waves of the archetypal psyche from a very young age." https://www.jcf.org/post/the-sacrificial-wheel-of-fortune
 
 &nbsp;
 
