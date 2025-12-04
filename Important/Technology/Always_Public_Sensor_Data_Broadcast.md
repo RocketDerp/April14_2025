@@ -39,3 +39,6 @@ A signal that can be sent out that there will be a brief intrruption and the exp
 
 Even a backup / emergency -use device (thaht fire departments / fire trucks could have / or cell towers have) could provide this function if the permanent source is destroyed.
 
+# Objectives: cost
+
+Leverage existing smartphone / hobby hardware protocols like WiFi that can be leveraged quickly and flexibly with many software apps to monitor and let user decide how to mind the signals.
