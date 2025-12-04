@@ -34,7 +34,9 @@ Because there is another aspect of Reddit commenting culture:
 
 3. Sometimes comments about a person mentioned / group mentioned that is not the posting subject. Such as the posting being about JD Vance, but the someone in the comment brings up Donald Trump (who is not mentionedin the posting in this example)
 
-4. The idea of discussing people that are NOT in the commenting. But are the "target" or "topic"fo the commenting.
+4. The idea of discussing people that are NOT in the commenting. But are the "target" or "topic" of the commenting.
+
+5. Reddit becomes like Iran and Yemen where public people get togehter and all hate upon an outside nation - Israel and USA. A hate-mongering, anti-goodness, anti-comprehension, anti-Malala, anti-education, anti-teaching hate rally / hate *normalization* rituals.  https://combatantisemitism.org/cam-news/weaponizing-hate-how-pro-iran-protests-are-inciting-global-antisemitism/
 
 That is when this aspect of Reddit commenting culture comes out:
 
@@ -46,7 +48,7 @@ That is when this aspect of Reddit commenting culture comes out:
 
 4. Not thoughtful criticism, but ginned up hate. Hate mongering.
 
-It is criticism of this behavior of society, this prizing of hate / prizing of dehumanization. It becomes a dehumanization mind programming training camp. A terrorism training camp agaonst USA people. Not to seek out undertanding, but to call humans as non-human "pieces of shit" who "deserve" negative outcomes.
+It is criticism of this behavior of society, this prizing of hate / prizing of dehumanization / organized bullying / prizing of mobmentality - that will get you banned if you reply to a comment criticizing such attitudes. Reddit commenting becomes a dehumanization mind programming training camp. A terrorism training camp agaonst USA people. Not to seek out undertanding, but to call humans as non-human "pieces of shit" who "deserve" negative outcomes. Not an attiude of "we can do better" as a human spcies, but an attitude of hate for hate. Hate vs. hate. Prizing hate. Ginning up hate.
 
 It is a culture where lust for high-speed messaging communicats to create mob mentality of love the touch device for power to hate human persons.
 
