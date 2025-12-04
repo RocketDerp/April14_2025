@@ -706,3 +706,7 @@ https://old.reddit.com/r/technology/comments/1pdgw7r/reddits_ceo_says_rpopular_s
 
 Anti-wiki, recency bias.
 
+https://old.reddit.com/r/AITAH/comments/1pdikof/aita_for_telling_my_husband_that_i_am_going_back/ns5fibn/
+
+Capturing the main posting text for delete.
+
