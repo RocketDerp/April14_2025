@@ -485,3 +485,10 @@ BONUS: the "corpse serving" line on Wikipedia of "Annie" serving the corpse is p
 
 SEE ALSO: associations I have made with NHP singsong blog story and carrying the corpse of a dead woman with album cover of Steely Dan's (Wienhouse Jazz, Dandom rock jazz) "Alive in America" corpse of a woman.
 
+&nbsp;
+
+https://old.reddit.com/r/clevercomebacks/comments/1pe4zvw/wealthy_love_with_no_arguments/    
+
+https://old.reddit.com/r/MurderedByWords/comments/1pe4z79/wealthy_love_with_no_arguments/
+
+Maybe "arguing" ignores songs / poetry / travel  / metaphors in motion. Body langauge of songwriting body of work.  A different use of "arguing" about "decision making" and "understanding" other minds.
