@@ -768,4 +768,20 @@ https://old.reddit.com/r/law/comments/1pdz4hu/the_constitution_has_been_taken_of
 
 <img width="1044" height="530" alt="image" src="https://github.com/user-attachments/assets/27729ff6-5e84-4a45-85d0-b675379d0522" /> Putin won, Surkov won, since March 2013. NATO lost. Hearts and minds programmed to self-harm NATO and self-harm USA. Attack Canada 2025. Alas, notice this Reddit comment message has no: link, author names, book quotes, book titles, etc. Peter P not quoted, September 9, 2014 article on The Atlantic avoided https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - AND AS SOON as this Reddit post hit the top of front page of Reddit /r/All - the secret I.C.E. masked police force of Reddit removed it. Johny on the stop of morning December 4, 2025 Luigi Manhattan day.  <img width="1514" height="610" alt="image" src="https://github.com/user-attachments/assets/5d8c05fe-ce10-4b0b-ac5e-fa44dcbfbfb2" />
 
+https://old.reddit.com/r/FedEmployees/comments/1pe03hy/the_constitution_has_been_taken_off_the_white/ns8tv8g/
+
+Denial abounds. That it was removed from front page of Reddit media system. Following lead of White House removing it, Reddit secret face-maked I.C.E force removed it.
+
+https://old.reddit.com/r/FedEmployees/comments/1pe03hy/the_constitution_has_been_taken_off_the_white/ns8v4n4/
+
+The antics will still hit. This message is to informm the Reddit audience that this is all normal. Not to take any of this seriously. Business as usual, meme amusement as usual continues.
+
+https://old.reddit.com/r/FedEmployees/comments/1pe03hy/the_constitution_has_been_taken_off_the_white/ns916uv/
+
+It's about emotional. The removals are engagement, emotions, drama. Media cult content. Reddit audience / Bluesky audience cult content. Fox News HDTV audience cult content. Information manipulation emotions. ... ... ..        
+https://www.cbsnews.com/news/cambridge-analytica-ceo-alexander-nix-data-firm-describes-shadow-election-tactics-2018-03-19/
+
+"The two fundamental human driver when it comes to taking information on board effectively are hopes and fears, and many of those are unspoken and the even unconscious -- you didn't know that was a fear until you saw something that just evoked that reaction from you," Turnbull explained in a meeting with a reporter posing as "Ranjan," a prospective client from Sri Lanka.
+
+He continued, "And our job is to get, is to drop the bucket further down the well than anybody else to understand what are those really deep-seated underlying fears, concerns. There is no good fighting an election campaign on the facts because actually it's all about emotion."
 
