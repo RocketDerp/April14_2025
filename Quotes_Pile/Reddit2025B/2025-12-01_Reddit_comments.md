@@ -851,3 +851,14 @@ https://old.reddit.com/r/Music/comments/1pe32kf/fox_news_viewers_turn_on_host_as
 
 Fox News is a langauge. And Reddit commenting audience refuses to cite nonfiction serious discussing how we are in an information war will billionares rewriting langauge and reality itself. September 16, 2020: https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ - Finnegans Wake language media ecology is critical self-awareness, defense against the Fall of Wall Street, Murdoch, Earwicker.
 
+https://old.reddit.com/r/ProgressiveHQ/comments/1pe4nms/dui_hire_pete_kegseth_judge_jury_executioner/ns9v6gy/
+
+Reddit consumers do the rich bidding in not asserting Jen Senko against the media empires of Fox News - where Pete comes from... https://en.wikipedia.org/wiki/The_Brainwashing_of_My_Dad
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1pe4nms/dui_hire_pete_kegseth_judge_jury_executioner/ns9w7ri/
+
+Putin won, Surkov won. National intelligence and Rupert Murdoch Fox News intelligence: https://www.theguardian.com/us-news/2024/nov/16/trump-cabinet-tulsi-gabbard-democratic-reactions
+
+https://old.reddit.com/r/ProgressiveHQ/comments/1pe4nms/dui_hire_pete_kegseth_judge_jury_executioner/nsa44gl/
+
+New reddit account. Open Season on USA Reddit users.
