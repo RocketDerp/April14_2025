@@ -743,3 +743,28 @@ https://old.reddit.com/r/pcmasterrace/comments/1pdqtjw/this_sub_be_like/ns7iyrb/
 Yes. And few on Reddit are self-aware. People are so concerned with self-dehumanizating their real life and real name on Reddit while promoting the real names of Elon Musk and Donald Trump and other rich and powerful people all the time. Unimportancing thier own lives, making fame the controller of reality. Donald Trump Reality TV master, entertainmet masters, rule the USA since June 16, 2015.
 
 https://old.reddit.com/r/memes/comments/1pdw0ag/double_standards/ns85hiz/
+
+https://old.reddit.com/r/law/comments/1pdz4hu/the_constitution_has_been_taken_off_the_white/ns8rekz/
+
+<img width="912" height="718" alt="image" src="https://github.com/user-attachments/assets/4abd3edf-f325-4953-bc57-af794e33eaec" /> yet Reddit users cheer on John Steart and Kimmel and all laugh-based washing of serious matters. The constantly "Amusing Ourselves To Death" that Neil Postman wrote about **POTUS** in 1985 book. A book about [Howdy Doody President Threat to We The People / Society](../Specific/Postman_1985_Howdy_Doody.md) - that people will not take serious. People will not turn to NONFICTION on social media and cite these issues and name authors and **all get on the same pages**. Cpmedy-washing is DRIVING society! Dehumanization via "just a joke prank, bro!" culture since the Putin Media Invasion / Operation Matthew 4:19 / was initiated in November 2012! Russia won, Surkov won! South Park and Reddit and Bluesky and EVERYONE is eating out of the Kremlin Surkov students hands! STUDY NEIL POSTMAN, WAKE UP TO MEDIA ECOLOGY LEARNING!
+
+https://old.reddit.com/r/law/comments/1pdz4hu/the_constitution_has_been_taken_off_the_white/ns8uvbk/
+
+Laugh-washing, joke-washinng, brain explitation via *blowing minds* with LOL / LMAO is the core of Reddit USA culture and White House USA culture since June 16, 2015. Russia won, Putin won, *Surkov* won. Minds blown constantly by laughing and joking. Neil Postman, NYC, was correct in year 1985.
+
+https://old.reddit.com/r/law/comments/1pdz4hu/the_constitution_has_been_taken_off_the_white/ns8mbfr/
+
+USA society in year 2025 values:: *Hate harder*, Hate Thy Neighbor, Hate Thy Enemy, Hate MAGA, Hate Repulbicans, Hate Democrats, Hate as Faith, Hate as Religion, Hate as common ground, Hate Ukraine, Hate for Hate, Hate vs. Hate, Always More Hate, Hate Canadians, Hate Americans. WHATEVER YOU DO: Do not learn or quote or teach nonficiton about Russian information warfare. That's a core USA value on social media societey.
+
+https://old.reddit.com/r/law/comments/1pdz4hu/the_constitution_has_been_taken_off_the_white/ns8mxpe/
+
+All started in year 2013 with the Putin Media Invasion. Operation Matthew 4:19.
+
+https://old.reddit.com/r/law/comments/1pdz4hu/the_constitution_has_been_taken_off_the_white/ns8rpgs/
+
+Bible literacy problem. Yet, social media addicts won't HALT entertainment and start teaching Americans Bible Literacy. Bible verse "1 John 3:17" and "1 John 4:20" and how they apply to D.O.G.E. Elon Musk and Trump White House and Rupert Murdoch Fox News. People are not sustaining repeating front-page teaching on Bluesky and Reddit. Will not assert Bible verse "1 John 3:17" and how it relates to Donald Trump and MAGA.
+
+https://old.reddit.com/r/law/comments/1pdz4hu/the_constitution_has_been_taken_off_the_white/ns8oktq/
+
+<img width="1044" height="530" alt="image" src="https://github.com/user-attachments/assets/27729ff6-5e84-4a45-85d0-b675379d0522" /> Putin won, Surkov won, since March 2013. NATO lost. Hearts and minds programmed to self-harm NATO and self-harm USA. Attack Canada 2025. Alas, notice this Reddit comment message has no: link, author names, book quotes, book titles, etc. Peter P not quoted, September 9, 2014 article on The Atlantic avoided https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/
+
