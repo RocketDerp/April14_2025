@@ -3,20 +3,30 @@
 In general, regarding peer to peer commenting:
 
 1. You will be banned for criticizing another peer commenting user for replying to you.
+  
+3. WWhat you are SUPPOSED to do is "report" the comment to the moderators and owners, and let THEM criticize the person that replied to you. Report insults and attacks to the "secret police" moderators / owners who operate with I.C.E. face-masks against the person you "reported" for reply. You are not to call out bullying, call out artifical intelligence claims - you are to telephone 911 secret police with the report button.
 
-2. Admins / Ownersof the site silence / remove / suspend / ban users who criticize other users for their morality. In peer to peer commenting.
+4. Admins / Owners of the site silence / remove / suspend / ban users who criticize other users for their morality. In peer to peer commenting.
 
-3. Suspending / silencing users is done in secret police / reporting to secret Reddit admin police fashion.
+5. Suspending / silencing users is done in secret police / reporting to secret Reddit admin police fashion.
 
-4. Artificial intelligence in year 2025 is suspending users when detecting back and forth criticism being reported as "harrasment". A tactic of information warfare, the reporting itself.
+6. Artificial intelligence in year 2025 is suspending users when detecting back and forth criticism being reported as "harrasment". A tactic of information warfare, the reporting itself.
+
+7. A culture of fear and anxiety that the secret police will ban you when other users abuse the "report" button to draw attention to your standing up to bully / calling out the frequency of public attack replies / calling out the low-effort noise reply comments to serious topics / important non-joke topics. Because you are supposed to NOT call-out other commentreplies - you are supposed to 911 the secret Reddit police to "deal with" the problems for you. Which if you don't agree with how the Reddit I.C.E. secret police operate in secret... you end up having to just be silent and neither report the banality / noise / joke (on a Gaza topic of children starvation, I quoted a nonfiction book,and I got a "Sir, this is a Wendy's" comment nosie attack). Systemic joke-washing informaiton warfare. But I think the I.C.E. secret police moderation culture does not PUBICALY, unmaksed in public, stand up to the information warfare tactics. So I don't report it to the secret Reddit 911 police.
+
+8. "Do not feed the trolls" is taken as perfect, always correct, blind faith. Unquestioned faith. That goes back decades on the Internet and should never ever be questioned.
+
+9. "Do not feed the trolls" is now: "report people to the I.C.E. 911 Reddit secret police and have them disappeared". That is how people "do not feed the trolls", by feeding the Trump-controlled / White House / NSA / media owners of Reddit corporation - secret police **DO FEED THE SECRET POLICE WHO DISAPPEAR REDDIT USERS**. That's where "do not feed the trolls" has lead to.
 
 &nbsp;
 
-Ok,, it is Reddit's bar and grill,tavern, they can have their own rules on how patrons interact with each other. Even if the rules are not very good.
+&nbsp;
 
-But that's not the reason I created this GitHub page on the topic.
+Ok, it is Reddit's bar and grill, tavern, they (Corporate America under Trump "the media" behind the company direction) can have their own rules on how patrons interact with each other. Even if the rules are not very good. Private ownership with Donald Trump White House direting media corporations. Elon Musk directing media corporations. Private system, private laws of secret police / policy.
 
-Because there is another aspect of commenting culture:
+But that's not the even deeper reason I created this GitHub page on the topic.
+
+Because there is another aspect of Reddit commenting culture:
 
 1. Posting of news stories and screen shots of persons OFF of Reddit. Such as on /r/LeopardsAtMyFace or such as /r/Politics about Elon Musk or JD Vance
 
@@ -46,4 +56,5 @@ It is a toxic culure, hate breeder reactor, reactionary training mindset. And pe
 
 That is what Reddit has done to USA society regarding politics. Group A hate group B, group B hates group C, group C hates gorup A, on and on in patterns of circulur hate prizing. A united common faith of *hate thy enemy*, *hate thy neighbor*.
 
-A culture of postig conteent and creating comments to gin up hate.
+A culture of postig conteent and creating comments to gin up hate. A school of hate. A teachng center of anti-goodness. A teaching center of how powerful hate and dehumanization and deporting and disapeparin gpeople is - and how great it is that you hate *the other people* who "get what they deserve" of hate and "fuck around and find out" revenge /lessons / payback. Prizing hate. Prizing mob mentality training camp.
+
