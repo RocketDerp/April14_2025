@@ -1724,3 +1724,12 @@ More media mania antics. Moving World Wide Web media around to trigger We The Pe
 https://old.reddit.com/r/Economics/comments/1pdzhxt/adp_report_warns_trumps_tariffs_are_backfiring/
 
 Right on front page of Reddit and on other websites about ADP. Will trigger simple-thinking mindsets, bi-polar reactions. Shotting fish in a barell, Trump makes mockery actions that mock small business in favor of one corporate empire... and people mock back. Trump has faith in mockery, Reddit audience has faith in mockery, a shared common faith. Endless paradox mocking instead of calling out that there is a Surkov (NAME SURKOV!) technique being used here, Surkov sudent mehods. Power and wealth concentration since year 2013 using surreal / absurd antics choices. 256 pages, published **year 2014**... "Nothing Is True and Everything Is Possible: The **Surreal Heart of the New Russia is a 2014 book** by Peter Pomerantsev. It focuses on the political developments in Russia in the early 21st century and the culture of Russian media." https://en.wikipedia.org/wiki/Nothing_Is_True_and_Everything_Is_Possible - Kremlin won, NATO and USA lost! Reddit will not learn the names and repeat them like Epstein list and get rid of deception-based leadership systems!
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1pe9xyu/people_tend_to_forget_who_was_president_from/
+
+And ANOTHER paradox on Front Page of Reddit that the mass man of society is havingm massive information overload / meme overload problems. And no call to get on the same page of critical important understanding. Reddit audience drowns the whoe World Wide Web in triva just as Neil Postman 1985 described the trivia issue. People not calling for SERIOUS AND IMPORTANT TOPICS of humanism to be addressed. Instead: sports, games, etc.
+
