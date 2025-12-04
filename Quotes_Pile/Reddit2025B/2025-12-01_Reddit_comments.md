@@ -792,3 +792,7 @@ Reddit audience mind-fuck messages. Downplay, comedy-wash, South Park / "The Off
 https://old.reddit.com/r/formula1/comments/1pdyo5a/the_race_max_verstappen_contacted_kimi_antonelli/ns8hzi7/
 
 The hate doesn't cocern the top-voted Reddit audience. Just word choice fixations. Hate normal, normalized, in machine lust fandom. Anti-humanism fandom, machine lovers. The "brainless" dehumanizing, the non-offering of media ecology education. Racing cars is in the very media ecology song of Roger Waters. OPERA_A our last few jars of caviar at the Furmula 1 fandom hotel room. https://www.youtube.com/watch?v=sD9igYnVzXI
+
+https://old.reddit.com/r/worldnews/comments/1pdynk0/macron_warned_us_could_betray_ukraine_in_leaked/ns8k1vd/
+
+A lot of misinformation spreading. Anti-wiki disposable-commetning no-identity Reddit commenting since March 2013. Russia won, Surkov won, IRA won.
