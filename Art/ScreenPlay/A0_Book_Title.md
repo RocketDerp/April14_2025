@@ -73,7 +73,10 @@ Metaphor Apocalypse Ellipses
 
 ...
 
-Campbell's equation, E=MC2 of Tower of Babel   
+Campbell's equation, E=MC2 **equation** of Tower of Babel   
+Gravity equation of hate vs. hate, out-groups hate, organized hate, hate for hate, hate harder motivation.     
+
+* “Half the people in the world think that the metaphors of their religious traditions, for example, are facts. And the other half contends that they are not facts at all. As a result we have people who consider themselves believers because they accept metaphors as facts, and we have others who classify themselves as atheists because they think religious metaphors are lies.” ― Joseph Campbell, Thou Art That: Transforming Religious Metaphor
 
 Unrelated singsong to Pluribs TV show context. Wake Finnegans songs metaphor to metaphor translation... riverrun global river networks themes...   the on-screen Pluribis countdown timers fits the album title "Countdown To"... and Carol being the Hive Mind Queen / King of the World... on Air Force One .... "I don't need no helping hand" (Carol's attitude on food delivery to her house)...  and any man / woman standing on the Rio Grande: https://www.youtube.com/watch?v=13QdIdEblxk
 
