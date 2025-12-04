@@ -1800,3 +1800,7 @@ Choice marriage honesty topic. USA society?
 
 https://old.reddit.com/r/AITAH/comments/1pdikof/aita_for_telling_my_husband_that_i_am_going_back/
 
+Choice marriage honesty
+
+https://old.reddit.com/r/BrandNewSentence/comments/1pdmfx0/the_first_act_of_racism_my_brother_ever/ns6g2ff/
+
