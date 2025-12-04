@@ -492,3 +492,9 @@ https://old.reddit.com/r/clevercomebacks/comments/1pe4zvw/wealthy_love_with_no_a
 https://old.reddit.com/r/MurderedByWords/comments/1pe4z79/wealthy_love_with_no_arguments/
 
 Maybe "arguing" ignores songs / poetry / travel  / metaphors in motion. Body langauge of songwriting body of work.  A different use of "arguing" about "decision making" and "understanding" other minds.
+
+&nbsp;
+
+https://old.reddit.com/r/CuratedTumblr/comments/1pe6tyv/si/
+
+Concerns of Finnegans Wake. Language prefix suffix metaphors and singsong in time counting.
