@@ -77,7 +77,7 @@ Reddit wasn't like this before year 2014. The Internet Research Agency of Russia
 video clip: https://youtube.com/clip/UgkxGLMkhbMgSwzWeQK7xYIBJ-nxn_UlzOdZ     
 Video was published December 5, 2014 describing the past, what was already going on in December 2014.
 
-Today is December 4, 2025. I haven't forgotten this Youtube publication December 5. ELEVEN YEARS AGO. And how things were NOT THIS WAY before the Internet Research Agency seeded out-group hate patterns on Reddit.
+Today is December 4, 2025. I haven't forgotten this Youtube publication December 5. ELEVEN YEARS AGO. And how things were NOT THIS WAY before the Internet Research Agency seeded out-group hate patterns on Reddit. Before Putin / Russia bambooled the Trump White house into self-harm of USA. Before Donald Trump and Putin became the Elon Musk Twitter role models of social media behavior and secret-police I.C.E. face masked disapparing of anti-hate anti-bully anti-dehumanization information message. Warfare of Internet.
 
 &nbsp;
 
