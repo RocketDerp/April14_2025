@@ -861,4 +861,18 @@ Putin won, Surkov won. National intelligence and Rupert Murdoch Fox News intelli
 
 https://old.reddit.com/r/ProgressiveHQ/comments/1pe4nms/dui_hire_pete_kegseth_judge_jury_executioner/nsa44gl/
 
-New reddit account. Open Season on USA Reddit users.
+New Reddit user account. Open Season on USA Reddit users.
+
+https://old.reddit.com/r/TikTokCringe/comments/1pe0rfi/a_university_of_oklahoma_psychology_professor_was/nsa8bjz/
+
+Here is the setup...
+
+https://old.reddit.com/r/TikTokCringe/comments/1pe0rfi/a_university_of_oklahoma_psychology_professor_was/nsaiwww/
+
+Here is the mind blowout with "LOL" amusement. Eating right out of the hands of Russia / Surkovian information warfare methods since year 2013. Putin *owns* the USA masss mind and all the Bible monomyth "Christian" psycology games. ... ... ...        
+"Why is psychology the youngest of the empirical sciences? (Year 1934) Why have we not long since discovered the unconscious and raised up its treasure-house of eternal images? Simply because we had a religious formula for everything psychic — and one that is far more beautiful and comprehensive than immediate experience. Though the **Christian view of the world has paled** for many people, the symbolic treasure-rooms of the East are still full of marvels that can nourish for a long time to come the passion for show and new clothes. What is more, these images — be they Christian or Buddhist or what you will — are lovely, mysterious, richly intuitive." - Dr. Carl G. Jung. The Archetypes and the **Collective Unconscious**, **year 1934**, page 7
+
+https://old.reddit.com/r/TikTokCringe/comments/1pe0rfi/a_university_of_oklahoma_psychology_professor_was/ns8xw7w/
+
+Yes, these people are serious. and mind-blown "OMFG" on Reddit. Constant antics MonoMyth mind-fuck, MonoMyth warfare against the USA population since year 2013. Surkov won.
+
