@@ -38,3 +38,10 @@ https://old.reddit.com/r/science/comments/1pd1hv9/a_dementia_vaccine_could_be_re
 https://old.reddit.com/r/UkraineWarVideoReport/comments/1pcdw7h/president_zelenskyy_human_memory_is_often_short/     
 People are so amused to death and entertained at mocking Putin and Trump... they don't give a shit about death of real people. As Trump provides fiction thrills, fiction content, fiction entertainment. Abandonment of reality being called out. Recency bias / short memory being called out. As important.
 
+&nbsp;
+
+https://old.reddit.com/r/funny/comments/1pdz1ll/this_video_should_be_shown_before_every/
+
+Will scroll off as RFK Jr entertains people with autism attacking and pro-disease spreading, driven by raging media addiction to antics politics, deception leaders. People who prize deception leaders like Trump as the center of attention so they can brag and ego declare they are smarter than POTUS status symbol. https://bsky.app/profile/roundsparrow.bsky.social/post/3m76cpoudpc2v
+
+
