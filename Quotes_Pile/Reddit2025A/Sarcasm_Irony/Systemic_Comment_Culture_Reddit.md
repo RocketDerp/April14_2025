@@ -4,7 +4,7 @@ In general, regarding peer to peer commenting:
 
 1. You will be banned for criticizing another peer commenting user for replying to you.
   
-3. WWhat you are SUPPOSED to do is "report" the comment to the moderators and owners, and let THEM criticize the person that replied to you. Report insults and attacks to the "secret police" moderators / owners who operate with I.C.E. face-masks against the person you "reported" for reply. You are not to call out bullying, call out artifical intelligence claims - you are to telephone 911 secret police with the report button.
+3. What you are SUPPOSED to do is "report" the comment to the moderators and owners, and let THEM criticize the person that replied to you. Report insults and attacks to the "secret police" moderators / owners who operate with I.C.E. face-masks against the person you "reported" for reply. You are not to call out bullying, call out artifical intelligence claims - you are to telephone 911 secret police with the report button.
 
 4. Admins / Owners of the site silence / remove / suspend / ban users who criticize other users for their morality. In peer to peer commenting.
 
