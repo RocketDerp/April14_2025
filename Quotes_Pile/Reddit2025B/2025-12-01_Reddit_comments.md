@@ -813,3 +813,41 @@ https://old.reddit.com/r/technology/comments/1pe0s4x/googles_agentic_ai_wipes_us
 
 <img width="970" height="542" alt="image" src="https://github.com/user-attachments/assets/00bed218-8439-409f-b3a7-56713e5c2a3f" /> Chucklehead nation. There it is! The Neil Postman 1985 insight. The Surkov information warfare year 2011 insight. The mental exploit. The mind exploit, brain exploit, that Russia defeated the USA with since year 2013. The LOL reaction to a social media machine wrecking your nation. The amusement brain exploit! The ability to reset the human brain with comedy, "laughter is the best medicine", "laughter is the best alcoholic blackout drug", "laughter puts The ELIZA effect into brain memory lost". The widespread recency bias over Project 2025, recency bias over Donald Trump's *second term* - is all right there in that most-upvoted top comment on Reddit right now! People put into meme stupor, egoism, brain reset - stimulation and *seeking out* like hot sauce stimulation - that billionares have built meme systems to wreck your life - with a chuckle-inducing report! Enough A/B Testing was done by Putin and Surkov with KGB and FSB that it has been proven for over 25 years in Russia domestic socieety! There is no solution to this problem yet, it is an unsolved problem of humanity. The LOL LOL of Middle East / Levant science fiction Torah / science fiction Quran / science fiction Bible that the Clergy found served with out-group LOL mocking of the gentiles / non-believers / infidels! In this situation, the end-user is LOL LOL away at how dumb the Google Artificial Intelligence is with blaming the operating system... while it blows their mindd and blows their computer data away! The brain exploit that Surkov mastered exporting with the Internet Research Agency and the Kremlin Public Relations! Note the age of the Reddit account, over 15 years, instantly into a meme stupor - instantly voted to the top of the comments! Shooting brain LOL exploit figh in a barrel! Turns real-world Ukraine harm and real-world USA harm by Putin into a LOL giggle chuckle amusement (Neil Postman 1985 BTTF). As long as it is a Facebook and Elon Musk computer and Truth Social computer and Fox News HDTV computer digital media (electronic), electric media, meme stupor and cheering audience! "The ELIZA nightmare world" / Neil Postman soma New World of 1984++ off by one!
 
+https://old.reddit.com/r/europe/comments/1pe6ibb/spain_and_the_netherlands_withdraw_from/nsagxqe/
+
+James Joyce's Palace of the Soul. Music lyrics, monomyth poetry, Levant monomyth.
+
+https://old.reddit.com/r/europe/comments/1pe6ibb/spain_and_the_netherlands_withdraw_from/nsaae84/
+
+Moses, Allah, Jesus abounds.
+
+https://old.reddit.com/r/europe/comments/1pe6ibb/spain_and_the_netherlands_withdraw_from/nsafeql/
+
+Block-happy, deport-happy, deport those immigrants. Close up those walls.
+
+https://old.reddit.com/r/europe/comments/1pe6ibb/spain_and_the_netherlands_withdraw_from/nsaey8o/
+
+Note: absence of link, book quote, author name, etc.
+
+https://old.reddit.com/r/europe/comments/1pe6ibb/spain_and_the_netherlands_withdraw_from/nsakndh/
+
+United by MonoMyth music lyrics. Hell / Heaven No! Arguing by Clergy systems is a long long long Roman Empire and earlier tradition.
+
+https://old.reddit.com/r/europe/comments/1pe6ibb/spain_and_the_netherlands_withdraw_from/nsaacvs/
+
+https://old.reddit.com/r/Music/comments/1pe32kf/fox_news_viewers_turn_on_host_as_he_tries_to/ns9hyp2/
+
+Wealth televagelism science fiction clergy. Rupert Murdoch's empire of: worship the wealthy programming.
+
+https://old.reddit.com/r/Music/comments/1pe32kf/fox_news_viewers_turn_on_host_as_he_tries_to/ns9jby7/
+
+Fox News has morals: good is wealth lording, land lords, power concentrating in the hands of the few. Global network, not just USA that Rupert Murdoch has.
+
+https://old.reddit.com/r/Music/comments/1pe32kf/fox_news_viewers_turn_on_host_as_he_tries_to/ns9fftr/
+
+People are not exhausted by it. They were unstimulated and bored under Joe Biden. The high speed media networks couldn't keep people entertained with enough fiction, brought back Trump to mock and insult (orange skin, diapers, deep enagement fetish of cosmetics and Epstein sex).
+
+https://old.reddit.com/r/Music/comments/1pe32kf/fox_news_viewers_turn_on_host_as_he_tries_to/ns9iwmj/
+
+Fox News is a langauge. And Reddit commenting audience refuses to cite nonfiction serious discussing how we are in an information war will billionares rewriting langauge and reality itself. September 16, 2020: https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/ - Finnegans Wake language media ecology is critical self-awareness, defense against the Fall of Wall Street, Murdoch, Earwicker.
+
