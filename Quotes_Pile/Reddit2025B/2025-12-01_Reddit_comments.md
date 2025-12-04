@@ -710,3 +710,36 @@ https://old.reddit.com/r/AITAH/comments/1pdikof/aita_for_telling_my_husband_that
 
 Capturing the main posting text for delete.
 
+https://old.reddit.com/r/interestingasfuck/comments/1pdswxv/video_shows_train_derailing_after_crashing_into/ns8afg2/
+
+In other words: Billionare corportions, Corporate America, drills so much of your work life and consumerism in USA - that it is super extra devistating to die on certain times of the calendar. If your birth day or death day happens to fall upon the weeks around comsuerism purchase frenzy Christmas - the mass man / advertising on Reddit (funding Reddit) and advertising on television and corporate licensed music - makes that death ruin the entire rest of your life. 
+
+The death of Jesus on the cross is a symbol of a *great death*. But coporate American has drilled into USA minds like it is april 15 death and taxes day. That people who die in machie train wrecks does not invoke fear of train machies and automobile machiens and truck machines - but dreading of having a car accident too close to Christmans consumerism day at Costco.
+
+One could ponder if this is why Elon Musk Twitter and Facebook and Reddit and Corporate America are all lead by billionare Donald Trump Truth Social media now. Fox News consumerism nation.
+
+Your death isn't emotionally devistating if it happens on non-consumerism holiday period. Like Bloomsday June 16, the day Donald Trump announced he will win Peresident and rule the world in year 2015. The death of life on Earth by Corporate America and competitive chian reacitons of competing for which selling marketing advertising consumer day is the important ones to die and not die on. The approved caleandar that kittens, puppies, friends, family should not die by being run over by a train or a truck on the corporate America machine trucks delivering consumer goods in Texas. Elon Musk is HQ in Texas now.... right-hand Corporate Ameirca to the Godfather of advertising and marketing "going virual on social media" Christmas consumerism holiday leadership.
+
+Jesus died around the holidays - or born or rebortn or.... I celebrate that symbolic death calendar. And I remember all the people who died on any day of the year. Equality isn't just a topic of skin color equality, gender equality, economic equality. Oh wait, economic inequality: consumerism Corporate America holidays / time off work death days are more important. People will booze it up home from college and drunk driving their machine technology, booze fest NYE drunk driving in machines. OPERA_A don't die on some boring Tuesday that isn't around a holiday. It won't have the emotional impact of a holiday tragic death. https://www.youtube.com/watch?v=sTJ7AzBIJoI
+
+https://old.reddit.com/r/interestingasfuck/comments/1pdswxv/video_shows_train_derailing_after_crashing_into/ns7iz4i/
+
+Trains / public transportation via train / humans being on the train - is much more in UK. Passengers. https://forums.auran.com/threads/so-whats-the-difference-between-railways-in-the-uk-and-usa.114505/
+
+https://old.reddit.com/r/interestingasfuck/comments/1pdswxv/video_shows_train_derailing_after_crashing_into/ns7tly4/
+
+Every year or so, I mention this on social media: Why are rail drones not being created and sent 1 mile ahead of the main train to detect with cameras and trigger crossing signals? We have huge advances of drone technology to reduce cost and improve wired-fiber optic capabilities... why hasn't this been applied to rail trains interacitng with populations? then the train has the distance and time to slow down and stop.
+
+https://old.reddit.com/r/interestingasfuck/comments/1pdswxv/video_shows_train_derailing_after_crashing_into/ns7ma4e/
+
+Why doesn't 911 know to dispatch to the emegency number. Instead of having people needing to locate a number they rarely know. Fire / ambulance / police / train - all at one 911 number with GPS location delivered.
+
+https://old.reddit.com/r/interestingasfuck/comments/1pdswxv/video_shows_train_derailing_after_crashing_into/ns7tdgg/
+
+Again, why are  Reddit community users not suggesting rail drones travel 4 minutes or 5 minutes ahead of train crossings with cameras and sensors? Like a car converted into a rail drone? Why are so many people stuck in reaction commenting that is "thinking inside the box", drones are in the news every day with Russia and Ukraine war. Self-driving cars are in the news... why is USA not innovating on this long-standing train problem? 
+
+https://old.reddit.com/r/pcmasterrace/comments/1pdqtjw/this_sub_be_like/ns7iyrb/
+
+Yes. And few on Reddit are self-aware. People are so concerned with self-dehumanizating their real life and real name on Reddit while promoting the real names of Elon Musk and Donald Trump and other rich and powerful people all the time. Unimportancing thier own lives, making fame the controller of reality. Donald Trump Reality TV master, entertainmet masters, rule the USA since June 16, 2015.
+
+https://old.reddit.com/r/memes/comments/1pdw0ag/double_standards/ns85hiz/
