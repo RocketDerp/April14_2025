@@ -278,4 +278,11 @@ September 9 2014, 3:42 PM ET
 
 Translated from 2013 Russia to USA 2025: I.C.E. raids are very little violence and a lot fo showboating. A lot of Reddit front-page I.C.E. raids for visual meme addicts / meme consumers. Simple-think logic polarity minds. Self-deport from Corporate America, Costco is the Reddit total control of media amplifiers. Reddit is amplifying media from all over the Internet. Eating the onions that Trump is stupid dumb, Reddit society unable to enagge and comprehend and understand off-Reddit... September 9, 2014: https://www.theatlantic.com/international/archive/2014/09/russia-putin-revolutionizing-information-warfare/379880/ - cheering on the mental patterns of I.C.E. deporting immigrants, self-deporting of Americans from Costco. Anything to avoid learning / grasping nonfiction Russian information warfare history and techniques.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/complaints/comments/1pe1x9j/if_you_still_support_the_trump_administration_you/
+
+Variations: if you still support no-identity Reddit commenting, posting, voting after last month's Twitter account orgin disclosures. Novemver 24, 2025: https://www.nbcnews.com/news/us-news/x-new-location-transparency-feature-questions-origins-maga-accounts-rcna245487 - if you still support people not repeating "Internet Research Agency" and "Surkov" name and "Peter Pomerantsev" name as much as people keep comment-repeating "Epstein" name then you are supporting the already empowered white male system instead of calling out the tools they use. Including "Steve Bannon" and "Cambridge Analytica". Stop attacking MAGA and Americans, and RESCUE PEOPLE from Putin / Kremlin / IRA. Many more variatons of the anti-intellectual denial going on with Bluesky, Reddit, society.
 
