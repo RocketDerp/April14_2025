@@ -1791,3 +1791,12 @@ Choice marriage honesty. Parenting and spouse inward journey is more difficult f
 https://old.reddit.com/r/CuratedTumblr/comments/1pbgwr0/as_someone_who_has_had_thoughts_about_wicked/
 
 Rick Roderick "Self Under Seige" women and starvation bombardment of images.
+
+&nbsp;
+
+&nbsp;
+
+Choice marriage honesty topic. USA society?
+
+https://old.reddit.com/r/AITAH/comments/1pdikof/aita_for_telling_my_husband_that_i_am_going_back/
+
