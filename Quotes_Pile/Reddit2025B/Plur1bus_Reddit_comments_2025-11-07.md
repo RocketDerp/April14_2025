@@ -831,3 +831,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_fro
 
 Content for your Apple touch device apps. iPad / iPhone / Apple TV + / Reddit App API restrictions, walled garden of Reddit Apps on the Apple Walled Garden store. Eden, where Carol plucks and Apple. Mind-fuck upon mind-fucking.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf2j3k/the_hive_are_extreme_jainists_not_vegetarians_aka/nshxe7n/
+
+By this logic, every cow on Earth in show time is age 0. Dog years are shorter. Reddit hive mind dogma years are dark-years longer.
