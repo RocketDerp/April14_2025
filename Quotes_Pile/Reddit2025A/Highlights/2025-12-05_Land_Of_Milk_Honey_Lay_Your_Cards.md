@@ -1,4 +1,4 @@
-https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_posting_about_vince_gilligan/?
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf094d/very_serious_reddit_posting_about_vince_gilligan/
 
 REDDIT POSTING TITLE:     
 Very serious Reddit posting about Vince Gilligan media ecology experiences and PLUR1BUS episodes 0, 1, 2, 3, 4, 5, 6, iterating."Woke" Carol !
