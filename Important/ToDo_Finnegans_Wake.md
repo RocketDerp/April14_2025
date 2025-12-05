@@ -504,3 +504,9 @@ Concerns of Finnegans Wake. Language prefix suffix metaphors and singsong in tim
 https://old.reddit.com/r/BeAmazed/comments/1pewo2r/american_polyglot_surprises_african_warrior_tribe/
 
 Human brain oral, out loud, language. Core Finnegans Wake spoken, not read, singsong.
+
+&nbsp;
+
+Wake funeral rituals. Interstellar 2014 death of earth hotdog baseball rituals. Field of dreams hot dog choke dead afterlife baseball players rituals.    
+
+https://old.reddit.com/r/CuratedTumblr/comments/1pf1754/on_rituals/
