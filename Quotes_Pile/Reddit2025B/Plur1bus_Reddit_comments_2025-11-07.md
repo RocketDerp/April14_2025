@@ -827,3 +827,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_fro
 
 Apple wants to control society... hive mind programming, TV programming, Apple Store programming, Repair Store programming.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsdilo6/
+
+Content for your Apple touch device apps. iPad / iPhone / Apple TV + / Reddit App API restrictions, walled garden of Reddit Apps on the Apple Walled Garden store. Eden, where Carol plucks and Apple. Mind-fuck upon mind-fucking.
+
