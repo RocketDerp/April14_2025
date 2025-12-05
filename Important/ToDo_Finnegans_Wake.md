@@ -498,3 +498,9 @@ Maybe "arguing" ignores songs / poetry / travel  / metaphors in motion. Body lan
 https://old.reddit.com/r/CuratedTumblr/comments/1pe6tyv/si/
 
 Concerns of Finnegans Wake. Language prefix suffix metaphors and singsong in time counting.
+
+&nbsp;
+
+https://old.reddit.com/r/BeAmazed/comments/1pewo2r/american_polyglot_surprises_african_warrior_tribe/
+
+Human brain oral, out loud, language. Core Finnegans Wake spoken, not read, singsong.
