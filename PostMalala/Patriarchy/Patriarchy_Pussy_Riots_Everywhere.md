@@ -36,3 +36,18 @@ MOYERS: What about the virgin birth? Suddenly, the Goddess reappears in the form
 CAMPBELL: In the history of Western religions, this is an extremely interesting development. In the Old Testament, you have a God who creates a world without a goddess. Then when you come to Proverbs, there she is, Sophia, the Goddess of Wisdom, who says, “When He created the world, I was there, and I was His greatest joy.” But in the Hebrew tradition the idea of a son of God is repulsive, it is not considered at all. The Messiah as the son of God is not actually God’s son. He is one who in his character and dignity is worthy to be likened to the son of God. I’m sure there’s no idea of a virgin birth in that tradition. The virgin birth comes into Christianity by way of the Greek tradition. When you read the four gospels, for example, the only one in which the virgin birth appears is the Gospel According to Luke, and Luke was a Greek.
 
 MOYERS: And in the Greek tradition there were images, legends, myths of virgin births?
+
+&nbsp;
+
+&nbsp;
+
+## Inspired by 
+
+https://bsky.app/profile/7islucky.bsky.social/post/3m36wdtr44k2y    
+
+<img width="1814" height="848" alt="image" src="https://github.com/user-attachments/assets/cac1a326-f868-43c6-ad47-aa556fc1cce7" /> 
+
+https://bsky.app/profile/7islucky.bsky.social/post/3m36wdtrhtk2y
+
+<img width="1750" height="816" alt="image" src="https://github.com/user-attachments/assets/9bae6bb0-7977-42df-a8d7-b02f2a86a2b4" />
+
