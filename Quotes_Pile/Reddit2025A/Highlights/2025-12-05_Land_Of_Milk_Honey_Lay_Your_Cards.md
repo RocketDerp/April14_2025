@@ -25,15 +25,15 @@ She fell
 
 ### Episode Three: minute 31
 
-In Episode Three, at minute 31 and a half, shortly before the explosion at Carol's house... the "water of life" is invoked by the hive mind. In greater media ecology context, booze is what reveals [Tim Finnegan to be undead]. Language translations, thunderword patterns, are invoked by the hive mind. Celtic [uisce beatha](https://en.wikipedia.org/wiki/Uisce_beatha) circling around ("riverrun" iteration of translations, *metaphors*).
+In Episode Three, at minute 31 and a half, shortly before the explosion at Carol's house... the "water of life" is invoked by the hive mind. In greater media ecology context, booze is what reveals [Tim Finnegan to be undead](https://www.youtube.com/watch?v=YdizZtOddC8). Language translations, thunderword patterns, are invoked by the hive mind. Celtic [uisce beatha](https://en.wikipedia.org/wiki/Uisce_beatha) circling around ("riverrun" iteration of translations, *metaphors*).
 
 &nbsp;
 
 ### Episode Six: One Sentence To Rule All 
 
-One Sentence To Rule Them All, All (Page 581 Finengans Wake MonoMyth) HiveMinds.
+One Sentence To Rule Them All, All ([Page 581 Finengans Wake](https://www.finnegansweb.com/wiki/index.php/Page_581) *MonoMyths*) HiveMinds.
 
- Introduction and lead-up aside... One Wikipedia sentence is the payload of my Reddit posting you are currently reading. *Please Ponder* One Sentence to Rule Them All, step away from from this One Sentence 13 meters, look at One Sentence again, go lit a cigarette like Carol outside a public house after boozing, ponder the One Sentence again how it relates to *John Cena* Vegas wrestling memes and mockery on meme mixing mills.
+ Introduction and lead-up aside... One Wikipedia sentence is the payload of my Reddit posting you are currently reading. *Please Ponder* One Sentence to Rule Them All, step away from from this One Sentence 13 meters, look at One Sentence again, go lit a cigarette like Carol outside a *Public House* after boozing, ponder the One Sentence again how it relates to *John Cena* Vegas wrestling memes and mockery on meme mixing mills.
 
 One Sentence, research how long this sentence has been on Wikipedia / the edit history of the page, the date it was incepted: "Finnegan's wife Annie puts out his corpse as a meal spread for the mourners at his wake, but he vanishes before they can eat him."
 
@@ -43,5 +43,12 @@ Repeating: ***"Finnegan's wife Annie puts out his corpse as a meal spread for th
 
 &nbsp;
 
+&nbsp;
+
+# .
+
 P.S. I am in a hurry composing this Reddit hive mind publish posting. I may edit / tweak it. Rushed writing. Thank you, happy holidays. "Woke Carol", "Wake Finnegans", year 1924 "Woke".
 
+&nbsp;
+
+P.S.S. Soundtrack mythos for this Reddit posting:  In the morning you go gunning, for the man who stole your  [uisce beatha](https://en.wikipedia.org/wiki/Uisce_beatha)... *"in the land of milk and honey" French visitors* must lay their poker Royal Scam cards upon the table. Carol claims she isn't a reckless emotional gambler, but a handle of booze and handle of a slot machine in her hands. Can't purchase an Elvis hotel thrills experience. https://www.youtube.com/watch?v=aQnW-MxAU6U Wheel of riverrun iteration turning ...0,1,2,3,4,5,6... inceptions. In a room with Pirate Lady's two-timer / Helen's ghost two-timers....
