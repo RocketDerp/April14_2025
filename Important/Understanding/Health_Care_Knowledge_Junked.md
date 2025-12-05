@@ -44,4 +44,9 @@ https://old.reddit.com/r/funny/comments/1pdz1ll/this_video_should_be_shown_befor
 
 Will scroll off as RFK Jr entertains people with autism attacking and pro-disease spreading, driven by raging media addiction to antics politics, deception leaders. People who prize deception leaders like Trump as the center of attention so they can brag and ego declare they are smarter than POTUS status symbol. https://bsky.app/profile/roundsparrow.bsky.social/post/3m76cpoudpc2v
 
+&nbsp;
+
+https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/
+
+Specific education and nonfiction learning of dementia. Not just saying the word "dementia" in a comment on Blueksy or Reddit, but actually learning. You see avoidance of this during COVID-19 too. People who insult and mock but won't link / quote / cite sources and teerminology and debate improtant seirous topics with intelligent science information and intellectual discource. Not just jokes, chanting, amusement memes.
 
