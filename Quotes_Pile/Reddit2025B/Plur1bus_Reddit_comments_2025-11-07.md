@@ -754,5 +754,5 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pexzhr/the_depiction_of_nonwhite_characters_in_pluribus/nsftiyd/
 
-Bringing up the race topics of the show, Mr. White / Betty white / Affrican Pirate Lady, is what got me banned from the main Pluribus subreddit.
+Bringing up the Vince Gilligan race topics of the TV shows, Mr. White / Betty White (Carol's watching) / Affrican Pirate Lady, is what got me banned from the main Pluribus subreddit. Note the user who posted this comment (not me), created a new Reddit account. I wonder if they got banned from the Pluribus subreddit too?
 
