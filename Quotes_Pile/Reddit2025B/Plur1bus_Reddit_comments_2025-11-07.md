@@ -782,3 +782,8 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pf0ji5/the_frequency_in_the_r
 
 I got the sense of that. Interstellar 2014 film (science fiction film universe) reference?
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pet9fx/wouldnt_the_population_drop_eventually_solve_the/nsf2zec/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pet9fx/wouldnt_the_population_drop_eventually_solve_the/nsf0owz/
+
+A HUGE PART of the story... how little Carol asks others and her personal in-home office handwriting of a few scaps and notes and a single white board. Very little direct inquision. She does send output to others, as an author publishing, of her videos... but very little information *gathering*. A huge media ecology topic of input vs. output. Dictating to life, dictating videos, vs listening / gathering / nature feedback (animals encroching on human houses, eating the body).
