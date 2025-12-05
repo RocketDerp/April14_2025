@@ -47,7 +47,7 @@ Rarely do I get to correct / empahsize points about Joseph Campbell's writings /
 
 Isaiah 7:14 (authorship: https://en.wikipedia.org/wiki/Isaiah )  mentions the virgin birth concept. Matthew 1:22-23 (authorship: https://en.wikipedia.org/wiki/Gospel_of_Matthew ) also. 
 
-Contradictiong Campbell: "the only one in which the virgin birth appears is the Gospel According to Luke, and Luke"
+Contradicting Campbell: "the only one in which the virgin birth appears is the Gospel According to Luke, and Luke"
 
 Year 1987 Joseph Campbell didn't have modern Google Search to easily fact-check.
 
