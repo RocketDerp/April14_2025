@@ -92,3 +92,8 @@ Organized Mind Blowing
 
 Hunt and Peck
 
+Bonfire of Reality   
+Bonfire of Sincerity    
+ (Intentional or otherwise, misinforming)
+
+
