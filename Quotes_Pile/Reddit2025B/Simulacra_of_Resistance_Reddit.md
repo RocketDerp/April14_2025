@@ -288,4 +288,17 @@ Variations: if you still support no-identity Reddit commenting, posting, voting 
 
 If you still refuse to name-drop Jen Senko every single time Fox News comes up in commenting, as much as the Epstein list... then you are ignoring a brave *woman* who is a *baby boomer* who has been standing up to the Fox News crisis. The Little Guy sgainst The Big Guys. Why are Reddit media consumers so avoidant of repeating GOODNESS as much as they repeat BADNESS (Epstein name)? Why can't a small time independent content creator inspire OTHER people to tell their family story, instead of just parroting "Epstein" over and over and over millions upon millions of times in organized priority messaging. A "list" of "Epstein" isn't addressing the pardon and being held accountable issue. Repeaitng "Jen Senko" addresses the WE THE PEOPLE problem of enabling Trumpism / MAGA / Putin.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+# Gullible Reddit Audience
+
+Friday, December 5, 2025
+
+https://old.reddit.com/r/complaints/comments/1pevkhk/tired_of_gullible_conservatives/
+
+Simulacra. Simulation of resistance. Calling the *dumber below you* as conservative gullible. While Putin started all this. November 8, 2013 Trump in Moscow. December 20, 2013 Putin announces **Conservative Reddit Owners Rally around Elon Musk media owner, Rupert Murdoch media owner, Putin Russia Today and IRA media Owner**. The gullible is the liberals to Rupert Murdoch. Liberals who won't stand up tothe brainrot of Liberal vs. Conservative bi-polar 1-bit logic. Out-group logic. Tree, tree, never seeing the forest for the trees. December 20, 2013 - year and year, years before November 2016 voting day. Gullible Reddit auidnce "Eats the Surkovian onion", can not name Surkov, can not name the year 2013 formation of the "Internet Research Agency", can't even *name the names* of Conservative International Murdoch Fox News Musk Twitter "Big Media" Conservative Media. The creators of he Surkov MonoMyth simulation. The Surkov simulacra creators. Reddit USA, MAGA USA, Bluesky USA, alll who can not name "Peter P and Surkov" are mentally *owned* in their mocking mocking mockery of Trump. Trump has out-mocked you all, We The People All, since November 8, 2013 sex Epstein sex show in Moscow. November 8, 2013 Moscow visit is right before December 20, 2013. READ READ-IT REDDIT https://www.theatlantic.com/international/archive/2013/12/vladimir-putin-conservative-icon/282572/
 
