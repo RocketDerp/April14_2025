@@ -942,3 +942,43 @@ https://old.reddit.com/r/UnderReportedNews/comments/1pei4j7/breaking_us_forces_s
 
 Reddit is an altenate-reality screen game. Even after the Novemer 2025 Twitter account origin topics, people on Reddit won't face up to Russian information warfare since year 2013. Everything is a screen game, video game, of insulting nad mocking. Out-group mocking, the faith all Americans share, insultin and mocking on social touch devices.
 
+https://old.reddit.com/r/explainitpeter/comments/1pelg0y/explain_it_peter/nsdi3k7/
+
+Finnegans Wake experience, a world or two, a part of a ThuderWord.
+
+https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_atul_subash_suicide_judge_promoted/nsefqhx/
+
+India? Quran / Muslim... ?
+
+https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_atul_subash_suicide_judge_promoted/nsemrqi/
+
+<img width="988" height="456" alt="image" src="https://github.com/user-attachments/assets/f4348be6-e34a-4171-aa7b-04ac3b219d02" /> Apparently humans of the planet Earth are such great judges of *toxic* that Russia finds the entire population of Ukraine *toxic* since February 2014. And sutains this toxic treatment for over a decade. And World War One, and World War Two, and native peoples / first people in Americas are toxic to immigrants. And all women in Russia are toxic. And all women in Afghanistan and Pakistan under Taliban are toxic. And all the toxic women in Iran. And the persistent answer is be selective and choosy of *who is Toxic*. Gets Donald J. Trump elected *twice* on Planet Earth. Rupert Mureoch all over the world with Australia and USA and UK media systems. https://en.wikipedia.org/wiki/List_of_assets_owned_by_News_Corp Being toxic mades Elon Musk the richest man in the world. And EVERYONE world wide avoiding ending war, ending hate, [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). In india, Pakistan, USA, Palestine - *Malala from Swat Valley Pakistan since year 2013* is treated as "toxic", even when she isnot. And the pollution and oil promotion by Russia, Saudi Arabia, USA - toxic to the whole planet.
+
+https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_atul_subash_suicide_judge_promoted/nsep75v/
+
+<img width="954" height="314" alt="image" src="https://github.com/user-attachments/assets/31f57f27-d398-4eb0-a971-980b5249c15b" /> Men need to "understand* that women are not capable... mass dehumanization messaging on Reddit. In contrast, the WHOLE WORLD needs a **World Wide Reformation** and face up [asserting and repeating The 1954 Equation.](../Martin_Luther_King_Jr_quotes0.md). Malala's revival of MLK Jr and Ghandi reformation since year 2013 has been ignored and avoided by social media society in favor of the whole world since year 2013 *normalzing* Putinism Trumpism. Hate of women Trumpism / Epsiten prizing. Worship of elders sex, Taliban over Swat Valley Pakistan, Trump *grab them by the pussy if you are famous*.
+
+https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_atul_subash_suicide_judge_promoted/nse6jgc/
+
+Yes. Including suicide with military murder of people of other races, religions, nation flags, etc. People think murder-suicide of warfare "fixes" problems when it is the very cause of world wide problems. Wounded left-behind children and fear of ICBM mutually assured destruction. Pakistan and India mutually assured destruction life.
+
+https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_atul_subash_suicide_judge_promoted/nsehtlo/
+
+Women have the power in India. Reddit messaging.
+
+https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_atul_subash_suicide_judge_promoted/nse4lsx/
+
+People vote for Donald J Trump in my nation. Putin has been in power since Yeltson, Y2K in Russia. Rupert Murdoch is worshiped the world over. Audiences often flock to the most harm-causing leaders and get their lives wrecked, the whole world toxic. And people will not face up to "mass man" (Marshall McLuhan, University of Toronto) thinking and mobmentality problems.
+
+https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_atul_subash_suicide_judge_promoted/nsebjmk/
+
+Hope for future hate. Wishing for more hate in the world. Always more hate.
+
+https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_atul_subash_suicide_judge_promoted/nsefwli/
+
+Two X India subreddit. Reddit vs. Reddit. Media cult vs. media cult. Muslims Quran science fiction cult vs. HIndu Upanishads science fiction cult in india. Media vs. media.
+
+https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_atul_subash_suicide_judge_promoted/nsem67o/
+
+<img width="978" height="332" alt="image" src="https://github.com/user-attachments/assets/c0c54145-3e25-4b52-9ee3-564456ed8a72" /> Reddit machine lsut lovers: death wishing humans. Wishing for systemized teams of Judge Dredd. I.C.E. enforcmeent in India of judgement. Killing and murder praised. Not learning from mistake, not rest of life in service to teaching about mistakes, but death and violent thrills.
+
