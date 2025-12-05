@@ -54,3 +54,22 @@ Social media society, Bluesky and Reddit year 2025, keeps chanting "dementia" bu
 
 Parroting the male leader keywords: "epstein" "dementia" (Trump) is thought-terminating behaivor of Bluesky audiences / touch device consumers / Reddit audiences. That is the media ecology behavior of civic duty social media usage being called out!
 
+&nbsp;
+
+&nbsp;
+
+## Social Media mob mentality, anti-intelectual mindsets
+
+Just like Dr. Bandy X. Lee, the avoidance of nonfiction citations and important serious public discource. Just like USA society of social media touch device users can name technical specificans of military hardware, but can't name military social media invasion persons: Surkov, "Internet Research Agenncy", etc. Nor can touch device users in USA name: Jen Senko, Rupert Murdoch persons when discussing their personal family issues with Fox News. And the global reach of Rupert Murdoch's media empire. There is an anti-intellecual, anti-citation, anti-quote, anti-lik, anti-fact anti-reality culture since year 2013 - cultivated by the IRA and media addiction / technology billionaires (Facebook owner, Twitter owner, Truth social owner). Anti-book, anti-goodness, anti-nonfiction. 
+
+https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/
+
+Dementia. See if this video is asserted. Or just on the front page December 5, 2025 morning and then promptly drowned out with anti-professional like Dr. Bandy X Lee has only 3,000 followers on Bluesky. The AVOIDANCE of nonfiction. You see **fiction** "Weekend At Bernies" in the Reddit thread, but nonfiction sustained repeating and sustained focus is drowned. 
+
+&nbsp;
+
+&nbsp;
+
+### As always: needs editing
+
+Needs editing / rewrite.
