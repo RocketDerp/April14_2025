@@ -1010,5 +1010,8 @@ Prediction.
 
 https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/nsdphst/
 
-Commentary about the posting itself, not just this comment linked: The Title of the Reddit posting that made the front page. Avoidance of fact, avoidance of serious information on important topics. By naming it "this dementia patient" on REDDIT, in favor of the line used in the video dialog, instead of adding (longer length allowed on Reddit titles): "President Donald Trump health criticism technical:" prefix. The mockery / entertainment / amusement headline clickbait of title-less "me_irl" "this" postings on Reddit society. The systemic banality-washing of important and critical serious topics on Reddit around Trrump. Trump frames as meme / entertainment / amusement source for Reddit audience title presentation.
+Commentary about the posting itself, not just this comment linked: The Title of the Reddit posting that made the front page. Avoidance of fact, avoidance of serious information on important topics. By naming it "this dementia patient" on REDDIT, in favor of the line used in the video dialog, instead of adding (longer length allowed on Reddit titles): "President Donald Trump health criticism technical:" prefix. The mockery / entertainment / amusement headline clickbait of title-less "me_irl" "this" postings on Reddit society. The systemic banality-washing of important and critical serious topics on Reddit around Trrump. Trump frames as meme / entertainment / amusement source for Reddit audience title presentation. 
 
+https://old.reddit.com/r/soccercirclejerk/comments/1pf16gc/what_type_of_woke_nonsense_is_this/nsgj9mj/
+
+Content for meme makers, billionares content for Reddit audience to mock away at all day every day. Total mockery USA leadership of Trump / Putin / Surkov.
