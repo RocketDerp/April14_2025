@@ -752,6 +752,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pbl1a6/what_does_hive_do_with
 
 "The show has a simple plot." - Finnegans Wake is about media ecology self-awareness of the audience. Being "woke" isn't about the plot. It's about the medium. Marshall McLuhan topics. The Woke / Wake about about a Bible story that says Jesus came back to life, a science fiction story (like Pluribus is a science fiction story). The reply message entirely misses the point of Tim Finnegan being undead. And that Helen's memory is preserved. No human in the real world has ever had their memeories upoaded into a hive mind like Helen did. To Carol, this is a new human experience / a change in life on Earth that the dead are not undead. This person thinks that the topic is about the body of Hellen, the physical, and not the "spirit" and afterlife concepts of science fiction stories by the clergy. Likebeing able to ask the hive mind if Helen liked Carol's unpublished book. This is a very human emotional experience like Church Clergy creates messages from outer-space God, or at least *claims* to.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pexzhr/the_depiction_of_nonwhite_characters_in_pluribus/nsftiyd/
 
-
+Bringing up the race topics of the show, Mr. White / Betty white / Affrican Pirate Lady, is what got me banned from the main Pluribus subreddit.
 
