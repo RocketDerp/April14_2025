@@ -900,3 +900,17 @@ https://old.reddit.com/r/worldnews/comments/1pe9618/zelenskys_jet_in_nearmiss_wi
 
 Reddit audience rich white men sex desires. Constnatly bowing down to the sex fantasy of Trump.
 
+https://old.reddit.com/r/worldnews/comments/1pecfqp/putin_says_russia_will_take_all_of_ukraines/nsbpxwv/
+
+Beyond the recnecy bias. The mind-fucking war, Surkov siege / Putin Media invasion, started with the IRA in March 2013. Trump went to Moscow November 8, 2013 - shortly before Ukraine war February 20, 2014.
+
+https://old.reddit.com/r/worldnews/comments/1pecfqp/putin_says_russia_will_take_all_of_ukraines/nsc4kda/
+
+https://old.reddit.com/r/worldnews/comments/1pebcag/putin_says_there_are_points_he_cant_agree_to_in/nsbdxei/
+
+https://old.reddit.com/r/worldnews/comments/1pebcag/putin_says_there_are_points_he_cant_agree_to_in/nsbbgep/
+
+Self-harm to USA too. War Against Reality.
+
+https://old.reddit.com/r/worldnews/comments/1pebcag/putin_says_there_are_points_he_cant_agree_to_in/nsbaia5/
+
