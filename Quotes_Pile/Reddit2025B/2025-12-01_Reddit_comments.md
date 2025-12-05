@@ -914,3 +914,27 @@ Self-harm to USA too. War Against Reality.
 
 https://old.reddit.com/r/worldnews/comments/1pebcag/putin_says_there_are_points_he_cant_agree_to_in/nsbaia5/
 
+https://old.reddit.com/r/CringeTikToks/comments/1pebjr5/wow_i_didnt_knew_states_issue_visas_now/nsbc9q7/
+
+<img width="1068" height="320" alt="image" src="https://github.com/user-attachments/assets/5465a6f4-33d5-4fb9-99ff-925a5621b1c0" /> The Internet Research Agency and Cambridge Analytica mind-fucked everyone since year 2013. Reality TV, Reality Truth Social, President Tony Clifton.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pebjr5/wow_i_didnt_knew_states_issue_visas_now/nsbwqpz/
+
+Reddit messages to give up. Let Putin win the War Against Reality. Same attitude as always, back to the amusment meme mills, LOL priority. No rescue of USA mounted.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pebjr5/wow_i_didnt_knew_states_issue_visas_now/nsbu3p3/
+
+Reddit audience has done everything it can since year 2014 to not learn about Surkov governing techniques of Russia. On and on not able to recognize this as Russian information warfare techniques, media anti-reality governing of Surkov students.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pebjr5/wow_i_didnt_knew_states_issue_visas_now/nsbf8ax/
+
+Self-harm at the hads of not takig up nonfiction learning of IRA and Cambridge Analytica outcomes. Americans hate Americans and do everything possible to avoid learning how Russian information warfare works.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pebjr5/wow_i_didnt_knew_states_issue_visas_now/nsbayok/
+
+And to feed the Bluesky and Reddit ANTI-MAGA hive mind. The very low bar. the easy mocking of the Russian-mind fucked, mentally injured MAGA and Republcians being attacked. Putin keeps winning, Americans keep attacking the injured Americans.
+
+https://old.reddit.com/r/CringeTikToks/comments/1pebjr5/wow_i_didnt_knew_states_issue_visas_now/nsbx56s/
+
+NYC, Trump home town, SNL. Andy Kaufman, President Tony Clifton acts. People are eating right out of the hands of Surkov students. Trump knows antics media and how to flock hate vs. hate groups.
+
