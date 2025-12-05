@@ -787,3 +787,33 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pet9fx/wouldnt_the_population
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pet9fx/wouldnt_the_population_drop_eventually_solve_the/nsf0owz/
 
 A HUGE PART of the story... how little Carol asks others and her personal in-home office handwriting of a few scaps and notes and a single white board. Very little direct inquision. She does send output to others, as an author publishing, of her videos... but very little information *gathering*. A huge media ecology topic of input vs. output. Dictating to life, dictating videos, vs listening / gathering / nature feedback (animals encroching on human houses, eating the body).
+
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsd88x6/
+
+More about the hyper-agressive Reddit moderator banning on Pluribus.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsditdv/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsdarqf/
+
+Reddit uprising against the Apple "Walled Garden" iPhone / iPad app store metaphors ;) Why not puck an Apple in Eden, Eve / Carol? (Episode Six)
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsdakx7/
+
+It is anti-Reddit, but it is VERY much how Apple TV+ / Apple App Store bans app creators / content creators. Very much a Apple Bible / Apple Computers metaphor of closed media ecology of the Apple computer / Internet (Reddit Internet) metaphors. Apple users programmed to behave this way for "the sake of the Apple brand".
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsdctol/
+
+More people reporting bans.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsfgq97/
+
+Severance... another Apple TV show about dictatorship hive mind. Only the show can depict badness, Reddit messagings must be conforming to Apple Computers / Apple App Store internet cullings of content creators.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsgpcrc/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsdbh6j/
+
+<img width="940" height="318" alt="image" src="https://github.com/user-attachments/assets/15844a00-e39c-458f-b72c-bf1a349a828c" /> Apple Computers "Think Different" is legendary for forbidding third-party hardware, not allowing Apple App Store content creators that compete with big corporate America players. An Apple TV+ fan who has been conditioned by the Corporate America "only Apple hardware authorized repair" experiences? The whole Right To Repair movement in USA has largely been inspired by Apple Computers... Louis Rossmann is pretty well known across Reddit this past decade in his rogue Apple repairs...
+
