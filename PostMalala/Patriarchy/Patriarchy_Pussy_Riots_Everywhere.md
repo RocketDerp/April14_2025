@@ -51,7 +51,7 @@ Contradictiong Campbell: "the only one in which the virgin birth appears is the 
 
 Year 1987 Joseph Campbell didn't have modern Google Search to easily fact-check.
 
-Now it is possible Campbell was making a more subtle point that few under my radar / over my head. But still interesting to point out verses that mention vigin birth here. From a media ecology, redundacy of monomyth tropes / monomyth opcodes perspective. 
+Now it is possible Campbell was making a more subtle point that few under my radar / over my head. But still interesting to point out verses that mention vigin birth here. From a media ecology, redundacy of monomyth tropes / monomyth opcodes perspective. Also point out that this was at Skywalker Ranch and "Luke" was on the Skywalker mind of Campbell ;)
 
 &nbsp;
 
