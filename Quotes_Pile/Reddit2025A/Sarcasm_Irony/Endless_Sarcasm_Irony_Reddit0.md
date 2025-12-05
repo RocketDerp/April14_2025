@@ -1749,3 +1749,10 @@ https://old.reddit.com/r/MurderedByWords/comments/1peymf5/no_bragging_rights/
 
 Endless mind-blowing off-Reddit screen-shots posted in front of Reddit audience. Trump blows minds. I singel handedly have been pointing out SNL NYC / Trump NYC roots / SNL Andy Kaufman. Search this GitHub and find all the times I've linked and quoted President Tony Clifton acts. **Donald Trump bragging he (his popularity) is bigger than Jesus and The Beatles** and being wrong, a Surkov / Surkovian / Surkov student Russian Kremlin media technique. A core aspect of Tony Clifton performances is extreme bragging about talent and success. For example, a 2000 retrospective in The Guardian describes an announcer introducing Clifton as "a man who has sold more records than Elvis and the Beatles combined". https://www.theguardian.com/film/2000/may/25/comment - see also my assertions about Rick Roderick on Popularity on this GitHub. "learned to live and create herself on the curve of the postmodern by making it her goal to be more popular than popular; by having her **popularity the topic of popularity**." - https://rickroderick.org/308-baudrillard-fatal-strategies-1993/
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/WhitePeopleTwitter/comments/1pf2ipr/please_deport/
+
+Relddit audience is taking programming into mind of "please deport", deport-happy, block-happy, ban-happy mindsets. Cheering on the teaching that deporting political opponents, Americans being deported, is entertaining and thrilling. Normal behavior, normalizing, active measures against society Reddit / society USA in the name of the new Fox News HDTV nation talking points. MAGA values on Reddit entertainment programming network.
