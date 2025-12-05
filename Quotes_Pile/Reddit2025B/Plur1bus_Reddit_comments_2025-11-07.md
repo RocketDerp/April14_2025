@@ -817,3 +817,13 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_fro
 
 <img width="940" height="318" alt="image" src="https://github.com/user-attachments/assets/15844a00-e39c-458f-b72c-bf1a349a828c" /> Apple Computers "Think Different" is legendary for forbidding third-party hardware, not allowing Apple App Store content creators that compete with big corporate America players. An Apple TV+ fan who has been conditioned by the Corporate America "only Apple hardware authorized repair" experiences? The whole Right To Repair movement in USA has largely been inspired by Apple Computers... Louis Rossmann is pretty well known across Reddit this past decade in his rogue Apple repairs...
 
+TECHNICAL NOTE: the comment account is now deleted, so my script that processes this file (you are here) gets reply account by accident. BugFix ToDo 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsf992r/
+
+Facism USA society.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsd8od8/
+
+Apple wants to control society... hive mind programming, TV programming, Apple Store programming, Repair Store programming.
+
