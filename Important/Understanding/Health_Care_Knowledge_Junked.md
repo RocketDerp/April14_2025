@@ -50,3 +50,4 @@ https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_ha
 
 Specific education and nonfiction learning of dementia. Not just saying the word "dementia" in a comment on Blueksy or Reddit, but actually learning. You see avoidance of this during COVID-19 too. People who insult and mock but won't link / quote / cite sources and teerminology and debate improtant seirous topics with intelligent science information and intellectual discource. Not just jokes, chanting, amusement memes.
 
+Same day on Reddit, will social media finally start repeating serious links instead of just repeating "Epstein List" messages over and over? https://old.reddit.com/r/politics/comments/1pf25zz/trump_showing_signs_hes_battling_major_medical/
