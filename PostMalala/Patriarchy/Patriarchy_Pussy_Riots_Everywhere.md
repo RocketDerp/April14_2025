@@ -1,6 +1,6 @@
 # Patriarchy Pussy Riots Everywhere
 
-Little Fires Everywhere, The Fire Inside, Post-Malala Pussy Riots.
+Little Fires Everywhere, The Fire Inside, Post-Malala [Pussy Riots](https://youtu.be/Bp-KeVBNz0A)... Don't play stupid, support Malala's education and Malala's literacy and Malala's teaching emphasis!
 
 Power of Myth, year 1988, George Lucas filmed and hosted at Skywalker Ranch: Lessons for science fiction audiences about the science fiction Levant triology.
 
