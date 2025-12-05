@@ -41,7 +41,25 @@ MOYERS: And in the Greek tradition there were images, legends, myths of virgin b
 
 &nbsp;
 
-## Inspired by 
+### Correcting Campbell
+
+Rarely do I get to correct / empahsize points about Joseph Campbell's writings / interviews.
+
+Isaiah 7:14 (authorship: https://en.wikipedia.org/wiki/Isaiah )  mentions the virgin birth concept. Matthew 1:22-23 (authorship: https://en.wikipedia.org/wiki/Gospel_of_Matthew ) also. 
+
+Contradictiong Campbell: "the only one in which the virgin birth appears is the Gospel According to Luke, and Luke"
+
+Year 1987 Joseph Campbell didn't have modern Google Search to easily fact-check.
+
+Now it is possible Campbell was making a more subtle point that few under my radar / over my head. But still interesting to point out verses that mention vigin birth here. From a media ecology, redundacy of monomyth tropes / monomyth opcodes perspective. 
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+## GitHub page Inspired by 
 
 https://bsky.app/profile/7islucky.bsky.social/post/3m36wdtr44k2y    
 
