@@ -982,3 +982,30 @@ https://old.reddit.com/r/CriticalThinkingIndia/comments/1pepdxn/one_year_after_a
 
 <img width="978" height="332" alt="image" src="https://github.com/user-attachments/assets/c0c54145-3e25-4b52-9ee3-564456ed8a72" /> Reddit machine lsut lovers: death wishing humans. Wishing for systemized teams of Judge Dredd. I.C.E. enforcmeent in India of judgement. Killing and murder praised. Not learning from mistake, not rest of life in service to teaching about mistakes, but death and violent thrills.
 
+https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/nscqxe7/
+
+Top-voted comment. Nobody seems to be self-aware that for years and years socia media says simple-think "dementa!" chanting. But actually professionals for years have not been linked, quoted, cited, organize.d. Anti-Wiki disposable commenting culture. "Weekend At Bernies" fiction for Kremlin fiction White House fiction. And no-identity people vs a real person with real name and real image. Being brave and bold on non-identity throw-away Reddit commenting is not the same in the face of serious and important mass dehumanization / win of Russian information warfare against USA since year 2013.
+
+https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/nscqmb1/
+
+Prediction. And the Fox News year 1996 problem is not being addressed by social media society. The Ukraine war year 2014, year 2013 Internet Research Agency invasion of Reddit not being addressed, the Elon Musk billionare mind virus Twitter platform not being addressed, Facebook billionare not being addressed. The Russian win of "hearts and minds of the enemy" not being addressed. ONE SINGLE PERSON who has inspire shit-talk, hate-talk, hate mongering - Putin, is not being addressed. The cultivation of anti-goodness anti-intellectaul fiction-addictoin society is not being addressed. A SECOND TERM of Trump, this isn't th first time! The January 6 justice marche, the "Day 700 of front page of Reddit calling for justice about January 6" never happaned. The IMpeachment Trump social media entertainment balckout protests didn't happen the times impeachment was in congress. People are not being serious about anything but mocking and insulting and staying on all different pages. Anti-Wiki, anti "getting on the same page" of improtant matters.
+
+https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/nscs6ym/
+
+Beyond the recency bias of people only recalling the past 21 days. The mindsets of recency.
+
+https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/nscwuru/
+
+Important skepticism. Multiple real-name real-face (video image) people need to step forward. A Wiki style refined, edit-history organized approach. Like Dr. Bandy X Leen has worked with multiple books, multiple people.
+
+https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/nsdgs7g/
+
+https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/nsdkqvf/
+
+Does not claim to be a docctor. But unlike Reddit commenting users: REAL face, REAL name, REAL terminology. Not amusement-washing mockery-washing with no-identity meme culture.
+
+https://old.reddit.com/r/CringeTikToks/comments/1peimy2/this_dementia_patient_has_three_to_five_months/nscr7oc/
+
+Prediction.
+
+
