@@ -938,3 +938,7 @@ https://old.reddit.com/r/CringeTikToks/comments/1pebjr5/wow_i_didnt_knew_states_
 
 NYC, Trump home town, SNL. Andy Kaufman, President Tony Clifton acts. People are eating right out of the hands of Surkov students. Trump knows antics media and how to flock hate vs. hate groups.
 
+https://old.reddit.com/r/UnderReportedNews/comments/1pei4j7/breaking_us_forces_struck_another_boat_in_the/nscqcue/
+
+Reddit is an altenate-reality screen game. Even after the Novemer 2025 Twitter account origin topics, people on Reddit won't face up to Russian information warfare since year 2013. Everything is a screen game, video game, of insulting nad mocking. Out-group mocking, the faith all Americans share, insultin and mocking on social touch devices.
+
