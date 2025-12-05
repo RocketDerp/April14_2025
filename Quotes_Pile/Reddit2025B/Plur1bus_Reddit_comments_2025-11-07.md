@@ -756,3 +756,29 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pexzhr/the_depiction_of_nonwh
 
 Bringing up the Vince Gilligan race topics of the TV shows, Mr. White / Betty White (Carol's watching) / Affrican Pirate Lady, is what got me banned from the main Pluribus subreddit. Note the user who posted this comment (not me), created a new Reddit account. I wonder if they got banned from the Pluribus subreddit too?
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf2j3k/the_hive_are_extreme_jainists_not_vegetarians_aka/nsh94hz/
+
+See also the posting, not just this comment. This show has 4 seasons or so, it can go in a lot of directions with these themes. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf2j3k/the_hive_are_extreme_jainists_not_vegetarians_aka/nsh5qn2/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf0ji5/the_frequency_in_the_radio/nsgddr6/
+
+Opening sequence broadcast metaphors. See also the post,not just this comment: Local subnet, TCP/IP routing metaphors. Keep it inside Earth.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf0ji5/the_frequency_in_the_radio/nsggy21/
+
+Number 13.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf0ji5/the_frequency_in_the_radio/nsgi97r/
+
+Mr. Robot ARG https://old.reddit.com/r/MrRobot/comments/4w3232/no_spoilers_s2e05_audio_easter_egg/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf0ji5/the_frequency_in_the_radio/nshcd3c/
+
+Me too, even the  late (me age 38) diagnosis.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf0ji5/the_frequency_in_the_radio/nsgl1ek/
+
+I got the sense of that. Interstellar 2014 film (science fiction film universe) reference?
+
