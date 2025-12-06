@@ -1016,8 +1016,3 @@ https://old.reddit.com/r/soccercirclejerk/comments/1pf16gc/what_type_of_woke_non
 
 Content for meme makers, billionares content for Reddit audience to mock away at all day every day. Total mockery USA leadership of Trump / Putin / Surkov.
 
-https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_chill_on_the_semi_spoilers_in/nsnu96e/
-
-Reactionmary mindsets are spoiler mindsets, who see shallow plot shocks. Jump scares. REALLY lame media ecology that every Readdit headline is "me_irl". An entire subreddit full of "me_irl" headlines that have no meaning and get discarded in favor of trash.
-
-None of these replies address the Purlibus TV show on-screen countdown timers. Why are people spending free time and spare time on Reddit who haven't spent said spare time watching the show itself?
