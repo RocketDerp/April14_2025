@@ -74,11 +74,17 @@ Frog Croaking is shallow thinking.  Deepness isn't a function of how eloquent yo
  Why can't educated people in 2015 identify this depth distinction of art and mythology?  I consider this distinction to be one of the key aspects of this film...
 
 
+
+&nbsp;
+
 &nbsp;
 
 &nbsp;
 
 &nbsp;
+
+&nbsp;
+
 
 ### Reply 1: Mind-blown drug users of Reddit
 
@@ -92,15 +98,21 @@ my comment reply, downvoted -3 comment:
 
 "I'll tell you a way, a very nice way. Sit in a room and read -- and read and read. And read the right books by the right people: Your mind is brought onto that level, and you have a nice, mild, slow-burning rapture all the time. This realization of life can be a constant realization in your living. When you find an author who really grabs you, read everything he has done. Don't say, "Oh, I want to know what So-and-so did" -- and don't bother at all with the best-seller list. Just read what this one author has to give you. And then you can go read what he had read. And the world opens up in a way that is consistent with a certain point of view. But when you go from one author to another, you may be able to tell us the date when each wrote such and such a poem -- but he hasn't said anything to you." [~](http://podcasts.personallifemedia.com/podcasts/503-philosophers-notes/episodes/40483-sit-room-read-read)
 
-&nbsp;
 
 &nbsp;
 
 &nbsp;
 
 &nbsp;
+
+&nbsp;
+
+&nbsp;
+
 
 ### Reply 2: you lost your thought trains
+
+https://old.reddit.com/r/interstellar/comments/31ved9/nolan_brothers_are_bad_writers_and_directors/cq5bx4r/
 
 Reddit audience / People against **neuro-diversity**, anti-Autism (RFK Jr. autism attitudes / "associative thinking" of autism) 
 
