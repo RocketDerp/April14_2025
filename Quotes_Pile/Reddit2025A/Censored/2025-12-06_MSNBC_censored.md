@@ -73,13 +73,17 @@ But still messages are entirely unpublished, notably the one at the top of this 
 
 So it seems I overlooked I made a second change, not just the P.S. I also linked Wikipedia about Halloween Documents.
 
-It seems that is the unpublihs / forbidden / censored contenet! Linking Wikipedia about Linux and Microsoft.
+I created a fresh reply comment without the P.S. at bottom, instantly non-published / never published even for a single second to public:
 
-THIS got published (new all at once, no edits) with the P.S. at the bottom:
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsljs6u/
+
+It seems that is the unpublish / forbidden / censored contenet! Linking Wikipedia about Linux and Microsoft.
+
+Started another fresh comment. THIS got published (new all at once, no edits) with the P.S. at the bottom:
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nslldbr/
 
-Replace:
+The censor key... replace:
 
 * "I lived in working-class Renton. I was there for the [Halloween Documents](https://en.wikipedia.org/wiki/Halloween_documents) Linux sabotage"
 
