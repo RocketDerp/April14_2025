@@ -31,4 +31,8 @@ I think the permanent conclusion of "can't be trusted" is too simplistic. I thin
 
 We have to assist each other, peer to peer, educate and teach and rescue each other always. Saving a man from his desire to cage a woman or children owned / pets owned by the couple (Stelly Dan Razor Boys).
 
+https://youtu.be/HU70rxvJFRE?t=1828
+
+Mohamed Gawdat
+
 EDITING NEEDED / REWRITING NEEDED, like almost all my writing here
