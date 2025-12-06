@@ -43,3 +43,5 @@ https://old.reddit.com/r/comics/comments/1p19veb/deep_thoughts/
 The "6 7" trend is still raging in the USA society of of December 6, 2025. Reddit front page:
 
 https://old.reddit.com/r/mildlyinfuriating/comments/1pfudu1/tried_to_get_birthday_candles_for_my_girlfriends/
+
+BONUS: "the sabbath day" healing at the top of this GitHub markdown page.
