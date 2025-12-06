@@ -1201,3 +1201,13 @@ The power of Palestine / Turkey Mythology warfare streaming media / Social Media
 https://old.reddit.com/r/WorkReform/comments/1pd6cvd/this_is_really_fucked_up/     
 
 https://nypost.com/2024/04/09/us-news/nyc-restaurants-use-zoom-cashiers-from-philippines/
+
+&nbsp;
+
+&nbsp;
+
+### Retail consumer bamboozle
+
+Camera resolution bamboozle
+
+https://www.youtube.com/watch?v=4bNZ95cBIdg
