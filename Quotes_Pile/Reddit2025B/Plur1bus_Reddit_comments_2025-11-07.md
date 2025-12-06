@@ -842,3 +842,9 @@ Ego-confronting topics. Downvote-disagree agression, terrirtorial around Breakin
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pfaomw/ask_them_to_shorten_the_voicemail_carol/nsij3th/
 
 Media ecology pot stirring. 
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf9iz6/theory_the_plurbs_are_running_an_arg/nsis1qf/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf9iz6/theory_the_plurbs_are_running_an_arg/nsiwzf1/
+
+Finnegans Wake shock reactions of peer to peer hive mind Reddit users. Deflecting complex ideas.
