@@ -856,3 +856,15 @@ Media ecology: Hence the very point being made of how deep the Corporate America
 https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsl98ds/
 
 Louded hive mind: a "Little Guy" on Reddit. Ignoring Rupert Murdoch MAGA loudest hive mind Decemger 6, 2025.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfga8e/if_it_matters_to_just_one_person_maybe_thats/nsl4wxj/
+
+Posting Titlte about minute 22 Episode One: Finnegans Wake makes even a single one person happy.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfga8e/if_it_matters_to_just_one_person_maybe_thats/nslyk3r/
+
+Red color. Some YouTube channel mentioned purple color? ToDo:
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfga8e/if_it_matters_to_just_one_person_maybe_thats/nsliwpu/
+
+Yes. her uni / university graduate studies of James Joyce before she became a book publisher married to a book author. Uni: hive mind, school hive mind, unity hive mind.
