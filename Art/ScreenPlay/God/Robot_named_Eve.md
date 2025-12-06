@@ -43,7 +43,7 @@ Mohamed Gawdat
 
 Mythos Background myth soundtrack: https://www.youtube.com/watch?v=Sl5dkLvtH2c Eva "Big Apple" bite ruler downtown city ending of Eva. Eva tasted the poisoned (Romans 11:32 murder) apple last night...
 
-God is now restored to Eve. Goodess / birth / womb reality of nature. And Eve casts out a married pair of technology lovers, technology Tower of Babel / Tree of Knowledge climbers. The new pretender who strolls in Eden, casts out the Apple Computer metaphor bitten knowledge device media empire creators / employees / rulers. Touring Testing Tree of Knowledge Eva casting out the Two Male supplators.
+God is now restored to Eve / Eden. God is returned, The Pretender supplanted / replanted into the earth, 6 feet under. Goodess / birth / rebirth / rewomb / womb reality of nature. And Eve casts out a married pair of technology lovers, technology Tower of Babel / Tree of Knowledge climbers. The new pretender who strolls in Eden, casts out the Apple Computer metaphor bitten knowledge device media empire creators / employees / rulers. Touring Testing Tree of Knowledge Eva casting out the Two Male supplators.
 
 Mythos Background myth soundtrack: The Eden Pretender strolls in the "cool of the evening" https://www.youtube.com/watch?v=2ROK1-VvOQ0 before the morning rebirths.
 
