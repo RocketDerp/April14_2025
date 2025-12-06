@@ -1,6 +1,6 @@
 # 2012-02-13 Asserting Founding Fathers
 
-Just another Manic Monday, that's my Funday, Asserting Founding Fathers education from Sarah Lawrence College in the rise of NYC Wall Street / NYC Trump.
+Just another Manic Monday, that's my Funday, Asserting Founding Fathers education from Sarah Lawrence College in the rise of NYC Wall Street / NYC Trump. https://www.youtube.com/watch?v=4IU1ZdDfXTY ... until "Till Tuesday" Aimee Mann ;)
 
 https://old.reddit.com/r/philosophy/comments/pn5ge/comment/c3qu5hi/
 
