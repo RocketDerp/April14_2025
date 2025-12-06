@@ -838,3 +838,7 @@ By this logic, every cow on Earth in show time is age 0. Dog years are shorter. 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsidst2/
 
 Ego-confronting topics. Downvote-disagree agression, terrirtorial around Breaking Bad show and Apple Computers.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfaomw/ask_them_to_shorten_the_voicemail_carol/nsij3th/
+
+Media ecology pot stirring. 
