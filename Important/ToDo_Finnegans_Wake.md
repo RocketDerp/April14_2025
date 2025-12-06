@@ -510,3 +510,9 @@ Human brain oral, out loud, language. Core Finnegans Wake spoken, not read, sing
 Wake funeral rituals. Interstellar 2014 death of earth hotdog baseball rituals. Field of dreams hot dog choke dead afterlife baseball players rituals.    
 
 https://old.reddit.com/r/CuratedTumblr/comments/1pf1754/on_rituals/
+
+&nbsp;
+
+https://old.reddit.com/r/interestingasfuck/comments/1pfk5u2/british_officer_adrian_carton_de_wiart_was_shot/
+
+The action film heroes, the bragging fathers to thdir sons. Men killing men...world over. The Geramny killers have the same attitudes of "good" and "strong". The nightmare of history of cheering on self-harm of leaders into more  self-harm. The language barriers and hate prizing.
