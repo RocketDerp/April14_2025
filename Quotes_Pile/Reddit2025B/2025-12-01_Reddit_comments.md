@@ -1015,3 +1015,7 @@ Commentary about the posting itself, not just this comment linked: The Title of 
 https://old.reddit.com/r/soccercirclejerk/comments/1pf16gc/what_type_of_woke_nonsense_is_this/nsgj9mj/
 
 Content for meme makers, billionares content for Reddit audience to mock away at all day every day. Total mockery USA leadership of Trump / Putin / Surkov.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_chill_on_the_semi_spoilers_in/nsn766v/
+
+Carol commanding the world, including Google search titles, Reddit posting titles, etc.
