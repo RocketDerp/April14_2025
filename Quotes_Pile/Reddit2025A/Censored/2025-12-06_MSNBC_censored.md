@@ -65,3 +65,26 @@ The 3 means up-stream thread, pre, but the 3rd message / final message also got 
 <img width="1984" height="1402" alt="image" src="https://github.com/user-attachments/assets/05e8e6ca-040a-4fae-9e06-e02da1b1010b" />
 
 But still messages are entirely unpublished, notably the one at the top of this GitHub page: https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsla8oo/
+
+
+&nbsp;
+
+# Correction
+
+So it seems I overlooked I made a second change, not just the P.S. I also linked Wikipedia about Halloween Documents.
+
+It seems that is the unpublihs / forbidden / censored contenet! Linking Wikipedia about Linux and Microsoft.
+
+THIS got published (new all at once, no edits) with the P.S. at the bottom:
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nslldbr/
+
+Replace:
+
+* "I lived in working-class Renton. I was there for the [Halloween Documents](https://en.wikipedia.org/wiki/Halloween_documents) Linux sabotage"
+
+with 
+
+* "I lived in working-class Renton airline factory workers. I was there for the Halloween Documents"
+
+seems to be the censorship trigger.
