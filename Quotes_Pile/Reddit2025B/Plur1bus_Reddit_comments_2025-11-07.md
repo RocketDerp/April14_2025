@@ -879,6 +879,6 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pf9iz6/theory_the_plurbs_are_
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_chill_on_the_semi_spoilers_in/nsmhu1l/
 
-Deport-happy, I.C.E. U.S.A. December 2025 Apple "walled graden" app store consumers, deport immigrants happy USA consumers, block-happy Reddit consumers mindsets. When there are episodes released a week apart, why would you be visiting a subreddit on Reddit Internet when you haven't even had 60 minutes to watch an episode? Why sped time hanging out in a dedicated independent media space for show discussion **spending free time / spare time** on Reddit?
+Deport-happy, I.C.E. U.S.A. December 2025 Apple "walled graden" app store consumers, deport immigrants happy USA consumers, block-happy Reddit consumers mindsets. When there are episodes released a week apart, why would you be visiting a subreddit on Reddit Internet when you haven't even had 60 minutes to watch an episode? Why spend countdown time hanging out in a dedicated independent  media space for show discussion spending free time / spare time on Reddit?
 
 The media ecology of this show is mind-blowing. Breaking Badness.
