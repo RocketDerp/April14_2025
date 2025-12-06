@@ -1756,3 +1756,20 @@ Endless mind-blowing off-Reddit screen-shots posted in front of Reddit audience.
 https://old.reddit.com/r/WhitePeopleTwitter/comments/1pf2ipr/please_deport/
 
 Relddit audience is taking programming into mind of "please deport", deport-happy, block-happy, ban-happy mindsets. Cheering on the teaching that deporting political opponents, Americans being deported, is entertaining and thrilling. Normal behavior, normalizing, active measures against society Reddit / society USA in the name of the new Fox News HDTV nation talking points. MAGA values on Reddit entertainment programming network.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/Fauxmoi/comments/1pfg1z0/nancy_sinatra_responds_to_false_claim_about_her/
+
+Front page of Reddit. The reason I do this GitHub is this Reddit society behavior, this Bluesky societ behavior (that I witness but do not document here). Short quip-like "gotcha". The very kindof "clicbait" and shit-posting shit-commenting shit-Twitter that in year 2013 would have been criticized by self-aware Reddit society. Frank Sanatra / Donaldd Trump entertainment figures, all that LOL attitudes towards such a person being President. Yet, the Fox News / Rush Limbaugh issue year 2013 problem was known, but not taken as a long-term threat.
+
+PEOPLE CHANGED in USA,ALL PEOPLE, not just { MAGA / Rural Republicans / Christians in USA / Voting Republicans / Baby boomers } - but Reddit users, Twitter users, Facebook users... EERYBODY changed in year 2014. Things have not returned. As year 2025 is coming to a close, people have lost all sense / situational awareness on long-term scale. { Rural Americans, Rural Republicans, "Red areas", "Red states" } think of New York City **city slickers** - a braggard man in a business suit is SLEAZY. Someone who doens't like country music, doesn't serve in military. WAKE UP READER OF THIS page!
+
+That is why I created this GitHub. People in year 2025 are asleep in the way James Joyce saw us waslking into "Christian religion of love and turn the other cheek" became World War One and World War Two. Finnegans Wake / Finn Hotel year 1923, and earlier Joyce lecturs and quotes.  "Woke Finnegan", "The Dead" of Dublin, the metaphors of yeaer 1923 "Woke", "Wake the fuck up","Get Woke World".
+
+That is why I created this GitHub: Rural farmers, Rural republicans, "Red area voters" - why trust SLEAZY Donald Trump? Baby boomers knew of sleazy real estate golf course owners.  That is why I created this GitHub: SOMETHING on a SCALE never experienced by United States of America before was going on. SLEAZY "City Slicker" was now attractive to rural Americans / Red voters.
+
+That is why I created this GitHub: 1) Apple iPhone 2007 mocked atfirst by rural, by year 2012 previously avoidant of "nerd" behaviors - was now normal and adopted by rural populations in USA. Socialmedia. 2) Russian Internet Research agency 2013. 3) Reach of IRA to rural,previously inexpenrienced Internet / computer media avoiders, for first time in USA history. Direct Russia media publishing to rural previously isolated Americans who were new to memes and social media culture. 3) Cambridge Analytica doctors of the mind. 4) Rural population not knowing New York City / Manhattan / New York University **Neil Postman's** 1985 criticism of Cowboy Hat California/ Cowboy Hat Ronald Regan. Trump is NOT that persona of Rural, but a city slicker.But the **Neil Postman** emphasis is the shift away from printed books to eletronic meme networks in 1985. Electronic, high-speed,  electric media.The Marshall McLuhan Canada insughts applied to USA NYC Fox News and IRA / CA meme cultures of electric media thrills. Memem eupohria  for rural famers, electric media drugs-like stimulation. That is why I created this GitHub. Russia won, Surkov students won hearts and minds.
+
