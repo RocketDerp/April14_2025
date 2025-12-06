@@ -882,3 +882,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_ch
 Deport-happy, I.C.E. U.S.A. December 2025 Apple "walled graden" app store consumers, deport immigrants happy USA consumers, block-happy Reddit consumers mindsets. When there are episodes released a week apart, why would you be visiting a subreddit on Reddit Internet when you haven't even had 60 minutes to watch an episode? Why spend countdown time hanging out in a dedicated independent  media space for show discussion spending **free time / spare time** on Reddit? And then using that time on Reddit to write complaints to the public about using secret police of Reddit / I.C.E. face-mask techniques, to remove posts / ban people?
 
 The media ecology of this show is mind-blowing. Breaking Badness.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_chill_on_the_semi_spoilers_in/nsn766v/
+
+Carol commanding the world, including Google search titles, Reddit posting titles, etc.
