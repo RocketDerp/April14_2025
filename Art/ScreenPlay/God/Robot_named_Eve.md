@@ -16,3 +16,5 @@ The two-syllable "Eve" name, Eve version A. "Eve Attempt A" in sciene test
 Eve Alpha, Eve Beta. Beta testing software, Alpha testing software. 
 
 Alpha and Omega, Tree of Knowledge leveling up.
+
+Ahh, also "Eve A" like "Athen A" https://youtu.be/HU70rxvJFRE?t=972
