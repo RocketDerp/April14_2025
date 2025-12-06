@@ -1221,3 +1221,13 @@ https://www.youtube.com/watch?v=4bNZ95cBIdg
 https://old.reddit.com/r/AskTheWorld/comments/1pfoh9b/does_your_country_have_a_color_filter_in_movies/
 
 Cultural remix, sampling media culture, post post-production localization.
+
+&nbsp;
+
+&nbsp;
+
+### Viral Memes Pandemic
+
+Going viral, memes, and books are now abandoned by the children. Reading levels, meme video clips / TikTok short-length video clip levels.
+
+https://old.reddit.com/r/TikTokCringe/comments/1pfxxzz/she_teaches_eighth_grade_and_has_more_than_100/
