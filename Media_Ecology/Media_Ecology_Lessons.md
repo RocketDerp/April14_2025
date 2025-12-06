@@ -1211,3 +1211,13 @@ https://nypost.com/2024/04/09/us-news/nyc-restaurants-use-zoom-cashiers-from-phi
 Camera resolution bamboozle
 
 https://www.youtube.com/watch?v=4bNZ95cBIdg
+
+&nbsp;
+
+&nbsp;
+
+### Rose-colored screen glass
+
+https://old.reddit.com/r/AskTheWorld/comments/1pfoh9b/does_your_country_have_a_color_filter_in_movies/
+
+Cultural remix, sampling media culture, post post-production localization.
