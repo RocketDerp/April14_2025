@@ -876,3 +876,9 @@ Reddit media ecology. Outside the garden of Reddit.
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pf9iz6/theory_the_plurbs_are_running_an_arg/nsjpz6s/
 
 <img width="948" height="388" alt="image" src="https://github.com/user-attachments/assets/97dacd53-3c6a-41fd-b7b9-a3f43b2415bb" /> These very common 2025 "Word Salad" USA audience comments all over Reddit are likely inspired by **"No King" NYC "Word Salad"** public speeches all over Reddit. Speak American. Speak Fox News. Speak Trump-speak "Word Salad". "Do You Speak Fox?" Murdoch media ecology: https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_chill_on_the_semi_spoilers_in/nsmhu1l/
+
+Deport-happy, I.C.E. U.S.A. December 2025 Apple "walled graden" app store consumers, deport immigrants happy USA consumers, block-happy Reddit consumers mindsets. When there are episodes released a week apart, why would you be visiting a subreddit on Reddit Internet when you haven't even had 60 minutes to watch an episode? Why sped time hanging out in a dedicated independent media space for show discussion **spending free time / spare time** on Reddit?
+
+The media ecology of this show is mind-blowing. Breaking Badness.
