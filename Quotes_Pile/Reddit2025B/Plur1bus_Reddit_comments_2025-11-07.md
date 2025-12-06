@@ -867,4 +867,4 @@ Red color. Some YouTube channel mentioned purple color? ToDo:
 
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pfga8e/if_it_matters_to_just_one_person_maybe_thats/nsliwpu/
 
-Yes. her uni / university graduate studies of James Joyce before she became a book publisher married to a book author. Uni: hive mind, school hive mind, unity hive mind.
+Yes. her uni / university graduate studies (academic) of James Joyce (drunk) before she became a book publisher married to a (drunkard) book author.. Uni: hive mind, school hive mind, unity hive mind. Feminute principal unity marriage uni.
