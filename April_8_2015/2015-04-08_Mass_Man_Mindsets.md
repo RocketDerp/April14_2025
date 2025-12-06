@@ -114,7 +114,7 @@ my comment reply, downvoted -3 comment:
 
 https://old.reddit.com/r/interstellar/comments/31ved9/nolan_brothers_are_bad_writers_and_directors/cq5bx4r/
 
-Reddit audience / People against **neuro-diversity**, anti-Autism (RFK Jr. autism attitudes / "associative thinking" of autism) 
+Reddit audience / People against **neuro-diversity**, anti-Autism (RFK Jr. autism attitudes / "associative thinking" of autism). Mass mind meme: autistic minds like trains. https://old.reddit.com/r/autism/comments/15stsho/so_why_do_autistic_people_like_trains_so_much/
 
 my comment reply, downvoted -11 comment:   
 
