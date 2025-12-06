@@ -2,7 +2,7 @@
 
 https://old.reddit.com/r/philosophy/comments/bp2ev/comment/c0nvbza/
 
-My Reddit comment message:
+My Reddit comment message, upvoted 14 points:
 
 Joseph Campbell, November 16, 1961, The Cooper Union; New York, NY
 
