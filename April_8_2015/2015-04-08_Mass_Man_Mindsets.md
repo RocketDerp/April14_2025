@@ -82,9 +82,11 @@ Frog Croaking is shallow thinking.  Deepness isn't a function of how eloquent yo
 
 ### Reply 1: Mind-blown drug users of Reddit
 
+https://old.reddit.com/r/interstellar/comments/31ved9/nolan_brothers_are_bad_writers_and_directors/cq5b7g6/
+
 Reddit audience / People calling for drugs. www.LazyWake.com - LSD Finnegans Wake Lazy as Marshall McLuhan said about drug users and book reading. Drugies of Reddit, anti-intellectual stoners.
 
-my comment reply, downvoted -5 comment:    
+my comment reply, downvoted -3 comment:    
 
 > What drugs are you using and where can I find them? They sound fun.
 
@@ -125,6 +127,8 @@ A person can go to /r/WorldNews and read about war and mass killings every hour 
 &nbsp;
 
 ### Reply 3: James Joyce, no further [reply at all](https://www.youtube.com/watch?v=2O249HU6tUA)
+
+I reply to claims, but the other purson gave up and abandoned serious discussion of media ecology. "Too stubborn to say: The Buck Stops Here".
 
 https://old.reddit.com/r/interstellar/comments/31ved9/nolan_brothers_are_bad_writers_and_directors/cq5fi6r/
 
@@ -179,3 +183,25 @@ That's exactly how virtuosic frog croaking works!   It's a complex music people 
 *Deepness in reaching* is what I said, which you insult and imply isn't real and that the film is only 10 meters deep - when I say it is "Turtles All the Way Down".  It is Mythology deep.
 
 The movie uses a bookshelf to talk about other stories. It isn't about just spewing personal shallow viewpoints and saying "hey, don't provide quotes - we don't need a bookshelf".  Using books is a major theme and image of the film!
+
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+Reply 4: "Celebration of Ignorance" banality 
+
+In a new root thread, another reply of mine. The person gave me a one-word message, mocking the complex posting with banlity. As Carl Sagan (relative to Interstellar 2014 film) called it in 1995 "Especially a kind of Celebration of Ignorance" on social media systems, tiny-short 10-second "sound bites".
+
+https://old.reddit.com/r/interstellar/comments/31ved9/nolan_brothers_are_bad_writers_and_directors/cq5u0c5/
+
+my comment reply, downvoted -3 comment:   
+
+> /r/iamverysmart
+
+Wow, such deep effort of personal, original human thinking!  You aren't meme copying robot Socratic responding at all!
+
