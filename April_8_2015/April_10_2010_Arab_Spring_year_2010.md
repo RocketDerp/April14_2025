@@ -1,6 +1,6 @@
 # April 10, 2010: Arab Spring 2010
 
-https://www.reddit.com/r/philosophy/comments/bp2ev/comment/c0nvbza/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button
+https://old.reddit.com/r/philosophy/comments/bp2ev/comment/c0nvbza/
 
 My Reddit comment message:
 
