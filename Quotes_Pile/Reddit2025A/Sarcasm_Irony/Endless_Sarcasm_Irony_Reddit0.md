@@ -4,7 +4,7 @@
 ++ Surreal   
 ++ Endless attraction to Trump images and icons / status symbol of rich    
 ++ Hate training camp    
-++ Entertainment focus     
+++ Entertainment focus (me: Neil Postman keywords)    
 ++ "Just like The Onion!" Kremlin and White House     
 ++ Recency bias     
 ++ Wiki organized Powerpoint (Open Office Impress)  presentaiton would solve    
@@ -1773,3 +1773,10 @@ That is why I created this GitHub: Rural farmers, Rural republicans, "Red area v
 
 That is why I created this GitHub: 1) Apple iPhone 2007 mocked atfirst by rural, by year 2012 previously avoidant of "nerd" behaviors - was now normal and adopted by rural populations in USA. Socialmedia. 2) Russian Internet Research agency 2013. 3) Reach of IRA to rural,previously inexpenrienced Internet / computer media avoiders, for first time in USA history. Direct Russia media publishing to rural previously isolated Americans who were new to memes and social media culture. 3) Cambridge Analytica doctors of the mind. 4) Rural population not knowing New York City / Manhattan / New York University **Neil Postman's** 1985 criticism of Cowboy Hat California/ Cowboy Hat Ronald Regan. Trump is NOT that persona of Rural, but a city slicker.But the **Neil Postman** emphasis is the shift away from printed books to eletronic meme networks in 1985. Electronic, high-speed,  electric media.The Marshall McLuhan Canada insughts applied to USA NYC Fox News and IRA / CA meme cultures of electric media thrills. Memem eupohria  for rural famers, electric media drugs-like stimulation. That is why I created this GitHub. Russia won, Surkov students won hearts and minds.
 
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/sports/comments/1pfc5x2/president_donald_trump_wants_the_nfl_to_change/
+
+Front page all night on Reddit. Staring entertainment meme audience of Reddit in the face. The entertainment sports mentality that Donald Trump entertainer / Reality TV entertainer...focuses on. Neil Postman's 1985 book "Amusing Ourselves To Death" about POTUS second term in office Trump. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ - March 27, 2024 - before voting Term into entertainment memeleadership / sports mentality in November 2024.
