@@ -872,3 +872,7 @@ Yes. her uni / university graduate studies (academic) of James Joyce (drunk) bef
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pfga8e/if_it_matters_to_just_one_person_maybe_thats/nsk26pn/
 
 Reddit media ecology. Outside the garden of Reddit.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pf9iz6/theory_the_plurbs_are_running_an_arg/nsjpz6s/
+
+<img width="948" height="388" alt="image" src="https://github.com/user-attachments/assets/97dacd53-3c6a-41fd-b7b9-a3f43b2415bb" /> These very common 2025 "Word Salad" USA audience comments all over Reddit are likely inspired by **"No King" NYC "Word Salad"** public speeches all over Reddit. Speak American. Speak Fox News. Speak Trump-speak "Word Salad". "Do You Speak Fox?" Murdoch media ecology: https://www.theatlantic.com/culture/archive/2020/09/fox-news-trump-language-stelter-hoax/616309/
