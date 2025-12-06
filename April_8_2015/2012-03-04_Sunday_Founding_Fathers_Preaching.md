@@ -1,6 +1,6 @@
 # 2012-03-04 Sunday Founding Fathers Preaching
 
-My comment message:
+My Sunday comment message:
 
 https://old.reddit.com/r/TrueReddit/comments/qg868/comment/c3xjvlh/
 
