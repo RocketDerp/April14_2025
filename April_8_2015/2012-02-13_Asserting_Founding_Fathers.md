@@ -4,7 +4,7 @@ Just another Manic Monday, that's my Funday, Asserting Founding Fathers educatio
 
 https://old.reddit.com/r/philosophy/comments/pn5ge/comment/c3qu5hi/
 
-My comment message:
+My comment message, Reddit society upvoted 2:
 
 > I've been reading a lot of Nietzsche lately, and been doing some thinking on my own. I've come to the realization that it's useless, all of it.
 
