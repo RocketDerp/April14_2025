@@ -4,6 +4,11 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_ch
 
 &nbsp;
 
+<img width="1154" height="1218" alt="image" src="https://github.com/user-attachments/assets/7b270a08-e9de-46d8-854b-af7a369ff6ac" />
+
+&nbsp;
+
+&nbsp;
 
 &nbsp;
 
