@@ -1,4 +1,4 @@
-Reddit published it, I eddited and added the P.S. at the bottom with "MSNBC", then it was unpublished / censored by Reddit.
+Reddit published it instantly when comment created, later I edited the comment and added the P.S. at the bottom with "MSNBC", then the comment was unpublished / censored by Reddit.
 
 &nbsp;
 
