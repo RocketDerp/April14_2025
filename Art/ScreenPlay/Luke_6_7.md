@@ -34,3 +34,12 @@ That is what Bible verse **Luke 6 : 7** means...
 
 https://old.reddit.com/r/comics/comments/1p19veb/deep_thoughts/
 
+&nbsp;
+
+&nbsp;
+
+# Saturday, December 6, 2025
+
+The "6 7" trend is still raging in the USA society of of December 6, 2025. Reddit front page:
+
+https://old.reddit.com/r/mildlyinfuriating/comments/1pfudu1/tried_to_get_birthday_candles_for_my_girlfriends/
