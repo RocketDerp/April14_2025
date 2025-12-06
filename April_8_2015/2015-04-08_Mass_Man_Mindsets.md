@@ -4,7 +4,7 @@ Mass Man is a reference to University of Toronto's Marshall McLuhan teaching abo
 
 ## 2015-04-08 
 
-The date of this Reddit posting I authored on April 8, 2015 in lead up to Bloomsday 2015 (June 16, 2015 - a day that shall live in USA infomy).
+The date of this Reddit posting I authored on April 8, 2015 in April Showers metaphor lead up to Bloomsday 2015 (June 16, 2015 - a [day that shall live in USA](https://en.wikipedia.org/wiki/Donald_Trump_2016_presidential_campaign) infomy / info-phony / infamy).
 
 https://old.reddit.com/r/interstellar/comments/31ved9/nolan_brothers_are_bad_writers_and_directors/
 
