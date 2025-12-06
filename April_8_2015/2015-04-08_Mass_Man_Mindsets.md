@@ -140,7 +140,7 @@ A person can go to /r/WorldNews and read about war and mass killings every hour 
 
 ### Reply 3: James Joyce, no further [reply at all](https://www.youtube.com/watch?v=2O249HU6tUA)
 
-I reply to claims, but the other purson gave up and abandoned serious discussion of media ecology. "Too stubborn to say: The Buck Stops Here".
+I reply to claims, but the other purson gave up and abandoned serious discussion of media ecology. ["Too stubborn to say: The Buck Stops Here"](https://www.youtube.com/watch?v=2O249HU6tUA).
 
 https://old.reddit.com/r/interstellar/comments/31ved9/nolan_brothers_are_bad_writers_and_directors/cq5fi6r/
 
