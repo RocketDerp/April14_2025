@@ -896,3 +896,7 @@ None of these replies address the Purlibus TV show on-screen countdown timers. W
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_chill_on_the_semi_spoilers_in/nso3g4j/
 
 Tiny-short iPhone screen banality messaging about Pluribus metaphors.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_chill_on_the_semi_spoilers_in/nso3u97/
+
+"Bot", The ELIZA effect. Turning test failure.
