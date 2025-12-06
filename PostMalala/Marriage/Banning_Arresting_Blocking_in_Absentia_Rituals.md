@@ -2,7 +2,7 @@
 
 https://youtu.be/P2phn2mt0Jg?t=59
 
-"Arresting her in absentia, which is not a thing"
+"Arresting her in absentia, which is not a thing" - Pussy Riot topic / Russia / Putinism
 
 Marriage via proxy is a thing. I should know, during the Arab Spring in early December 2010 - I married my wife in north Africa in Texas, without her ever stepping food in Texas. A proxy marriage is a real thing, a proxy police arrest seems valid enough. Like burning in effigy social protest convetions, but this being a state-sponsored burning of a witch (Pussy Riot) in effigy ritual. 
 
