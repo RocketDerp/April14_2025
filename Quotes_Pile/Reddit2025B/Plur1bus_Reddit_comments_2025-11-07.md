@@ -848,3 +848,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pf9iz6/theory_the_plurbs_are_
 https://old.reddit.com/r/Pluribus_TVshow/comments/1pf9iz6/theory_the_plurbs_are_running_an_arg/nsiwzf1/
 
 Finnegans Wake shock reactions of peer to peer hive mind Reddit users. Deflecting complex ideas.
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1peky11/anyone_also_banned_from_official_pluribustv_thread/nsl7gly/
+
+Media ecology: Hence the very point being made of how deep the Corporate America "hive mind" runs with oppression. Bill Gates personally saved Apple, while I was working in Bellevue Washington in those years. (1997, I worked for Vulcan Northwest / Paul Allen Group, microsoft co-founder, I was a media analyst and consultant in Bellevue)
