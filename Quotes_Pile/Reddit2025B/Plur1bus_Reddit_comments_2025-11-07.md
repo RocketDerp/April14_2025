@@ -892,3 +892,7 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_ch
 Reactionmary mindsets are spoiler mindsets, who see shallow plot shocks. Jump scares. REALLY lame media ecology that every Readdit headline is "me_irl". An entire subreddit full of "me_irl" headlines that have no meaning and get discarded in favor of trash.
 
 None of these replies address the Purlibus TV show on-screen countdown timers. Why are people spending free time and spare time on Reddit who haven't spent said spare time watching the show itself?
+
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfu7ac/can_you_guys_please_chill_on_the_semi_spoilers_in/nso3g4j/
+
+Tiny-short iPhone screen banality messaging about Pluribus metaphors.
