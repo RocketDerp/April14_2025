@@ -1780,3 +1780,12 @@ That is why I created this GitHub: 1) Apple iPhone 2007 mocked atfirst by rural,
 https://old.reddit.com/r/sports/comments/1pfc5x2/president_donald_trump_wants_the_nfl_to_change/
 
 Front page all night on Reddit. Staring entertainment meme audience of Reddit in the face. The entertainment sports mentality that Donald Trump entertainer / Reality TV entertainer...focuses on. Neil Postman's 1985 book "Amusing Ourselves To Death" about POTUS second term in office Trump. https://www.northjersey.com/story/opinion/columnists/2024/03/27/us-politics-2024-predicted-media-expert-neil-postman/73022583007/ - March 27, 2024 - before voting Term into entertainment memeleadership / sports mentality in November 2024.
+
+&nbsp;
+
+&nbsp;
+
+https://old.reddit.com/r/MurderedByWords/comments/1pg9k7g/get_to_the_point/
+
+Reddit society front page in morning / sunrise Sunday: Promoting Charlie Kirk. Also note the removal of dates from these suspicious screen shots. The eternal metaphors of Jesus-leader / holy cult figure Charlie Kirk. A USA Jesus white saint has been created by clergy / ritual / Reddit consumers. People believe they are being clever and mocking, when what is heppening in real world media ecology: constant assertion of what is important topics. Extreme low-efort commenting, exgtreme mocking, following of Truth Social media behaviors, following of Fox News behaviors. "Gotcha" insulting / mocking / thoughtless mindless  eating out of Kremlin informaiton warfare. Normalizatio through joke-washing  entertainment-wrapping.  THis is what blows the mindsof Reddit consumers, dumb content. I did not say "dumb people", or "physically retarded brains"... I said content itself, media ecology, as Carl Sagan saidof"Celebration of Ignorance" about media in his 1995 book. Sunday, Church Day, alsomakes a *talkig point* of religion leader / sait Charlie Kirk. "Talking Point Faith" destablished year 2021. *Turning Point*, turning into, talking points mind langauge patterns. https://old.reddit.com/r/AskAChristian/comments/1np3uus/why_is_charlie_kirk_being_spread_in_church/
+
