@@ -973,3 +973,19 @@ https://old.reddit.com/r/Pluribus_TVshow/comments/1pgdb62/its_simple/nsqy6be/
 
 Multiple meanings, meaning overloaded, [language overloading science](https://www.adaic.org/resources/add_content/standards/05rat/html/Rat-2-7.html) metaphors, interpretation overloading layers of trickle-out storytelling Pluribis show has been.
 
+https://old.reddit.com/r/Pluribus_TVshow/comments/1pfga8e/if_it_matters_to_just_one_person_maybe_thats/nsszk7o/
+
+
+> is your style of writing notes to yourself, or is it just flying over my head? Genuinely
+
+This is a public internet forum. Like a cork board / tree of Halloween 1517... posting a message on the wooden door of a hive mind. This is public posting, I likely have never met you or anyone else here in person. It's a public message forum / public venue / "Public House" like minute 22 of Episode One.
+
+Google AI and Google Search visit here too. Ghosts in the room, Spirits of the Helen dead.
+
+&nbsp;
+
+> if it matters to just one person
+
+"if it matters to just one person" is what I quoted, replied to. That is minute 22 of Episode One in Paribus TV show. That's the context here.
+
+At 22 minutes in the Pilot Episode, there is a signal... "22" is a magic number, Kepler-22b
