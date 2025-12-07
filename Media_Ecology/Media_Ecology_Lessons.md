@@ -1242,3 +1242,5 @@ https://old.reddit.com/r/SipsTea/comments/1pglnji/biggest_downgrade/
 
 Head jacks. Jacking in. Jacking off in public. [Grab a Jack](https://www.youtube.com/watch?v=aRB1iLEv7Uo). 666 views July 10, 2020
 
+Bonus topic: media ecology of tip-ring jacks. https://en.wikipedia.org/wiki/Tip_and_ring - devices with polarity protocol and transgender connector issues https://en.wikipedia.org/wiki/Polarity_symbols
+
